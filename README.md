@@ -1,7 +1,7 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
-1.Bộ Giáo dục và Đào tạo đề xuất Chính phủ trình Quốc hội ban hành nghị quyết "Phổ cập giáo dục mầm non cho trẻ mẫu giáo từ 3 đến 5 tuổi" để thông qua vào tháng 10-2024.
+1.Bộ Giáo dục và Đào tạo đề xuất Chính phủ trình Quốc hội ban hành nghị quyết "Phổ cập giáo dục mầm non cho trẻ mẫu giáo từ 3 đến 5 tuổi" để thông qua vào tháng 10-2024.\n
 2.Theo ý kiến giáo viên, không phải tất cả học sinh đều phù hợp với thực hiện dự án, trải nghiệm nên không thể ép 100% học sinh phải tham gia.
 3.Úc vừa ghi nhận số lượng du học sinh cao nhất từ trước đến nay, bất chấp nước này đã và đang siết chặt thị thực sinh viên.
 4.'Thử thách' 7 ngày sống xanh, nói không với ly nhựa, tái chế rác, trồng cây... thu hút hàng chục ngàn lượt sinh viên tham gia và lan tỏa trên mạng xã hội.
