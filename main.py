@@ -26,7 +26,7 @@ def read_rss(url):
     for entry in feed.entries:
         match = re.search(r'</a>([^<]*)$', entry.summary, re.DOTALL)
         text_between_a_and_brackets = match.group(1).strip()
-        write += "- ." + text_between_a_and_brackets + "\n"
+        write += "- " + text_between_a_and_brackets + "\n"
     return write
 
 
