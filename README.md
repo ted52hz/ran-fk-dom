@@ -1,8 +1,8 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
-- 1.Bộ Giáo dục và Đào tạo đề xuất Chính phủ trình Quốc hội ban hành nghị quyết "Phổ cập giáo dục mầm non cho trẻ mẫu giáo từ 3 đến 5 tuổi" để thông qua vào tháng 10-2024.
-- 2.Theo ý kiến giáo viên, không phải tất cả học sinh đều phù hợp với thực hiện dự án, trải nghiệm nên không thể ép 100% học sinh phải tham gia.
+1.Bộ Giáo dục và Đào tạo đề xuất Chính phủ trình Quốc hội ban hành nghị quyết "Phổ cập giáo dục mầm non cho trẻ mẫu giáo từ 3 đến 5 tuổi" để thông qua vào tháng 10-2024.
+2.Theo ý kiến giáo viên, không phải tất cả học sinh đều phù hợp với thực hiện dự án, trải nghiệm nên không thể ép 100% học sinh phải tham gia.
 3.Úc vừa ghi nhận số lượng du học sinh cao nhất từ trước đến nay, bất chấp nước này đã và đang siết chặt thị thực sinh viên.
 4.'Thử thách' 7 ngày sống xanh, nói không với ly nhựa, tái chế rác, trồng cây... thu hút hàng chục ngàn lượt sinh viên tham gia và lan tỏa trên mạng xã hội.
 5.Thanh tra Bộ Giáo dục và Đào tạo chỉ ra hàng loạt thiếu sót, vi phạm của các trường đại học khi tự chủ mở ngành.
@@ -31,7 +31,7 @@
 28.Số lượng thí sinh đăng ký tuyển sinh vào lớp 10 nhiều trong khi chỉ tiêu vào các trường THPT công lập tại TP Vinh (Nghệ An) thấp, gây nhiều áp lực cho thí sinh và phụ huynh.
 29.Con gái tôi đang học lớp 6. Từ đầu năm học đến giờ, nhiều môn học yêu cầu hoạt động nhóm để thực hiện bài tập, dự án khiến học sinh lẫn phụ huynh mải miết "chạy" theo, đúng nghĩa đen lẫn nghĩa bóng.
 30.Ngày 29 và 30-3, vòng chung kết "Olympic Tin học miền Trung - Tây Nguyên lần thứ V, năm 2024" đã được tổ chức tại Đà Nẵng, với sự tham gia của đông đảo học sinh trên cả nước.
-![Edu](.Edu.png)
+![Edu](Edu.png)
 ## Thời Sự 
 1.Bộ Lao động - Thương binh và Xã hội đang lấy ý kiến về việc người lao động được nghỉ 5 ngày liên tục trong dịp nghỉ lễ 30-4 và 1-5
 2.Dù không chở hàng hóa, không có người, nhưng suốt hơn 4 tháng qua con tàu ma trôi dạt từ đại dương vào đảo Cù Lao Chàm vẫn yên vị. Sự cố tràn dầu đã được loại bỏ, nhưng việc kéo tàu ra khỏi vùng nhạy cảm là việc không dễ dàng.
@@ -63,7 +63,7 @@
 28.Hôm nay nắng nóng tiếp tục diễn ra khắp cả nước, về chiều tối nhiều nơi có mưa rào đến mưa to, từ mai nắng ở các tỉnh phía Bắc giảm dần.
 29.Sự việc một đàn gồm 19 con chó cùng nhiều đồ đạc để cả đêm ở sân chung cư River Panorama (quận 7, TP.HCM) khiến nhiều người bất ngờ.
 30.Để làm rõ cái chết của một người đàn ông, Công an tỉnh Đồng Nai đã đình chỉ công tác thêm một điều tra viên Công an huyện Long Thành.
-![New](.News.png)
+![New](News.png)
 ## Nhịp sống số 
 1.Hầu hết trình duyệt web hiện nay cho phép người dùng sử dụng chế độ ẩn danh như một cách để bảo vệ quyền riêng tư.
 2.Sự phát triển của nhiều hình thức kinh doanh mới, nhu cầu làm việc từ xa tăng mạnh v.v. khiến doanh nghiệp phải tìm giải pháp mở rộng đường truyền.
@@ -95,4 +95,4 @@
 28.Sự xuất hiện của Galaxy AI - trải nghiệm trí tuệ nhân tạo toàn diện trên mẫu flagship nhà Samsung đã mang đến rất nhiều cảm hứng.
 29.Ngày 30-1-2024, Tổng công ty Viễn thông Viettel (Viettel Telecom) cho biết nhằm đáp ứng nhu cầu truy cập Internet trên di động/tại nhà cũng như phục vụ nhu cầu giải trí dịp Tết Nguyên đán, Viettel triển khai chương trình ưu đãi 'Tết A.I cũng có quà'.
 30.Doanh thu trên các sàn thương mại điện tử (TMĐT) lớn tại Việt Nam năm 2023 đã tăng hơn 53% lên 232.134 tỉ đồng.
-![life](.Life.png)
+![life](Life.png)
