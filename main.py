@@ -22,13 +22,11 @@ def wordcloud_generator(url, title):
 
 def read_rss(url):
     feed = feedparser.parse(url)
-    i = 1
     write = ""
     for entry in feed.entries:
         match = re.search(r'</a>([^<]*)$', entry.summary, re.DOTALL)
         text_between_a_and_brackets = match.group(1).strip()
-        write += str(i) + "." + text_between_a_and_brackets + "\n"
-        i += 1
+        write += "- " + text_between_a_and_brackets
     return write
 
 
