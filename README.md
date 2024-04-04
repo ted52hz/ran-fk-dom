@@ -33,6 +33,7 @@
 - .Ngày 29 và 30-3, vòng chung kết "Olympic Tin học miền Trung - Tây Nguyên lần thứ V, năm 2024" đã được tổ chức tại Đà Nẵng, với sự tham gia của đông đảo học sinh trên cả nước.
 ![Edu](Edu.png)
 ## Thời Sự 
+- .Làng rèn Minh Khánh, xã Tịnh Minh, huyện Sơn Tịnh, Quảng Ngãi trải qua 300 năm tồn tại. Những sản phẩm búa, liềm, dao, rựa... rất nổi tiếng của làng nghề từng độc chiếm thị trường. Nay chỉ khoảng 65 hộ theo nghề, họ hy vọng phục hưng thuở huy hoàng.
 - .Chủ tịch Quốc hội Vương Đình Huệ sẽ dẫn đầu đoàn đại biểu cấp cao Việt Nam thăm chính thức Trung Quốc từ ngày 7 đến 12-4-2024.
 - .Bộ Lao động - Thương binh và Xã hội đang lấy ý kiến về việc người lao động được nghỉ 5 ngày liên tục trong dịp nghỉ lễ 30-4 và 1-5
 - .Dù không chở hàng hóa, không có người, nhưng suốt hơn 4 tháng qua con tàu ma trôi dạt từ đại dương vào đảo Cù Lao Chàm vẫn yên vị. Sự cố tràn dầu đã được loại bỏ, nhưng việc kéo tàu ra khỏi vùng nhạy cảm là việc không dễ dàng.
@@ -62,7 +63,6 @@
 - .Vận dụng nghị quyết 98 để rút ngắn thủ tục chuẩn bị đầu tư, cầu Cần Giờ, cầu Thủ Thiêm 4, vành đai 4 TP.HCM sẽ được trình HĐND TP trong kỳ họp gần nhất.
 - .Tin tức đáng chú ý: Tốc độ tăng giá chung cư Hà Nội vượt TP.HCM; Xe điện du lịch chạy từ 12-4 ở TP.HCM, giá thuê ra sao?; Hơn 90,1 triệu người Việt đã có thẻ bảo hiểm y tế...
 - .Hôm nay nắng nóng tiếp tục diễn ra khắp cả nước, về chiều tối nhiều nơi có mưa rào đến mưa to, từ mai nắng ở các tỉnh phía Bắc giảm dần.
-- .Sự việc một đàn gồm 19 con chó cùng nhiều đồ đạc để cả đêm ở sân chung cư River Panorama (quận 7, TP.HCM) khiến nhiều người bất ngờ.
 ![New](News.png)
 ## Nhịp sống số 
 - .Hầu hết trình duyệt web hiện nay cho phép người dùng sử dụng chế độ ẩn danh như một cách để bảo vệ quyền riêng tư.
