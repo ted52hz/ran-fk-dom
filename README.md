@@ -1,6 +1,15 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Khoản phí "ghi danh" và "giữ chỗ" khi nộp hồ sơ vào lớp 10 trường tư ở Hà Nội từ vài triệu tới vài chục triệu đồng.
+- Theo ngành y tế Vĩnh Long, đa số học sinh Trường trung học cơ sở Lộc Hòa, huyện Long Hồ, tỉnh Vĩnh Long bị ngộ độc khí bóng nổ sức khỏe đã ổn định.
+- Những hoa văn màu sắc mang nét truyền thống được vẽ trên chén, dĩa, ly... biết 'bay lượn' nhờ vào công nghệ AR được các bạn sinh viên lập trình.
+- Đại học Quốc gia TP.HCM vừa công bố thông tin về cụm, điểm thi và các quy định dành cho thí sinh tham dự kỳ thi đánh giá năng lực đợt 1 năm 2023.
+- Các cơ sở giáo dục, đơn vị trường học công lập ở TP.HCM đang ngưng việc thực hiện đánh giá, xếp loại quý 1-2024 và chưa chi thu nhập tăng thêm cho giáo viên.
+- IDP Việt Nam cho biết Bộ Giáo dục và Đào tạo vừa đồng ý cho đơn vị này tổ chức thi lại một kỹ năng bài thi IELTS.
+- Tuổi Trẻ Online đã nhận được nhiều thắc mắc của phụ huynh, giáo viên về kết quả thi học sinh giỏi lớp 12 ở TP.HCM.
+- Cần có cơ chế chính sách để huy động mọi nguồn lực cho giáo dục mầm non, nhất là chính sách về thuế, tiếp cận đất đai, tín dụng…
+- Trung tâm An ninh mạng Đại học Quốc gia TP.HCM sẽ thực hiện nghiên cứu xây dựng hệ thống theo dõi mạng xã hội, đào tạo nhân lực an toàn, an ninh thông tin.
 - Bộ Giáo dục và Đào tạo đề xuất Chính phủ trình Quốc hội ban hành nghị quyết "Phổ cập giáo dục mầm non cho trẻ mẫu giáo từ 3 đến 5 tuổi" để thông qua vào tháng 10-2024.
 - Theo ý kiến giáo viên, không phải tất cả học sinh đều phù hợp với thực hiện dự án, trải nghiệm nên không thể ép 100% học sinh phải tham gia.
 - Úc vừa ghi nhận số lượng du học sinh cao nhất từ trước đến nay, bất chấp nước này đã và đang siết chặt thị thực sinh viên.
@@ -22,47 +31,38 @@
 - Các công trình, giải pháp, sản phẩm sáng tạo sẽ được UBND TP.HCM tôn vinh trên 7 lĩnh vực.
 - Chủ tịch Phan Văn Mãi yêu cầu phải giải quyết vụ việc tại Trường quốc tế AISVN một cách đồng bộ, trên hết là làm sao sớm cho học sinh trở lại học.
 - Ngôi trường ở miền núi Quảng Nam được đầu tư xây dựng 63 tỉ đồng nhưng học sinh chỉ mới vào học thời gian ngắn đã bị sạt lở núi.
-- Trường tiểu học Vĩnh Hiệp 2 đã tạm đình chỉ dạy học đối với ông L.M.C., 52 tuổi, giáo viên của trường, sau khi ông bị tố sàm sỡ học sinh lớp 5.
-- Dự án của hai học sinh Trường chuyên Lê Hồng Phong, TP.HCM được Bộ Giáo dục và Đào tạo chọn tham gia cuộc thi khoa học kỹ thuật quốc tế 2024 tại Mỹ.
-- 100 học sinh THCS và 100 thí sinh THPT được vào chung kết Hội thi sáng tác ảnh Tuổi Xanh năm nay.
-- Nhiều trường đại học, học viện vừa phát cảnh báo tình trạng mạo danh nhà trường trên mạng xã hội để lừa đảo bán khóa huấn luyện kỹ năng, trải nghiệm hè cho học sinh.
-- Đây là con số kỷ lục của một trường đại học Việt Nam. Điều đáng nói là mới chỉ năm trước đó, tỉ lệ sinh viên/giảng viên của trường này khá thấp.
-- GS.TS Bùi Khánh Thế, nguyên phó hiệu trưởng Trường đại học Tổng hợp TP.HCM, đã qua đời hôm qua 1-4.
-- Số lượng thí sinh đăng ký tuyển sinh vào lớp 10 nhiều trong khi chỉ tiêu vào các trường THPT công lập tại TP Vinh (Nghệ An) thấp, gây nhiều áp lực cho thí sinh và phụ huynh.
-- Con gái tôi đang học lớp 6. Từ đầu năm học đến giờ, nhiều môn học yêu cầu hoạt động nhóm để thực hiện bài tập, dự án khiến học sinh lẫn phụ huynh mải miết "chạy" theo, đúng nghĩa đen lẫn nghĩa bóng.
-- Ngày 29 và 30-3, vòng chung kết "Olympic Tin học miền Trung - Tây Nguyên lần thứ V, năm 2024" đã được tổ chức tại Đà Nẵng, với sự tham gia của đông đảo học sinh trên cả nước.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Làng rèn Minh Khánh, xã Tịnh Minh, huyện Sơn Tịnh, Quảng Ngãi trải qua 300 năm tồn tại. Những sản phẩm búa, liềm, dao, rựa... rất nổi tiếng của làng nghề từng độc chiếm thị trường. Nay chỉ khoảng 65 hộ theo nghề, họ hy vọng phục hưng thuở huy hoàng.
-- Chủ tịch Quốc hội Vương Đình Huệ sẽ dẫn đầu đoàn đại biểu cấp cao Việt Nam thăm chính thức Trung Quốc từ ngày 7 đến 12-4-2024.
-- Bộ Lao động - Thương binh và Xã hội đang lấy ý kiến về việc người lao động được nghỉ 5 ngày liên tục trong dịp nghỉ lễ 30-4 và 1-5
-- Dù không chở hàng hóa, không có người, nhưng suốt hơn 4 tháng qua con tàu ma trôi dạt từ đại dương vào đảo Cù Lao Chàm vẫn yên vị. Sự cố tràn dầu đã được loại bỏ, nhưng việc kéo tàu ra khỏi vùng nhạy cảm là việc không dễ dàng.
-- Đề hồi sinh sông Tô Lịch, chuyên gia cho rằng Hà Nội phải làm cùng lúc nhiều giải pháp. Trong đó, quan trọng nhất là phải xử lý tận gốc nguồn gây ra ô nhiễm, không nên chỉ giải quyết mỗi "phần ngọn".
-- Đại tướng Phan Văn Giang và Đại tướng Tô Lâm vừa đồng chủ trì kiểm tra hợp luyện diễu binh, diễu hành kỷ niệm 70 năm Chiến thắng Điện Biên Phủ, tại Trung tâm Huấn luyện quân sự quốc gia 4, Hà Nội.
-- Theo thông tư mới được Bộ Giao thông vận tải ban hành, từ ngày 1-6-2024, ngoài học tập trung, người học lái xe được học trực tuyến các nội dung lý thuyết.
-- Đưa 5ha đất sân tập golf Rạch Chiếc đầu tư dự án, nhưng 10 năm qua Saigontourist không thu về được đồng nào trong khi vẫn đóng tiền thuê đất hơn 52 tỉ đồng.
-- Công an huyện Lục Nam, tỉnh Bắc Giang đã có quyết định khởi tố hình sự vụ án phá rừng hơn 10ha trên địa bàn.
-- Đại biểu Phạm Văn Hòa cho rằng việc đấu giá biển số ô tô, xe máy sẽ giúp tăng thu ngân sách lớn và mang lại lợi ích xã hội, ngăn ngừa tiêu cực, "đi đêm".
-- Tại các điểm giao trên toàn tuyến cao tốc Cam Lộ - La Sơn, biển báo chưa được cắm đầy đủ nên nhiều xe tải nặng 6 trục vẫn lưu thông, nhiều xe đến điểm vào cao tốc phải quay đầu.
-- Ngày 4-4, Tòa án nhân dân tối cao phối hợp Quỹ nhi đồng Liên Hiệp Quốc (UNICEF) tổ chức hội thảo lấy ý kiến đối với dự thảo Luật Tư pháp người chưa thành niên.
-- Một người đàn ông ở Bạc Liêu tử vong thương tâm, do kiệt sức trong quá trình đốt đồng sau khi thu hoạch lúa.
-- Theo Trung tâm Dự báo khí tượng thủy văn quốc gia, nắng nóng khô hạn tại miền Nam sẽ tiếp tục kéo dài. Hạn hán, xâm nhập mặn ảnh hưởng đến nguồn nước ngọt, khiến nhiều người dân đối diện với nguy cơ thiếu nước sử dụng.
-- Phòng quản lý đô thị và Ban quản lý dự án bị đề nghị kiểm điểm, làm rõ trách nhiệm do những tồn tại, thiếu sót trong quy hoạch xây dựng.
-- Chưa đầy 1 tháng nữa người dân huyện Hương Khê (Hà Tĩnh) bước vào mùa thu hoạch ngô vụ đông xuân, song hơn 66ha cây ngô bất ngờ bị đốm lá, chết khô khiến người dân lo lắng.
-- Nha Trang có hẳn một khu xóm Mới được quy hoạch đường sá bài bản dành cho người dân di cư...
-- Nắng nóng khiến nỗi lo cháy nổ tại các khu nhà lụp xụp ven kênh, rạch TP.HCM thường trực.
-- PGS Trần Ngọc Anh cho rằng muốn nền công vụ của TP.HCM hoạt động hiệu quả thì thu nhập cán bộ phải đủ sống, tạo môi trường pháp lý để cán bộ sáng tạo. Cán bộ phải muốn làm, làm được và được làm.
-- Một số người dân ở Hội An khi nhắn tin tới các trang fanpage giới thiệu chương trình trại hè kỹ năng Công an nhân dân cho trẻ nhỏ thì được chỉ dẫn tới địa chỉ trụ sở Công an thành phố Hội An. Công an khẳng định không tổ chức chương trình nào như vậy.
-- Qua cuộc gọi video, nhóm lừa đảo mặc trang phục công an, viện kiểm sát nói bà X. liên quan đến một vụ án ma túy. Muốn không bị bắt phải chuyển hết tiền trong sổ tiết kiệm…
-- Khó khăn vẫn bủa vây ngành bất động sản nhưng các thông tin giá địa ốc tăng chóng mặt liên tục được đồn thổi khiến thị trường thêm rối rắm.
-- Bộ Giao thông vận tải cảnh báo chủ tịch, tổng giám đốc Tổng công ty Quản lý bay Việt Nam chịu hoàn toàn trách nhiệm nếu không đáp ứng tiến độ, làm gián đoạn hoạt động không lưu trong quá trình thực hiện các dự án trọng điểm.
-- Huyện Diên Khánh (Khánh Hòa) có 4 xã không đạt các tiêu chuẩn quy định, nhưng huyện đề nghị không thực hiện sắp xếp 3 xã và nhập xã Diên Đồng với xã Diên Xuân để lập xã “Đồng Xuân”.
-- Người đàn ông 41 tuổi, ngụ tỉnh An Giang liên hệ công an chuyển trả lại hơn 400 triệu đồng của một người lạ chuyển vào tài khoản ngân hàng không ghi nội dung.
-- Nắng nóng khô hạn kéo dài đã làm nhiều diện tích đất rừng ở miền Tây đối diện nguy cơ cháy rất cao. Không những vậy, hàng ngàn hộ dân ở các tỉnh ven biển cũng phải lâm vào cảnh thiếu nước ngọt sử dụng.
-- Trong bối cảnh khan hiếm vật liệu, đặc biệt tại dự án vành đai 3 TP.HCM, UBND TP.HCM đề nghị nhà thầu chia sẻ trách nhiệm, chấp thuận giảm lợi nhuận để huy động vật liệu từ nhiều nguồn khác nhau.
-- Vận dụng nghị quyết 98 để rút ngắn thủ tục chuẩn bị đầu tư, cầu Cần Giờ, cầu Thủ Thiêm 4, vành đai 4 TP.HCM sẽ được trình HĐND TP trong kỳ họp gần nhất.
-- Tin tức đáng chú ý: Tốc độ tăng giá chung cư Hà Nội vượt TP.HCM; Xe điện du lịch chạy từ 12-4 ở TP.HCM, giá thuê ra sao?; Hơn 90,1 triệu người Việt đã có thẻ bảo hiểm y tế...
-- Hôm nay nắng nóng tiếp tục diễn ra khắp cả nước, về chiều tối nhiều nơi có mưa rào đến mưa to, từ mai nắng ở các tỉnh phía Bắc giảm dần.
+- Ngay từ sáng 4-4, khá đông người dân, du khách tìm đến các gian hàng tại Ngày hội du lịch TP.HCM để "săn" tour khuyến mãi, trong đó ưu tiên tour đường bộ hay tour đi nước ngoài, tránh phụ thuộc tour đường hàng không...
+- Nước máy tuột áp, phập phù lúc có lúc không khiến hàng chục hộ dân ở Đồng Nai hết sức khổ sở, nhất là giữa lúc tiết trời oi bức mùa nắng nóng.
+- Quan sát kỹ địa thế và độ xanh tươi cây cỏ, người thợ đào giếng kỳ cựu lại săm soi lớp hơi nước đọng trên tấm nhựa đã trải qua đêm. Đây là những thựo săn nước quý giá mùa nắng hạn.
+- Mới đây, 239 chiếc xe buýt ở TP.HCM đã được thay mới và trang bị đầy đủ tiện ích. “Không gian sạch sẽ, chất lượng dịch vụ 5 sao” là những điều mà người dân mô tả về những chiếc buýt mới này.
+- Một số tin tức đáng chú ý: 39% hồ sơ quá hạn giải quyết, yêu cầu xin lỗi người dân; Nhiều địa phương cảnh báo đồ chơi 'Fart bomb'; Bệnh viện Chợ Rẫy hỗ trợ các gia đình trong vụ cháy ở quận 8...
+- Hôm nay 5-4, các tỉnh vùng núi Bắc Bộ và ven biển có mưa do ảnh hưởng không khí lạnh. Nam Bộ và nhiều nơi thời tiết nắng nóng, khô hạn.
+- Phó thủ tướng Trần Hồng Hà giao Bộ Tài nguyên và Môi trường lập tổ công tác liên ngành để giải quyết dứt điểm nguồn vật liệu cho vành đai 3 TP.HCM.
+- Bộ trưởng Bộ Nông nghiệp và Phát triển nông thôn Lê Minh Hoan đã có buổi tiếp và làm việc với ngài Julien Guerrier, đại sứ - trưởng Phái đoàn EU tại Việt Nam.
+- Trước tình trạng nắng nóng kèm theo thiếu hụt lượng mưa, nguy cơ xảy ra cháy rừng ở nhiều nơi, Thủ tướng yêu cầu Bộ Nông nghiệp xây dựng phương án phòng cháy, chữa cháy rừng cấp quốc gia.
+- Chiều ngày 4-4, đội bắt chó thả rông của phường Hiệp Bình Chánh (TP Thủ Đức, TP.HCM) ra quân trên nhiều tuyến đường.
+- Sở Công Thương tỉnh Lâm Đồng đã tạm đình chỉ mỏ đá Thái Sơn nổ mìn làm tảng đá lớn nặng nhiều tấn lăn thủng nhà dân, đồng thời làm sập cầu.
+- Đây là một trong các nội dung được nêu trong cuộc hội đàm giữa Bộ trưởng Ngoại giao Bùi Thanh Sơn và Ngoại trưởng Trung Quốc Vương Nghị ngày 4-4.
+- TP Đà Nẵng được đề xuất cho thí điểm lập khu thương mại tự do Đà Nẵng gắn với cảng Liên Chiểu, gồm 3 khu chức năng.
+- Theo ngành y tế Vĩnh Long, đa số học sinh Trường trung học cơ sở Lộc Hòa, huyện Long Hồ, tỉnh Vĩnh Long bị ngộ độc khí bóng nổ sức khỏe đã ổn định.
+- Ban cán sự đảng Bộ Nội vụ vừa tổ chức hội nghị giới thiệu nhân sự quy hoạch ủy viên Ban Chấp hành Trung ương Đảng chính thức khóa XIV, nhiệm kỳ 2026 - 2031.
+- Bé gái ở Tây Ninh sốt cao chưa rõ nguyên nhân đang điều trị tại Bệnh viện Nhi đồng thành phố (TP.HCM) có kết quả nhiễm vi khuẩn não mô cầu.
+- Chủ tịch UBND TP.HCM vừa tuyên dương quận 4, Bình Tân, Tân Bình, Phú Nhuận, Gò Vấp và huyện Cần Giờ có tỉ lệ giải ngân đầu tư công cao trong quý 1-2024.
+- Dự kiến, cuối tháng 4, đoàn thanh tra của Ủy ban châu Âu sẽ có đợt kiểm tra và đây cũng là cơ hội để Việt Nam gỡ thẻ vàng thủy sản.
+- Nhiều bạn đọc phản ánh dọc đường Võ Chí Công (TP Thủ Đức, TP.HCM) bị mất hàng chục đoạn dải phân cách cứng gây ảnh hưởng giao thông, nguy cơ tai nạn rất cao.
+- Đó là tình cảnh đang diễn ra tại dự án cao tốc Hòa Liên - Túy Loan (Đà Nẵng) dù công trình đã triển khai được gần 9 tháng.
+- Nhiệt độ mặt đường Cam Lộ - La Sơn lên tới 63 độ C, trên tuyến lại không có trạm dừng nghỉ, khiến xe phải lưu thông liên tục dẫn tới vỡ lốp.
+- Chủ tịch UBND TP Hà Nội Trần Sỹ Thanh chỉ đạo Tổng công ty Điện lực Hà Nội hạn chế việc cắt điện ban đêm và ngày nắng nóng cao điểm trong mùa hè năm 2024.
+- Sở Tài nguyên và Môi trường tham mưu vừa được giao thực hiện đề xuất di dời Trung tâm hỏa táng Bình Hưng Hòa, trình UBND TP.HCM trong tháng 4-2024.
+- Người dân TP.HCM gặp khó khi tìm cách liên hệ với các đội bắt chó thả rông, và mong muốn thống nhất một đầu mối.
+- Ban quản lý Vườn quốc gia Phước Bình, huyện Bác Ái (Ninh Thuận) cho biết qua bẫy ảnh đã phát hiện thêm bò tót ở vườn rừng này
+- Dưới cái nắng nóng như đổ lửa ở TP Đà Nẵng và Thừa Thiên Huế những ngày đầu tháng 4, người lao động nghèo vẫn oằn mình mưu sinh.
+- Hà Nội đang cải tạo các công trình trên phố Tràng Tiền (quận Hoàn Kiếm), đồng thời tháo dỡ các hạng mục cơi nới của hàng chục hộ dân chủ yếu sống trên tầng 2.
+- Trong không khí kỷ niệm 70 năm Chiến thắng Điện Biên Phủ 'lừng lẫy năm châu, chấn động địa cầu', hội thảo khẳng định và làm sáng tỏ quan điểm, tư tưởng, đường lối chiến tranh nhân dân đúng đắn, sáng tạo của Đảng ta, đứng đầu là Chủ tịch Hồ Chí Minh.
+- Nắng nóng oi bức khiến trẻ đến khám vì mắc bệnh hô hấp, rối loạn tiêu hóa... tại Bệnh viện Nhi đồng 2 (TP.HCM) tăng.
+- Cần có cơ chế chính sách để huy động mọi nguồn lực cho giáo dục mầm non, nhất là chính sách về thuế, tiếp cận đất đai, tín dụng…
 ![New](News.png)
 ## Nhịp sống số 
 - Hầu hết trình duyệt web hiện nay cho phép người dùng sử dụng chế độ ẩn danh như một cách để bảo vệ quyền riêng tư.
