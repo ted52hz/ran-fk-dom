@@ -1,6 +1,28 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Đối với số tiền phụ huynh đã đóng, Trường quốc tế AISVN đang có hướng phát hành cổ phiếu đến phụ huynh.
+- Rất ít học sinh thi đợt 2 kỳ thi học sinh giỏi lớp 12 ở TP.HCM năm học 2023-2024 đoạt giải nhất. Vì sao?
+- Đến chiều 5-4, còn 28 học sinh của 2 trường ở phường Vĩnh Trường, TP Nha Trang bị ngộ độc thực phẩm vẫn nằm theo dõi, điều trị tại các bệnh viện.
+- Cao điểm nắng nóng và ảnh hưởng của El Nino, nhiều trường học tại Philippines phải chuyển sang học từ xa để đảm bảo sức khỏe cho học sinh.
+- Liên tục những ngày gần đây, trước cổng nhiều trường tiểu học tại Quảng Trị xuất hiện đồ chơi nguy hiểm có tên “bom thối”. Công an địa phương đã cảnh báo khẩn về loại đồ chơi này.
+- Dù mệt mỏi, đuối sức nhưng nhiều sinh viên vẫn lựa chọn làm thêm hai ba việc cùng lúc để kiếm tiền trang trải cuộc sống.
+- Hầu hết các tỉnh, thành đều tổ chức tổng kết năm học 2023-2024 trước ngày 31-5 và cho học sinh nghỉ hè từ ngày 1-6.
+- Nhà giáo nhân dân Lâm És, nguyên phó giám đốc Sở Giáo dục và Đào tạo tỉnh Sóc Trăng, là người viết khoảng 100 đầu sách được xuất bản, với 53 đầu sách mang tầm quốc gia.
+- Theo ông Bùi Quang Ngọc - giám đốc cấp cao Công ty Marvell Việt Nam, nhiều công ty, tập đoàn lớn trong ngành sản xuất vi mạch bán dẫn đánh giá cao đội ngũ kỹ sư người Việt bởi tính cần cù, sáng tạo và trung thực.
+- UBND tỉnh Lâm Đồng đã ra văn bản hỏa tốc yêu cầu UBND huyện Lạc Dương kiểm tra xử lý vụ "học sinh chui rào kẽm gai để đến trường".
+- Ngày 5-4, UBND TP Hải Phòng phối hợp cùng Tập đoàn giáo dục quốc tế KinderWorld khởi công xây dựng Trường quốc tế Singapore đầu tiên tại Hải Phòng.
+- Theo Nhà xuất bản Giáo dục Việt Nam, việc giảm giá trên dưới 10% giá bìa được áp dụng với các bộ sách giáo khoa các lớp 1, 2 ,3, 4, 6, 7, 8, 10, 11.
+- Ba học sinh lớp 4, 5 ở TP.HCM gây bất ngờ khi trình làng hệ thống Vườn cây thông minh mini vận hành bằng bánh xe nước.
+- Trong sáng 5-4, có 32 học sinh Trường tiểu học Vĩnh Trường và Trường THCS Trần Hưng Đạo, TP Nha Trang (Khánh Hòa) đã được sơ cứu tại trường, rồi đưa vào các bệnh viện. Trong đó, có nữ sinh lớp 5 đã bị tử vong.
+- Học sinh thôn Păng Tiêng, xã Lát, huyện Lạc Dương (Lâm Đồng) phải chui rào kẽm gai để đến trường vì con đường quen thuộc bị công ty thủy điện rào chắn.
+- Liên tục xuất hiện những vụ học sinh ngộ độc do chơi 'bóng nổ', 'bóng thối' khiến nhiều địa phương phải lên tiếng cảnh báo về các loại đồ chơi nguy hiểm.
+- Theo các chuyên gia, việc lái xe trên đường có nhiệt độ quá cao gây ảnh hưởng đến ô tô, hư hỏng nhiều bộ phận không riêng lốp xe, nên rất dễ xảy ra tai nạn.
+- Trong con mắt nhà toán học và nhà khoa học, bảng đen có sức hấp dẫn kỳ lạ, và những gì được viết trên đó bằng phấn - không nhất thiết phải là phấn trắng - có vẻ đẹp đến tầm nghệ thuật.
+- Quy mô đào tạo đại học chính quy của nhiều trường đại học, phân hiệu đại học chỉ trên dưới 1.000 sinh viên, thậm chí có nơi chưa đến 200 sinh viên.
+- Tính năng thi lại một kỹ năng bài thi IELTS vừa được Bộ Giáo dục và Đào tạo cho phép Hội đồng Anh và IDP triển khai tại Việt Nam. Tính năng này như thế nào?
+- Hôm qua 4-4, số giáo viên, trợ giảng, nhân viên Trường quốc tế AISVN vẫn vắng khá nhiều, trong khi hiện đã có 42 học sinh chuyển trường.
+- Kỳ thi đánh giá năng lực đợt 1 năm 2024 do ĐH Quốc gia TP.HCM tổ chức sẽ diễn ra sáng 7-4 tại 24 địa phương trên cả nước.
 - Khoản phí "ghi danh" và "giữ chỗ" khi nộp hồ sơ vào lớp 10 trường tư ở Hà Nội từ vài triệu tới vài chục triệu đồng.
 - Theo ngành y tế Vĩnh Long, đa số học sinh Trường trung học cơ sở Lộc Hòa, huyện Long Hồ, tỉnh Vĩnh Long bị ngộ độc khí bóng nổ sức khỏe đã ổn định.
 - Những hoa văn màu sắc mang nét truyền thống được vẽ trên chén, dĩa, ly... biết 'bay lượn' nhờ vào công nghệ AR được các bạn sinh viên lập trình.
@@ -9,62 +31,41 @@
 - IDP Việt Nam cho biết Bộ Giáo dục và Đào tạo vừa đồng ý cho đơn vị này tổ chức thi lại một kỹ năng bài thi IELTS.
 - Tuổi Trẻ Online đã nhận được nhiều thắc mắc của phụ huynh, giáo viên về kết quả thi học sinh giỏi lớp 12 ở TP.HCM.
 - Cần có cơ chế chính sách để huy động mọi nguồn lực cho giáo dục mầm non, nhất là chính sách về thuế, tiếp cận đất đai, tín dụng…
-- Trung tâm An ninh mạng Đại học Quốc gia TP.HCM sẽ thực hiện nghiên cứu xây dựng hệ thống theo dõi mạng xã hội, đào tạo nhân lực an toàn, an ninh thông tin.
-- Bộ Giáo dục và Đào tạo đề xuất Chính phủ trình Quốc hội ban hành nghị quyết "Phổ cập giáo dục mầm non cho trẻ mẫu giáo từ 3 đến 5 tuổi" để thông qua vào tháng 10-2024.
-- Theo ý kiến giáo viên, không phải tất cả học sinh đều phù hợp với thực hiện dự án, trải nghiệm nên không thể ép 100% học sinh phải tham gia.
-- Úc vừa ghi nhận số lượng du học sinh cao nhất từ trước đến nay, bất chấp nước này đã và đang siết chặt thị thực sinh viên.
-- 'Thử thách' 7 ngày sống xanh, nói không với ly nhựa, tái chế rác, trồng cây... thu hút hàng chục ngàn lượt sinh viên tham gia và lan tỏa trên mạng xã hội.
-- Thanh tra Bộ Giáo dục và Đào tạo chỉ ra hàng loạt thiếu sót, vi phạm của các trường đại học khi tự chủ mở ngành.
-- 19 học sinh THCS ở Vĩnh Long nhập viện với các triệu chứng ngộ độc như nôn ói, khó thở sau khi chơi bóng nổ ghi sản xuất ở Trung Quốc.
-- Quy định hiện tại chưa đặt ra các điều kiện để hành nghề giảng viên hay điều kiện tuyển dụng giảng viên, dẫn đến nhiều vướng mắc, bất cập.
-- Thí sinh cả nước có thể đăng ký xét tuyển sớm bằng hai phương thức xét tuyển học bạ vào 63 ngành đào tạo của Trường HUTECH đến ngày 31-5.
-- Sáng 3-4, Sở Giáo dục và Đào tạo TP.HCM công bố kết quả kỳ thi học sinh giỏi cấp thành phố lớp 9 và lớp 12 năm 2024.
-- Sau ba năm không tăng, năm học 2024-2025 nhiều trường đại học sẽ tăng học phí. Có một số trường đã tăng học phí từ học kỳ II năm nay.
-- Tin thầy Bùi Khánh Thế ra đi, dù tôi đã chuẩn bị tâm thế, vẫn là một điều làm tan vỡ trái tim của tôi.
-- Học sinh Trường quốc tế Mỹ (AISVN) sáng nay 3-4 đi học trở lại, nhưng nhiều khối lớp tổ chức dạy học theo môn, nhóm lớp do thiếu giáo viên.
-- UBND tỉnh Quảng Nam đã miễn nhiệm thành viên Hội đồng Trường đại học Quảng Nam đối với ông Trần Văn Tân.
-- Trường quốc tế AISVN vừa có email thông báo đến phụ huynh về việc trường sẽ đón học sinh đi học trở lại vào ngày 3-4.
-- Giảng dạy theo kiểu chuyển đổi số nhưng cô Cao Thị Nguyệt, giáo viên Trường THCS Tân Bình, TP.HCM, không yêu cầu học sinh phải sử dụng điện thoại.
-- Tùy thuộc vào kế hoạch hoạt động của từng trường, học sinh TP.HCM có thể được nghỉ hè từ ngày 26-5.
-- Số hợp đồng có hoàn lại mà Trường quốc tế AISVN ký kết với phụ huynh có tổng trị giá hơn 3.600 tỉ đồng.
-- Ngày 2-4, Sở Giáo dục và Đào tạo Hà Nội cho biết sẽ dừng tuyển sinh lớp 6 Trường THPT chuyên Hà Nội - Amsterdam từ năm học 2024-2025.
-- Các công trình, giải pháp, sản phẩm sáng tạo sẽ được UBND TP.HCM tôn vinh trên 7 lĩnh vực.
-- Chủ tịch Phan Văn Mãi yêu cầu phải giải quyết vụ việc tại Trường quốc tế AISVN một cách đồng bộ, trên hết là làm sao sớm cho học sinh trở lại học.
-- Ngôi trường ở miền núi Quảng Nam được đầu tư xây dựng 63 tỉ đồng nhưng học sinh chỉ mới vào học thời gian ngắn đã bị sạt lở núi.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Ngay từ sáng 4-4, khá đông người dân, du khách tìm đến các gian hàng tại Ngày hội du lịch TP.HCM để "săn" tour khuyến mãi, trong đó ưu tiên tour đường bộ hay tour đi nước ngoài, tránh phụ thuộc tour đường hàng không...
-- Nước máy tuột áp, phập phù lúc có lúc không khiến hàng chục hộ dân ở Đồng Nai hết sức khổ sở, nhất là giữa lúc tiết trời oi bức mùa nắng nóng.
-- Quan sát kỹ địa thế và độ xanh tươi cây cỏ, người thợ đào giếng kỳ cựu lại săm soi lớp hơi nước đọng trên tấm nhựa đã trải qua đêm. Đây là những thựo săn nước quý giá mùa nắng hạn.
-- Mới đây, 239 chiếc xe buýt ở TP.HCM đã được thay mới và trang bị đầy đủ tiện ích. “Không gian sạch sẽ, chất lượng dịch vụ 5 sao” là những điều mà người dân mô tả về những chiếc buýt mới này.
-- Một số tin tức đáng chú ý: 39% hồ sơ quá hạn giải quyết, yêu cầu xin lỗi người dân; Nhiều địa phương cảnh báo đồ chơi 'Fart bomb'; Bệnh viện Chợ Rẫy hỗ trợ các gia đình trong vụ cháy ở quận 8...
-- Hôm nay 5-4, các tỉnh vùng núi Bắc Bộ và ven biển có mưa do ảnh hưởng không khí lạnh. Nam Bộ và nhiều nơi thời tiết nắng nóng, khô hạn.
-- Phó thủ tướng Trần Hồng Hà giao Bộ Tài nguyên và Môi trường lập tổ công tác liên ngành để giải quyết dứt điểm nguồn vật liệu cho vành đai 3 TP.HCM.
-- Bộ trưởng Bộ Nông nghiệp và Phát triển nông thôn Lê Minh Hoan đã có buổi tiếp và làm việc với ngài Julien Guerrier, đại sứ - trưởng Phái đoàn EU tại Việt Nam.
-- Trước tình trạng nắng nóng kèm theo thiếu hụt lượng mưa, nguy cơ xảy ra cháy rừng ở nhiều nơi, Thủ tướng yêu cầu Bộ Nông nghiệp xây dựng phương án phòng cháy, chữa cháy rừng cấp quốc gia.
-- Chiều ngày 4-4, đội bắt chó thả rông của phường Hiệp Bình Chánh (TP Thủ Đức, TP.HCM) ra quân trên nhiều tuyến đường.
-- Sở Công Thương tỉnh Lâm Đồng đã tạm đình chỉ mỏ đá Thái Sơn nổ mìn làm tảng đá lớn nặng nhiều tấn lăn thủng nhà dân, đồng thời làm sập cầu.
-- Đây là một trong các nội dung được nêu trong cuộc hội đàm giữa Bộ trưởng Ngoại giao Bùi Thanh Sơn và Ngoại trưởng Trung Quốc Vương Nghị ngày 4-4.
-- TP Đà Nẵng được đề xuất cho thí điểm lập khu thương mại tự do Đà Nẵng gắn với cảng Liên Chiểu, gồm 3 khu chức năng.
-- Theo ngành y tế Vĩnh Long, đa số học sinh Trường trung học cơ sở Lộc Hòa, huyện Long Hồ, tỉnh Vĩnh Long bị ngộ độc khí bóng nổ sức khỏe đã ổn định.
-- Ban cán sự đảng Bộ Nội vụ vừa tổ chức hội nghị giới thiệu nhân sự quy hoạch ủy viên Ban Chấp hành Trung ương Đảng chính thức khóa XIV, nhiệm kỳ 2026 - 2031.
-- Bé gái ở Tây Ninh sốt cao chưa rõ nguyên nhân đang điều trị tại Bệnh viện Nhi đồng thành phố (TP.HCM) có kết quả nhiễm vi khuẩn não mô cầu.
-- Chủ tịch UBND TP.HCM vừa tuyên dương quận 4, Bình Tân, Tân Bình, Phú Nhuận, Gò Vấp và huyện Cần Giờ có tỉ lệ giải ngân đầu tư công cao trong quý 1-2024.
-- Dự kiến, cuối tháng 4, đoàn thanh tra của Ủy ban châu Âu sẽ có đợt kiểm tra và đây cũng là cơ hội để Việt Nam gỡ thẻ vàng thủy sản.
-- Nhiều bạn đọc phản ánh dọc đường Võ Chí Công (TP Thủ Đức, TP.HCM) bị mất hàng chục đoạn dải phân cách cứng gây ảnh hưởng giao thông, nguy cơ tai nạn rất cao.
-- Đó là tình cảnh đang diễn ra tại dự án cao tốc Hòa Liên - Túy Loan (Đà Nẵng) dù công trình đã triển khai được gần 9 tháng.
-- Nhiệt độ mặt đường Cam Lộ - La Sơn lên tới 63 độ C, trên tuyến lại không có trạm dừng nghỉ, khiến xe phải lưu thông liên tục dẫn tới vỡ lốp.
-- Chủ tịch UBND TP Hà Nội Trần Sỹ Thanh chỉ đạo Tổng công ty Điện lực Hà Nội hạn chế việc cắt điện ban đêm và ngày nắng nóng cao điểm trong mùa hè năm 2024.
-- Sở Tài nguyên và Môi trường tham mưu vừa được giao thực hiện đề xuất di dời Trung tâm hỏa táng Bình Hưng Hòa, trình UBND TP.HCM trong tháng 4-2024.
-- Người dân TP.HCM gặp khó khi tìm cách liên hệ với các đội bắt chó thả rông, và mong muốn thống nhất một đầu mối.
-- Ban quản lý Vườn quốc gia Phước Bình, huyện Bác Ái (Ninh Thuận) cho biết qua bẫy ảnh đã phát hiện thêm bò tót ở vườn rừng này
-- Dưới cái nắng nóng như đổ lửa ở TP Đà Nẵng và Thừa Thiên Huế những ngày đầu tháng 4, người lao động nghèo vẫn oằn mình mưu sinh.
-- Hà Nội đang cải tạo các công trình trên phố Tràng Tiền (quận Hoàn Kiếm), đồng thời tháo dỡ các hạng mục cơi nới của hàng chục hộ dân chủ yếu sống trên tầng 2.
-- Trong không khí kỷ niệm 70 năm Chiến thắng Điện Biên Phủ 'lừng lẫy năm châu, chấn động địa cầu', hội thảo khẳng định và làm sáng tỏ quan điểm, tư tưởng, đường lối chiến tranh nhân dân đúng đắn, sáng tạo của Đảng ta, đứng đầu là Chủ tịch Hồ Chí Minh.
-- Nắng nóng oi bức khiến trẻ đến khám vì mắc bệnh hô hấp, rối loạn tiêu hóa... tại Bệnh viện Nhi đồng 2 (TP.HCM) tăng.
-- Cần có cơ chế chính sách để huy động mọi nguồn lực cho giáo dục mầm non, nhất là chính sách về thuế, tiếp cận đất đai, tín dụng…
+- Do thiếu cát nên một số gói thầu tuyến đường vành đai 3 TP.HCM phải nằm chờ. Mặt bằng dọn dẹp nhiều lần nhưng chưa thể thi công, đường công vụ không có nên máy móc, thiết bị khó tiếp cận.
+- Chuyên gia cho rằng đề xuất nghỉ lễ 5 ngày liên tục dịp 30-4 và 1-5 là hợp lý, nhiều người đã có kế hoạch du lịch, về quê từ bây giờ.
+- Một số tin tức đáng chú ý: Gần 36.000 người đi làm việc nước ngoài trong 3 tháng đầu năm; TP.HCM cấm nhiều đường quận 1 làm Liên hoan phim quốc tế TP.HCM; Việt Nam đang xếp thứ 2 thế giới về xuất khẩu giày dép...
+- Hôm nay thời tiết nắng nóng tiếp tục diễn ra ở các tỉnh Nam Bộ, Tây Nguyên và Tây Bắc.
+- Cục An toàn thực phẩm (Bộ Y tế) vừa có văn bản đề nghị Sở Y tế tỉnh Khánh Hòa chỉ đạo điều tra làm rõ nguyên nhân, xử lý vụ việc khiến một học sinh tử vong tại trường học ở TP Nha Trang.
+- Lãnh đạo UBND TP Đà Nẵng yêu cầu sớm khôi phục hiện trạng bên ngoài bờ kè sông Hàn đoạn cầu Trần Thị Lý (quận Ngũ Hành Sơn, Đà Nẵng) trong ngày 6-4.
+- Làm việc với Đồng Nai về tiến độ đền bù dự án cao tốc Biên Hòa - Vũng Tàu, Thứ trưởng Bộ Tài nguyên và Môi trường Lê Minh Ngân lưu ý giá đất phải được người dân cơ bản chấp nhận.
+- Hai học sinh tiểu học ở thị trấn Mường Lát, huyện vùng cao, biên giới Mường Lát, Thanh Hóa chết đuối tại khu vực suối Xim trên địa bàn.
+- Đến chiều 5-4, còn 28 học sinh của 2 trường ở phường Vĩnh Trường, TP Nha Trang bị ngộ độc thực phẩm vẫn nằm theo dõi, điều trị tại các bệnh viện.
+- Liên tục những ngày gần đây, trước cổng nhiều trường tiểu học tại Quảng Trị xuất hiện đồ chơi nguy hiểm có tên “bom thối”. Công an địa phương đã cảnh báo khẩn về loại đồ chơi này.
+- An Giang có 6 mỏ đá được cấp phép khai thác không qua đấu giá. Có doanh nghiệp khai thác vượt công suất cho phép khai thác từng năm.
+- Bộ Nội vụ có văn bản góp ý tán thành đề xuất nghỉ 5 ngày liên tục dịp lễ 30-4 và 1-5 được Bộ Lao động, Thương binh và Xã hội đưa ra.
+- Chiều 5-4, UBND TP.HCM tổ chức Hội nghị tổng kết phong trào thi đua yêu nước, công tác khen thưởng năm 2023, phát động phong trào thi đua yêu nước năm 2024.
+- Nhà xe Thành Bưởi chạy lại tuyến bến xe Miền Tây - bến trung tâm TP Cần Thơ và ngược lại.
+- UBND tỉnh Khánh Hòa có chỉ đạo khẩn về việc cung cấp thông tin, tài liệu liên quan đến các dự án, công trình do Công ty cổ phần Tập đoàn Phúc Sơn làm chủ đầu tư, thi công.
+- Sau bài viết "Bến cóc lộng hành đường Võ Chí Công, TP Thủ Đức", Tuổi Trẻ Online tiếp tục nhận được phản ánh của người dân về tình trạng "xe dù, bến cóc" hoạt động rầm rộ trên địa bàn này.
+- Nhân dịp Tết Bun Pimay của Lào và Tết Chol Chnam Thmay của Campuchia, Tổng bí thư Nguyễn Phú Trọng đã gửi thư, lẵng hoa chúc mừng tới lãnh đạo cấp cao Lào và Campuchia.
+- Chủ tịch Hiệp hội Công nghiệp bán dẫn Mỹ (SIA) John Neffer đã khẳng định như vậy, khi gặp Phó thủ tướng Lê Minh Khái ngày 4-4 (giờ Mỹ).
+- Ngày 5-4, bến xe Miền Đông mới (TP Thủ Đức, TP.HCM) tổ chức hội nghị khách hàng để đánh giá tình hình hoạt động và tìm giải pháp gỡ khó, hút khách.
+- Trong 12 hài cốt liệt sĩ vừa được quy tập, có một hài cốt có một bức ảnh chân dung liệt sĩ. Sau khi khôi phục di vật, Bộ chỉ huy quân sự tỉnh Quảng Trị muốn tìm thân nhân liệt sĩ.
+- Đi du lịch nước ngoài lỡ vali bị hỏng khi gởi hành lý, đừng bỏ qua mà đi về nhé. Bạn sẽ được bồi thường bằng tiền hoặc một vali mới.
+- Từ đầu năm đến nay đã có 2.323 cuộc tấn công vào các hệ thống thông tin của Việt Nam. Các cuộc tấn công ngày càng dồn dập, hậu quả ngày càng tăng.
+- Trong khi nước thải vẫn tiếp tục xả thẳng ra sông Trà Khúc, dự án hệ thống thu gom xử lý nước thải tập trung TP Quảng Ngãi vẫn đang loay hoay khảo sát sau khi đổi chủ đầu tư.
+- Phía đông bờ sông Hàn gần cầu Trần Thị Lý, Đà Nẵng xuất hiện một bãi thải đất đá, xà bần lấn ra ngoài bờ kè sông.
+- Cấm xe tải nặng trên cao tốc Cam Lộ - La Sơn dồn áp lực lên quốc lộ 1 qua TP Đông Hà. Vì sao Đông Hà vẫn là đô thị duy nhất còn sót lại ở miền Trung không có đường tránh khu dân cư?
+- Chuyến thăm Trung Quốc của Chủ tịch Quốc hội Vương Đình Huệ sẽ góp phần nâng tầm, làm sâu sắc quan hệ đối tác hợp tác chiến lược toàn diện hai nước.
+- Ngày 5-4, UBND TP Hải Phòng phối hợp cùng Tập đoàn giáo dục quốc tế KinderWorld khởi công xây dựng Trường quốc tế Singapore đầu tiên tại Hải Phòng.
+- Lực lượng công binh thuộc Bộ Chỉ huy quân sự tỉnh Quảng Bình vừa khẩn cấp di dời một quả bom nặng hơn 2 tạ được phát hiện tại mép một tuyến phố giữa trung tâm TP Đồng Hới.
+- Trong sáng 5-4, có 32 học sinh Trường tiểu học Vĩnh Trường và Trường THCS Trần Hưng Đạo, TP Nha Trang (Khánh Hòa) đã được sơ cứu tại trường, rồi đưa vào các bệnh viện. Trong đó, có nữ sinh lớp 5 đã bị tử vong.
+- Rất nhiều bạn đọc hoan nghênh việc xe buýt TP.HCM 'lột xác' với dàn xe mới 239 chiếc.
 ![New](News.png)
 ## Nhịp sống số 
+- Chuyên gia cảnh báo các cuộc tấn công mạng có xu hướng 'tự động hóa và cá nhân hóa' khi kẻ tấn công sử dụng thư điện tử lừa đảo và cuộc gọi điện thoại giả mạo do AI điều khiển để đánh lừa nạn nhân.
 - Hầu hết trình duyệt web hiện nay cho phép người dùng sử dụng chế độ ẩn danh như một cách để bảo vệ quyền riêng tư.
 - Sự phát triển của nhiều hình thức kinh doanh mới, nhu cầu làm việc từ xa tăng mạnh v.v. khiến doanh nghiệp phải tìm giải pháp mở rộng đường truyền.
 - OpenAI giới thiệu công cụ có thể nhại giọng con người chỉ với một mẫu âm thanh 15 giây, nhưng chưa tung ra công cụ này do các lo ngại về an ninh.
@@ -94,5 +95,4 @@
 - Người dùng nên thay đổi nhiều thói quen sử dụng các dịch vụ mạng để bảo vệ sự an toàn của chính mình và gia đình trên không gian mạng.
 - Sự xuất hiện của Galaxy AI - trải nghiệm trí tuệ nhân tạo toàn diện trên mẫu flagship nhà Samsung đã mang đến rất nhiều cảm hứng.
 - Ngày 30-1-2024, Tổng công ty Viễn thông Viettel (Viettel Telecom) cho biết nhằm đáp ứng nhu cầu truy cập Internet trên di động/tại nhà cũng như phục vụ nhu cầu giải trí dịp Tết Nguyên đán, Viettel triển khai chương trình ưu đãi 'Tết A.I cũng có quà'.
-- Doanh thu trên các sàn thương mại điện tử (TMĐT) lớn tại Việt Nam năm 2023 đã tăng hơn 53% lên 232.134 tỉ đồng.
 ![life](Life.png)
