@@ -1,6 +1,16 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Kỳ thi đánh giá năng lực đợt 1 năm 2023 do Đại học Quốc gia TP.HCM tổ chức vào sáng 7-4 có tỉ lệ thí sinh dự thi cao nhất từ trước đến nay lên đến 98,2%.
+- Những học sinh còn nằm viện kể trên của Trường tiểu học Vĩnh Trường và Trường THCS Trần Hưng Đạo, TP Nha Trang đều đã nhập viện cùng ngày với nữ sinh lớp 5 tử vong vào sáng 5-4.
+- Chiều 7-4, vòng chung kết cuộc thi ‘Thử thách kinh doanh sáng tạo Việt Nam năm 2024’’ đã diễn ra tại Đại học Fulbright Việt Nam.
+- Với hầu hết học sinh, chụp ảnh thành phố từ sông Sài Gòn là trải nghiệm 'có 1 không 2'. Có bạn đã chụp hơn 300 tấm hình trong chuyến đi đầy thú vị.
+- Chiều tối 7-4, 100 học sinh THCS và 100 học sinh THPT sẽ tranh tài tại vòng chung kết Hội thi sáng tác ảnh Tuổi Xanh.
+- Từ Hungary, 2 giảng viên và 4 sinh viên sang Việt Nam học nghề bếp, từ phở, bún chả, gỏi cuốn đến dê chiên riềng, gà tre hấp mắm, cua lột xốt...
+- Hoàn thành bài thi đánh giá năng lực trưa 7-4, nhiều thí sinh dự kiến có thể trên 700 điểm, có bạn tự tin sẽ được 1.000 trên tổng 1.200 điểm.
+- Tổng số thí sinh dự thi đánh giá năng lực sáng 7-4 là 93.831, vắng 1.718, tỉ lệ 98,2%, cao nhất từ trước đến nay.
+- Gần 20 năm giảng dạy và nghiên cứu côn trùng học, tiến sĩ Nguyễn Thị Oanh tìm ra những phương pháp tự nhiên bảo vệ cây trồng và nông sản.
+- Hơn 95.000 thí sinh bước vào kỳ thi đánh giá năng lực đợt 1 năm 2024 do Đại học Quốc gia TP.HCM tổ chức sáng 7-4 tại 24 tỉnh, thành trên cả nước.
 - Sáng nay 7-4, hơn 95.000 thí sinh dự thi đánh giá năng lực của ĐH Quốc gia TP.HCM, đông nhất từ trước đến nay.
 - Không cần tham gia các bảng xếp hạng, nhiều đại học đang nỗ lực tạo dựng vị thế bằng các công trình nghiên cứu, các dự án thay đổi xã hội theo hướng tích cực và bền vững.
 - Tối 6-4, Trường phổ thông Năng khiếu (Đại học Quốc gia TP.HCM) công bố chỉ tiêu và kế hoạch tuyển sinh lớp 10 năm học 2024-2025.
@@ -21,48 +31,38 @@
 - Hầu hết các tỉnh, thành đều tổ chức tổng kết năm học 2023-2024 trước ngày 31-5 và cho học sinh nghỉ hè từ ngày 1-6.
 - Nhà giáo nhân dân Lâm És, nguyên phó giám đốc Sở Giáo dục và Đào tạo tỉnh Sóc Trăng, là người viết khoảng 100 đầu sách được xuất bản, với 53 đầu sách mang tầm quốc gia.
 - Theo ông Bùi Quang Ngọc - giám đốc cấp cao Công ty Marvell Việt Nam, nhiều công ty, tập đoàn lớn trong ngành sản xuất vi mạch bán dẫn đánh giá cao đội ngũ kỹ sư người Việt bởi tính cần cù, sáng tạo và trung thực.
-- UBND tỉnh Lâm Đồng đã ra văn bản hỏa tốc yêu cầu UBND huyện Lạc Dương kiểm tra xử lý vụ "học sinh chui rào kẽm gai để đến trường".
-- Ngày 5-4, UBND TP Hải Phòng phối hợp cùng Tập đoàn giáo dục quốc tế KinderWorld khởi công xây dựng Trường quốc tế Singapore đầu tiên tại Hải Phòng.
-- Theo Nhà xuất bản Giáo dục Việt Nam, việc giảm giá trên dưới 10% giá bìa được áp dụng với các bộ sách giáo khoa các lớp 1, 2 ,3, 4, 6, 7, 8, 10, 11.
-- Ba học sinh lớp 4, 5 ở TP.HCM gây bất ngờ khi trình làng hệ thống Vườn cây thông minh mini vận hành bằng bánh xe nước.
-- Trong sáng 5-4, có 32 học sinh Trường tiểu học Vĩnh Trường và Trường THCS Trần Hưng Đạo, TP Nha Trang (Khánh Hòa) đã được sơ cứu tại trường, rồi đưa vào các bệnh viện. Trong đó, có nữ sinh lớp 5 đã bị tử vong.
-- Học sinh thôn Păng Tiêng, xã Lát, huyện Lạc Dương (Lâm Đồng) phải chui rào kẽm gai để đến trường vì con đường quen thuộc bị công ty thủy điện rào chắn.
-- Liên tục xuất hiện những vụ học sinh ngộ độc do chơi 'bóng nổ', 'bóng thối' khiến nhiều địa phương phải lên tiếng cảnh báo về các loại đồ chơi nguy hiểm.
-- Theo các chuyên gia, việc lái xe trên đường có nhiệt độ quá cao gây ảnh hưởng đến ô tô, hư hỏng nhiều bộ phận không riêng lốp xe, nên rất dễ xảy ra tai nạn.
-- Trong con mắt nhà toán học và nhà khoa học, bảng đen có sức hấp dẫn kỳ lạ, và những gì được viết trên đó bằng phấn - không nhất thiết phải là phấn trắng - có vẻ đẹp đến tầm nghệ thuật.
-- Quy mô đào tạo đại học chính quy của nhiều trường đại học, phân hiệu đại học chỉ trên dưới 1.000 sinh viên, thậm chí có nơi chưa đến 200 sinh viên.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Tin tức đáng chú ý: Hà Nội, TP.HCM, Nghệ An sẽ thí điểm cấp phiếu lý lịch tư pháp tại quận, huyện; Lượng tài khoản chứng khoán mở mới tăng cao; Khánh Hòa mở cao điểm kiểm tra vệ sinh thực phẩm sau nhiều vụ ngộ độc liên tục...
-- Hôm nay thời tiết nắng đã bớt căng thẳng đối với các tỉnh Bắc Bộ, Trung Bộ, riêng tại Nam Bộ, Tây Nguyên vẫn còn gay gắt, oi bức.
-- Phó giám đốc Sở Thông tin và Truyền thông tỉnh Khánh Hòa cho hay liên quan đến vụ nữ sinh lớp 5 Trường tiểu học Vĩnh Trường, Nha Trang tử vong, có hơn 20 tài khoản mạng xã hội đăng tải thông tin không chính xác.
-- Hàng trăm người dân theo dõi công an giải cứu thanh niên có biểu hiện ngáo đá leo lên ban công sân thượng nhà dân trong đêm. Nhiều người ngao ngán: 'Một người làm khổ bao người'.
-- Phú Quốc có nhiều tour trải nghiệm câu mực đêm, ngồi tàu ngắm hoàng hôn hấp dẫn du khách.
-- Thủ tướng Phạm Minh Chính đã đột xuất đến Bệnh viện Trung ương Huế thăm, động viên ba bệnh nhân vừa được ghép tạng xuyên Việt từ người hiến tạng chết não ở Quảng Ninh.
-- Người dân  cho biết quá bức xúc trước việc đơn vị thi công cho xe lu lèn mặt đường quốc lộ 19 khiến nhà cửa bị rung lắc, nứt vách.
-- Dự án thoát nước đường Võ Văn Ngân (TP Thủ Đức) thi công trở lại, liên tục gây ảnh hưởng đến người dân.
-- Dù cuối tuần nhưng trên cao tốc La Sơn - Hòa Liên không còn cảnh tấp nập xe cộ đi lại như trước đây.
-- Đại biểu Quốc hội tỉnh Quảng Trị cho rằng việc cấm xe trên cao tốc Cam Lộ - La Sơn là dồn rủi ro từ bên này sang bên kia, không khéo dưới quốc lộ 1 còn rủi ro nhiều hơn vì xuyên tâm qua thành phố.
-- Gần 20ha mía của người dân Phú Yên bị lửa thiêu rụi trong đêm, hiện lực lượng chức năng đang khẩn trương điều tra nguyên nhân.
-- Nhiều quái xế phóng nhanh, vượt ẩu, lạng lách trên đường phố Quảng Ngãi bị công an tuần tra hóa trang tóm gọn.
-- Thủ tướng Phạm Minh Chính đã nhấn nút khởi công khu cảng biển Vsico Huế nằm trong cụm cảng nước sâu Chân Mây (huyện Phú Lộc, Thừa Thiên Huế).
-- Chiều 6-4, phần đầu máy của đoàn tàu hỏa chở hàng đi đến xã Liên Bảo, huyện Vụ Bản, tỉnh Nam Định thì bất ngờ bốc cháy buộc phải dừng.
-- Tòa án nhân dân tối cao đang lấy ý kiến góp ý với dự thảo nghị quyết hướng dẫn áp dụng một số quy định về tình tiết giảm nhẹ trách nhiệm hình sự.
-- Việc 239 chiếc xe buýt ở TP.HCM thay mới nhận được sự ủng hộ của nhiều người dân. Nhưng để phát triển hơn nữa, người dân mong cần xử lý nghiêm các tài xế, nhân viên có thái độ chưa tốt.
-- Việt Nam vừa ghi nhận ca mắc cúm A(H9) đầu tiên trên người. Trước đó, tại tỉnh Khánh Hòa đã có ca tử vong do cúm A(H5N1). Bộ Y tế nhận định thời gian tới vẫn tiềm ẩn nguy cơ lây nhiễm các chủng vi rút cúm gia cầm sang người.
-- Con đường ẩm thực thưởng thức bê thui Cầu Mống tại chân cầu Câu Lâu ở hướng phía Bắc, từ trung tâm thị xã Điện Bàn đi vào bờ sông Thu Bồn đìu hiu nửa năm qua.
-- UBND tỉnh Bình Định đề nghị Chính phủ hỗ trợ khoảng 1.500 tỉ đồng để cùng với ngân sách địa phương  mở rộng sân bay Phù Cát.
-- Người dân bức xúc vì cát bụi tại công trình thi công dự án thoát nước trên đường Võ Văn Ngân (TP Thủ Đức) bay mù mịt.
-- Nhiều phụ huynh phản ảnh tại TP Nha Trang, Khánh Hòa, các trường không mở căng tin, học sinh phải ăn ở ngoài, nên rất lo lắng chất lượng bữa ăn của con em.
-- Bộ Ngoại giao Việt Nam nhấn mạnh các trụ sở cơ quan đại diện ngoại giao và lãnh sự phải được tôn trọng, bảo vệ theo luật pháp quốc tế, sau vụ một tòa nhà của Đại sứ quán Iran bị tấn công hôm 1-4.
-- Có đến gần 10% người dân Việt Nam mắc phải bệnh lý trào ngược dạ dày và đang có xu hướng gia tăng do nhiều nguyên nhân khác nhau.
-- UBND quận 1, quận 10 và quận 11 gửi Sở Giao thông vận tải TP.HCM, các đơn vị liên quan đề xuất danh mục các tuyến đường sử dụng tạm thời một phần vỉa hè ngoài mục đích giao thông.
-- Những biện pháp để tăng cường phòng chống và giảm thiểu hậu quả khi đã bị tấn công mã hóa tống tiền vừa được Cục An toàn thông tin xây dựng thành cẩm nang.
-- Sáng 6-4, tại Thanh Hóa, Ủy ban Trung ương MTTQ Việt Nam tổ chức gặp mặt, tri ân chiến sĩ, thanh niên xung phong, dân công hỏa tuyến tham gia chiến dịch Điện Biên Phủ.
-- Từ vụ cháy dãy nhà ven bờ nam kênh Đôi mới đây, nhiều bạn đọc cho rằng TP.HCM cần có giải pháp đột phá đẩy nhanh tiến độ chỉnh trang, di dời và tổ chức lại cuộc sống của người dân đang sống trên và ven kênh rạch hiện nay.
-- Đường Lê Văn Việt là tuyến đường chính của TP Thủ Đức, nhưng chưa được mở rộng trên toàn tuyến.
-- Thừa Thiên Huế xác định mục tiêu đến năm 2025 sẽ trở thành thành phố trực thuộc trung ương và là đô thị di sản đặc trưng của Việt Nam.
-- Bộ Tài chính vừa duyệt kế hoạch kiểm tra hoạt động kinh doanh xổ số, casino và trò chơi có thưởng cho người nước ngoài năm 2024.
+- HĐND tỉnh Quảng Nam đã miễn nhiệm chức danh chủ tịch HĐND tỉnh nhiệm kỳ 2021-2026 đối với ông Phan Việt Cường.
+- Một số tin tức đáng chú ý: 5 đoàn liên ngành trung ương kiểm tra an toàn thực phẩm; TP.HCM đặt mục tiêu giảm 85% ô nhiễm không khí do xe cộ; Cục An toàn thông tin khuyến cáo người dùng iPhone cảnh giác...
+- Hôm nay thời tiết Nam Bộ tiếp tục nắng nóng, có nơi nắng nóng gay gắt, kéo dài chuỗi ngày khô hạn ở khu vực này lên hơn 55 ngày.
+- Trong hai ngày cuối tuần, nhiều chuyến bay đi, đến sân bay Điện Biên không thể cất, hạ cánh hoặc phải chuyển hướng hạ cánh do ảnh hưởng mù khô.
+- Vụ tai nạn liên hoàn giữa 3 xe khách 45 chỗ trên đường nối cao tốc Nội Bài - Lào Cai đến Sa Pa (tỉnh lộ 155) khiến một hành khách tử vong.
+- Chủ tịch Quốc hội nhấn mạnh ý nghĩa quan trọng của chuyến thăm chính thức Trung Quốc lần này trong việc duy trì đà tiếp xúc cấp cao, trao đổi chiến lược cấp cao giữa hai Đảng, hai nước.
+- Tuổi Trẻ Online ghi nhận hiện trạng, ý kiến người dân ở các tuyến đường đủ điều kiện thu phí sử dụng tạm vỉa hè ở quận 1, quận 10 và quận 11.
+- Dù có quyết định cưỡng chế do xây dựng sai phép, không phép nhưng 96 trường hợp vẫn không khắc phục, UBND quận 7 đề nghị ngừng các giao dịch, chuyển nhượng với các công trình trên.
+- Sau khi có chỉ đạo của thành phố Đà Nẵng, các lực lượng chức năng đã hoàn thành việc xúc lớp giá hạ đổ chồng lên trên nền đất cũ ngoài bờ kè sông Hàn gần cầu Trần Thị Lý.
+- Nhờ sự vào cuộc quyết liệt của chính quyền địa phương và đồng lòng của người dân, dự án đường dây 500kV mạch 3 qua Nghệ An đang được đẩy nhanh tiến độ.
+- Khánh Hòa đã thu hồi, nộp ngân sách nhà nước gần 700 tỉ đồng trong quá trình xử lý, khắc phục sai phạm tại các dự án theo kết luận, kiến nghị của các cơ quan trung ương.
+- Hà Nội đã bước vào đợt nắng nóng đầu tiên trong năm 2024, tuy nhiên chất lượng không khí có ngày vẫn ở mức xấu. Khi nào mới hết "mùa" ô nhiễm không khí?
+- Trung tâm Quản lý nhà và Giám định xây dựng (Sở Xây dựng TP.HCM) vừa kiểm kê nhà sở hữu nhà nước số 14 Tự Quyết (quận Tân Phú) bị người thuê chia 3 căn bán.
+- Quảng Trị yêu cầu thường trực huyện ủy về làm việc trực tiếp từng xã để giải quyết dứt điểm từng trường hợp cụ thể, và bàn giao mặt bằng cao tốc Cam Lộ - Vạn Ninh trước ngày 30-4.
+- Phòng cảnh sát điều tra tội phạm về ma túy Công an TP Hải Phòng vừa bắt quả tang nhóm “bay lắc”, có cả nữ cán bộ công an tham gia tổ chức.
+- Đến trưa 7-4, vẫn chưa có tung tích Nguyễn Kiều Thảo My (7 tuổi) và Lê Hoàng Thùy Linh (3 tuổi) bị lạc ở khu vực Đồng Khởi - Nguyễn Huệ (TP.HCM).
+- Các giải pháp để môi trường nước tốt hơn đã được HĐND TP.HCM giải đáp trong chương trình Dân hỏi chính quyền trả lời sáng 7-4.
+- Nhóm học sinh rủ nhau đi tắm ở Vực Phun (xã Hòa Mỹ Tây, huyện Tây Hòa, tỉnh Phú Yên), không may một em chết đuối.
+- Trong đêm, sáu nhà dân ở thành phố Bắc Ninh (tỉnh Bắc Ninh) bị sạt lở xuống sông Cầu. Trước đó tỉnh Bắc Ninh đã công bố tình trạng khẩn cấp.
+- Lãnh đạo tỉnh Tiền Giang khẳng định tình hình thiếu nước sinh hoạt chỉ xảy ra cục bộ tại một số chỗ, một số khung giờ.
+- Đêm Thăng Long hấp dẫn các khán giả bởi kết hợp giữa giao hưởng với nhiều thể loại âm nhạc khác nhau.
+- Ba học sinh xuống biển tắm giữa trưa, không may bị sóng đánh ra xa, được hai anh em ruột đang đánh cá cứu đưa vào bờ.
+- Tuần này các tỉnh từ Trung Bộ trở ra Bắc Bộ mưa rào, vài nơi nắng nóng, còn tại Nam Bộ, Tây Nguyên nắng nóng gay gắt dài ngày.
+- Từ nay đến hết mùa hạn mặn năm 2024, khả năng xuất hiện từ 3 đợt xâm nhập mặn tăng cao ở Đồng bằng sông Cửu Long.
+- Sáng 7-4, Chủ tịch Quốc hội Vương Đình Huệ dẫn đầu đoàn đại biểu cấp cao Việt Nam rời Hà Nội, lên đường thăm Trung Quốc từ ngày 7 đến 12-4.
+- Nuôi chó, mèo tại chung cư lại gây ra rất nhiều phiền lụy với những cư dân khác mà chưa có quy định cụ thể nào.
+- Một vụ án mạng xảy ra tại Đà Nẵng vào tối 6-4 xuất phát từ mâu thuẫn trong lúc ăn nhậu.
+- Thanh tra Khánh Hòa phát hiện nhiều sai phạm về kinh tế với số tiền hơn 13,2 tỉ đồng, chuyển cơ quan điều tra 3 vụ việc.
+- Theo nhà thầu, không thay đổi giải pháp xử lý nền, hạng mục cầu cạn vành đai 3 qua Thủ Đức có thể phải tới tháng 9-2026 mới xong.
+- Ban Thường vụ Tỉnh ủy Lâm Đồng chỉ đạo thực hiện quy trình đóng cửa Dinh 1, tiến hành thu hồi đúng quy định.
 ![New](News.png)
 ## Nhịp sống số 
 - Những video, âm thanh và hình ảnh do AI tạo ra hoặc do AI thay đổi nội dung sẽ được Meta gắn nhãn 'tạo bởi AI' để phân biệt với những sản phẩm khác.
