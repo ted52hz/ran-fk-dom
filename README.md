@@ -1,9 +1,22 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
-- Kỳ thi đánh giá năng lực đợt 1 năm 2023 do Đại học Quốc gia TP.HCM tổ chức vào sáng 7-4 có tỉ lệ thí sinh dự thi cao nhất từ trước đến nay lên đến 98,2%.
+- Một người ở Nha Trang thừa nhận “cung cấp, chia sẻ thông tin sai sự thật” lên Facebook cá nhân về việc tử vong của nữ học sinh lớp 5 Trường tiểu học Vĩnh Trường (TP Nha Trang, Khánh Hòa), đã bị xử phạt vi phạm hành chính.
+- Dự kiến Trường Trần Đại Nghĩa chỉ tuyển 350 học sinh lớp 6 cho năm học 2024 - 2025 thay vì 535 học sinh như năm trước.
+- Việc ký kết là một bước tiến quan trọng giúp nâng cao chất lượng đào tạo và phát triển kỹ năng cho người học.
+- TP.HCM tiếp tục tuyển sinh các lớp 10 chuyên trong bốn trường THPT gồm: Nguyễn Thượng Hiền, Gia Định, Mạc Đĩnh Chi và Nguyễn Hữu Huân.
+- Đại học Quốc gia TP.HCM và Đại học Deakin (Úc) chính thức trở thành đối tác chiến lược trong nghiên cứu và phát triển lĩnh vực trí tuệ nhân tạo (AI).
+- Ngày 8-4, Trường đại học Lạc Hồng đã tiếp nhận và khai trương phòng thí nghiệm tự động hóa SMC Automation Lab trị giá hơn 6,5 tỉ đồng.
+- 20 năm dạy học ở 2 bản Cát, Trỉa, thầy Thành và thầy Sinh vẫn vẹn nguyên tấm lòng cống hiến vì học trò, nhưng đau đáu vì 'học sinh hết lớp 12 xong đi làm thuê, chứ không học tiếp'.
+- Một thí sinh trên đường đi thi đánh giá năng lực bị tai nạn giao thông ở Củ Chi, TP.HCM đã được anh công nhân trẻ giúp đỡ, đưa đi thi rồi chở về nhà.
+- Tiết học STEM của học sinh Trường mầm non Tam Phú, TP Thủ Đức tràn ngập tiếng cười, khi các em được dạy cách làm khinh khí cầu mini và thả lên trời.
+- Chiến thắng trận quý 2, Nguyễn Quốc Nhật Minh, Trường THPT chuyên Hùng Vương, trở thành học sinh đầu tiên của Gia Lai vào chung kết Đường lên đỉnh Olympia.
+- Công an TP Sơn La, tỉnh Sơn La đang điều tra nguyên nhân bé trai 1 tuổi bị chấn thương não ở Trường mầm non Sơn Ca.
+- Video cô giáo ở Trường mầm non 4 (quận 3, TP.HCM) túm đầu trẻ, tát trẻ ngã dúi dụi trong giờ ăn trưa được phụ huynh gửi cho báo chí.
+- Chiều tối chủ nhật 7-4, vòng chung kết Hội thi sáng tác ảnh Tuổi Xanh diễn ra với hình thức tranh tài độc đáo: 100 thí sinh khối THCS và 100 thí sinh khối THPT được chia thành các tốp di chuyển và chụp ảnh trên du thuyền đi dọc sông Sài Gòn.
+- Kỳ thi đánh giá năng lực đợt 1 năm 2024 do Đại học Quốc gia TP.HCM tổ chức vào sáng 7-4 có tỉ lệ thí sinh dự thi cao nhất từ trước đến nay lên đến 98,2%.
 - Những học sinh còn nằm viện kể trên của Trường tiểu học Vĩnh Trường và Trường THCS Trần Hưng Đạo, TP Nha Trang đều đã nhập viện cùng ngày với nữ sinh lớp 5 tử vong vào sáng 5-4.
-- Chiều 7-4, vòng chung kết cuộc thi ‘Thử thách kinh doanh sáng tạo Việt Nam năm 2024’’ đã diễn ra tại Đại học Fulbright Việt Nam.
+- Chiều 7-4, vòng chung kết cuộc thi 'Thử thách kinh doanh sáng tạo Việt Nam năm 2024' đã diễn ra tại Đại học Fulbright Việt Nam.
 - Với hầu hết học sinh, chụp ảnh thành phố từ sông Sài Gòn là trải nghiệm 'có 1 không 2'. Có bạn đã chụp hơn 300 tấm hình trong chuyến đi đầy thú vị.
 - Chiều tối 7-4, 100 học sinh THCS và 100 học sinh THPT sẽ tranh tài tại vòng chung kết Hội thi sáng tác ảnh Tuổi Xanh.
 - Từ Hungary, 2 giảng viên và 4 sinh viên sang Việt Nam học nghề bếp, từ phở, bún chả, gỏi cuốn đến dê chiên riềng, gà tre hấp mắm, cua lột xốt...
@@ -18,51 +31,38 @@
 - Nhiều phụ huynh phản ảnh tại TP Nha Trang, Khánh Hòa, các trường không mở căng tin, học sinh phải ăn ở ngoài, nên rất lo lắng chất lượng bữa ăn của con em.
 - Chính phủ vừa ban hành nghị định số 35/2024 quy định về xét tặng danh hiệu nhà giáo nhân dân, nhà giáo ưu tú với nhiều điểm mới.
 - Những ngày gần đây, TP.HCM bước vào đợt nắng nóng khắc nghiệt khi nhiệt độ thường ở mức từ 36 - 38 độ C, thậm chí có lúc 40 độ C.
-- UBND TP Nha Trang (Khánh Hòa) thông tin như vậy về trường hợp em học sinh lớp 5 tử vong sau khi ăn sáng ở hàng quán ngoài trường học.
-- Một trường dân tộc nội trú ở Nghệ An cần mặt bằng làm ký túc xá cho học sinh, nhưng giáo viên nghỉ hưu từng mượn nhà ở khu tập thể miễn phí chưa chịu trả.
-- Bộ Giáo dục và Đào tạo vừa công bố danh sách 37 thí sinh lọt vào đội tuyển thi Olympic khu vực và quốc tế.
-- Trong hai ngày 5 và 6-4, Hà Nội tổ chức kiểm tra khảo sát hơn 116.000 học sinh lớp 12 nhằm đánh giá chất lượng và có giải pháp nhằm cải thiện kết quả thi tốt nghiệp THPT năm nay.
-- Đối với số tiền phụ huynh đã đóng, Trường quốc tế AISVN đang có hướng phát hành cổ phiếu đến phụ huynh.
-- Rất ít học sinh thi đợt 2 kỳ thi học sinh giỏi lớp 12 ở TP.HCM năm học 2023-2024 đoạt giải nhất. Vì sao?
-- Đến chiều 5-4, còn 28 học sinh của 2 trường ở phường Vĩnh Trường, TP Nha Trang bị ngộ độc thực phẩm vẫn nằm theo dõi, điều trị tại các bệnh viện.
-- Cao điểm nắng nóng và ảnh hưởng của El Nino, nhiều trường học tại Philippines phải chuyển sang học từ xa để đảm bảo sức khỏe cho học sinh.
-- Liên tục những ngày gần đây, trước cổng nhiều trường tiểu học tại Quảng Trị xuất hiện đồ chơi nguy hiểm có tên “bom thối”. Công an địa phương đã cảnh báo khẩn về loại đồ chơi này.
-- Dù mệt mỏi, đuối sức nhưng nhiều sinh viên vẫn lựa chọn làm thêm hai ba việc cùng lúc để kiếm tiền trang trải cuộc sống.
-- Hầu hết các tỉnh, thành đều tổ chức tổng kết năm học 2023-2024 trước ngày 31-5 và cho học sinh nghỉ hè từ ngày 1-6.
-- Nhà giáo nhân dân Lâm És, nguyên phó giám đốc Sở Giáo dục và Đào tạo tỉnh Sóc Trăng, là người viết khoảng 100 đầu sách được xuất bản, với 53 đầu sách mang tầm quốc gia.
-- Theo ông Bùi Quang Ngọc - giám đốc cấp cao Công ty Marvell Việt Nam, nhiều công ty, tập đoàn lớn trong ngành sản xuất vi mạch bán dẫn đánh giá cao đội ngũ kỹ sư người Việt bởi tính cần cù, sáng tạo và trung thực.
 ![Edu](Edu.png)
 ## Thời Sự 
-- HĐND tỉnh Quảng Nam đã miễn nhiệm chức danh chủ tịch HĐND tỉnh nhiệm kỳ 2021-2026 đối với ông Phan Việt Cường.
-- Một số tin tức đáng chú ý: 5 đoàn liên ngành trung ương kiểm tra an toàn thực phẩm; TP.HCM đặt mục tiêu giảm 85% ô nhiễm không khí do xe cộ; Cục An toàn thông tin khuyến cáo người dùng iPhone cảnh giác...
-- Hôm nay thời tiết Nam Bộ tiếp tục nắng nóng, có nơi nắng nóng gay gắt, kéo dài chuỗi ngày khô hạn ở khu vực này lên hơn 55 ngày.
-- Trong hai ngày cuối tuần, nhiều chuyến bay đi, đến sân bay Điện Biên không thể cất, hạ cánh hoặc phải chuyển hướng hạ cánh do ảnh hưởng mù khô.
-- Vụ tai nạn liên hoàn giữa 3 xe khách 45 chỗ trên đường nối cao tốc Nội Bài - Lào Cai đến Sa Pa (tỉnh lộ 155) khiến một hành khách tử vong.
-- Chủ tịch Quốc hội nhấn mạnh ý nghĩa quan trọng của chuyến thăm chính thức Trung Quốc lần này trong việc duy trì đà tiếp xúc cấp cao, trao đổi chiến lược cấp cao giữa hai Đảng, hai nước.
-- Tuổi Trẻ Online ghi nhận hiện trạng, ý kiến người dân ở các tuyến đường đủ điều kiện thu phí sử dụng tạm vỉa hè ở quận 1, quận 10 và quận 11.
-- Dù có quyết định cưỡng chế do xây dựng sai phép, không phép nhưng 96 trường hợp vẫn không khắc phục, UBND quận 7 đề nghị ngừng các giao dịch, chuyển nhượng với các công trình trên.
-- Sau khi có chỉ đạo của thành phố Đà Nẵng, các lực lượng chức năng đã hoàn thành việc xúc lớp giá hạ đổ chồng lên trên nền đất cũ ngoài bờ kè sông Hàn gần cầu Trần Thị Lý.
-- Nhờ sự vào cuộc quyết liệt của chính quyền địa phương và đồng lòng của người dân, dự án đường dây 500kV mạch 3 qua Nghệ An đang được đẩy nhanh tiến độ.
-- Khánh Hòa đã thu hồi, nộp ngân sách nhà nước gần 700 tỉ đồng trong quá trình xử lý, khắc phục sai phạm tại các dự án theo kết luận, kiến nghị của các cơ quan trung ương.
-- Hà Nội đã bước vào đợt nắng nóng đầu tiên trong năm 2024, tuy nhiên chất lượng không khí có ngày vẫn ở mức xấu. Khi nào mới hết "mùa" ô nhiễm không khí?
-- Trung tâm Quản lý nhà và Giám định xây dựng (Sở Xây dựng TP.HCM) vừa kiểm kê nhà sở hữu nhà nước số 14 Tự Quyết (quận Tân Phú) bị người thuê chia 3 căn bán.
-- Quảng Trị yêu cầu thường trực huyện ủy về làm việc trực tiếp từng xã để giải quyết dứt điểm từng trường hợp cụ thể, và bàn giao mặt bằng cao tốc Cam Lộ - Vạn Ninh trước ngày 30-4.
-- Phòng cảnh sát điều tra tội phạm về ma túy Công an TP Hải Phòng vừa bắt quả tang nhóm “bay lắc”, có cả nữ cán bộ công an tham gia tổ chức.
-- Đến trưa 7-4, vẫn chưa có tung tích Nguyễn Kiều Thảo My (7 tuổi) và Lê Hoàng Thùy Linh (3 tuổi) bị lạc ở khu vực Đồng Khởi - Nguyễn Huệ (TP.HCM).
-- Các giải pháp để môi trường nước tốt hơn đã được HĐND TP.HCM giải đáp trong chương trình Dân hỏi chính quyền trả lời sáng 7-4.
-- Nhóm học sinh rủ nhau đi tắm ở Vực Phun (xã Hòa Mỹ Tây, huyện Tây Hòa, tỉnh Phú Yên), không may một em chết đuối.
-- Trong đêm, sáu nhà dân ở thành phố Bắc Ninh (tỉnh Bắc Ninh) bị sạt lở xuống sông Cầu. Trước đó tỉnh Bắc Ninh đã công bố tình trạng khẩn cấp.
-- Lãnh đạo tỉnh Tiền Giang khẳng định tình hình thiếu nước sinh hoạt chỉ xảy ra cục bộ tại một số chỗ, một số khung giờ.
-- Đêm Thăng Long hấp dẫn các khán giả bởi kết hợp giữa giao hưởng với nhiều thể loại âm nhạc khác nhau.
-- Ba học sinh xuống biển tắm giữa trưa, không may bị sóng đánh ra xa, được hai anh em ruột đang đánh cá cứu đưa vào bờ.
-- Tuần này các tỉnh từ Trung Bộ trở ra Bắc Bộ mưa rào, vài nơi nắng nóng, còn tại Nam Bộ, Tây Nguyên nắng nóng gay gắt dài ngày.
-- Từ nay đến hết mùa hạn mặn năm 2024, khả năng xuất hiện từ 3 đợt xâm nhập mặn tăng cao ở Đồng bằng sông Cửu Long.
-- Sáng 7-4, Chủ tịch Quốc hội Vương Đình Huệ dẫn đầu đoàn đại biểu cấp cao Việt Nam rời Hà Nội, lên đường thăm Trung Quốc từ ngày 7 đến 12-4.
-- Nuôi chó, mèo tại chung cư lại gây ra rất nhiều phiền lụy với những cư dân khác mà chưa có quy định cụ thể nào.
-- Một vụ án mạng xảy ra tại Đà Nẵng vào tối 6-4 xuất phát từ mâu thuẫn trong lúc ăn nhậu.
-- Thanh tra Khánh Hòa phát hiện nhiều sai phạm về kinh tế với số tiền hơn 13,2 tỉ đồng, chuyển cơ quan điều tra 3 vụ việc.
-- Theo nhà thầu, không thay đổi giải pháp xử lý nền, hạng mục cầu cạn vành đai 3 qua Thủ Đức có thể phải tới tháng 9-2026 mới xong.
-- Ban Thường vụ Tỉnh ủy Lâm Đồng chỉ đạo thực hiện quy trình đóng cửa Dinh 1, tiến hành thu hồi đúng quy định.
+- Sau khi lùi xe vào bãi đất trống cạnh nhà, người cha không thấy con trai đâu nên đi tìm thì phát hiện con ruột chết dưới bánh xe bồn.
+- Hôm nay 9-4, thời tiết Bắc Bộ đón không khí lạnh yếu, trời chuyển lạnh kèm mưa dông. Nam Bộ và Tây Nguyên vẫn nắng nóng.
+- Một số tin tức đáng chú ý: Tiếp tục khóa SIM rác, hạn chế cuộc gọi lừa đảo; Cá ngừ xuất khẩu sang 80 thị trường; Bệnh tay chân miệng có xu hướng gia tăng tại Hà Nội...
+- Chiều 8-4, Ủy viên trưởng Ủy ban Thường vụ Đại hội đại biểu nhân dân toàn quốc Trung Quốc (Nhân đại) Triệu Lạc Tế chủ trì đón, hội đàm với Chủ tịch Quốc hội Vương Đình Huệ.
+- Nam học sinh ở TP Đồng Hới, Quảng Bình được các bác sĩ cứu sống khi bị bạn cùng trường dùng dao đâm thủng thận.
+- Bí thư Tỉnh ủy Vĩnh Phúc Dương Văn An đã được Ủy ban Thường vụ Quốc hội phê chuẩn kết quả bầu làm trưởng Đoàn đại biểu Quốc hội tỉnh Vĩnh Phúc.
+- Một người ở Nha Trang thừa nhận “cung cấp, chia sẻ thông tin sai sự thật” lên Facebook cá nhân về việc tử vong của nữ học sinh lớp 5 Trường tiểu học Vĩnh Trường (TP Nha Trang, Khánh Hòa), đã bị xử phạt vi phạm hành chính.
+- Đoàn đại biểu Quốc hội Quảng Trị nêu quốc lộ 1 có giao thông hỗn hợp, mật độ phương tiện đông, nhiều đường nhánh đấu nối, nguy cơ xe tải nặng né trạm thu phí đi vào đường địa phương… dẫn đến rủi ro cho người dân Quảng Trị.
+- Metro số 1 được chủ đầu tư lên kế hoạch vận hành thương mại toàn tuyến vào quý 4-2024.
+- Máy lu thi công công trình xây dựng đường tránh quốc lộ 12A làm nứt nhà dân. Người dân kéo ra công trường phản đối và yêu cầu nhà thầu bồi thường mới cho làm tiếp.
+- Ngày 8-4, các chuyến bay đến và khởi hành từ sân bay Điện Biên đều bị hủy bởi sương mù khô gây tầm nhìn hạn chế, không đảm bảo an toàn bay.
+- Đó là nội dung được đặt ra trong hội thảo góp ý dự án Luật Đường bộ và Luật Trật tự, an toàn giao thông đường bộ ngày 8-4.
+- Theo chủ đầu tư, vào dịp nghỉ lễ 30-4 và 1-5, nút giao thứ 7 ở xã Thiệu Giang, huyện Thiệu Hóa trên cao tốc Mai Sơn - quốc lộ 45 đoạn qua tỉnh Thanh Hóa sẽ đưa vào sử dụng.
+- Vụ tai nạn tại lối lên xuống cầu vượt An Dương - Thanh Niên (Hà Nội) khiến nam sinh 16 tuổi tử vong và một nữ sinh bị thương được đưa đi cấp cứu.
+- Đấu giá thành công quyền sử dụng tần số đối với hai khối băng tần đã mang về cho ngân sách nhà nước hơn 10.000 tỉ đồng trong tháng 3-2024, Bộ Thông tin và Truyền thông cho biết.
+- Một bệnh nhân nữ đã phải nhập viện cấp cứu trong tình trạng khó thở, mẩn ngứa khắp người sau 3 giờ ăn hai con đuông dừa.
+- Bộ GTVT chỉ quy hoạch một trạm dừng nghỉ trên tuyến cao tốc Trung Lương - Mỹ Thuận và tỉnh Tiền Giang đã cấp quyết định đầu tư cho Công ty TNHH TMDV xăng dầu Châu Thành nên không thể giải quyết cho công ty khác.
+- Đoạn đường song hành quốc lộ 50 đặt mục tiêu về đích cuối năm nay hiện đang gặp khó khăn vì nhiều căn nhà vẫn chưa được giải tỏa.
+- Thủ tướng yêu cầu tổ chức rà soát từng khu vực, từng ấp, xóm, từng hộ dân ở miền Tây để có các phương án cụ thể phù hợp nhằm bảo đảm nguồn nước sinh hoạt cho người dân, kiên quyết không để người dân không có nước sinh hoạt.
+- Nhìn nhận dự án Amazing City Bình Chánh vi phạm nhưng tồn tại lâu, ảnh hưởng lớn đến người dân, phó chủ tịch UBND TP.HCM chỉ đạo tách nhóm, tách giai đoạn xử lý.
+- Chiều 8-4, phường 9 (quận 5) đã tổ chức lễ công bố nghị quyết của HĐND TP.HCM về thành lập, chia tách, sáp nhập, đổi tên khu phố. Đây là địa phương tiên phong ở quận 5.
+- Chính phủ đang giao 4 bộ Công Thương, Giao thông vận tải, Xây dựng, Tài nguyên và Môi trường xem xét việc nhập khẩu cát từ Campuchia để giải “cơn khát cát” làm nhiều dự án cao tốc ở phía Nam hiện nay.
+- Vùng đệm U Minh Thượng đến nay có khoảng 310 điểm sạt lở, sụt lún đường giao thông; 26 căn nhà dân bị sạt xuống kênh. Địa phương và các đơn vị liên quan khảo sát, đánh giá thiên tai hạn hán gây ra sạt lở, sụt lún đất cấp độ 2.
+- Tổng liên đoàn Lao động Việt Nam nhất trí với đề xuất của Bộ Lao động - Thương binh và Xã hội về việc người lao động được nghỉ 5 ngày liên tục trong dịp nghỉ lễ 30-4 và 1-5.
+- Người nhà của người phụ nữ tử vong vì tai nạn giao thông không đồng ý với kết luận giám định nồng độ cồn trong máu, vì sao? Cơ quan chức năng nói gì?
+- Hai bé bán kẹo bị lạc gần phố đi bộ Nguyễn Huệ (phường Bến Nghé, quận 1, TP.HCM) ngày 3-4 đã bị dẫn dụ, đến hôm nay 8-4 đã được công an đưa về đoàn tụ với mẹ.
+- Bộ Giao thông vận tải đề nghị Bộ Thông tin và Truyền thông chỉ đạo các cơ quan, đơn vị liên quan rà soát, nghiên cứu sớm phủ sóng điện thoại di động, cung cấp dịch vụ viễn thông trên các tuyến đường cao tốc.
+- Người dân các tỉnh Bạc Liêu, Cà Mau, Hậu Giang, Kiên Giang, Long An và Vĩnh Long cho rằng xâm nhập mặn năm 2023 đã tăng 3 lần so với năm 2021.
+- Cơ quan soạn thảo Luật Bảo hiểm xã hội sửa đổi đề xuất nhiều biện pháp giải quyết câu chuyện doanh nghiệm chậm, trốn đóng bảo hiểm xã hội.
+- Ông Bùi Hồng Minh - thứ trưởng Bộ Xây dựng, được điều động, bổ nhiệm làm phó trưởng ban chuyên trách Ban chỉ đạo đổi mới và phát triển doanh nghiệp.
 ![New](News.png)
 ## Nhịp sống số 
 - Những video, âm thanh và hình ảnh do AI tạo ra hoặc do AI thay đổi nội dung sẽ được Meta gắn nhãn 'tạo bởi AI' để phân biệt với những sản phẩm khác.
