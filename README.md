@@ -1,6 +1,19 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Chủ tịch UBND TP.HCM vừa có chỉ đạo mới về việc giải quyết các trung tâm Anh ngữ Apax Leaders.
+- Sau 8 ngày phụ huynh Trường quốc tế AISVN đóng góp, với số dư hiện tại, ước tính không thể tiếp tục duy trì hoạt động giảng dạy trực tiếp cho học sinh toàn trường đến khi kết thúc năm học.
+- Sự việc hai bé gái bị người phụ nữ lạ dẫn dụ ở phố đi bộ Nguyễn Huệ, TP.HCM, sau đó được công an giải cứu khiến phụ huynh giật mình: sao trẻ con dễ bị dụ đến vậy?
+- Ngày thi lại một kỹ năng IELTS (IELTS One Skill Retake) đầu tiên ở IDP là 13-4, Hội đồng Anh là 14-4.
+- Năm học 2024-2025, Trường THPT chuyên Lê Hồng Phong và Trần Đại Nghĩa sẽ ngưng tuyển sinh lớp 10 tích hợp, tăng chỉ tiêu lớp 10 chuyên Anh.
+- Hà Nội yêu cầu các trường không được yêu cầu phụ huynh nộp giấy xác nhận thông tin cư trú khi tuyển sinh đầu cấp mầm non, phổ thông.
+- Thí sinh sẽ chọn một trong hai mã bài thi là CA1 (trắc nghiệm và tự luận toán) hoặc CA2 (trắc nghiệm và tự luận ngữ văn).
+- Hà Nội triển khai mô hình can thiệp phòng, chống thừa cân, béo phì cho học sinh tại một số trường tiểu học.
+- Ngày 19-4, các trường sẽ thu Phiếu đăng ký dự tuyển vào lớp 10 trung học phổ thông năm học 2024-2025.
+- Các học sinh đang khởi động trong tiết học thể dục thì một học sinh gặp vấn đề về sức khỏe, trường đưa đi cấp cứu nhưng nữ sinh qua đời sau đó.
+- Cần Thơ ban hành chính sách về mức thu học phí cấp học mầm non, tiểu học, trung học phổ thông và không còn hỗ trợ 50% học phí.
+- Theo Sở Giáo dục và Đào tạo, Trường THPT chuyên Trần Đại Nghĩa sẽ tách ra làm hai trường và sẽ tuyển sinh ngay năm học 2024-2025.
+- Cuộc thi Piano SIU (SIU Piano Competition) năm 2024 khởi động từ cuối tháng 3 sau thành công của mùa đầu tiên được diễn ra vào năm 2022.
 - Một người ở Nha Trang thừa nhận “cung cấp, chia sẻ thông tin sai sự thật” lên Facebook cá nhân về việc tử vong của nữ học sinh lớp 5 Trường tiểu học Vĩnh Trường (TP Nha Trang, Khánh Hòa), đã bị xử phạt vi phạm hành chính.
 - Dự kiến Trường Trần Đại Nghĩa chỉ tuyển 350 học sinh lớp 6 cho năm học 2024 - 2025 thay vì 535 học sinh như năm trước.
 - Việc ký kết là một bước tiến quan trọng giúp nâng cao chất lượng đào tạo và phát triển kỹ năng cho người học.
@@ -18,51 +31,38 @@
 - Những học sinh còn nằm viện kể trên của Trường tiểu học Vĩnh Trường và Trường THCS Trần Hưng Đạo, TP Nha Trang đều đã nhập viện cùng ngày với nữ sinh lớp 5 tử vong vào sáng 5-4.
 - Chiều 7-4, vòng chung kết cuộc thi 'Thử thách kinh doanh sáng tạo Việt Nam năm 2024' đã diễn ra tại Đại học Fulbright Việt Nam.
 - Với hầu hết học sinh, chụp ảnh thành phố từ sông Sài Gòn là trải nghiệm 'có 1 không 2'. Có bạn đã chụp hơn 300 tấm hình trong chuyến đi đầy thú vị.
-- Chiều tối 7-4, 100 học sinh THCS và 100 học sinh THPT sẽ tranh tài tại vòng chung kết Hội thi sáng tác ảnh Tuổi Xanh.
-- Từ Hungary, 2 giảng viên và 4 sinh viên sang Việt Nam học nghề bếp, từ phở, bún chả, gỏi cuốn đến dê chiên riềng, gà tre hấp mắm, cua lột xốt...
-- Hoàn thành bài thi đánh giá năng lực trưa 7-4, nhiều thí sinh dự kiến có thể trên 700 điểm, có bạn tự tin sẽ được 1.000 trên tổng 1.200 điểm.
-- Tổng số thí sinh dự thi đánh giá năng lực sáng 7-4 là 93.831, vắng 1.718, tỉ lệ 98,2%, cao nhất từ trước đến nay.
-- Gần 20 năm giảng dạy và nghiên cứu côn trùng học, tiến sĩ Nguyễn Thị Oanh tìm ra những phương pháp tự nhiên bảo vệ cây trồng và nông sản.
-- Hơn 95.000 thí sinh bước vào kỳ thi đánh giá năng lực đợt 1 năm 2024 do Đại học Quốc gia TP.HCM tổ chức sáng 7-4 tại 24 tỉnh, thành trên cả nước.
-- Sáng nay 7-4, hơn 95.000 thí sinh dự thi đánh giá năng lực của ĐH Quốc gia TP.HCM, đông nhất từ trước đến nay.
-- Không cần tham gia các bảng xếp hạng, nhiều đại học đang nỗ lực tạo dựng vị thế bằng các công trình nghiên cứu, các dự án thay đổi xã hội theo hướng tích cực và bền vững.
-- Tối 6-4, Trường phổ thông Năng khiếu (Đại học Quốc gia TP.HCM) công bố chỉ tiêu và kế hoạch tuyển sinh lớp 10 năm học 2024-2025.
-- Hơn 95.000 thí sinh sẽ bước vào kỳ thi đánh giá năng lực Đại học Quốc gia TP.HCM đợt 1 năm 2024. Đây là đợt thi có số thí sinh đông nhất trong lịch sử kỳ thi này.
-- Nhiều phụ huynh phản ảnh tại TP Nha Trang, Khánh Hòa, các trường không mở căng tin, học sinh phải ăn ở ngoài, nên rất lo lắng chất lượng bữa ăn của con em.
-- Chính phủ vừa ban hành nghị định số 35/2024 quy định về xét tặng danh hiệu nhà giáo nhân dân, nhà giáo ưu tú với nhiều điểm mới.
-- Những ngày gần đây, TP.HCM bước vào đợt nắng nóng khắc nghiệt khi nhiệt độ thường ở mức từ 36 - 38 độ C, thậm chí có lúc 40 độ C.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Sau khi lùi xe vào bãi đất trống cạnh nhà, người cha không thấy con trai đâu nên đi tìm thì phát hiện con ruột chết dưới bánh xe bồn.
-- Hôm nay 9-4, thời tiết Bắc Bộ đón không khí lạnh yếu, trời chuyển lạnh kèm mưa dông. Nam Bộ và Tây Nguyên vẫn nắng nóng.
-- Một số tin tức đáng chú ý: Tiếp tục khóa SIM rác, hạn chế cuộc gọi lừa đảo; Cá ngừ xuất khẩu sang 80 thị trường; Bệnh tay chân miệng có xu hướng gia tăng tại Hà Nội...
-- Chiều 8-4, Ủy viên trưởng Ủy ban Thường vụ Đại hội đại biểu nhân dân toàn quốc Trung Quốc (Nhân đại) Triệu Lạc Tế chủ trì đón, hội đàm với Chủ tịch Quốc hội Vương Đình Huệ.
-- Nam học sinh ở TP Đồng Hới, Quảng Bình được các bác sĩ cứu sống khi bị bạn cùng trường dùng dao đâm thủng thận.
-- Bí thư Tỉnh ủy Vĩnh Phúc Dương Văn An đã được Ủy ban Thường vụ Quốc hội phê chuẩn kết quả bầu làm trưởng Đoàn đại biểu Quốc hội tỉnh Vĩnh Phúc.
-- Một người ở Nha Trang thừa nhận “cung cấp, chia sẻ thông tin sai sự thật” lên Facebook cá nhân về việc tử vong của nữ học sinh lớp 5 Trường tiểu học Vĩnh Trường (TP Nha Trang, Khánh Hòa), đã bị xử phạt vi phạm hành chính.
-- Đoàn đại biểu Quốc hội Quảng Trị nêu quốc lộ 1 có giao thông hỗn hợp, mật độ phương tiện đông, nhiều đường nhánh đấu nối, nguy cơ xe tải nặng né trạm thu phí đi vào đường địa phương… dẫn đến rủi ro cho người dân Quảng Trị.
-- Metro số 1 được chủ đầu tư lên kế hoạch vận hành thương mại toàn tuyến vào quý 4-2024.
-- Máy lu thi công công trình xây dựng đường tránh quốc lộ 12A làm nứt nhà dân. Người dân kéo ra công trường phản đối và yêu cầu nhà thầu bồi thường mới cho làm tiếp.
-- Ngày 8-4, các chuyến bay đến và khởi hành từ sân bay Điện Biên đều bị hủy bởi sương mù khô gây tầm nhìn hạn chế, không đảm bảo an toàn bay.
-- Đó là nội dung được đặt ra trong hội thảo góp ý dự án Luật Đường bộ và Luật Trật tự, an toàn giao thông đường bộ ngày 8-4.
-- Theo chủ đầu tư, vào dịp nghỉ lễ 30-4 và 1-5, nút giao thứ 7 ở xã Thiệu Giang, huyện Thiệu Hóa trên cao tốc Mai Sơn - quốc lộ 45 đoạn qua tỉnh Thanh Hóa sẽ đưa vào sử dụng.
-- Vụ tai nạn tại lối lên xuống cầu vượt An Dương - Thanh Niên (Hà Nội) khiến nam sinh 16 tuổi tử vong và một nữ sinh bị thương được đưa đi cấp cứu.
-- Đấu giá thành công quyền sử dụng tần số đối với hai khối băng tần đã mang về cho ngân sách nhà nước hơn 10.000 tỉ đồng trong tháng 3-2024, Bộ Thông tin và Truyền thông cho biết.
-- Một bệnh nhân nữ đã phải nhập viện cấp cứu trong tình trạng khó thở, mẩn ngứa khắp người sau 3 giờ ăn hai con đuông dừa.
-- Bộ GTVT chỉ quy hoạch một trạm dừng nghỉ trên tuyến cao tốc Trung Lương - Mỹ Thuận và tỉnh Tiền Giang đã cấp quyết định đầu tư cho Công ty TNHH TMDV xăng dầu Châu Thành nên không thể giải quyết cho công ty khác.
-- Đoạn đường song hành quốc lộ 50 đặt mục tiêu về đích cuối năm nay hiện đang gặp khó khăn vì nhiều căn nhà vẫn chưa được giải tỏa.
-- Thủ tướng yêu cầu tổ chức rà soát từng khu vực, từng ấp, xóm, từng hộ dân ở miền Tây để có các phương án cụ thể phù hợp nhằm bảo đảm nguồn nước sinh hoạt cho người dân, kiên quyết không để người dân không có nước sinh hoạt.
-- Nhìn nhận dự án Amazing City Bình Chánh vi phạm nhưng tồn tại lâu, ảnh hưởng lớn đến người dân, phó chủ tịch UBND TP.HCM chỉ đạo tách nhóm, tách giai đoạn xử lý.
-- Chiều 8-4, phường 9 (quận 5) đã tổ chức lễ công bố nghị quyết của HĐND TP.HCM về thành lập, chia tách, sáp nhập, đổi tên khu phố. Đây là địa phương tiên phong ở quận 5.
-- Chính phủ đang giao 4 bộ Công Thương, Giao thông vận tải, Xây dựng, Tài nguyên và Môi trường xem xét việc nhập khẩu cát từ Campuchia để giải “cơn khát cát” làm nhiều dự án cao tốc ở phía Nam hiện nay.
-- Vùng đệm U Minh Thượng đến nay có khoảng 310 điểm sạt lở, sụt lún đường giao thông; 26 căn nhà dân bị sạt xuống kênh. Địa phương và các đơn vị liên quan khảo sát, đánh giá thiên tai hạn hán gây ra sạt lở, sụt lún đất cấp độ 2.
-- Tổng liên đoàn Lao động Việt Nam nhất trí với đề xuất của Bộ Lao động - Thương binh và Xã hội về việc người lao động được nghỉ 5 ngày liên tục trong dịp nghỉ lễ 30-4 và 1-5.
-- Người nhà của người phụ nữ tử vong vì tai nạn giao thông không đồng ý với kết luận giám định nồng độ cồn trong máu, vì sao? Cơ quan chức năng nói gì?
-- Hai bé bán kẹo bị lạc gần phố đi bộ Nguyễn Huệ (phường Bến Nghé, quận 1, TP.HCM) ngày 3-4 đã bị dẫn dụ, đến hôm nay 8-4 đã được công an đưa về đoàn tụ với mẹ.
-- Bộ Giao thông vận tải đề nghị Bộ Thông tin và Truyền thông chỉ đạo các cơ quan, đơn vị liên quan rà soát, nghiên cứu sớm phủ sóng điện thoại di động, cung cấp dịch vụ viễn thông trên các tuyến đường cao tốc.
-- Người dân các tỉnh Bạc Liêu, Cà Mau, Hậu Giang, Kiên Giang, Long An và Vĩnh Long cho rằng xâm nhập mặn năm 2023 đã tăng 3 lần so với năm 2021.
-- Cơ quan soạn thảo Luật Bảo hiểm xã hội sửa đổi đề xuất nhiều biện pháp giải quyết câu chuyện doanh nghiệm chậm, trốn đóng bảo hiểm xã hội.
-- Ông Bùi Hồng Minh - thứ trưởng Bộ Xây dựng, được điều động, bổ nhiệm làm phó trưởng ban chuyên trách Ban chỉ đạo đổi mới và phát triển doanh nghiệp.
+- Thi công làm sạch mặt đường trước khi thảm nhựa giữa đô thị lại sử dụng máy nén khí, phương án này phát ra một lượng bụi mù mịt, khiến người dân bức xúc livestream hỏi 'không còn cách nào tốt hơn sao?'.
+- Trung tâm phát triển quỹ đất Đà Nẵng chuyển 18 tỉ đồng, nhưng sau đó thấy việc chuyển tiền sai đối tượng nên đã nhiều lần đề nghị ngân hàng hoàn trả nhưng bất thành. Còn ngân hàng cho rằng đã làm đúng quy định.
+- Tin tức đáng chú ý: Bộ Kế hoạch và Đầu tư, Bạc Liêu thấp điểm nhất về thủ tục hành chính; Hết quý 1, xuất khẩu gạo của Việt Nam tăng khoảng 42%; TP.HCM hướng đến khu công nghiệp giảm phát thải carbon...
+- Cựu giám đốc Công an Hải Phòng Đỗ Hữu Ca bị Tòa án tỉnh Quảng Ninh đưa ra xét xử về tội lừa đảo chiếm đoạt tài sản. Cùng vụ án, 12 người khác hầu tòa với cáo buộc mua bán hóa đơn, đưa - nhận hối lộ.
+- Hôm nay thời tiết Bắc Bộ mưa phùn, Nam Bộ vẫn nắng nóng gay gắt, triều cường lên cao đẩy mặn sâu vào nội đồng.
+- Phó thủ tướng Trần Hồng Hà tiếp tục yêu cầu Bộ Giao thông vận tải cập nhật, làm rõ nhiều nội dung liên quan đến việc xây dựng đề án chủ trương đầu tư đường sắt tốc độ cao trục Bắc - Nam.
+- Ngoại trưởng Tòa thánh Vatican Paul Richard Gallagher đã bày tỏ sự tin tưởng trên trong cuộc gặp Bộ trưởng Ngoại giao Bùi Thanh Sơn tại Hà Nội chiều 9-4.
+- Đại tá Vũ Văn Điền - chỉ huy trưởng Bộ Chỉ huy quân sự tỉnh Đồng Nai - được điều động bổ nhiệm giữ chức vụ phó tư lệnh, tham mưu trưởng Bộ Tư lệnh TP.HCM.
+- Từ vụ việc nữ sinh lớp 6 ở Đà Nẵng bị kẻ xấu ghép ảnh khỏa thân đe dọa, cần làm gì nếu mình là nạn nhân?
+- Đó là khẳng định của giám đốc Ban Quản lý xây dựng các công trình giao thông TP.HCM, sau khi Tuổi Trẻ Online thông tin phát hiện thầu phụ ở vành đai 3 TP.HCM 'giả mạo' chứng thư bảo lãnh.
+- Theo Chủ tịch Quốc hội Vương Đình Huệ, chuyến thăm góp phần thiết thực làm sâu sắc, nâng tầm quan hệ đối tác hợp tác chiến lược toàn diện Việt Nam - Trung Quốc.
+- TP Cần Thơ lấy ý kiến cử tri về việc sáp nhập bốn phường ở quận trung tâm Ninh Kiều, kết quả có hơn 95% ý kiến đồng tình với việc sáp nhập bốn phường này.
+- Giám đốc Công an Đồng Nai cảnh báo tình trạng lợi dụng không gian mạng để đưa ra các kịch bản lừa đảo chiếm đoạt tài sản của người dân.
+- Khẳng định của Bộ trưởng Bộ Nông nghiệp và Phát triển nông thôn Lê Minh Hoan tại buổi nói chuyện với ngư dân và làm việc với tỉnh Bình Định về chống khai thác hải sản bất hợp pháp, không khai báo và không theo quy định (IUU) ngày 9-4.
+- Chiều 9-4, Vụ Sức khỏe bà mẹ và trẻ em (Bộ Y tế) có công văn gửi Bệnh viện đa khoa quốc tế Thu Cúc đề nghị bệnh viện kiểm tra, xác minh thông tin phản ảnh về trường hợp tử vong thai nhi xảy ra tại bệnh viện này.
+- Quy hoạch cần tái hiện được một Hà Nội nghìn năm văn hiến, gắn với những con sông, nhất là sông Hồng và cảnh buôn bán tấp nập trên bến, dưới thuyền.
+- Từ cuối tuần này, người dân có thể đi qua cầu vượt tạm. Đây là giải pháp giảm ùn tắc trong quá trình mở rộng rào chắn thi công hầm chui xuyên đường Trần Quốc Hoàn (quận Tân Bình, TP.HCM).
+- Ngoại trưởng Tòa thánh Vatican, Tổng giám mục Paul Richard Gallagher đã có cuộc gặp với Bộ trưởng Ngoại giao Bùi Thanh Sơn tại Hà Nội, chiều 9-4.
+- Trước thực trạng nhiều nhà máy xi măng lớn như Bỉm Sơn, Bút Sơn, Hoàng Mai… đang thua lỗ, mới đây Hiệp hội Xi măng Việt Nam đã kiến nghị Thủ tướng loạt giải pháp gỡ khó cho ngành xi măng.
+- Trong lúc đóng tôn chống thấm nhà dân ở tỉnh Gia Lai, chiếc máy tời trên mái rơi xuống đất khiến một người chết, một người bị thương.
+- Ngày 9-4, sân bay Điện Biên đã khai thác trở lại sau ba ngày gián đoạn do thời tiết xấu, khiến 19 chuyến bay phải hủy.
+- Tuyến xe buýt nối Đà Nẵng với di sản văn hóa thế giới Hội An (Quảng Nam) sẽ được mở cửa đúng dịp lễ 30-4.
+- Ngày 9-4, nhiều học sinh tiểu học ở thị trấn Tô Hạp, huyện Khánh Sơn (Khánh Hòa) sau khi ăn cơm cuộn, cơm nắm trước cổng trường bị nôn ói, đau bụng, tiêu chảy...
+- Sáng 9-4, quyền Chủ tịch nước Võ Thị Ánh Xuân và đoàn công tác đến thăm Đồn biên phòng cửa khẩu quốc tế Xa Mát (thuộc Bộ đội biên phòng tỉnh Tây Ninh).
+- Ông Trần Quang Thuận (57 tuổi, quận Bình Thạnh) tự hào khi gia đình ông đã hơn 100 lần hiến máu giúp đỡ những hoàn cảnh khó khăn.
+- Cienco 4 đang thi công gói thầu XL8 đường vành đai 3 có thông tin gửi chủ đầu tư, về hợp đồng với nhà thầu phụ - Công ty Hồng Gia Huy.
+- Thủ tướng làm việc với Viettel về chương trình T-09 và hoạt động nghiên cứu sản xuất công nghiệp quốc phòng công nghệ cao của Viettel.
+- Mặc dù người dân nhiều lần phản ánh, địa phương hứa kiểm tra, xử lý, nhưng thực tế "xe dù, bến cóc" ở Thủ Đức vẫn nhộn nhịp, công khai.
+- Một con rùa răng 8kg cùng 48 động vật hoang dã do người dân tự nguyện giao cho Chi cục Kiểm lâm TP.HCM vừa được thả về tự nhiên.
+- Hơn 1.700 đơn vị vận tải ô tô chưa nộp lại phù hiệu, biển hiệu bị thu hồi ở TP.HCM sẽ bị xử lý đúng quy định.
 ![New](News.png)
 ## Nhịp sống số 
 - Những video, âm thanh và hình ảnh do AI tạo ra hoặc do AI thay đổi nội dung sẽ được Meta gắn nhãn 'tạo bởi AI' để phân biệt với những sản phẩm khác.
