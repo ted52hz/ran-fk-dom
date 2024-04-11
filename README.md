@@ -1,6 +1,17 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Sở Giáo dục và Đào tạo TP.HCM yêu cầu Trường quốc tế AISVN xây dựng phương án dạy học trực tuyến trong điều kiện kinh phí do phụ huynh đóng góp không đủ để tổ chức hoạt động giáo dục trực tiếp đến cuối năm học này.
+- Sau loạt vụ ngộ độc thực phẩm khiến nhiều học sinh nhập viện, phụ huynh ở TP Nha Trang càng thêm lo khi hàng rong vẫn bày bán trước nhiều trường.
+- 'Cô giáo chủ nhiệm lập nhóm phụ huynh lớp trên Zalo nhưng lại để chế độ chặn với phụ huynh?', một phụ huynh có con học tiểu học tại Hà Nội băn khoăn.
+- Qua làm việc, các học sinh cho biết mua 'bóng thối' tại tiệm tạp hóa ngoài cổng trường.
+- Hàng chục trường đại học trên cả nước nhiều năm nay công khai danh sách sinh viên nợ học phí với nhiều thông tin cá nhân chi tiết.
+- Công an huyện Buôn Đôn (Đắk Lắk) cho biết không khám nghiệm tử thi nữ sinh tử vong trong giờ học thể dục theo nguyện vọng của gia đình.
+- Á hậu Phương Anh từng chia sẻ ước mơ mở tiệm trà sữa. 8 năm sau, khi nhận bằng tốt nghiệp thạc sĩ loại giỏi, cô xin lỗi Phương Anh của 8 năm trước, nhưng cô tự hào chặng đường đã qua.
+- Nữ sinh lớp 9 bị hai người đánh đập dã man ở bờ biển, sau đó bị lột áo quay video làm nhục dù nạn nhân liên tục van xin.
+- Thời buổi tấc đất tấc vàng, mỗi giảng viên đại học có được 6m² chỗ làm việc riêng tại trường dường như là điều xa xỉ.
+- Một nam sinh viên nội trú ký túc xá Đại học Quốc gia TP.HCM mất tích 10 ngày nay chưa có manh mối. Công an đang làm việc với nhiều bên liên quan để tìm kiếm.
+- Khi khai phiếu đăng ký dự thi tốt nghiệp THPT năm 2024, thí sinh cần căn cứ quy định về mã hội đồng thi để điền chính xác nhằm bảo đảm quyền lợi.
 - Chủ tịch UBND TP.HCM vừa có chỉ đạo mới về việc giải quyết các trung tâm Anh ngữ Apax Leaders.
 - Sau 8 ngày phụ huynh Trường quốc tế AISVN đóng góp, với số dư hiện tại, ước tính không thể tiếp tục duy trì hoạt động giảng dạy trực tiếp cho học sinh toàn trường đến khi kết thúc năm học.
 - Sự việc hai bé gái bị người phụ nữ lạ dẫn dụ ở phố đi bộ Nguyễn Huệ, TP.HCM, sau đó được công an giải cứu khiến phụ huynh giật mình: sao trẻ con dễ bị dụ đến vậy?
@@ -20,51 +31,42 @@
 - TP.HCM tiếp tục tuyển sinh các lớp 10 chuyên trong bốn trường THPT gồm: Nguyễn Thượng Hiền, Gia Định, Mạc Đĩnh Chi và Nguyễn Hữu Huân.
 - Đại học Quốc gia TP.HCM và Đại học Deakin (Úc) chính thức trở thành đối tác chiến lược trong nghiên cứu và phát triển lĩnh vực trí tuệ nhân tạo (AI).
 - Ngày 8-4, Trường đại học Lạc Hồng đã tiếp nhận và khai trương phòng thí nghiệm tự động hóa SMC Automation Lab trị giá hơn 6,5 tỉ đồng.
-- 20 năm dạy học ở 2 bản Cát, Trỉa, thầy Thành và thầy Sinh vẫn vẹn nguyên tấm lòng cống hiến vì học trò, nhưng đau đáu vì 'học sinh hết lớp 12 xong đi làm thuê, chứ không học tiếp'.
-- Một thí sinh trên đường đi thi đánh giá năng lực bị tai nạn giao thông ở Củ Chi, TP.HCM đã được anh công nhân trẻ giúp đỡ, đưa đi thi rồi chở về nhà.
-- Tiết học STEM của học sinh Trường mầm non Tam Phú, TP Thủ Đức tràn ngập tiếng cười, khi các em được dạy cách làm khinh khí cầu mini và thả lên trời.
-- Chiến thắng trận quý 2, Nguyễn Quốc Nhật Minh, Trường THPT chuyên Hùng Vương, trở thành học sinh đầu tiên của Gia Lai vào chung kết Đường lên đỉnh Olympia.
-- Công an TP Sơn La, tỉnh Sơn La đang điều tra nguyên nhân bé trai 1 tuổi bị chấn thương não ở Trường mầm non Sơn Ca.
-- Video cô giáo ở Trường mầm non 4 (quận 3, TP.HCM) túm đầu trẻ, tát trẻ ngã dúi dụi trong giờ ăn trưa được phụ huynh gửi cho báo chí.
-- Chiều tối chủ nhật 7-4, vòng chung kết Hội thi sáng tác ảnh Tuổi Xanh diễn ra với hình thức tranh tài độc đáo: 100 thí sinh khối THCS và 100 thí sinh khối THPT được chia thành các tốp di chuyển và chụp ảnh trên du thuyền đi dọc sông Sài Gòn.
-- Kỳ thi đánh giá năng lực đợt 1 năm 2024 do Đại học Quốc gia TP.HCM tổ chức vào sáng 7-4 có tỉ lệ thí sinh dự thi cao nhất từ trước đến nay lên đến 98,2%.
-- Những học sinh còn nằm viện kể trên của Trường tiểu học Vĩnh Trường và Trường THCS Trần Hưng Đạo, TP Nha Trang đều đã nhập viện cùng ngày với nữ sinh lớp 5 tử vong vào sáng 5-4.
-- Chiều 7-4, vòng chung kết cuộc thi 'Thử thách kinh doanh sáng tạo Việt Nam năm 2024' đã diễn ra tại Đại học Fulbright Việt Nam.
-- Với hầu hết học sinh, chụp ảnh thành phố từ sông Sài Gòn là trải nghiệm 'có 1 không 2'. Có bạn đã chụp hơn 300 tấm hình trong chuyến đi đầy thú vị.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Thi công làm sạch mặt đường trước khi thảm nhựa giữa đô thị lại sử dụng máy nén khí, phương án này phát ra một lượng bụi mù mịt, khiến người dân bức xúc livestream hỏi 'không còn cách nào tốt hơn sao?'.
-- Trung tâm phát triển quỹ đất Đà Nẵng chuyển 18 tỉ đồng, nhưng sau đó thấy việc chuyển tiền sai đối tượng nên đã nhiều lần đề nghị ngân hàng hoàn trả nhưng bất thành. Còn ngân hàng cho rằng đã làm đúng quy định.
-- Tin tức đáng chú ý: Bộ Kế hoạch và Đầu tư, Bạc Liêu thấp điểm nhất về thủ tục hành chính; Hết quý 1, xuất khẩu gạo của Việt Nam tăng khoảng 42%; TP.HCM hướng đến khu công nghiệp giảm phát thải carbon...
-- Cựu giám đốc Công an Hải Phòng Đỗ Hữu Ca bị Tòa án tỉnh Quảng Ninh đưa ra xét xử về tội lừa đảo chiếm đoạt tài sản. Cùng vụ án, 12 người khác hầu tòa với cáo buộc mua bán hóa đơn, đưa - nhận hối lộ.
-- Hôm nay thời tiết Bắc Bộ mưa phùn, Nam Bộ vẫn nắng nóng gay gắt, triều cường lên cao đẩy mặn sâu vào nội đồng.
-- Phó thủ tướng Trần Hồng Hà tiếp tục yêu cầu Bộ Giao thông vận tải cập nhật, làm rõ nhiều nội dung liên quan đến việc xây dựng đề án chủ trương đầu tư đường sắt tốc độ cao trục Bắc - Nam.
-- Ngoại trưởng Tòa thánh Vatican Paul Richard Gallagher đã bày tỏ sự tin tưởng trên trong cuộc gặp Bộ trưởng Ngoại giao Bùi Thanh Sơn tại Hà Nội chiều 9-4.
-- Đại tá Vũ Văn Điền - chỉ huy trưởng Bộ Chỉ huy quân sự tỉnh Đồng Nai - được điều động bổ nhiệm giữ chức vụ phó tư lệnh, tham mưu trưởng Bộ Tư lệnh TP.HCM.
-- Từ vụ việc nữ sinh lớp 6 ở Đà Nẵng bị kẻ xấu ghép ảnh khỏa thân đe dọa, cần làm gì nếu mình là nạn nhân?
-- Đó là khẳng định của giám đốc Ban Quản lý xây dựng các công trình giao thông TP.HCM, sau khi Tuổi Trẻ Online thông tin phát hiện thầu phụ ở vành đai 3 TP.HCM 'giả mạo' chứng thư bảo lãnh.
-- Theo Chủ tịch Quốc hội Vương Đình Huệ, chuyến thăm góp phần thiết thực làm sâu sắc, nâng tầm quan hệ đối tác hợp tác chiến lược toàn diện Việt Nam - Trung Quốc.
-- TP Cần Thơ lấy ý kiến cử tri về việc sáp nhập bốn phường ở quận trung tâm Ninh Kiều, kết quả có hơn 95% ý kiến đồng tình với việc sáp nhập bốn phường này.
-- Giám đốc Công an Đồng Nai cảnh báo tình trạng lợi dụng không gian mạng để đưa ra các kịch bản lừa đảo chiếm đoạt tài sản của người dân.
-- Khẳng định của Bộ trưởng Bộ Nông nghiệp và Phát triển nông thôn Lê Minh Hoan tại buổi nói chuyện với ngư dân và làm việc với tỉnh Bình Định về chống khai thác hải sản bất hợp pháp, không khai báo và không theo quy định (IUU) ngày 9-4.
-- Chiều 9-4, Vụ Sức khỏe bà mẹ và trẻ em (Bộ Y tế) có công văn gửi Bệnh viện đa khoa quốc tế Thu Cúc đề nghị bệnh viện kiểm tra, xác minh thông tin phản ảnh về trường hợp tử vong thai nhi xảy ra tại bệnh viện này.
-- Quy hoạch cần tái hiện được một Hà Nội nghìn năm văn hiến, gắn với những con sông, nhất là sông Hồng và cảnh buôn bán tấp nập trên bến, dưới thuyền.
-- Từ cuối tuần này, người dân có thể đi qua cầu vượt tạm. Đây là giải pháp giảm ùn tắc trong quá trình mở rộng rào chắn thi công hầm chui xuyên đường Trần Quốc Hoàn (quận Tân Bình, TP.HCM).
-- Ngoại trưởng Tòa thánh Vatican, Tổng giám mục Paul Richard Gallagher đã có cuộc gặp với Bộ trưởng Ngoại giao Bùi Thanh Sơn tại Hà Nội, chiều 9-4.
-- Trước thực trạng nhiều nhà máy xi măng lớn như Bỉm Sơn, Bút Sơn, Hoàng Mai… đang thua lỗ, mới đây Hiệp hội Xi măng Việt Nam đã kiến nghị Thủ tướng loạt giải pháp gỡ khó cho ngành xi măng.
-- Trong lúc đóng tôn chống thấm nhà dân ở tỉnh Gia Lai, chiếc máy tời trên mái rơi xuống đất khiến một người chết, một người bị thương.
-- Ngày 9-4, sân bay Điện Biên đã khai thác trở lại sau ba ngày gián đoạn do thời tiết xấu, khiến 19 chuyến bay phải hủy.
-- Tuyến xe buýt nối Đà Nẵng với di sản văn hóa thế giới Hội An (Quảng Nam) sẽ được mở cửa đúng dịp lễ 30-4.
-- Ngày 9-4, nhiều học sinh tiểu học ở thị trấn Tô Hạp, huyện Khánh Sơn (Khánh Hòa) sau khi ăn cơm cuộn, cơm nắm trước cổng trường bị nôn ói, đau bụng, tiêu chảy...
-- Sáng 9-4, quyền Chủ tịch nước Võ Thị Ánh Xuân và đoàn công tác đến thăm Đồn biên phòng cửa khẩu quốc tế Xa Mát (thuộc Bộ đội biên phòng tỉnh Tây Ninh).
-- Ông Trần Quang Thuận (57 tuổi, quận Bình Thạnh) tự hào khi gia đình ông đã hơn 100 lần hiến máu giúp đỡ những hoàn cảnh khó khăn.
-- Cienco 4 đang thi công gói thầu XL8 đường vành đai 3 có thông tin gửi chủ đầu tư, về hợp đồng với nhà thầu phụ - Công ty Hồng Gia Huy.
-- Thủ tướng làm việc với Viettel về chương trình T-09 và hoạt động nghiên cứu sản xuất công nghiệp quốc phòng công nghệ cao của Viettel.
-- Mặc dù người dân nhiều lần phản ánh, địa phương hứa kiểm tra, xử lý, nhưng thực tế "xe dù, bến cóc" ở Thủ Đức vẫn nhộn nhịp, công khai.
-- Một con rùa răng 8kg cùng 48 động vật hoang dã do người dân tự nguyện giao cho Chi cục Kiểm lâm TP.HCM vừa được thả về tự nhiên.
-- Hơn 1.700 đơn vị vận tải ô tô chưa nộp lại phù hiệu, biển hiệu bị thu hồi ở TP.HCM sẽ bị xử lý đúng quy định.
+- Bộ trưởng Lê Minh Hoan yêu cầu Cục Kiểm lâm, Cục Lâm nghiệp chỉ đạo, tăng cường lực lượng giúp Cà Mau dập lửa, cứu rừng.
+- Cánh rừng tràm sản xuất hơn 4 năm tuổi của Nông trường 402 (thuộc Quân khu 9) ở xã Khánh Bình Tây, huyện Trần Văn Thời, Cà Mau bất ngờ bốc cháy và nhanh chóng lan rộng làm cho việc chữa cháy gặp nhiều khó khăn.
+- Một số tin tức đáng chú ý: Đề xuất có bãi đậu taxi ở TP.HCM; Bộ Công Thương yêu cầu báo cáo quỹ bình ổn xăng dầu; Nguy cơ bùng phát dịch cúm A (H9N2) trên người rất thấp...
+- Để tiện di chuyển, ông Trường tự tháo tôn hộ lan ở lề đường quốc lộ 5 rồi mở một đường ngang qua đường sắt. Tại vị trí này sau đó xảy ra tai nạn làm một người chết.
+- Hôm nay thời tiết Nam Bộ tiếp tục nắng nóng gay gắt, nhiệt độ có phần tăng thêm, Bắc Bộ sau vài ngày mưa trời đã có nắng trở lại.
+- Trên mạng xã hội đang lan truyền đoạn clip ở đảo Phú Quý, tỉnh Bình Thuận có loài rắn 'độc nhất thế giới'. Lãnh đạo địa phương lên tiếng đính chính thông tin.
+- Động thái nhằm kết nối các công trình sắp hoàn thành, tạo thuận tiện cho hành khách, kéo giảm tình trạng kẹt xe đang ngày một tăng tại khu vực sân bay Tân Sơn Nhất.
+- Chiều 10-4, Công an tỉnh Bình Thuận hoàn tất khám nghiệm hiện trường, thu giữ tang vật để làm rõ dấu hiệu vi phạm của một xưởng tái chế dầu nhớt lậu ở xã Thắng Hải, huyện Hàm Tân.
+- Liên quan đến khoản vay tiền và vàng tại Sacombank, lãnh đạo APT cho biết ngân hàng đã nộp đơn khởi kiện công ty ra tòa. Phía tòa án từng có giấy triệu tập công ty này lên làm việc.
+- Tổng thống Brazil Lula da Silva đã mời Thủ tướng Phạm Minh Chính đến nước này dự Hội nghị thượng đỉnh G20 vào tháng 11 năm nay, qua đó cho thấy vị thế và vai trò ngày càng tăng của Việt Nam trên thế giới.
+- Ngày 10-4, tiếp tục chuyến thăm Trung Quốc, Chủ tịch Quốc hội Vương Đình Huệ đã tiếp Bí thư Thành ủy thành phố Thượng Hải Trần Cát Ninh.
+- Tỉnh Khánh Hòa vừa chỉ đạo TP Nha Trang, thị xã Ninh Hòa, huyện Diên Khánh lấy ý kiến cử tri về sắp xếp đơn vị hành chính. Đặt tên xã, phường mới phải phù hợp, tôn trọng ý kiến của đa số cử tri.
+- Ngày 10-4, đoàn giám sát của Ủy ban Thường vụ Quốc hội đã giám sát UBND TP.HCM về thực hiện chính sách, pháp luật bảo đảm trật tự, an toàn giao thông từ năm 2009 đến hết năm 2023 ở TP.HCM.
+- Liên quan vụ Trung tâm phát triển quỹ đất Đà Nẵng “đi đòi” 18 tỉ đồng bất thành, cơ quan chức năng đã có đề xuất lên UBND TP Đà Nẵng.
+- Các vụ ngộ độc thực phẩm xảy ra liên tiếp ở Nha Trang (Khánh Hòa) làm người dân lo ngại, hạn chế dùng món từ gà, một số quán cơm gà đóng cửa vì vắng khách. Cơ quan chức năng đề nghị người dân không nên hoang mang.
+- Một phụ huynh đăng clip lên Facebook, cho rằng trường nghề tư vấn cho học sinh học nghề quá sớm.
+- Nếu chuyến thăm diễn ra, đây sẽ là lần đầu tiên Giáo hoàng Francis đến Việt Nam trên cương vị mới, đánh dấu bước phát triển trong quan hệ Việt Nam - Tòa thánh Vatican.
+- Cơ quan an ninh điều tra Công an tỉnh Thái Bình khởi tố, bắt tạm giam người đàn ông 70 tuổi “nổ” có thể chạy chế độ để chiếm đoạt hơn 1 tỉ đồng.
+- Ngày 10-4, phóng viên Tuổi Trẻ Online đã leo núi, lội suối vào rừng đặc dụng Đèo Cả (thị xã Đông Hòa, tỉnh Phú Yên). Khu rừng này "nóng" lên sau khi rộ tin có người trúng kỳ nam, trầm hương bán được 10 tỉ đồng. Rừng đang bị tổn thương.
+- Nhóm nữ sinh lớp 7 ra sông Gianh tắm. Thủy triều lên khiến hai em bị đuối nước. Khi được người lớn phát hiện, cả hai đã tử vong.
+- Đầu năm 2024, TP.HCM thêm 2 quận không còn hộ nghèo theo chuẩn nghèo đa chiều giai đoạn 2021-2025.
+- TP.HCM và Hà Nội đang xây dựng đề án phát triển hệ thống metro để Bộ Giao thông vận tải hoàn thiện trình Chính phủ trong tháng 5-2024.
+- Khu vực rừng tràm sản xuất của Nông trường 402 (thuộc Quân khu 9) nằm trên địa bàn xã Khánh Bình Tây, huyện Trần Văn Thời, Cà Mau bất ngờ bốc cháy.
+- Theo quan trắc tại trạm Biên Hòa (TP Biên Hòa, Đồng Nai) trong 24 giờ qua, nắng nóng gay gắt lên đến 40 độ C, cao nhất từ trước đến nay trạm này quan trắc được.
+- Ngày 10-4, Chủ tịch Quốc hội Vương Đình Huệ đã tham dự diễn đàn chính sách pháp luật thúc đẩy hợp tác đầu tư và thương mại Việt Nam - Trung Quốc tại Thượng Hải.
+- Hai lô cốt nằm giữa đường Võ Văn Ngân (TP Thủ Đức) chính thức được tháo dỡ, di dời. Việc này giúp tình trạng kẹt xe giảm đáng kể.
+- Vùng đệm U Minh Thượng hiện bị sạt lở, sụt lún nhiều, gây chia cắt giao thông nghiêm trọng. Do đó, Kiên Giang hôm nay đã có quyết định công bố tình huống khẩn cấp.
+- Thời gian gần đây, mạng xã hội xuất hiện nhiều trào lưu độc lạ kết hợp cùng trà sữa, mì tôm gây nhiều tranh luận.
+- Dự án xây dựng đường Hoàng Hữu Nam kết nối bến xe Miền Đông mới dù đã khởi công 9 năm trước nhưng đến nay vẫn chưa xong. Cơ quan chức năng cho biết cần giải tỏa 39 mặt bằng nữa để hoàn thành.
+- Chiều 10-4, TAND TP Đà Nẵng đã tuyên phạt bị cáo Tạ Thanh Hải (39 tuổi, trú quận Liên Chiểu, Đà Nẵng) mức án chung thân về tội lừa đảo chiếm đoạt tài sản.
 ![New](News.png)
 ## Nhịp sống số 
+- Nếu Công ty Netflix không tuân thủ, Bộ Thông tin và Truyền thông sẽ phối hợp các cơ quan quản lý nhà nước liên quan xử lý theo quy định pháp luật Việt Nam.
+- Chìa khóa giải mã cho sự phát triển vượt trội của TV360 và Viettel Money là nền tảng khổng lồ của Tập đoàn công nghệ lớn nhất Việt Nam - Viettel.
 - Những video, âm thanh và hình ảnh do AI tạo ra hoặc do AI thay đổi nội dung sẽ được Meta gắn nhãn 'tạo bởi AI' để phân biệt với những sản phẩm khác.
 - Chuyên gia cảnh báo các cuộc tấn công mạng có xu hướng 'tự động hóa và cá nhân hóa' khi kẻ tấn công sử dụng thư điện tử lừa đảo và cuộc gọi điện thoại giả mạo do AI điều khiển để đánh lừa nạn nhân.
 - Hầu hết trình duyệt web hiện nay cho phép người dùng sử dụng chế độ ẩn danh như một cách để bảo vệ quyền riêng tư.
@@ -93,6 +95,4 @@
 - Bộ Thông tin và Truyền thông mới đây đã đề xuất một số quy định mới về quản lý tài nguyên Internet, trong đó có đề cập đến tên miền quốc gia ".vn".
 - Theo OpenAI, công cụ tạo video ngắn Sora có khả năng tạo ra những cảnh quay thực tế và sáng tạo từ những chỉ dẫn bằng văn bản của người dùng.
 - Theo anh Nguyễn Xuân Việt, người đứng sau rất nhiều thiết kế ô tô từ AI nổi tiếng, việc tạo ra những mẫu xe concept bằng AI không chỉ dừng lại ở mục đích truyền thông và marketing.
-- Người dùng nên thay đổi nhiều thói quen sử dụng các dịch vụ mạng để bảo vệ sự an toàn của chính mình và gia đình trên không gian mạng.
-- Sự xuất hiện của Galaxy AI - trải nghiệm trí tuệ nhân tạo toàn diện trên mẫu flagship nhà Samsung đã mang đến rất nhiều cảm hứng.
 ![life](Life.png)
