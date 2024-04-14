@@ -1,6 +1,18 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Nhóm sinh viên Trường Khoa học liên ngành và Nghệ thuật tái chế 18 bộ trang phục thời trang cuốn hút từ túi nilông, bao tải...
+- Sở Giáo dục và Đào tạo TP.HCM đề nghị Google cấp 5 triệu tài khoản miễn phí cho học sinh, giáo viên để hỗ trợ việc dạy và học.
+- Sự quan tâm, thấu hiểu, bao dung, độ lượng và đôi khi cần cả sự hy sinh của người thầy sẽ hạn chế được cảnh học sinh ngồi nhầm lớp.
+- Năm học 2024 - 2025, các trường THPT ở tỉnh Gia Lai sẽ thực hiện xét tuyển vào lớp 10, trừ Trường THPT chuyên Hùng Vương vẫn tổ chức thi tuyển.
+- 535 học sinh lớp 11 Trường THPT Lê Quý Đôn, TP.HCM đã thực hiện giai đoạn 2 của chương trình trải nghiệm hướng nghiệp do nhà trường tổ chức sáng 13-4.
+- Ngày 13-4, vòng chung kết Hội thi Đầu bếp trẻ diễn ra tại công viên văn hóa Đầm Sen. Đây là hoạt động thường niên do Sở Giáo dục và Đào tạo TP.HCM tổ chức.
+- Trước số lượng học sinh lớp 9 tăng đột biến, tạo áp lực lớn tuyển sinh vào lớp 10 cho học sinh và phụ huynh, người dân mong muốn TP Vinh có thêm một trường THPT công lập.
+- Năm 2024, Trường đại học Y Dược TP.HCM bổ sung thêm phương thức tuyển sinh mới xét kết quả kỳ thi SAT, áp dụng riêng cho 2 ngành đào tạo bác sĩ là y khoa và răng - hàm - mặt.
+- Chuyển đổi số trong giảng dạy được cho là bước đi tất yếu nếu TP.HCM muốn tạo ra những công dân số phục vụ sự phát triển và xây dựng thành phố thông minh. Nhưng công tác này vấp phải không ít sự phản đối của phụ huynh.
+- Phòng Giáo dục - Đào tạo huyện Minh Hóa cho biết sẽ rà soát và kiểm điểm trách nhiệm của giáo viên tiểu học để tình trạng học sinh lớp 6 không biết đọc thông viết thạo.
+- Sáng học một lớp, chiều học nhiều lớp, mỗi học sinh 1 thời khóa biểu… Đó là lớp học 'chạy' ở Trường THPT chuyên Lê Hồng Phong TP.HCM.
+- Hiện nay, việc lựa chọn môi trường học tập đa văn hóa, chất lượng quốc tế đang được các bạn trẻ quan tâm.
 - Trong tiết học toán, sau khi nhắc nhở học sinh không được, cô giáo C.T.L.T. đã dùng thước kẻ gõ vào đầu em khiến em bị sưng phần mềm vùng đầu và vùng mắt hai bên.
 - Ông Nguyễn Giang Nam - hiệu trưởng Trường tiểu học Kim Liên - bị đề nghị cách toàn bộ chức vụ trong Đảng.
 - Phó tổng lãnh sự Hàn Quốc tại TP.HCM đánh giá việc doanh nghiệp Hàn Quốc trao tặng học bổng là hoạt động thể hiện trách nhiệm xã hội, đóng góp cho sự phát triển kinh tế của Việt Nam và Hàn Quốc.
@@ -19,50 +31,38 @@
 - Đa số các trường THPT công lập ở TP.HCM đều tăng chỉ tiêu tuyển sinh lớp 10 năm học 2024-2025.
 - Liên quan clip nữ sinh bị túm cổ áo, vuốt tóc, áp sát mặt, UBND quận Cẩm Lệ (Đà Nẵng) cho biết trong quá trình xử lý học sinh đánh nhau, giáo viên đã thiếu kiểm soát nên có hành vi chưa chuẩn mực.
 - Thủ tướng Chính phủ vừa ký quyết định thành lập Hội đồng giáo sư nhà nước nhiệm kỳ 2024 - 2029, với chủ tịch là Bộ trưởng Bộ Giáo dục và Đào tạo Nguyễn Kim Sơn.
-- 'Tôi suýt khóc khi thấy hình ảnh bữa ăn bán trú buổi trưa của con chỉ lèo tèo vài món ăn', một phụ huynh phản ảnh.
-- Hàng loạt sản phẩm của các dự án STEAM do học sinh Trường THPT Bùi Thị Xuân, TP.HCM thực hiện đã được rao bán tại Ngày hội STEAM của trường.
-- Nữ sinh lớp 9 bị đánh hội đồng và cởi áo trong clip phát tán trên mạng xã hội đã phải nhập viện vì chấn thương và hoảng loạn tinh thần.
-- Cô giáo phát hiện trong bài kiểm tra của một học sinh lớp 6 có dòng chữ ‘chép nhanh để về'. Hỏi ra mới biết em này không đọc thông viết thạo, chỉ biết viết họ tên mình.
-- Nhiều sinh viên cho rằng những trường đăng công khai lên mạng tên sinh viên nợ học phí cần sớm chấm dứt việc này và thay đổi bằng cách khác để tránh làm tổn thương người học.
-- Sau khi xem xét nhiều yếu tố, nhà trường đã rút quyết định đuổi học hai học sinh hút thuốc lá điện tử vì các em âm tính với ma túy.
-- Kết quả khảo sát năng lực tiếng Anh của học sinh lớp 9, 11 tại TP.HCM gây bất ngờ vì kỹ năng nghe, đọc của phần lớn học sinh lớp 9, 11 còn rất hạn chế.
-- Gần hè, các quảng cáo chương trình hè, khóa học hè cũng tràn ngập. Có nơi hứa tài trợ 100% chi phí ăn uống và đi lại cho học viên, hoặc tặng học bổng, hoặc tặng bảo hiểm...
-- Một số nam sinh viên bị kỷ luật vì sử dụng điện thoại quay lén nhà vệ sinh nữ trong trường, thi hộ và nhờ người thi hộ, sử dụng chứng chỉ ngoại ngữ giả.
-- Sáng 11-4, nhiều đoạn clip ghi lại hình ảnh một người đàn ông mặc áo xanh, có thể là cán bộ, giáo viên tại Trường THCS Nguyễn Thiện Thuật, quận Cẩm Lệ, Đà Nẵng có hành vi không chuẩn mực khi túm cổ áo, áp sát mặt học sinh nữ.
-- Liên quan việc các trường đại học đăng công khai trên mạng danh sách sinh viên nợ học phí, nhiều ý kiến cho rằng cách làm này của trường là vô cảm, thiếu tôn trọng và thậm chí phạm luật.
-- Sở Giáo dục và Đào tạo TP.HCM yêu cầu Trường quốc tế AISVN xây dựng phương án dạy học trực tuyến trong điều kiện kinh phí do phụ huynh đóng góp không đủ để tổ chức hoạt động giáo dục trực tiếp đến cuối năm học này.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Nhiều người sẵn sàng bỏ ra hàng chục triệu đồng để "cược" vào những viên đá tù mù với niềm tin "nổ" ra các loại đá quý.
-- Tin tức đáng chú ý: Sạt lở hầm đèo Cả giữa thời tiết khô ráo; Xe đi đường không được tùy ý bấm còi; Khởi tố, bắt tạm giam đối tượng giả danh công an lừa tình, lừa tiền nhiều phụ nữ...
-- Nắng nóng vẫn là thời tiết chủ đạo trên cả nước trong hôm nay, trời oi bức, khô nóng.
-- Tại phiên tòa phúc thẩm ngày 12-4, cả ba cựu cán bộ công an ở Thái Bình được giảm án liên quan hành vi “dùng nhục hình” khiến bị can chết khi đang tạm giữ.
-- Liên quan vụ tàu 4.600 tấn đứt neo, kẹt dưới gầm cầu Đồng Nai, Khu quản lý đường bộ IV kiến nghị tạm giữ phương tiện, xác minh nguyên nhân để sớm khắc phục thiệt hại.
-- Cơ quan điều tra đề nghị ai là nạn nhân của kẻ giả danh công an '2 gạch 2 sao' liên hệ số điện thoại 02923.858.888 hoặc 0979.233.324 để được giải quyết.
-- Sau khi cấm xe tải nặng trên cao tốc Cam Lộ - La Sơn, xe container trên quốc lộ 1 tăng trên 80%. Cùng với đó, mỗi lượt xe đầu kéo phải chi phí thêm hơn 1,5 triệu đồng do qua 3 trạm BOT.
-- Vị nguyên lãnh đạo Bộ Giao thông vận tải cho rằng nếu doanh nghiệp Việt tham gia làm được đường ray đường sắt thì quá tốt.
-- Nơi “chảo lửa” Điện Biên, tiết trời những ngày này oi bức. Mặc cái nắng cháy da, đoàn viên thanh niên và bà con nhân dân Điện Biên đang hăng hái tập luyện trên sân vận động Điện Biên cho dịp lễ diễu binh, diễu hành kỷ niệm 70 năm Chiến thắng Điện Biên Phủ (7-5-1954 - 7-5-2024).
-- Chủ khách sạn nổi tiếng ở Phú Quốc bể hụi trăm tỉ đồng làm nhiều hụi viên điêu đứng. Công an tỉnh Kiên Giang đã vào cuộc điều tra.
-- Đây là thông tin ông Trần Đăng Khoa, phó vụ trưởng Vụ Sức khỏe bà mẹ - trẻ em (Bộ Y tế), cung cấp sau khi nhận được báo cáo của Bệnh viện đa khoa quốc tế Thu Cúc về vụ việc người nhà tố bệnh viện tắc trách khiến thai nhi tử vong trong bụng mẹ.
-- Dù đã phê duyệt quyết toán 17 dự án trị giá hơn 1.300 tỉ đồng từ năm 2023 nhưng đến nay Sở Nông nghiệp và Phát triển nông thôn tỉnh Cà Mau vẫn còn 16 dự án chưa được tất toán.
-- Bộ Công an phối hợp với tỉnh Trà Vinh và các nhà tài trợ tổ chức lễ bàn giao nhà mẫu và kinh phí hỗ trợ xây dựng 1.290 căn nhà tặng người dân có hoàn cảnh đặc biệt khó khăn trên địa bàn tỉnh.
-- Chiều 12-4, Chủ tịch UBND TP.HCM Phan Văn Mãi kiểm tra tiến độ thi công hai dự án trọng điểm xây dựng nút giao An Phú và đường Lương Định Của, TP Thủ Đức.
-- Giám đốc Sở Công Thương được UBND tỉnh Quảng Nam điều động, bổ nhiệm giữ chức giám đốc Sở Ngoại vụ tỉnh này.
-- Ngành du lịch Đồ Sơn, Hải Phòng tung thêm nhiều sản phẩm mới nhằm đạt mục tiêu đón 3,8 triệu lượt khách trong năm 2024.
-- Ông Nguyễn Giang Nam - hiệu trưởng Trường tiểu học Kim Liên - bị đề nghị cách toàn bộ chức vụ trong Đảng.
-- Vụ sạt lở hầm Bãi Gió khiến tuyến đường sắt Bắc - Nam qua Khánh Hòa bị ách tắc từ chiều 12-4. Ngành đường sắt đang lên phương án chuyển tải hành khách qua khu vực này.
-- UBND huyện Đăk Hà báo cáo không thấy phá rừng nhưng lãnh đạo Huyện ủy kiểm tra thực tế, xác định hơn 2ha rừng bị phá.
-- Nam thanh niên sinh năm 2001 cho hay anh bị đội bạn và trọng tài đạp và đấm liên tiếp vào mặt sau một tình huống tranh cãi trên sân bóng đá phủi tại Hà Nội, tối 11-4.
-- Thủ tướng Phạm Minh Chính đồng ý với phương án nghỉ 5 ngày liên tục dịp lễ 30-4 và 1-5, sau tờ trình của Bộ Lao động - Thương binh và Xã hội.
-- Bên trên hạn hán gay gắt, bên dưới mặn xâm nhập khốc liệt đã làm nhiều cánh đồng lúa ở Sóc Trăng thiệt hại trắng hoặc bị giảm năng suất.
-- Ngày 12-4, Công an TP Quy Nhơn (Bình Định) cho biết đơn vị vừa phối hợp với các bên liên quan trả tài sản bị đánh rơi cho người nước ngoài khi đi du lịch tại thành phố này.
-- Liên danh gói thầu XL8 thuộc dự án vành đai 3 TP.HCM đã đệ trình chủ đầu tư chấp thuận nhà thầu phụ mới để đảm bảo tiến độ thi công.
-- Thực hiện nghị quyết của HĐND TP.HCM, phường Bình Hưng Hòa A (quận Bình Tân) sắp xếp 27 khu phố, 372 tổ dân phố thành 52 khu phố.
-- Từ những năm 2003, để hiện thực hóa ý tưởng làm sống lại dòng sông cổ Cổ Cò nối Đà Nẵng vào Hội An, tỉnh Quảng Nam và Đà Nẵng đã bắt tay nhau thực hiện các dự án nạo vét. Nhưng tới 2024 này, dòng sông cổ vẫn là vệt đất hoang.
-- Hai tỉnh Tiền Giang, Long An được nhận định chịu ảnh hưởng của xâm nhập mặn nặng nhất trong năm nay.
-- Tỉnh Quảng Trị đã ký kết hợp đồng BOT với liên danh nhà đầu tư sân bay Quảng Trị và dự kiến khởi công trong tháng 6 để kịp đưa vào khai thác cuối năm 2026.
-- Nhiều người dân ở TP.HCM phản ánh tình trạng xe taxi, xe công nghệ... đậu xe tràn lan trên đường, hẻm nhỏ cả ngày lẫn đêm gây cản trở giao thông.
-- UBND tỉnh Tiền Giang tổ chức lễ thi công xây cầu Tân Phong qua cù lao Tân Phong, xóa thế cô lập của huyện Cai Lậy, với tổng vốn đầu tư gần 240 tỉ đồng.
+- Nhiều vùng nông nghiệp tại Tây Nguyên và Nam Trung Bộ đang đứng trước nguy cơ chết khát vì khô hạn, thiếu nước tưới.
+- Lẽ ra các cơ quan chức năng có kế hoạch từ sớm để các cơ quan, người dân, doanh nghiệp chủ động trong hoạt động, sản xuất, kinh doanh.
+- Sự cố sạt lở nghiêm trọng tại hầm Bãi Gió đã khiến tuyến đường sắt Bắc - Nam tê liệt từ chiều 12-4 đến nay, hàng ngàn hành khách phải chịu cảnh 'tăng bo'. Cán bộ, công nhân đường sắt nỗ lực suốt ngày đêm để khắc phục những phát sinh của sự cố này.
+- Người phụ nữ dùng gạch đập liên tiếp vào chiếc ô tô có một người đàn ông và một phụ nữ bên trong. Công an đã mời ba người có liên quan trong vụ việc về trụ sở để làm rõ.
+- Một số tin tức đáng chú ý: Tiền gửi giảm, ngân hàng rục rịch tăng lãi suất; Thêm 2 di sản văn hóa phi vật thể quốc gia; 3 bệnh viện cửa ngõ mới ở TP.HCM sẽ hoạt động cuối năm nay...
+- Hôm nay nắng nóng mở rộng ở nhiều nơi trên cả nước, thời tiết oi bức, nhiệt độ tăng cao.
+- Hai chị em đi xe đạp điện qua đường sắt bị xe chuyên dụng của ngành đâm trúng, khiến cả hai tử vong.
+- Đoàn khách du lịch là cán bộ, nhân viên Cục Quản lý thị trường TP.HCM bay ra sân bay Pleiku (tỉnh Gia Lai), rồi thuê xe khách đi thị trấn Măng Đen, huyện Kon Plông, tỉnh Kon Tum.
+- Chương trình nghệ thuật đặc biệt "Điểm tựa nơi đầu sóng" kỷ niệm 10 năm ngày ra mắt lực lượng kiểm ngư Việt Nam.
+- Xe khách chở 23 người trên quốc lộ 24 qua huyện Kon Rẫy, Kon Tum va chạm với xe đầu kéo chạy ngược chiều. Một người chết, nhiều người bị thương.
+- Thủ tướng Phạm Minh Chính đề nghị tỉnh Hòa Bình tạo mọi điều kiện để các nhà đầu tư như Tập đoàn Meiko Electronics (Nhật Bản) sản xuất, phát triển nhà máy bảng mạch in điện tử, tạo việc làm, sinh kế cho người dân.
+- Hàng loạt mặt bằng để xây dựng công trình giao thông ở TP Thủ Đức đang được đẩy nhanh việc thu hồi, bàn giao cho khởi công.
+- Hơn 140ha đất có rừng nhưng chưa có chòi quan sát lửa, chỉ có 2 máy bơm, trong đó một máy hư đang sửa, một máy hoạt động không hiệu quả nên không dập tắt đám cháy rừng kịp thời, dẫn đến cháy lan.
+- Phóng viên Tuổi Trẻ Online ghi nhận hình ảnh trực tiếp từ hiện trường sự cố sạt lở hầm Bãi Gió đang 'ngắt mạch' đường sắt Bắc - Nam.
+- Lãnh đạo TP.HCM giao các sở ngành đẩy nhanh tiến độ, đảm bảo khởi công dự án cầu đường Nguyễn Khoái và vành đai 2 trong tháng 12-2024.
+- 169 sản phẩm, dịch vụ công nghệ thông tin tiêu biểu, tạo ra doanh thu hơn 3 tỉ USD, đã được trao giải thưởng Sao Khuê năm 2024.
+- Bộ tư lệnh Vùng cảnh sát biển 4 đã dùng tàu chở hơn 350.000 lít nước ngọt cấp cho người dân đảo Hòn Chuối, tỉnh Cà Mau.
+- Hàng trăm chiếc xe máy quá hạn bị 'bỏ quên' ở sân bay, bến xe tại TP.HCM vẫn chưa có dấu hiệu giảm đi. Nhiều chiếc xe đã hoen gỉ, mục nát…
+- Việc thu hút người tài cho các lĩnh vực văn hóa, nghệ thuật, thể thao nhằm phục vụ trình diễn trong các sự kiện quốc gia, quốc tế, hướng tới giành thành tích cao tại các đại hội thể thao thế giới.
+- Mới đây Sở Tài nguyên - Môi trường TP.HCM trình UBND TP.HCM xem xét thu hồi khu đất 201 Điện Biên Phủ (quận 3) của Công ty cổ phần mắt kính Sài Gòn.
+- Thi thể em P.G.B. - một trong hai anh em sinh đôi mất tích khi tắm biển Ngũ Hành Sơn, Đà Nẵng - vừa được tìm thấy chiều 13-4.
+- Lãnh đạo Huyện ủy Đăk Hà, Kon Tum cho hay đang chờ báo cáo của UBND huyện về vụ không phát hiện phá rừng nhưng thực tế rừng bị đốt phá.
+- Trước số lượng học sinh lớp 9 tăng đột biến, tạo áp lực lớn tuyển sinh vào lớp 10 cho học sinh và phụ huynh, người dân mong muốn TP Vinh có thêm một trường THPT công lập.
+- Quyền chủ tịch UBND tỉnh Đồng Nai Võ Tấn Đức nhấn mạnh phải tập trung hoàn thành giải phóng mặt bằng cao tốc Biên Hòa - Vũng Tàu trước ngày 30-6, không đùn đẩy, đổ qua đổ lại.
+- Cao tốc TP.HCM - Mộc Bài dài khoảng 51km được đặt mục tiêu khởi công vào tháng 4-2025.
+- Nhiều địa phương đã công bố kế hoạch sắp xếp đơn vị hành chính cấp xã, phường. Dự kiến tên gọi mới của các xã, phường sau khi sáp nhập được quan tâm.
+- Sau gần một năm đưa vào khai thác tạm, đến nay cao tốc Vĩnh Hảo - Phan Thiết qua tỉnh Bình Thuận vẫn chưa hoàn thiện để bàn giao đưa vào khai thác chính thức.
+- Trong văn bản gửi Chi cục Thủy lợi TP.HCM, vị này nói rất xót xa, dằn vặt trước nạn hạn hán của một số tỉnh phía Nam nên đã giới thiệu người "lập đàn cầu mưa nhưng chưa được kiểm chứng". Còn chuyên gia cho rằng "hoàn toàn không có căn cứ".
+- Sạt lở, sụt lún lộ giao thông đang bủa vây vùng đệm U Minh Thượng, Kiên Giang. Các con kênh ở vùng đệm trên cũng kiệt nước gần như trơ đáy nên người dân rối bời mót nước ngọt bơm vào vuông nuôi tôm càng xanh.
+- Sáng 13-4, đàn cá heo khoảng 150 con bất ngờ xuất hiện, bơi tung tăng và được người dân ghi lại ở vùng biển danh thắng Mũi Điện (thị xã Đông Hòa, tỉnh Phú Yên).
 ![New](News.png)
 ## Nhịp sống số 
 - Ngoài làm mờ tin nhắn có ảnh khỏa thân, Meta cũng đang phát triển công nghệ xác định tài khoản lừa đảo sextort (tin tặc lừa đang giữ ảnh nóng của người dùng).
