@@ -1,6 +1,20 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Tối 15-4, Công an thị xã Bình Long (Bình Phước) tiếp tục làm rõ vụ nữ sinh lớp 12 tổn thương nội sọ, trầm cảm nặng nghi bị bạn cùng lớp đánh.
+- Cũng có công ty công nghệ chỉ cần nghe sinh viên chơi xuất sắc một môn thể thao nào đó là sẵn sàng nhận ngay.
+- Theo kế hoạch triển khai công tác tuyển sinh đại học các ngành và cao đẳng ngành giáo dục mầm non năm 2024 Bộ Giáo dục và Đào tạo vừa ban hành, năm nay thí sinh sẽ biết kết quả trúng tuyển sớm hơn năm ngoái ba ngày.
+- Phó chủ tịch UBND TP.HCM Dương Anh Đức yêu cầu cơ quan chức năng giám sát hoạt động Trường quốc tế Mỹ. Kịp thời báo cáo các vấn đề phát sinh để UBND TP.HCM xem xét, chỉ đạo.
+- Trường chuyên Lê Hồng Phong và Trần Đại Nghĩa, TP.HCM sẽ tăng chỉ tiêu tuyển sinh lớp 10 cho năm học 2024-2025.
+- Thủ khoa kỳ thi đánh giá năng lực đợt 1-2024 của Đại học Quốc gia TP.HCM là học sinh chuyên toán Trường THPT chuyên Quốc học - Huế.
+- Bạn đọc phản ánh đến báo Tuổi Trẻ về việc Sở Giáo dục và Đào tạo tỉnh Lâm Đồng 'ép' giáo viên đóng tiền đi Hà Giang thăm học trò.
+- Học sinh tham gia chương trình đào tạo tài năng trẻ liên thông từ bậc THPT lên đại học sẽ được cấp giấy chứng nhận đã học các tín chỉ chương trình đại học.
+- Gần 120m³ nước ngọt đã được sinh viên, giảng viên Trường đại học Công nghệ TP.HCM mang đến cho  người dân vùng hạn mặn huyện Tân Phú Đông, tỉnh Tiền Giang.
+- Đối với học sinh Royal School, tiếng Anh không phải là con đường duy nhất, nhưng là công cụ hữu hiệu nhất để định hướng con đường học vấn.
+- Trường đại học Sư phạm TP.HCM vừa công bố điểm thi đánh giá năng lực chuyên biệt đợt 1 năm 2024 với nhiều thông tin bất ngờ.
+- Ngày 15-4, chỉ trong khoảng một giờ đồng hồ, lực lượng cảnh sát giao thông đã phát hiện và xử lý 16 trường hợp học sinh vi phạm luật giao thông đường bộ trên địa bàn huyện Châu Thành, tỉnh Bến Tre.
+- Đại học Quốc gia TP.HCM vừa công bố kết quả kỳ thi đánh giá năng lực đợt 1 năm 2024, cao nhất là 1.076 điểm.
+- Khi đường vào đại học ngày càng rộng mở, bất đồng trong chọn ngành nghề giữa thí sinh và phụ huynh lại ngày càng lớn.
 - Đại học Quốc gia TP.HCM công bố thông tin số ứng viên tham gia đợt tuyển dụng đầu tiên chương trình thu hút, giữ chân và phát triển các nhà khoa học trẻ xuất sắc, các nhà khoa học đầu ngành.
 - Trường quốc tế AISVN chính thức công bố kết thúc năm học 2023-2024 sớm 1 tháng so với kế hoạch nhằm đảm bảo sự ổn định của cộng đồng trường.
 - Tối 14-4, Gala Talent Generation 2024 với chủ đề “Dẫn bước sinh viên - Vươn tầm quốc tế” đã diễn ra tại Đại học Quốc tế Hồng Bàng.
@@ -17,54 +31,41 @@
 - Năm học 2024 - 2025, các trường THPT ở tỉnh Gia Lai sẽ thực hiện xét tuyển vào lớp 10, trừ Trường THPT chuyên Hùng Vương vẫn tổ chức thi tuyển.
 - 535 học sinh lớp 11 Trường THPT Lê Quý Đôn, TP.HCM đã thực hiện giai đoạn 2 của chương trình trải nghiệm hướng nghiệp do nhà trường tổ chức sáng 13-4.
 - Ngày 13-4, vòng chung kết Hội thi Đầu bếp trẻ diễn ra tại công viên văn hóa Đầm Sen. Đây là hoạt động thường niên do Sở Giáo dục và Đào tạo TP.HCM tổ chức.
-- Trước số lượng học sinh lớp 9 tăng đột biến, tạo áp lực lớn tuyển sinh vào lớp 10 cho học sinh và phụ huynh, người dân mong muốn TP Vinh có thêm một trường THPT công lập.
-- Năm 2024, Trường đại học Y Dược TP.HCM bổ sung thêm phương thức tuyển sinh mới xét kết quả kỳ thi SAT, áp dụng riêng cho 2 ngành đào tạo bác sĩ là y khoa và răng - hàm - mặt.
-- Chuyển đổi số trong giảng dạy được cho là bước đi tất yếu nếu TP.HCM muốn tạo ra những công dân số phục vụ sự phát triển và xây dựng thành phố thông minh. Nhưng công tác này vấp phải không ít sự phản đối của phụ huynh.
-- Phòng Giáo dục - Đào tạo huyện Minh Hóa cho biết sẽ rà soát và kiểm điểm trách nhiệm của giáo viên tiểu học để tình trạng học sinh lớp 6 không biết đọc thông viết thạo.
-- Sáng học một lớp, chiều học nhiều lớp, mỗi học sinh 1 thời khóa biểu… Đó là lớp học 'chạy' ở Trường THPT chuyên Lê Hồng Phong TP.HCM.
-- Hiện nay, việc lựa chọn môi trường học tập đa văn hóa, chất lượng quốc tế đang được các bạn trẻ quan tâm.
-- Trong tiết học toán, sau khi nhắc nhở học sinh không được, cô giáo C.T.L.T. đã dùng thước kẻ gõ vào đầu em khiến em bị sưng phần mềm vùng đầu và vùng mắt hai bên.
-- Ông Nguyễn Giang Nam - hiệu trưởng Trường tiểu học Kim Liên - bị đề nghị cách toàn bộ chức vụ trong Đảng.
-- Phó tổng lãnh sự Hàn Quốc tại TP.HCM đánh giá việc doanh nghiệp Hàn Quốc trao tặng học bổng là hoạt động thể hiện trách nhiệm xã hội, đóng góp cho sự phát triển kinh tế của Việt Nam và Hàn Quốc.
-- Sở Giáo dục và Đào tạo TP.HCM yêu cầu chương trình tiếng Anh toán - khoa học thực nghiệm phải đảm bảo đúng định hướng đề án  nâng cao năng lực ngoại ngữ.
-- Phần nhiều các tỉnh thành cho thi lớp 10 trong tuần đầu tiên của tháng 6, một số ít cho thi vào cuối tháng 5 hoặc giữa tháng 6.
-- Nhiều bạn đọc đã lên tiếng sau bài viết "Cô giáo bất ngờ phát hiện học sinh lớp 6 gần như không biết đọc, chỉ viết được tên mình".
-- Nhiều phụ huynh Trường quốc tế AISVN vừa nhận được email từ các giáo viên người nước ngoài của trường cho biết họ sẽ tiếp tục nghỉ việc vào thứ hai, 15-4.
-- Học sinh dự tuyển vào lớp 10 năm học 2024-2025 tại Hà Nội có 3 nguyện vọng vào lớp 10 công lập không chuyên, các nguyện vọng vào lớp chuyên và các chương trình đặc biệt khác.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Từ ngày 13-4 đến ngày 16-4, đoàn công tác Bộ Chỉ huy quân sự tỉnh Kiên Giang tổ chức 2 xe chuyên dụng chở nước đến với bà con thiếu nước ở vùng biên giới huyện Giang Thành và TP Hà Tiên.
-- CEO Apple Tim Cook đã đến Việt Nam, nơi ông chia sẻ là một đất nước "sôi động, xinh đẹp". Apple dự kiến công bố tăng các khoản chi cho các nhà cung cấp Việt Nam nhân dịp này.
-- Theo Hiệp hội Chế biến và Xuất khẩu thủy sản Việt Nam (Vasep), hiện nay Mỹ, Nhật Bản và Trung Quốc là top 3 thị trường nhập khẩu thủy sản Việt Nam lớn nhất.
-- Một nam thanh niên được phát hiện tử vong cạnh chiếc xe máy dưới hố công trình trong dự án mở rộng, nâng cấp đường 72m ở Nghệ An.
-- Sau khoảng 3 tháng quyết liệt làm, tòa nhà 12 tầng xây dựng trái phép ở xã Dương Tơ (TP Phú Quốc) đã được chủ đầu tư tháo dỡ xong, trả lại hiện trạng đất ban đầu.
-- Một bé gái sơ sinh được người dân ở thị xã Điện Bàn, Quảng Nam phát hiện tử vong dưới kênh.
-- Đám cháy lớn xuất phát từ bãi rác sau đó lan sang 2 nhà xưởng và nhà dân trên đường số 12, phường Hiệp Bình Phước (TP Thủ Đức) khiến nhiều tài sản bị thiêu rụi.
-- Từ câu chuyện hạn mặn đang diễn ra ở Đồng bằng sông Cửu Long, TS Nguyễn Ngọc Huy - chuyên gia về biến đổi khí hậu và quản lý rủi ro thiên tai - trao đổi với Tuổi Trẻ về nguy cơ hạn mặn trong tương lai ở khu vực này.
-- Để việc khắc phục sự cố sạt lở tại hầm Bãi Gió đảm bảo an toàn và thông hầm sớm nhất có thể, lực lượng chức năng đã cấm tất cả ô tô lưu thông trên quốc lộ 1 đoạn qua đèo Cả giữa hai tỉnh Phú Yên, Khánh Hòa.
-- Mới hết quý 1 nhưng hàng loạt nông sản của Việt Nam đang trở thành hàng 'hot' trên thị trường quốc tế với số lượng và giá cả tăng mạnh.
-- Một số tin tức đáng chú ý: Thị phần cho vay 'chảy' gần hết về ông lớn ngân hàng; Lãi suất phát hành trái phiếu doanh nghiệp tăng trở lại; 'Quán quân' xuất khẩu hạt điều của Việt Nam vẫn là Mỹ...
-- Hôm nay thời tiết cả nước khắp nơi đều nắng, có những vùng nắng nóng gay gắt với nhiệt độ lên tới 38-39 độ C.
-- Người đàn ông cầm hung khí bằng kim loại, dài khoảng 40cm tấn công 2 phụ nữ. Một nam nhân viên bảo vệ của khu đô thị sau đó đã chạy tới can ngăn.
-- Hôm nay, Tây Bắc Bộ xuất hiện nắng nóng gay gắt, có nơi đặc biệt gay gắt với nhiệt độ cao nhất lên tới 42,2 độ C.
-- Một người dân bị thương do ngói rơi và nhiều nhà dân bị tốc mái, đổ sập do trận mưa đá, lốc xoáy quét qua các bản làng huyện miền núi Kỳ Sơn, Nghệ An.
-- Việt Nam bày tỏ quan ngại trước các diễn biến leo thang căng thẳng hiện nay ở Trung Đông, kêu gọi các bên liên quan kiềm chế.
-- Từ việc hoán đổi ngày nghỉ trong kỳ nghỉ lễ 30-4 và 1-5 năm nay, nhiều bạn đọc cho rằng lẽ ra Bộ Lao động - Thương binh và Xã hội cần có kế hoạch sớm hơn, và cần luật hóa quy định này.
-- Máy lạnh được xem là 'bảo bối' hạ nhiệt dưới thời tiết nắng nóng đỉnh điểm. Tuy nhiên nếu dùng sai cách, rất dễ mắc các bệnh lý về hô hấp.
-- Trong vụ tai nạn xe chở đoàn Cục Quản lý thị trường TP.HCM, giây phút cấp cứu ban đầu may mắn có sự trợ giúp của hai vợ chồng bác sĩ.
-- Lãnh đạo huyện Quỳnh Lưu chia sẻ việc ghép tên hai xã Quỳnh Đôi và Quỳnh Hậu sau sáp nhập xã thành Đôi Hậu, huyện cũng băn khoăn, trăn trở.
-- Một bà lão ở Quảng Ngãi có bàn chân với các ngón cong quắp vào nhau, đặc điểm giống bàn chân Giao Chỉ - một bộ người Việt cổ.
-- Là phường đông dân nhất TP.HCM, phường Bình Hưng Hòa A (quận Bình Tân) đã thực hiện chia tách, sáp nhập khu phố, nâng số lượng lên gấp đôi.
-- Công ty TNHH MTV Cấp nước Tiền Giang đã mở 114 vòi nước công cộng, đề nghị Nhà máy nước Đồng Tâm cung cấp nước ổn định, liên tục.
-- Đều đặn cứ 2 tuần một lần, lực lượng kiểm lâm vào rừng thực hiện một đợt tiếp nước và muối khoáng cho thú rừng.
-- Sau sự cố sạt lở nghiêm trọng tại hầm Bãi Gió, việc vận chuyển hàng hóa gặp rất nhiều khó khăn.
-- 5.000 cán bộ chiến sĩ thuộc Bộ Tư lệnh Cảnh sát cơ động đã phô diễn sức mạnh, trình diễn diễu binh trang nghiêm, với các động tác đều và mạnh mẽ.
-- Bộ Quốc phòng mới đây đã có trả lời ý kiến cử tri gửi đến kiến nghị việc xếp lương đại học cho chỉ huy trưởng quân sự xã, phường.
-- Phường 9, quận Phú Nhuận, TP.HCM đã sắp xếp 5 khu phố, 93 tổ dân phố thành 12 khu phố mới và cử nhân sự lâm thời cho 12 khu phố mới.
-- Đại sứ quán Việt Nam tại Israel và Iran đang xây dựng kế hoạch bảo hộ công dân trước những căng thẳng leo thang giữa Tel Aviv với Tehran.
-- Vụ va chạm giữa xe máy và ô tô bán tải tại tỉnh lộ 489C thuộc xã Xuân Ngọc, huyện Xuân Trường, tỉnh Nam Định khiến hai nữ sinh viên thiệt mạng.
+- Thông tin được đưa ra tại cuộc họp của đoàn giám sát Ủy ban Thường vụ Quốc hội làm việc với Hà Nội về "việc thực hiện chính sách, pháp luật về bảo đảm trật tự, an toàn giao thông từ năm 2009 đến năm 2023", diễn ra chiều 15-4.
+- Số liệu định vị dông sét và radar thời tiết cho thấy vùng mây đối lưu phát triển, gây mưa rào và dông cho hầu khắp khu vực thành phố Hà Nội.
+- Nhiều tuyến đường ở TP.HCM đã được ngành chức năng dự kiến thu phí vỉa hè, nhưng thực tế tiến độ triển khai vẫn chưa được như kỳ vọng.
+- Tin tức đáng chú ý: Giá USD lập kỷ lục mới 25.300 đồng; Sở An toàn thực phẩm TP.HCM khuyến cáo tháng 4 đến tháng 8 dễ xảy ra ngộ độc thực phẩm; Nắng hạn đến sớm, dân miền Tây mở nhiều điểm tặng nước nghĩa tình...
+- Hôm nay thời tiết nắng nóng gay gắt diễn ra khắp nơi, nhiệt độ lại tăng hơn so với hôm qua, trời khô khốc.
+- Ông Huỳnh Tấn Tuấn - hiệu trưởng Trường cao đẳng Y tế Quảng Nam - bị UBND tỉnh Quảng Nam tạm đình chỉ chức vụ để phục vụ công tác điều tra sau khi bị cơ quan cảnh sát điều tra khởi tố.
+- Đang phá dỡ nhà để giải phóng mặt bằng cho một dự án tại xã An Đồng, huyện An Dương, TP Hải Phòng thì tường đổ khiến một công nhân bị đè chết tại chỗ.
+- Một hộ dân ở TP Vinh gửi đơn kêu cứu lên thành phố, tỉnh vì lối đi chung vào căn nhà hai tầng của gia đình bị hàng xóm rào chắn.
+- Ông Lê Minh Hoàng, người tự xưng có khả năng cầu nguyện sau 4 ngày TP.HCM sẽ có mưa và cầu nguyện cho cây lúa ở Hà Nội bớt ngã đổ, đã xin lỗi vì thông tin sai sự thật.
+- Ông Hoàng Hải Minh, phó chủ tịch UBND tỉnh Thừa Thiên Huế, đã nói như vậy trong chuyến đi khảo sát nhằm phục vụ công tác chuẩn bị đầu tư mở rộng cao tốc Cam Lộ - La Sơn.
+- Tối 15-4, Công an thị xã Bình Long (Bình Phước) tiếp tục làm rõ vụ nữ sinh lớp 12 tổn thương nội sọ, trầm cảm nặng nghi bị bạn cùng lớp đánh.
+- Một công ty nhận làm dự án kè biển Cửa Lò, Nghệ An khai thác cát biển trái phép, tạo thành những hố sâu 2m.
+- Nam nhân viên bảo vệ cho hay ông đã nghĩ tới rủi ro có thể xảy đến khi giải cứu cô gái. Tuy vậy, một phần vì trách nhiệm công việc, phần lớn hơn là "cái tình giữa con người với nhau" đã thôi thúc ông hành động quyết liệt.
+- Trong vụ tai nạn xe chở đoàn cán bộ Cục Quản lý thị trường TP.HCM, hiện vẫn còn 9 bệnh nhân đang được điều trị tích cực, trong đó có một bệnh nhân hôn mê, xuất huyết não rất nặng.
+- Chiều tối 15-4, các tuyến đường gần sân bay Tân Sơn Nhất đều đông nghịt xe cộ, đặc biệt tại khu vực rào chắn nút giao Trần Quốc Hoàn - Phan Thúc Duyện.
+- Ngày 15-4, Thủ tướng Chính phủ gửi thư tri ân người hiến tạng và khen cán bộ, nhân viên y tế của các bệnh viện, Trung tâm Điều phối ghép tạng quốc gia sau thành công của ca điều phối tạng từ người cho chết não cứu sống 7 người vừa qua.
+- Một vụ tai nạn lao động xảy ra khi một nhóm thợ ở TP Huế sửa ki ốt khiến bức tường đổ sập làm 1 người chết, 3 người bị thương.
+- Ông Lê Minh Hoàng cho biết từng cầu nguyện cho cây lúa ở huyện Mỹ Đức (Hà Nội) bớt ngã đổ vì gió và được giám đốc HTX Mỹ Thành xác nhận. Lãnh đạo UBND huyện Mỹ Đức nói gì về thông tin này?
+- Trước phiên đối thoại Hội đồng Nhân quyền Liên Hiệp Quốc vào ngày 7-5 tới, Bộ Ngoại giao bác bỏ các báo cáo sai lệch về quyền con người tại Việt Nam, kêu gọi các nước sử dụng các nguồn thông tin đã được kiểm chứng.
+- Chuyển đổi gần 3ha đất rừng làm dự án cầu Phước An, đó là một trong nhiều nội dung được Hội đồng nhân dân tỉnh Đồng Nai thông qua tại kỳ họp thứ 16 (kỳ họp chuyên đề), ngày 15-4.
+- Chia sẻ với khó khăn của bà con trong vùng hạn mặn, Bộ Tư lệnh Vùng Cảnh sát biển 3 đã cấp phát miễn phí 1.000 bình (loại 20 lít) nước uống tinh khiết cho nhân dân huyện Bình Đại, tỉnh Bến Tre.
+- Chiều 15-4, tòa sơ thẩm TAND tỉnh Khánh Hòa đã tuyên án đối với 6 bị cáo vụ án xảy ra tại CDC Khánh Hòa, mức án cao nhất là 3 năm 6 tháng tù, thấp hơn nhiều so với khung hình phạt về tội đã bị truy tố.
+- Tại kỳ họp thứ 7 tới đây của Quốc hội, Chính phủ đã đề nghị lùi thời gian cho ý kiến và thông qua đối với 1 dự án luật, bổ sung trình 3 dự thảo luật, nghị quyết.
+- Phó chủ tịch UBND TP.HCM Dương Anh Đức yêu cầu cơ quan chức năng giám sát hoạt động Trường quốc tế Mỹ. Kịp thời báo cáo các vấn đề phát sinh để UBND TP.HCM xem xét, chỉ đạo.
+- Một số chuyên gia pháp lý quan tâm đến việc thành lập các tòa án sơ thẩm chuyên biệt để giải quyết vụ việc liên quan đến sở hữu trí tuệ, phá sản, thương mại quốc tế vì các trường hợp này thường xảy ra rất ít.
+- Khô hạn đã làm các dòng sông trong vùng ngọt tỉnh Cà Mau khô cạn nước. Sạt lở, sụt lún đất xảy ra ở nhiều nơi làm thiệt hại tài sản của người dân. UBND tỉnh Cà Mau đã công bố khẩn cấp hạn hán cấp hai trên địa bàn hai huyện Trần Văn Thời và U Minh.
+- Liên quan vụ nhiều học sinh Trường THPT Nguyễn Văn Trỗi (TP Nha Trang) ngộ độc, Chi cục An toàn vệ sinh thực phẩm Khánh Hòa có kết luận: Phát hiện khuẩn Salmonella trên dụng cụ đựng thức ăn của người bán hàng.
+- Thấy một người đàn ông muốn lao vào đoàn tàu đang chạy với tốc độ 80km/h, nhân viên gác chắn đã chạy ra cứu người trong vòng 4 giây.
+- Hàng ngàn xe máy vi phạm luật giao thông, xe tang vật... nằm chất đống khiến các bãi xe ở TP.HCM luôn trong tình trạng quá tải, tiềm ẩn nguy cơ cháy nổ, nhất là khi mùa nắng nóng kéo dài.
+- Viện kiểm sát nhân dân tối cao đã trình Ủy ban Thường vụ Quốc hội về đề nghị xây dựng Luật Tương trợ tư pháp về hình sự.
 ![New](News.png)
 ## Nhịp sống số 
+- Các tổ chức bảo vệ quyền trẻ em lên tiếng phản đối sau khi Meta hạ độ tuổi tối thiểu sử dụng ứng dụng nhắn tin WhatsApp tại Liên minh châu Âu (EU) từ 16 xuống 13 tuổi.
 - Ngoài làm mờ tin nhắn có ảnh khỏa thân, Meta cũng đang phát triển công nghệ xác định tài khoản lừa đảo sextort (tin tặc lừa đang giữ ảnh nóng của người dùng).
 - Nhà báo Vũ Kim Hạnh, sẽ xuất hiện trên sóng Shopee Live vào ngày 15-4 trong một sáng kiến mới nhằm hỗ trợ các doanh nghiệp địa phương trong cả nước giới thiệu nông đặc sản chất lượng.
 - Nếu Công ty Netflix không tuân thủ, Bộ Thông tin và Truyền thông sẽ phối hợp các cơ quan quản lý nhà nước liên quan xử lý theo quy định pháp luật Việt Nam.
@@ -94,5 +95,4 @@
 - Nhiều người dùng từng trải nghiệm 5G cho rằng tốc độ nhiều lúc, nhiều nơi vẫn chỉ ngang ngửa 4G.
 - Giữa lúc Google đối mặt với tin đồn thất thiệt, tỉ phú Elon Musk bất ngờ thông báo ông chuẩn bị mở một dịch vụ mới thay thế Gmail.
 - Tập đoàn Viettel vừa trình làng sản phẩm ‘con người' AI tại phiên khai mạc Hội nghị di động thế giới (MWC 2024).
-- Bộ Thông tin và Truyền thông mới đây đã đề xuất một số quy định mới về quản lý tài nguyên Internet, trong đó có đề cập đến tên miền quốc gia ".vn".
 ![life](Life.png)
