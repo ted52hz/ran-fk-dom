@@ -1,6 +1,23 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Bữa ăn bán trú của học sinh mầm non trên địa bàn quận Phú Nhuận, TP.HCM được chế biến khá sáng tạo.
+- Những học sinh khiếm thính trường PTCS Xã Đàn (Hà Nội) thi giới thiệu sách hay bằng ngôn ngữ ký hiệu trong lễ hội kỷ niệm Ngày Khuyết tật Việt Nam.
+- Ngày 17-4, Sở Giáo dục và Đào tạo TP.HCM chính thức công bố chỉ tiêu tuyển sinh lớp 10 công lập năm học 2024-2025.
+- UBND tỉnh Lâm Đồng yêu cầu làm rõ nội dung liên quan đến phản ánh của giáo viên về việc bị 'ép' mua tour du lịch để đi thăm học trò ở Hà Giang.
+- Từ năm học 2024 - 2025, khoảng 200 học sinh thuộc 4 trường THPT chuyên thuộc Đại học Quốc gia Hà Nội được học tích lũy tín chỉ đại học từ lớp 10.
+- Nhóm sinh viên Trường cao đẳng Kỹ thuật Cao Thắng đã chế tạo hệ thống bơm nước tự động sử dụng trên điện thoại.
+- Trường THPT chuyên Lê Quý Đôn, tỉnh Bà Rịa - Vũng Tàu tạm dừng công việc một thầy giáo, để làm rõ phản ánh người này quấy rối tình dục học sinh.
+- Góp thêm góc nhìn, Tuổi Trẻ Online giới thiệu vài ý kiến bạn đọc quanh câu chuyện "Giáo viên gồng gánh trên vai hàng tá phong trào, thành tích, thi đua".
+- 250 học sinh lớp 10, 11 Trường THCS - THPT Hai Bà Trưng, TP.HCM đã có một buổi học môn giáo dục địa phương ở ngoài sân trường đầy hào hứng, lý thú.
+- Nhiệt độ thực tế ở TP.HCM có ngày lên gần 40 độ, sinh viên chật vật qua mùa nóng sao cho vừa mát, vừa… tiết kiệm.
+- Ngày 17-4, Sở Giáo dục và Đào tạo Hà Nội khởi động chương trình ôn thi tốt nghiệp THPT trên app HANOION dành cho học sinh lớp 12.
+- Nhóm ngành công nghệ thông tin có rất nhiều trường đại học đào tạo. Học phí các trường có sự chênh lệch rất lớn.
+- Trường trung học cơ sở IQ School phải chuyển trường cho số học sinh lớp 6 đã trúng tuyển, hoặc hủy bỏ quyết định trúng tuyển, trả lại học phí nếu không chuyển được.
+- Ngày 17-4, Sở Giáo dục và Đào tạo Hà Nội công bố chỉ tiêu lớp 10 cho các trường tư thục năm học 2024-2025.
+- Sở Giáo dục và Đào tạo Hà Nội vừa giao kế hoạch chỉ tiêu lớp 10 năm học 2024-2025 cho các trường THPT công lập và công lập tự chủ.
+- Nhiều trường phổ thông ngoài công lập tại TP.HCM chưa được giao chỉ tiêu tuyển sinh lớp 10 vì chưa thực hiện đúng quy định.
+- Bộ Giáo dục và Đào tạo vừa ban hành kế hoạch tuyển sinh đại học và tuyển sinh cao đẳng ngành giáo dục mầm non năm 2024, với chi tiết các mốc thời gian xét tuyển.
 - Hiện có 105 cơ sở giáo dục đăng ký sử dụng kết quả kỳ thi đánh giá năng lực của Đại học Quốc gia TP.HCM để xét tuyển.
 - Royal School xác định chương trình hội nhập không chỉ là hệ đào tạo tiên tiến mà còn đại diện cho tư duy và tầm nhìn về một nền tảng vững chắc cho học sinh.
 - Chủ tịch UBND TP Đà Nẵng cho biết từ vấn nạn bạo lực học đường tái diễn, lo ngại nhất là tình trạng học sinh sử dụng mạng xã hội, lên mạng thấy ai làm gì là học theo.
@@ -14,57 +31,42 @@
 - 8h30 chủ nhật 21-4, chương trình tư vấn tuyển sinh đặc biệt dành cho phụ huynh chủ đề 'Cùng con chọn trường' sẽ diễn ra tại ĐH Kinh tế TP.HCM.
 - Sáng nay 16-4, Đại học Quốc gia TP.HCM chính thức mở cổng đăng ký dự thi đánh giá năng lực đợt 2 năm 2024.
 - Tối 15-4, Công an thị xã Bình Long (Bình Phước) tiếp tục làm rõ vụ nữ sinh lớp 12 tổn thương nội sọ, trầm cảm nặng nghi bị bạn cùng lớp đánh.
-- Cũng có công ty công nghệ chỉ cần nghe sinh viên chơi xuất sắc một môn thể thao nào đó là sẵn sàng nhận ngay.
-- Theo kế hoạch triển khai công tác tuyển sinh đại học các ngành và cao đẳng ngành giáo dục mầm non năm 2024 Bộ Giáo dục và Đào tạo vừa ban hành, năm nay thí sinh sẽ biết kết quả trúng tuyển sớm hơn năm ngoái ba ngày.
-- Phó chủ tịch UBND TP.HCM Dương Anh Đức yêu cầu cơ quan chức năng giám sát hoạt động Trường quốc tế Mỹ. Kịp thời báo cáo các vấn đề phát sinh để UBND TP.HCM xem xét, chỉ đạo.
-- Trường chuyên Lê Hồng Phong và Trần Đại Nghĩa, TP.HCM sẽ tăng chỉ tiêu tuyển sinh lớp 10 cho năm học 2024-2025.
-- Thủ khoa kỳ thi đánh giá năng lực đợt 1-2024 của Đại học Quốc gia TP.HCM là học sinh chuyên toán Trường THPT chuyên Quốc học - Huế.
-- Bạn đọc phản ánh đến báo Tuổi Trẻ về việc Sở Giáo dục và Đào tạo tỉnh Lâm Đồng 'ép' giáo viên đóng tiền đi Hà Giang thăm học trò.
-- Học sinh tham gia chương trình đào tạo tài năng trẻ liên thông từ bậc THPT lên đại học sẽ được cấp giấy chứng nhận đã học các tín chỉ chương trình đại học.
-- Gần 120m³ nước ngọt đã được sinh viên, giảng viên Trường đại học Công nghệ TP.HCM mang đến cho  người dân vùng hạn mặn huyện Tân Phú Đông, tỉnh Tiền Giang.
-- Đối với học sinh Royal School, tiếng Anh không phải là con đường duy nhất, nhưng là công cụ hữu hiệu nhất để định hướng con đường học vấn.
-- Trường đại học Sư phạm TP.HCM vừa công bố điểm thi đánh giá năng lực chuyên biệt đợt 1 năm 2024 với nhiều thông tin bất ngờ.
-- Ngày 15-4, chỉ trong khoảng một giờ đồng hồ, lực lượng cảnh sát giao thông đã phát hiện và xử lý 16 trường hợp học sinh vi phạm luật giao thông đường bộ trên địa bàn huyện Châu Thành, tỉnh Bến Tre.
-- Đại học Quốc gia TP.HCM vừa công bố kết quả kỳ thi đánh giá năng lực đợt 1 năm 2024, cao nhất là 1.076 điểm.
-- Khi đường vào đại học ngày càng rộng mở, bất đồng trong chọn ngành nghề giữa thí sinh và phụ huynh lại ngày càng lớn.
-- Đại học Quốc gia TP.HCM công bố thông tin số ứng viên tham gia đợt tuyển dụng đầu tiên chương trình thu hút, giữ chân và phát triển các nhà khoa học trẻ xuất sắc, các nhà khoa học đầu ngành.
-- Trường quốc tế AISVN chính thức công bố kết thúc năm học 2023-2024 sớm 1 tháng so với kế hoạch nhằm đảm bảo sự ổn định của cộng đồng trường.
-- Tối 14-4, Gala Talent Generation 2024 với chủ đề “Dẫn bước sinh viên - Vươn tầm quốc tế” đã diễn ra tại Đại học Quốc tế Hồng Bàng.
-- Trường đại học Y Dược TP.HCM công bố tiếp tục tăng học phí bậc đại học dự kiến sẽ áp dụng với sinh viên trúng tuyển nhập học năm 2024.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Theo UBND tỉnh Thanh Hóa, ngày 19-4 sẽ đưa nút giao Thiệu Giang và nút giao Đồng Thắng trên cao tốc Mai Sơn - quốc lộ 45 vào khai thác, tạo thuận lợi cho người dân đi lại trong dịp nghỉ lễ 30-4 và 1-5.
-- Bán và đổi đất sở hữu nhà nước cho hộ gia đình nhưng UBND xã không cấp đổi giấy chứng nhận quyền sử dụng đất. Khi cao tốc Cam Lộ - Vạn Ninh đi qua đất này, tỉnh Quảng Trị đau đầu tìm cách đền bù đất đai cho dân hợp tình hợp lý.
-- Gần trăm công nhân mất việc đã ký đơn khởi kiện Công ty cổ phần dệt Hòa Khánh - Đà Nẵng, đòi lương và các chế độ liên quan.
-- Một số tin tức đáng chú ý: Vé máy bay vẫn cao; TP.HCM tăng phạt nguội xe quá tải; Lãi công ty ông Nguyễn Tử Quảng giảm mạnh...
-- Hôm nay thời tiết nắng nóng tiếp tục xảy ra khắp nơi, cả nước rơi vào trạng thái oi bức, khô hạn.
-- Chính sách cấp bù lãi suất cho doanh nghiệp công nghiệp hỗ trợ được đưa ra từ năm 2022 nhưng đến nay vẫn chỉ nằm trên giấy. Thủ tục phức tạp là nguyên nhân khiến chính sách ưu đãi không phát huy được nhiều tác dụng.
-- Mặc dù vụ án xảy ra tại CDC Khánh Hòa đã bị TAND tỉnh tuyên án sơ thẩm nhưng nhiều người vẫn thắc mắc về các vụ nhận hơn 4,2 tỉ đồng trong vụ án này.
-- Sở Giao thông vận tải TP.HCM vừa có văn bản đề nghị các đơn vị tăng cường chấn chỉnh shipper vi phạm giao thông trong giao, nhận và chuyển phát hàng hóa.
-- Sau khi có thông báo cấm tất cả ô tô qua đèo Cả để khắc phục sự cố sạt lở hầm đường sắt Bãi Gió, nhiều xe chở khí hóa lỏng (LPG) bị kẹt thế "tiến thoái lưỡng nan".
-- Nước sạch phục vụ sinh hoạt nên được áp dụng mức thuế suất 0% bởi là nhu cầu thiết yếu, thuộc lĩnh vực an sinh xã hội cần được ưu tiên.
-- Cố Tổng bí thư Trần Phú là người chiến sĩ cách mạng đã để lại câu nói bất hủ: "Hãy giữ vững chí khí chiến đấu".
-- Một công dân Việt Nam tại Đài Loan bị nhóm người Việt và Đài Loan bắt cóc, đòi tiền chuộc thành công nhưng vẫn bị sát hại.
-- Chiến thắng Vàm Nao - Cổ Hũ chống quân Xiêm năm 1834 là chiến công lừng lẫy chống ngoại xâm nhưng chưa được đánh giá đúng tầm vóc lịch sử, sách giáo khoa, giáo trình giảng dạy chưa đề cập đến.
-- Tỉnh Quảng Nam đồng ý cho Đà Nẵng đắp đập tạm chia nước ở Quảng Huế cho đến khi công trình điều tiết nguồn nước và chỉnh trị được xây dựng.
-- Các thư và điện chúc mừng nhấn mạnh vai trò của Tổng bí thư Nguyễn Phú Trọng trong phát triển, xây dựng đất nước Việt Nam, cũng như quan hệ Việt Nam với các nước.
-- Tỉnh Quảng Nam cho biết qua rà soát không có dự án nào liên quan đến Tập đoàn Thuận An do các sở, ban, ngành, huyện, thị xã, thành phố của tỉnh làm chủ đầu tư.
-- Theo Công ty TNHH MTV Đường sắt đô thị số 1, để tiếp nhận, vận hành thử (trước khi vận hành thương mại) tuyến metro số 1 cần 110 tỉ đồng.
-- Dự án cấp 62 bò giống sinh sản cho đồng bào dân tộc thiểu số và miền núi huyện Đăk Hà (tỉnh Kon Tum), nhưng một số người dân được cấp bò còi cọc như bê con.
-- Về Mường Phăng - nơi đặt Sở chỉ huy chiến dịch Điện Biên Phủ, Thủ tướng Phạm Minh Chính đã thắp hương tưởng nhớ Đại tướng Võ Nguyên Giáp, thăm hỏi đồng bào, chiến sĩ và nhân dân Mường Phăng.
-- Nhiều công trình thi đua tiêu biểu của TP.HCM để chào mừng 50 năm thống nhất đất nước (30-4-1975 – 30-4-2025) gặp một số khó khăn vướng mắc.
-- Từ một doanh nghiệp quy mô vốn vài tỉ đồng, sau hơn chục năm, Công ty cổ phần Tập đoàn Thuận An tăng vốn lên gấp 200 lần, trúng hàng loạt gói thầu ở nhiều địa phương trên cả nước.
-- TP.HCM sẽ bắn pháo hoa tại 16 điểm, gồm 1 điểm tầm cao, 15 điểm tầm thấp. Nhiều điểm dọc sông Sài Gòn.
-- Trước tình hình hạn mặn nhiều nơi, Kiên Giang đang khẩn trương đấu thầu mua bồn chứa nước cho bà con vùng sâu, hải đảo để trữ nước ngọt.
-- Nhiều cao tốc mới sẽ được bố trí các trạm dừng nghỉ, nhà vệ sinh tạm thời để người dân thuận tiện lưu thông trước dịp nghỉ lễ 30-4, 1-5 và cao điểm du lịch hè 2024.
-- Cơ quan Cảnh sát điều tra Công an huyện Phú Tân, tỉnh An Giang chuyển hồ sơ đề nghị truy tố cựu cán bộ xã lạm dụng chức vụ chiếm đoạt tài sản của 16 người dân.
-- Về đề án xây mới, cải tạo chung cư cũ, bí thư Hà Nội nói nếu cán bộ hời hợt, vô tâm, vô cảm với công việc thì 5-10 năm nữa vẫn không có kết quả.
-- Chủ tịch Hà Nội yêu cầu các đơn vị liên quan xây dựng kế hoạch cụ thể các điểm bắn pháo hoa, chương trình nghệ thuật ánh sáng sẽ được tổ chức tối 10-10-2024, dịp kỷ niệm 70 năm Ngày Giải phóng thủ đô.
-- Một số phụ huynh ở huyện Thanh Chương, Nghệ An cho con nghỉ học, thậm chí đưa con lên đứng trước trụ sở UBND tỉnh để phản đối việc sáp nhập trường.
-- Chủ tịch Quốc hội Vương Đình Huệ nói sửa Luật Dược cần tìm điểm cân bằng, tạo thuận lợi cho thương mại, sản xuất, kinh doanh thuốc và đảm bảo an toàn với người dân.
-- Nhà máy xử lý rác Thạnh Hóa (Long An) vẫn cháy âm ỉ tại 2 bãi rác lộ thiên, phát tán mùi hôi ảnh hưởng người dân chung quanh.
+- Đúng 9 năm kể từ khi bắt đầu giải phóng mặt bằng và khởi công (tháng 4-2015), đường Lương Định Của (TP Thủ Đức) kết nối cửa ngõ phía đông với trung tâm TP.HCM vẫn… dang dở.
+- Luật Kinh doanh bất động sản (sửa đổi) không cho phân lô, bán nền tại 105 thành phố, thị xã sẽ tác động nhất định đến thị trường.
+- Sáng 18-4 (tức mùng 10 tháng 3 âm lịch), Thủ tướng Phạm Minh Chính cùng đại diện lãnh đạo Đảng, Nhà nước và tỉnh Phú Thọ dâng hương giỗ Tổ Hùng Vương 2024. Tại Khu di tích lịch sử Đền Hùng, trời đổ mưa rào.
+- Một số tin tức đáng chú ý: Loạt 'ông lớn' ô tô sụt giảm thị phần; Cảnh báo lừa đảo qua điện thoại với chiêu trò tặng quà do đóng bảo hiểm y tế lâu năm; Bệnh tay chân miệng và sốt xuất huyết ở TP.HCM gia tăng...
+- Lợi dụng chủ nhà sơ hở, một nghi phạm đi ô tô bịt kín mặt đã lao vào một tiệm vàng dùng búa đập vỡ kính để lấy tài sản rồi tẩu thoát.
+- Nhân dịp giỗ Tổ Hùng Vương (mùng 10 tháng 3 âm lịch), nhiều bảo tàng tại TP.HCM miễn phí vé tham quan trong ngày hôm nay 18-4.
+- Hôm nay thời tiết Bắc Bộ sáng sớm có mưa kèm dông, Nam Bộ nắng nóng gay gắt đến đặc biệt gay gắt.
+- Tối 17-4, ban tổ chức Tay Ho Half Marathon ra thông báo mới nhất tình hình sức khỏe của vận động viên bị ngừng tim khi tham gia giải chạy này.
+- Hàng vạn người có mặt tại các tuyến đường xung quanh công viên Văn Lang (tỉnh Phú Thọ) chiêm ngưỡng màn bắn pháo hoa nhân dịp giỗ Tổ Hùng Vương.
+- Hàng chục hộ dân thôn Vĩnh An ra chặn đường liên thôn ngăn không cho xe tải chở vật liệu vào thi công cao tốc Cam Lộ - Vạn Ninh vì bụi bặm, mất an toàn.
+- Giải thích câu hỏi về 'nhạc thiêng', đơn vị tổ chức sự kiên nghệ thuật này cho biết "nhạc thiêng" là những bài hát đạo hiếu, nói về ba mẹ...
+- Người dân thắc mắc vì sao 9 căn bungalow ở xã Hàm Ninh, các căn biệt thự tại khu 79 căn biệt thự ở xã Dương Tơ, Phú Quốc còn tồn tại?
+- Bộ trưởng Tô Lâm đã chủ trì buổi làm việc với Ban Thường vụ Tỉnh ủy Tây Ninh về việc công bố quyết định kiểm tra công tác bảo vệ chính trị nội bộ.
+- Anh Đ.N.A. (cha bé gái Đ.T.N.L.) cho biết trong trường hợp các yếu tố liên quan việc con gái anh bị xâm hại được cơ quan điều tra khẳng định, anh cảm thấy không thể chấp nhận hay tha thứ cho nghi can.
+- Nhiều người ở TP Tuy Hòa đang bàn tán xôn xao trước poster quảng bá của sự kiện nghệ thuật có tên "Đại hội nhạc thiêng đặc biệt - Những hóa thân số 4".
+- Chuyên gia an ninh mạng cảnh báo nhiều người mắc sai lầm khi lưu mật khẩu, tài khoản Facebook, ngân hàng trên điện thoại.
+- Bãi cỏ bông lau tại khu đô thị Đại học Quốc gia TP.HCM (còn gọi là làng đại học) đua nhau 'bung lụa' đẹp mê hồn.
+- Không ai ngờ người thợ hồ tại xã Cửa Cạn (TP Phú Quốc) ấy lại là kẻ giết người. Và người này vừa bị tòa tuyên án chung thân sau 24 năm lẩn trốn.
+- Chủ tịch Quốc hội Vương Đình Huệ cho biết dự kiến kỳ họp thứ 7 sẽ xem xét nhiều nội dung quan trọng.
+- UBND TP Thủ Đức kêu gọi đầu tư 11 dự án theo hình thức đối tác công tư (PPP) với hơn 2.000 tỉ đồng.
+- Với hành động dũng cảm cứu người lao vào đoàn tàu đang chạy vun vút, nhân viên gác chắn ở Đồng Nai được trao tặng bằng khen của chủ tịch tỉnh.
+- Độ mặn 4‰ tiến sâu trên sông Vàm Cỏ Đông và Vàm Cỏ Tây lần lượt 72km, 86km. Long An công bố xâm nhập mặn thuộc rủi ro thiên tai cấp độ 4.
+- Theo Bộ trưởng Nguyễn Văn Thắng, cao tốc Gia Nghĩa - Chơn Thành có quy mô 6 làn xe, chiều dài hơn 128km, tổng mức đầu tư khoảng 25.540 tỉ đồng.
+- Xe khách giường nằm đang chạy trên tuyến cao tốc TP.HCM - Trung Lương thì bất ngờ bốc cháy dữ dội từ phía đuôi xe.
+- Cao tốc Hòa Liên - Túy Loan đi qua Đà Nẵng mới bàn giao mặt bằng khoảng 50% trong tổng số 11,5km. Lãnh đạo Đà Nẵng yêu cầu phấn đấu hoàn thành giải phóng mặt bằng trước ngày 31-5.
+- Sông Trường Giang, con sông dài hơn 60km chạy dọc theo bờ biển ở Quảng Nam, ở hai đầu bắc nam, sông đều thông với biển, không có thượng nguồn và chẳng có hạ lưu.
+- 5 phó giám đốc cùng các trưởng, phó phòng, chuyên viên được cử về hai huyện Gio Linh, Vĩnh Linh để giúp đẩy nhanh tiến độ giải phóng mặt bằng cao tốc Cam Lộ - Vạn Ninh.
+- Chiều 17-4, giá xăng E5 RON 92 được điều chỉnh tăng 380 đồng/lít, còn xăng RON 95 tăng 410 đồng.
+- Làm việc với Ủy ban Quốc phòng và An ninh của Quốc hội, phó giám đốc Công an Quảng Trị đề nghị Quốc hội có chiến lược tổng thể, giải pháp căn cơ, khoa học và thực tiễn với phân luồng cao tốc Cam Lộ - La Sơn.
+- Ngày 17-4, Tuổi Trẻ có mặt tại Km199 cao tốc Vĩnh Hảo - Phan Thiết ở xã Hồng Liêm, huyện Hàm Thuận Bắc, tỉnh Bình Thuận, ghi nhận chủ đầu tư làm trạm dừng nghỉ tạm.
 ![New](News.png)
 ## Nhịp sống số 
+- Đại diện Cục Bản quyền tác giả nói môi trường số là môi trường xuyên biên giới, nên nạn đánh cắp bản quyền càng nghiêm trọng, khó giải quyết.
+- Những thông tin bị đánh cắp có thể bao gồm thông tin đăng nhập vào nền tảng mạng xã hội, dịch vụ ngân hàng trực tuyến, ví điện tử, hệ thống nội bộ và email doanh nghiệp.
 - TP.HCM thí điểm thực hiện học bạ số với toàn bộ học sinh lớp 1 của thành phố năm học 2023-2024 này.
 - Với tốc độ 156.000 tỉ khung hình mỗi giây, máy ảnh mở ra khả năng ghi lại những hiện tượng xảy ra cực nhanh mà trước nay không nhìn thấy được.
 - Các tổ chức bảo vệ quyền trẻ em lên tiếng phản đối sau khi Meta hạ độ tuổi tối thiểu sử dụng ứng dụng nhắn tin WhatsApp tại Liên minh châu Âu (EU) từ 16 xuống 13 tuổi.
@@ -93,6 +95,4 @@
 - Nhiều sinh viên không khỏi ngạc nhiên và gọi trải nghiệm tại Galaxy Campus Tour là "trải nghiệm phải thử một lần trong đời và không thể bỏ lỡ".
 - Theo Anthropic, Claude 3 Opus hiện là chatbot mạnh nhất, vượt trội phiên bản mới nhất của ChatGPT và Gemini 1.0 Ultra của Google.
 - Sáng 1-3, tại Trường đại học Công nghệ, Đại học Quốc gia Hà Nội diễn ra khai mạc chung kết thi lập trình sinh viên quốc tế ICPC châu Á - Thái Bình Dương 2024.
-- Trường đại học Công nghệ thông tin (Đại học Quốc gia TP.HCM) vừa tiếp nhận siêu máy chủ AI NVIDIA DGX A100 dựa trên kiến trúc Ampere.
-- Nhiều người dùng từng trải nghiệm 5G cho rằng tốc độ nhiều lúc, nhiều nơi vẫn chỉ ngang ngửa 4G.
 ![life](Life.png)
