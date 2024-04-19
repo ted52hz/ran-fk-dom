@@ -1,6 +1,18 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Ông Trần Anh Tuấn - phó chủ tịch tỉnh - được giao điều hành Trường cao đẳng Y tế Quảng Nam sau khi hiệu trưởng trường này bị khởi tố.
+- Nhiều trường ĐH lớn bắt đầu nhận hồ sơ xét tuyển học bạ THPT cho mùa tuyển sinh ĐH năm nay.
+- Không chỉ học sinh chuẩn bị vào lớp 6, học sinh lớp 3 cũng được yêu cầu khai thông tin. Phụ huynh bối rối không biết ghi thông tin nơi sinh, quê quán sao cho đúng.
+- Chiều 18-4, ông Lê Hoài Nam, phó giám đốc Sở Giáo dục và Đào tạo TP.HCM, đã giải thích về việc giảm chỉ tiêu tuyển sinh lớp 10 năm 2024 ở trường THPT công lập.
+- Chiều 18-4, Sở Giáo dục và Đào tạo TP.HCM công bố mức học phí của các loại hình trường chuẩn bị tuyển sinh lớp 10 năm 2024.
+- Lãnh đạo UBND tỉnh Nghệ An và Thanh Chương từng đối thoại, giải đáp những kiến nghị của phụ huynh về chủ trương sáp nhập trường.
+- Ngày 17-4, ban giám khảo tiến hành chấm điểm những tác phẩm vòng chung kết hội thi ảnh Tuổi Xanh dành cho học sinh ở TP.HCM.
+- Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) vẫn không thay đổi quyết định tổ chức lễ tốt nghiệp tháng 4-2024 ở hai hội trường A5 và B4, dù sinh viên phản ứng.
+- Nữ sinh trường Ams Lê Hà Anh vừa nhận tin trúng tuyển 14 trường đại học, tất cả đều là ngành kinh tế, trong đó có 3 trường thuộc nhóm Ivy League.
+- 8h30 sáng 21-4, chương trình tư vấn tuyển sinh đặc biệt dành cho phụ huynh, chủ đề "Cùng con chọn trường", được báo Tuổi Trẻ tổ chức tại Đại học Kinh tế TP.HCM (279 Nguyễn Tri Phương, phường 5, quận 10) với sự đồng hành của Tập đoàn VinGroup.
+- Để trẻ mầm non vào lớp 1 tốt hơn, TP.HCM bắt đầu thực hiện các lớp tiểu học giả định trong trường mầm non từ nay đến hết năm học 2023-2024 đối với lớp lá.
+- Việc đầu tư khoảng 1 tỉ USD để đào tạo 50.000 kỹ sư bán dẫn sẽ gián tiếp tạo nguồn thu 15 - 16 tỉ USD cho nền kinh tế.
 - Bữa ăn bán trú của học sinh mầm non trên địa bàn quận Phú Nhuận, TP.HCM được chế biến khá sáng tạo.
 - Những học sinh khiếm thính trường PTCS Xã Đàn (Hà Nội) thi giới thiệu sách hay bằng ngôn ngữ ký hiệu trong lễ hội kỷ niệm Ngày Khuyết tật Việt Nam.
 - Ngày 17-4, Sở Giáo dục và Đào tạo TP.HCM chính thức công bố chỉ tiêu tuyển sinh lớp 10 công lập năm học 2024-2025.
@@ -19,52 +31,41 @@
 - Nhiều trường phổ thông ngoài công lập tại TP.HCM chưa được giao chỉ tiêu tuyển sinh lớp 10 vì chưa thực hiện đúng quy định.
 - Bộ Giáo dục và Đào tạo vừa ban hành kế hoạch tuyển sinh đại học và tuyển sinh cao đẳng ngành giáo dục mầm non năm 2024, với chi tiết các mốc thời gian xét tuyển.
 - Hiện có 105 cơ sở giáo dục đăng ký sử dụng kết quả kỳ thi đánh giá năng lực của Đại học Quốc gia TP.HCM để xét tuyển.
-- Royal School xác định chương trình hội nhập không chỉ là hệ đào tạo tiên tiến mà còn đại diện cho tư duy và tầm nhìn về một nền tảng vững chắc cho học sinh.
-- Chủ tịch UBND TP Đà Nẵng cho biết từ vấn nạn bạo lực học đường tái diễn, lo ngại nhất là tình trạng học sinh sử dụng mạng xã hội, lên mạng thấy ai làm gì là học theo.
-- Một số phụ huynh ở huyện Thanh Chương, Nghệ An cho con nghỉ học, thậm chí đưa con lên đứng trước trụ sở UBND tỉnh để phản đối việc sáp nhập trường.
-- Tỉnh Quảng Nam yêu cầu các Sở tham mưu, đề xuất các nội dung liên quan Trường cao đẳng Y tế Quảng Nam, đặc biệt về công tác nhân sự.
-- TP.HCM thí điểm thực hiện học bạ số với toàn bộ học sinh lớp 1 của thành phố năm học 2023-2024 này.
-- Trường quốc tế Mỹ (AISVN) vừa có phản hồi thắc mắc của phụ huynh học sinh liên quan đến việc kết thúc năm học sớm 1 tháng.
-- Ở nhiều trường đại học đào tạo khối ngành sức khỏe, học phí cho khóa tuyển sinh năm nay chỉ được công bố chung chung, không có con số cụ thể.
-- Mạng xã hội đang xôn xao trước ảnh chụp bãi giữ xe của một trường đại học ở TP.HCM có cắm tấm bảng ‘khu vực để xe nợ môn’.
-- Theo Bộ GD-ĐT, năm học 2023 - 2024 cả nước thiếu 118.235 giáo viên các cấp. So với năm học trước, số giáo viên thiếu tăng thêm 11.308 người.
-- 8h30 chủ nhật 21-4, chương trình tư vấn tuyển sinh đặc biệt dành cho phụ huynh chủ đề 'Cùng con chọn trường' sẽ diễn ra tại ĐH Kinh tế TP.HCM.
-- Sáng nay 16-4, Đại học Quốc gia TP.HCM chính thức mở cổng đăng ký dự thi đánh giá năng lực đợt 2 năm 2024.
-- Tối 15-4, Công an thị xã Bình Long (Bình Phước) tiếp tục làm rõ vụ nữ sinh lớp 12 tổn thương nội sọ, trầm cảm nặng nghi bị bạn cùng lớp đánh.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Đúng 9 năm kể từ khi bắt đầu giải phóng mặt bằng và khởi công (tháng 4-2015), đường Lương Định Của (TP Thủ Đức) kết nối cửa ngõ phía đông với trung tâm TP.HCM vẫn… dang dở.
-- Luật Kinh doanh bất động sản (sửa đổi) không cho phân lô, bán nền tại 105 thành phố, thị xã sẽ tác động nhất định đến thị trường.
-- Sáng 18-4 (tức mùng 10 tháng 3 âm lịch), Thủ tướng Phạm Minh Chính cùng đại diện lãnh đạo Đảng, Nhà nước và tỉnh Phú Thọ dâng hương giỗ Tổ Hùng Vương 2024. Tại Khu di tích lịch sử Đền Hùng, trời đổ mưa rào.
-- Một số tin tức đáng chú ý: Loạt 'ông lớn' ô tô sụt giảm thị phần; Cảnh báo lừa đảo qua điện thoại với chiêu trò tặng quà do đóng bảo hiểm y tế lâu năm; Bệnh tay chân miệng và sốt xuất huyết ở TP.HCM gia tăng...
-- Lợi dụng chủ nhà sơ hở, một nghi phạm đi ô tô bịt kín mặt đã lao vào một tiệm vàng dùng búa đập vỡ kính để lấy tài sản rồi tẩu thoát.
-- Nhân dịp giỗ Tổ Hùng Vương (mùng 10 tháng 3 âm lịch), nhiều bảo tàng tại TP.HCM miễn phí vé tham quan trong ngày hôm nay 18-4.
-- Hôm nay thời tiết Bắc Bộ sáng sớm có mưa kèm dông, Nam Bộ nắng nóng gay gắt đến đặc biệt gay gắt.
-- Tối 17-4, ban tổ chức Tay Ho Half Marathon ra thông báo mới nhất tình hình sức khỏe của vận động viên bị ngừng tim khi tham gia giải chạy này.
-- Hàng vạn người có mặt tại các tuyến đường xung quanh công viên Văn Lang (tỉnh Phú Thọ) chiêm ngưỡng màn bắn pháo hoa nhân dịp giỗ Tổ Hùng Vương.
-- Hàng chục hộ dân thôn Vĩnh An ra chặn đường liên thôn ngăn không cho xe tải chở vật liệu vào thi công cao tốc Cam Lộ - Vạn Ninh vì bụi bặm, mất an toàn.
-- Giải thích câu hỏi về 'nhạc thiêng', đơn vị tổ chức sự kiên nghệ thuật này cho biết "nhạc thiêng" là những bài hát đạo hiếu, nói về ba mẹ...
-- Người dân thắc mắc vì sao 9 căn bungalow ở xã Hàm Ninh, các căn biệt thự tại khu 79 căn biệt thự ở xã Dương Tơ, Phú Quốc còn tồn tại?
-- Bộ trưởng Tô Lâm đã chủ trì buổi làm việc với Ban Thường vụ Tỉnh ủy Tây Ninh về việc công bố quyết định kiểm tra công tác bảo vệ chính trị nội bộ.
-- Anh Đ.N.A. (cha bé gái Đ.T.N.L.) cho biết trong trường hợp các yếu tố liên quan việc con gái anh bị xâm hại được cơ quan điều tra khẳng định, anh cảm thấy không thể chấp nhận hay tha thứ cho nghi can.
-- Nhiều người ở TP Tuy Hòa đang bàn tán xôn xao trước poster quảng bá của sự kiện nghệ thuật có tên "Đại hội nhạc thiêng đặc biệt - Những hóa thân số 4".
-- Chuyên gia an ninh mạng cảnh báo nhiều người mắc sai lầm khi lưu mật khẩu, tài khoản Facebook, ngân hàng trên điện thoại.
-- Bãi cỏ bông lau tại khu đô thị Đại học Quốc gia TP.HCM (còn gọi là làng đại học) đua nhau 'bung lụa' đẹp mê hồn.
-- Không ai ngờ người thợ hồ tại xã Cửa Cạn (TP Phú Quốc) ấy lại là kẻ giết người. Và người này vừa bị tòa tuyên án chung thân sau 24 năm lẩn trốn.
-- Chủ tịch Quốc hội Vương Đình Huệ cho biết dự kiến kỳ họp thứ 7 sẽ xem xét nhiều nội dung quan trọng.
-- UBND TP Thủ Đức kêu gọi đầu tư 11 dự án theo hình thức đối tác công tư (PPP) với hơn 2.000 tỉ đồng.
-- Với hành động dũng cảm cứu người lao vào đoàn tàu đang chạy vun vút, nhân viên gác chắn ở Đồng Nai được trao tặng bằng khen của chủ tịch tỉnh.
-- Độ mặn 4‰ tiến sâu trên sông Vàm Cỏ Đông và Vàm Cỏ Tây lần lượt 72km, 86km. Long An công bố xâm nhập mặn thuộc rủi ro thiên tai cấp độ 4.
-- Theo Bộ trưởng Nguyễn Văn Thắng, cao tốc Gia Nghĩa - Chơn Thành có quy mô 6 làn xe, chiều dài hơn 128km, tổng mức đầu tư khoảng 25.540 tỉ đồng.
-- Xe khách giường nằm đang chạy trên tuyến cao tốc TP.HCM - Trung Lương thì bất ngờ bốc cháy dữ dội từ phía đuôi xe.
-- Cao tốc Hòa Liên - Túy Loan đi qua Đà Nẵng mới bàn giao mặt bằng khoảng 50% trong tổng số 11,5km. Lãnh đạo Đà Nẵng yêu cầu phấn đấu hoàn thành giải phóng mặt bằng trước ngày 31-5.
-- Sông Trường Giang, con sông dài hơn 60km chạy dọc theo bờ biển ở Quảng Nam, ở hai đầu bắc nam, sông đều thông với biển, không có thượng nguồn và chẳng có hạ lưu.
-- 5 phó giám đốc cùng các trưởng, phó phòng, chuyên viên được cử về hai huyện Gio Linh, Vĩnh Linh để giúp đẩy nhanh tiến độ giải phóng mặt bằng cao tốc Cam Lộ - Vạn Ninh.
-- Chiều 17-4, giá xăng E5 RON 92 được điều chỉnh tăng 380 đồng/lít, còn xăng RON 95 tăng 410 đồng.
-- Làm việc với Ủy ban Quốc phòng và An ninh của Quốc hội, phó giám đốc Công an Quảng Trị đề nghị Quốc hội có chiến lược tổng thể, giải pháp căn cơ, khoa học và thực tiễn với phân luồng cao tốc Cam Lộ - La Sơn.
-- Ngày 17-4, Tuổi Trẻ có mặt tại Km199 cao tốc Vĩnh Hảo - Phan Thiết ở xã Hồng Liêm, huyện Hàm Thuận Bắc, tỉnh Bình Thuận, ghi nhận chủ đầu tư làm trạm dừng nghỉ tạm.
+- Ông Trần Anh Tuấn - phó chủ tịch tỉnh - được giao điều hành Trường cao đẳng Y tế Quảng Nam sau khi hiệu trưởng trường này bị khởi tố.
+- Tin tức đáng chú ý: Hai bệnh viện phối hợp cứu sản phụ bệnh tim nặng và em bé sơ sinh; Tỉ giá ảnh hưởng nhập khẩu, nhiều doanh nghiệp chần chừ chưa tăng cường nhập nguyên liệu; Bình Dương có 5 thành phố, là địa phương nhiều thành phố nhất nước...
+- Sau một ngày có mưa, thời tiết Bắc Bộ nắng nóng trở lại. Nam Bộ vẫn nắng gay gắt.
+- Hàng vạn người cùng đổ về thị xã Cửa Lò, Nghệ An xem trình diễn drone và bắn pháo hoa trong lễ khai mạc Lễ hội du lịch Cửa Lò tối 18-4.
+- UBND tỉnh Hưng Yên vừa có quyết định xử phạt vi phạm hành chính về bảo vệ môi trường với Công ty TNHH sản xuất Sweet Land - Tex vì hành vi xả thải trái phép.
+- Trong hai ngày qua ở một số huyện miền núi của tỉnh Quảng Nam liên tục xảy ra mưa lớn, dông lốc kèm theo mưa đá.
+- Ớt rớt giá thê thảm, chỉ còn 4.000 - 7.000 đồng/kg. Người trồng ớt ở dọc sông Trà Khúc đoạn qua TP Quảng Ngãi phải mang ớt ra vỉa hè đường Trường Sa phơi. Con đường đẹp nhất nhì tỉnh Quảng Ngãi phủ màu đỏ của ớt.
+- Không chỉ học sinh chuẩn bị vào lớp 6, học sinh lớp 3 cũng được yêu cầu khai thông tin. Phụ huynh bối rối không biết ghi thông tin nơi sinh, quê quán sao cho đúng.
+- Tối 18-4, Công an tỉnh Bình Thuận đang phối hợp, huy động lực lượng khám nghiệm hiện trường và tổ chức truy tìm nghi phạm vừa cướp tiệm vàng trên đường Trần Hưng Đạo, TP Phan Thiết.
+- Nhiều vùng trồng cà phê, hoa màu của người dân các tỉnh Tây Nguyên đã cháy sém, nông dân gồng mình trong nắng nóng, tìm nước tưới cho cây trồng.
+- Năm 2024, gần 1 triệu người cao tuổi (60 tuổi trở lên) tại TP.HCM sẽ được thăm khám sức khỏe miễn phí.
+- Lực lượng tìm kiếm cứu nạn của tỉnh Lai Châu đang tích cực tìm kiếm hai phụ nữ mất tích sau vụ lật thuyền trên hồ thủy điện Sơn La.
+- Ban Chỉ đạo yêu cầu các địa phương nghiên cứu kỹ lưỡng, thấu đáo, thận trọng, hợp tình, hợp lý, có giải pháp thực hiện bảo đảm sự đồng thuận, thống nhất của người dân khi đặt tên xã, phường mới sau sáp nhập.
+- Ban Quản lý dự án đầu tư xây dựng hạ tầng đô thị TP.HCM đã gửi công văn yêu cầu Tập đoàn Thuận An phản hồi khả năng tiếp tục hợp đồng gói thầu.
+- UBND quận 5 đang tiến hành thủ tục cưỡng chế thu hồi khu đất vàng trị giá hàng nghìn tỉ đồng bỏ hoang, được Vinataba mang góp vốn vào Công ty TNHH Vina Alliance.
+- Ngày 18-4, chị T.T., một trong gần trăm công nhân Công ty cổ phần dệt Hòa Khánh (Đà Nẵng), cho biết đã bật khóc khi hay tin công ty cũ đóng tiền nợ 9 tháng bảo hiểm cho công nhân.
+- Lãnh đạo UBND tỉnh Nghệ An và Thanh Chương từng đối thoại, giải đáp những kiến nghị của phụ huynh về chủ trương sáp nhập trường.
+- Nắng nóng kéo dài, gần 1.900 hộ dân ở Bình Phước thiếu nước sinh hoạt và hơn 9.000ha cây trồng thiếu nước tưới tiêu.
+- Đà Nẵng ủy quyền quận huyện quyết định hỗ trợ người dân bị thu hồi đất trong thời gian từ nay đến hết năm.
+- UBND tỉnh Lâm Đồng phải ra văn bản nhắc lại, yêu cầu Hoàn Cầu Đà Lạt ngừng kinh doanh tại Dinh 1 lập tức. Tuy nhiên, hoạt động kinh doanh tại đây vẫn diễn ra.
+- Ban quản lý đường sắt đô thị TP.HCM vừa có báo cáo gửi Sở Giao thông vận tải TP.HCM về gói thầu di dời, đốn hạ cây xanh để làm tuyến metro số 2.
+- Nhóm thanh niên lên kế hoạch dàn cảnh lấy tài sản của du khách ở Phong Nha - Kẻ Bàng.
+- Tập đoàn Thuận An hiện đang thi công một số gói thầu thuộc dự án hạ tầng giao thông, đô thị tại TP.HCM.
+- Đến nay đã 26 năm (tính từ thời điểm Thủ tướng giao đất dự án) và 23 năm kể từ khi khách hàng mua nền, dự án khu biệt thự An Khánh (TP Thủ Đức, TP.HCM) vẫn thiếu đường đi vào.
+- Lễ hội bánh dân gian Nam Bộ trong ngày đầu tiên sau khai mạc với điểm nhấn là đổ chiếc bánh xèo 'siêu to khổng lồ' và đãi miễn phí cho du khách.
+- Đường dây mua bán, vận chuyển số lượng ma túy dạng thuốc lắc lớn nhất từ trước đến nay trên địa bàn Đà Nẵng vừa bị triệt phá.
+- Chỉ trong vòng 6 giây, Nguyễn Minh Toàn đã lao vào phá tủ kính tiệm vàng lấy đi 16 kiềng vàng trị giá khoảng 190 triệu đồng rồi lên xe tẩu thoát.
+- Bất chấp trời mưa rào từ sáng, nhưng hàng vạn người dân, du khách thập phương vẫn về Đền Hùng (Phú Thọ), dâng hương trong ngày giỗ Tổ 10-3 âm lịch.
+- Cơ quan khí tượng cho biết nắng nóng vẫn là thời tiết chủ đạo hôm nay, mưa dông tại TP.HCM có 40% khả năng xảy ra.
+- Hai xe tải hạng nặng "đấu đầu" trên đường Hồ Chí Minh nhánh đông qua Quảng Trị. Một tài xế tử vong nhưng mắc kẹt trong cabin và phải nhờ lực lượng cứu hộ cắt cabin mới đưa được ra ngoài.
 ![New](News.png)
 ## Nhịp sống số 
+- Việc đầu tư khoảng 1 tỉ USD để đào tạo 50.000 kỹ sư bán dẫn sẽ gián tiếp tạo nguồn thu 15 - 16 tỉ USD cho nền kinh tế.
 - Đại diện Cục Bản quyền tác giả nói môi trường số là môi trường xuyên biên giới, nên nạn đánh cắp bản quyền càng nghiêm trọng, khó giải quyết.
 - Những thông tin bị đánh cắp có thể bao gồm thông tin đăng nhập vào nền tảng mạng xã hội, dịch vụ ngân hàng trực tuyến, ví điện tử, hệ thống nội bộ và email doanh nghiệp.
 - TP.HCM thí điểm thực hiện học bạ số với toàn bộ học sinh lớp 1 của thành phố năm học 2023-2024 này.
@@ -94,5 +95,4 @@
 - Nhà mạng FPT Telecom ra mắt gói cước F-Game với tốc độ internet vượt trội nhằm đáp ứng nhu cầu của cộng đồng game thủ.
 - Nhiều sinh viên không khỏi ngạc nhiên và gọi trải nghiệm tại Galaxy Campus Tour là "trải nghiệm phải thử một lần trong đời và không thể bỏ lỡ".
 - Theo Anthropic, Claude 3 Opus hiện là chatbot mạnh nhất, vượt trội phiên bản mới nhất của ChatGPT và Gemini 1.0 Ultra của Google.
-- Sáng 1-3, tại Trường đại học Công nghệ, Đại học Quốc gia Hà Nội diễn ra khai mạc chung kết thi lập trình sinh viên quốc tế ICPC châu Á - Thái Bình Dương 2024.
 ![life](Life.png)
