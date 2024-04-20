@@ -1,6 +1,13 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Huyện đã yêu cầu công an xem xét xử lý phụ huynh xông vào trường tát cô giáo, sau khi đã xử lý hành vi cô giáo đánh học sinh.
+- Cô giáo đánh học sinh đã bị kỷ luật, chuyển sang trường khác. Phụ huynh đến tát cô giáo, yêu cầu cô giáo phải đến nhà xin lỗi trực tiếp.
+- Với những khuyết điểm, vi phạm trong quản lý tài chính, hiệu trưởng Trường tiểu học Kim Liên đã bị cách chức bí thư chi bộ nhiệm kỳ 2022 - 2025.
+- Trước khi bước vào hội thi Lớn lên cùng sách, 200 học sinh từ lớp 6 đến lớp 9 ở TP.HCM đã được trải nghiệm mua sách tặng bạn ở Cần Giờ.
+- Ngoài Tập đoàn DMH Capital Group, nhiều khả năng còn có thêm nhà đầu tư khác dự định đầu tư tái cấu trúc Trường quốc tế AISVN.
+- Đề xuất cải tiến lương giáo viên là nỗ lực được Bộ GD-ĐT xem như giải pháp quan trọng để ngăn tình trạng giáo viên nghỉ việc, thu hút người giỏi.
+- Phụ huynh bức xúc việc học sinh Trường tiểu học và trung học cơ sở Hiệp Hòa, huyện Vũ Thư, tỉnh Thái Bình phải đến trường ngày nghỉ lễ giỗ Tổ.
 - Ông Trần Anh Tuấn - phó chủ tịch tỉnh - được giao điều hành Trường cao đẳng Y tế Quảng Nam sau khi hiệu trưởng trường này bị khởi tố.
 - Nhiều trường ĐH lớn bắt đầu nhận hồ sơ xét tuyển học bạ THPT cho mùa tuyển sinh ĐH năm nay.
 - Không chỉ học sinh chuẩn bị vào lớp 6, học sinh lớp 3 cũng được yêu cầu khai thông tin. Phụ huynh bối rối không biết ghi thông tin nơi sinh, quê quán sao cho đúng.
@@ -24,45 +31,38 @@
 - 250 học sinh lớp 10, 11 Trường THCS - THPT Hai Bà Trưng, TP.HCM đã có một buổi học môn giáo dục địa phương ở ngoài sân trường đầy hào hứng, lý thú.
 - Nhiệt độ thực tế ở TP.HCM có ngày lên gần 40 độ, sinh viên chật vật qua mùa nóng sao cho vừa mát, vừa… tiết kiệm.
 - Ngày 17-4, Sở Giáo dục và Đào tạo Hà Nội khởi động chương trình ôn thi tốt nghiệp THPT trên app HANOION dành cho học sinh lớp 12.
-- Nhóm ngành công nghệ thông tin có rất nhiều trường đại học đào tạo. Học phí các trường có sự chênh lệch rất lớn.
-- Trường trung học cơ sở IQ School phải chuyển trường cho số học sinh lớp 6 đã trúng tuyển, hoặc hủy bỏ quyết định trúng tuyển, trả lại học phí nếu không chuyển được.
-- Ngày 17-4, Sở Giáo dục và Đào tạo Hà Nội công bố chỉ tiêu lớp 10 cho các trường tư thục năm học 2024-2025.
-- Sở Giáo dục và Đào tạo Hà Nội vừa giao kế hoạch chỉ tiêu lớp 10 năm học 2024-2025 cho các trường THPT công lập và công lập tự chủ.
-- Nhiều trường phổ thông ngoài công lập tại TP.HCM chưa được giao chỉ tiêu tuyển sinh lớp 10 vì chưa thực hiện đúng quy định.
-- Bộ Giáo dục và Đào tạo vừa ban hành kế hoạch tuyển sinh đại học và tuyển sinh cao đẳng ngành giáo dục mầm non năm 2024, với chi tiết các mốc thời gian xét tuyển.
-- Hiện có 105 cơ sở giáo dục đăng ký sử dụng kết quả kỳ thi đánh giá năng lực của Đại học Quốc gia TP.HCM để xét tuyển.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Ông Trần Anh Tuấn - phó chủ tịch tỉnh - được giao điều hành Trường cao đẳng Y tế Quảng Nam sau khi hiệu trưởng trường này bị khởi tố.
-- Tin tức đáng chú ý: Hai bệnh viện phối hợp cứu sản phụ bệnh tim nặng và em bé sơ sinh; Tỉ giá ảnh hưởng nhập khẩu, nhiều doanh nghiệp chần chừ chưa tăng cường nhập nguyên liệu; Bình Dương có 5 thành phố, là địa phương nhiều thành phố nhất nước...
-- Sau một ngày có mưa, thời tiết Bắc Bộ nắng nóng trở lại. Nam Bộ vẫn nắng gay gắt.
-- Hàng vạn người cùng đổ về thị xã Cửa Lò, Nghệ An xem trình diễn drone và bắn pháo hoa trong lễ khai mạc Lễ hội du lịch Cửa Lò tối 18-4.
-- UBND tỉnh Hưng Yên vừa có quyết định xử phạt vi phạm hành chính về bảo vệ môi trường với Công ty TNHH sản xuất Sweet Land - Tex vì hành vi xả thải trái phép.
-- Trong hai ngày qua ở một số huyện miền núi của tỉnh Quảng Nam liên tục xảy ra mưa lớn, dông lốc kèm theo mưa đá.
-- Ớt rớt giá thê thảm, chỉ còn 4.000 - 7.000 đồng/kg. Người trồng ớt ở dọc sông Trà Khúc đoạn qua TP Quảng Ngãi phải mang ớt ra vỉa hè đường Trường Sa phơi. Con đường đẹp nhất nhì tỉnh Quảng Ngãi phủ màu đỏ của ớt.
-- Không chỉ học sinh chuẩn bị vào lớp 6, học sinh lớp 3 cũng được yêu cầu khai thông tin. Phụ huynh bối rối không biết ghi thông tin nơi sinh, quê quán sao cho đúng.
-- Tối 18-4, Công an tỉnh Bình Thuận đang phối hợp, huy động lực lượng khám nghiệm hiện trường và tổ chức truy tìm nghi phạm vừa cướp tiệm vàng trên đường Trần Hưng Đạo, TP Phan Thiết.
-- Nhiều vùng trồng cà phê, hoa màu của người dân các tỉnh Tây Nguyên đã cháy sém, nông dân gồng mình trong nắng nóng, tìm nước tưới cho cây trồng.
-- Năm 2024, gần 1 triệu người cao tuổi (60 tuổi trở lên) tại TP.HCM sẽ được thăm khám sức khỏe miễn phí.
-- Lực lượng tìm kiếm cứu nạn của tỉnh Lai Châu đang tích cực tìm kiếm hai phụ nữ mất tích sau vụ lật thuyền trên hồ thủy điện Sơn La.
-- Ban Chỉ đạo yêu cầu các địa phương nghiên cứu kỹ lưỡng, thấu đáo, thận trọng, hợp tình, hợp lý, có giải pháp thực hiện bảo đảm sự đồng thuận, thống nhất của người dân khi đặt tên xã, phường mới sau sáp nhập.
-- Ban Quản lý dự án đầu tư xây dựng hạ tầng đô thị TP.HCM đã gửi công văn yêu cầu Tập đoàn Thuận An phản hồi khả năng tiếp tục hợp đồng gói thầu.
-- UBND quận 5 đang tiến hành thủ tục cưỡng chế thu hồi khu đất vàng trị giá hàng nghìn tỉ đồng bỏ hoang, được Vinataba mang góp vốn vào Công ty TNHH Vina Alliance.
-- Ngày 18-4, chị T.T., một trong gần trăm công nhân Công ty cổ phần dệt Hòa Khánh (Đà Nẵng), cho biết đã bật khóc khi hay tin công ty cũ đóng tiền nợ 9 tháng bảo hiểm cho công nhân.
-- Lãnh đạo UBND tỉnh Nghệ An và Thanh Chương từng đối thoại, giải đáp những kiến nghị của phụ huynh về chủ trương sáp nhập trường.
-- Nắng nóng kéo dài, gần 1.900 hộ dân ở Bình Phước thiếu nước sinh hoạt và hơn 9.000ha cây trồng thiếu nước tưới tiêu.
-- Đà Nẵng ủy quyền quận huyện quyết định hỗ trợ người dân bị thu hồi đất trong thời gian từ nay đến hết năm.
-- UBND tỉnh Lâm Đồng phải ra văn bản nhắc lại, yêu cầu Hoàn Cầu Đà Lạt ngừng kinh doanh tại Dinh 1 lập tức. Tuy nhiên, hoạt động kinh doanh tại đây vẫn diễn ra.
-- Ban quản lý đường sắt đô thị TP.HCM vừa có báo cáo gửi Sở Giao thông vận tải TP.HCM về gói thầu di dời, đốn hạ cây xanh để làm tuyến metro số 2.
-- Nhóm thanh niên lên kế hoạch dàn cảnh lấy tài sản của du khách ở Phong Nha - Kẻ Bàng.
-- Tập đoàn Thuận An hiện đang thi công một số gói thầu thuộc dự án hạ tầng giao thông, đô thị tại TP.HCM.
-- Đến nay đã 26 năm (tính từ thời điểm Thủ tướng giao đất dự án) và 23 năm kể từ khi khách hàng mua nền, dự án khu biệt thự An Khánh (TP Thủ Đức, TP.HCM) vẫn thiếu đường đi vào.
-- Lễ hội bánh dân gian Nam Bộ trong ngày đầu tiên sau khai mạc với điểm nhấn là đổ chiếc bánh xèo 'siêu to khổng lồ' và đãi miễn phí cho du khách.
-- Đường dây mua bán, vận chuyển số lượng ma túy dạng thuốc lắc lớn nhất từ trước đến nay trên địa bàn Đà Nẵng vừa bị triệt phá.
-- Chỉ trong vòng 6 giây, Nguyễn Minh Toàn đã lao vào phá tủ kính tiệm vàng lấy đi 16 kiềng vàng trị giá khoảng 190 triệu đồng rồi lên xe tẩu thoát.
-- Bất chấp trời mưa rào từ sáng, nhưng hàng vạn người dân, du khách thập phương vẫn về Đền Hùng (Phú Thọ), dâng hương trong ngày giỗ Tổ 10-3 âm lịch.
-- Cơ quan khí tượng cho biết nắng nóng vẫn là thời tiết chủ đạo hôm nay, mưa dông tại TP.HCM có 40% khả năng xảy ra.
-- Hai xe tải hạng nặng "đấu đầu" trên đường Hồ Chí Minh nhánh đông qua Quảng Trị. Một tài xế tử vong nhưng mắc kẹt trong cabin và phải nhờ lực lượng cứu hộ cắt cabin mới đưa được ra ngoài.
+- Trong khi đào dúi ở rừng vầu, một người đàn ông ở tỉnh Lào Cai bị tảng đá lớn sập đè lên người, dẫn đến tử vong.
+- Đêm 19-4, Công an TP Hải Phòng đã tiến hành khai quật nơi chôn cất nhằm phi tang thi thể thiếu nữ 15 tuổi tại vườn nhà dân ở xã An Hồng, huyện An Dương.
+- Tàu du lịch chở 42 khách nước ngoài từ Phnom Penh, Campuchia chạy nhanh trên sông Tiền đã bị phà chở khách sang sông đâm vào thân tàu. Ít nhất 3 người bị thương nặng, trong đó có 1 người bị đứt cả cánh tay.
+- Nhiều người lao động nghỉ việc vẫn cần mẫn mưu sinh nơi góc phố, "gói" giấc mơ trụ lại TP.HCM bằng những phần xôi, bánh mì...
+- Một số tin tức đáng chú ý: Cảnh báo công ty tư vấn chứng khoán không phép; Chủ khách sạn Daewoo Hà Nội hai năm lỗ nghìn tỉ đồng; Bình Dương gom 2.000 thiết bị điện tử giúp người nghèo...
+- Hôm nay thời tiết nắng nóng diễn ra khắp nơi, có nơi nắng ‘như thiêu như đốt’ với nhiệt độ xấp xỉ 40 độ C, nhiệt độ thực còn cao hơn.
+- Hợp đồng thi công xây dựng 10km đường, thuộc dự án thành phần 1 đường cao tốc Khánh Hòa - Buôn Ma Thuột, do liên danh do Công ty cổ phần Tập đoàn Thuận An đứng đầu, được chỉ định thầu có giá hơn 2.078 tỉ đồng.
+- Khoảng 19h tối 19-4, tại khu vực đường Bạch Đằng, Hải Dương xảy ra vụ ô tô Mazda CX5 lao xuống sông Sặt.
+- Với mức giá từ 85.000 - 120.000 đồng/kg, trái vải chín sớm trở thành một trong những loại trái cây nội địa có giá nhất trên thị trường hiện nay.
+- Dù nhiều tiệm vàng đóng cửa nhưng sau khi tăng cường kiểm tra, Cục Quản lý thị trường TP đã phát hiện, tạm giữ một lượng vàng, trang sức có dấu hiệu vi phạm.
+- Sau hơn một tuần chính thức hoạt động (từ ngày 12-4), xe điện du lịch chạy ở khu trung tâm TP.HCM đã bắt đầu thu hút khách đi lại.
+- Ban cán sự đảng UBND tỉnh Gia Lai 2 nhiệm kỳ 2004-2011 và 2011-2016 cùng nhiều đảng viên bị thi hành kỷ luật liên quan các sai phạm trong thời kỳ này.
+- Huyện đã yêu cầu công an xem xét xử lý phụ huynh xông vào trường tát cô giáo, sau khi đã xử lý hành vi cô giáo đánh học sinh.
+- Chiều 19-4, Trung tâm Quản lý giao thông công cộng TP.HCM ra mắt ứng dụng cung cấp thông tin vận tải hành khách công cộng trên nền tảng Zalo (mini app Go!bus).
+- Trưởng Ban Nội chính Trung ương Phan Đình Trạc đã tiếp Bộ trưởng Bộ Tư pháp Trung Quốc Hạ Vinh và đoàn đang thăm, làm việc tại Việt Nam.
+- Nhân chuyến thăm Venezuela của Phó thủ tướng Trần Lưu Quang, hai bên đã ký kết 5 văn kiện hợp tác.
+- Phó bí thư Thường trực Thành ủy TP.HCM cho rằng trong phát triển của TP.HCM, đội ngũ báo chí - xuất bản là lực lượng rất quan trọng.
+- Sau khi Ban Quản lý dự án đầu tư xây dựng hạ tầng đô thị TP.HCM đề nghị làm rõ việc ngưng thi công, Tập đoàn Thuận An đã có phản hồi.
+- Sở Y tế nhận định ca tử vong trùng vào ngày nghỉ lễ, tuy nhiên báo cáo cho thấy việc theo dõi em bé sau sinh, quy trình cấp cứu rất tập trung.
+- Thông tin Đà Nẵng sẽ xây dựng quảng trường ngàn tỉ ở trung tâm đang nhận được nhiều sự quan tâm của bạn đọc.
+- Cơ quan chức năng đã cung cấp các tài liệu liên quan đến diện tích rừng bên trong Đồi Cù Đà Lạt cho Công an tỉnh Lâm Đồng.
+- Chủ tịch Quốc hội Vương Đình Huệ đã ký ban hành nghị quyết Ủy ban Thường vụ Quốc hội về điều chỉnh chương trình xây dựng luật, pháp lệnh năm 2024.
+- Sông Ba chảy qua huyện Ia Pa (Gia Lai), thay đổi dòng chảy đã khoét sâu vào hai bờ, cuốn trôi nhiều diện tích đất sản xuất và đất ở của người dân địa phương.
+- Lãnh đạo phường Đồng Kỵ, Từ Sơn, Bắc Ninh cho biết trên 57 tỉ đồng từ quỹ di tích có từ nguồn bán gỗ quý từ xưa và tiền lãi ngân hàng gửi tiết kiệm.
+- Bảo hiểm xã hội Việt Nam xác định nhiều nhóm Facebook hỗ trợ thanh lý, cầm cố, mua bán sổ bảo hiểm xã hội công khai, có cả số điện thoại liên hệ và đã đề nghị cơ quan chức năng ngăn chặn.
+- Quảng Ngãi thành lập tổ 'gỡ vướng' cho khu kinh tế Dung Quất, nơi các doanh nghiệp trong và ngoài nước đã đăng ký đầu tư gần 18 tỉ USD.
+- Một sản phụ mới đây đã được đỡ đẻ 'mẹ tròn con vuông' ngay trên biển Vân Đồn, tỉnh Quảng Ninh.
+- Cô giáo đánh học sinh đã bị kỷ luật, chuyển sang trường khác. Phụ huynh đến tát cô giáo, yêu cầu cô giáo phải đến nhà xin lỗi trực tiếp.
+- Xe khách chở hàng chục người đang chạy trên cao tốc TP.HCM - Long Thành - Dầu Giây thì bất ngờ bốc cháy dữ dội, toàn bộ xe bị thiêu rụi.
+- UBND tỉnh Quảng Trị giao các sở ngành liên quan đề xuất giải pháp xử lý với 21 trụ điện gió trồng ngoài đất được cấp, nhưng đã quá thời hạn phải báo cáo gần 3 tháng, giải pháp vẫn chưa thấy đâu.
 ![New](News.png)
 ## Nhịp sống số 
 - Việc đầu tư khoảng 1 tỉ USD để đào tạo 50.000 kỹ sư bán dẫn sẽ gián tiếp tạo nguồn thu 15 - 16 tỉ USD cho nền kinh tế.
