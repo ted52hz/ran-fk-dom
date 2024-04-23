@@ -1,6 +1,25 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Mùa tuyển sinh lớp 10 năm 2024, học sinh ở TP.HCM sẽ được đăng ký cùng lúc vào lớp 10 tiếng Anh tích hợp và lớp 10 chuyên Anh mới.
+- Sáng 15-4, trường THPT Hà Đông (Hà Nội) tổ chức lễ trao học bổng du học Canada và tuyên dương học sinh giỏi cho những em có thành tích xuất sắc.
+- Phòng Giáo dục và Đào tạo huyện Cái Bè, tỉnh Tiền Giang cho biết đã nắm được vụ việc gia đình một nam sinh lớp 6 trình báo bị bạn học đánh khi đang trên đường đi học về nhà.
+- Sở Giáo dục và Đào tạo TP.HCM vừa có hướng dẫn cách đăng ký thi tuyển sinh lớp 10 chuyên năm học 2024-2025.
+- Nộp hồ sơ vào Trường đại học Ngoại thương để 'thoát khỏi ù lì, tự ti', Lê Đỗ Thành Trung đã có cú bứt phá ngoạn mục với điểm GPA toàn khóa 3.93/4.0, điểm rèn luyện 100/100.
+- Trường đại học Bách khoa TP.HCM đang khảo sát học viên, sinh viên một số khoa về công tác tổ chức lễ tốt nghiệp đợt tháng 4-2024, sau khi sinh viên phản ứng.
+- Thanh tra tỉnh Nghệ An báo cáo việc các thầy cô mượn đất của trường để ở và cho rằng đó là đất của gia đình là không có cơ sở.
+- Tỉnh Nghệ An sẽ tuyển dụng 2.187 giáo viên mầm non và phổ thông công lập vào biên chế cho năm học 2023-2024.
+- Có nên cho trẻ lớp lá học trước chương trình lớp 1 hay không là câu hỏi gây tranh cãi, thậm chí 'đau đầu' với các bậc phụ huynh.
+- Máy sấy của thầy Hiệp có thể sấy trung bình 100kg sản phẩm/mẻ sấy, một giờ chỉ tốn 0,6 -2,5 kWh điện tùy trời nắng hay mưa.
+- Năm học 2024-2025, nhiều trường tư thục tại TP.HCM thu học phí bậc mầm non trên 300 triệu đồng, có trường vượt 500 triệu đồng/năm.
+- Bước đầu xác định do học sinh lớp 1 quên bài nên cô giáo nóng nảy và đã 'tác động vật lý' nhẹ với em.
+- Trường mầm non Vàng Anh (quận 5, TP.HCM) dự kiến tăng học phí gần 8 triệu đồng/tháng sẽ có gì thay đổi so với trước?
+- Hai luồng quan điểm luôn tồn tại lâu nay ở các bậc phụ huynh về chuyện chuẩn bị cho trẻ vào lớp 1 có cần học chữ trước hay không.
+- Đến nay đã có gần 70 trường công bố điểm sàn xét kết quả kỳ thi đánh giá năng lực Đại học Quốc gia TP.HCM năm 2024, trong đó cao nhất 850 điểm và thấp nhất 450 điểm.
+- Xung quanh chuyện "Trường mầm non công lập ở TP.HCM tính tăng học phí lên gần 8 triệu đồng/tháng", có nhiều ý kiến tranh luận.
+- Kể từ năm 2022, bức tranh về học phí đại học đã bắt đầu có sự thay đổi khi nhiều trường được phép tăng học phí.
+- Trường phổ thông dân tộc bán trú tiểu học và THCS La Pán Tẩn (huyện Mù Cang Chải, Yên Bái) đã đình chỉ một giáo viên để xác minh.
+- Cha mẹ định hướng ngành này nhưng con quyết chọn ngành kia là câu chuyện khá phổ biến của nhiều nhà mỗi khi vào mùa tuyển sinh.
 - Một chàng trai có năng khiếu học vấn đã bị trường đại học danh tiếng ở Trung Quốc từ chối vì lịch sử cực kỳ tàn ác với mèo.
 - Festival sinh viên kiến trúc toàn quốc lần thứ 14 với chủ đề “Huế - tuổi trẻ với di sản” đã khai màn tại TP Huế tối 21-4.
 - Các giáo sư, phó giáo sư trên cả nước sẽ được giới thiệu các nhà giáo, nhà khoa học có uy tín chuyên môn khoa học cao tham gia vào hội đồng giáo sư các cấp.
@@ -12,57 +31,38 @@
 - Sở Giáo dục và Đào tạo TP.HCM vừa yêu cầu các trường mầm non không được dạy trước chương trình lớp 1 cho trẻ lớp lá.
 - Sáng nay 21-4, báo Tuổi Trẻ tiếp tục phối hợp Vụ Giáo dục đại học (Bộ Giáo dục và Đào tạo) tổ chức chương trình tư vấn đặc biệt 'Cùng con chọn trường' dành riêng cho các bậc phụ huynh.
 - Các em học sinh tiểu học, THCS trên địa bàn TP.HCM đã tìm hiểu về đất, đá, hóa thạch khi đi tham quan thực tế tại Trường đại học Khoa học tự nhiên, Đại học Quốc gia TP.HCM.
-- Nữ sinh Lê Thị Bích Đào hoàn thành chương trình đại học trong 3,5 năm, với điểm trung bình chung tích lũy toàn khóa 3.79/4.0, tốt nghiệp loại xuất sắc.
-- Phụ huynh luôn quan tâm đến chuyện con sẽ học ngành nào, chọn trường nào, đặc biệt khi mùa thi cử, tuyển sinh đang sắp bước vào cao điểm.
-- Huyện đã yêu cầu công an xem xét xử lý phụ huynh xông vào trường tát cô giáo, sau khi đã xử lý hành vi cô giáo đánh học sinh.
-- Cô giáo đánh học sinh đã bị kỷ luật, chuyển sang trường khác. Phụ huynh đến tát cô giáo, yêu cầu cô giáo phải đến nhà xin lỗi trực tiếp.
-- Với những khuyết điểm, vi phạm trong quản lý tài chính, hiệu trưởng Trường tiểu học Kim Liên đã bị cách chức bí thư chi bộ nhiệm kỳ 2022 - 2025.
-- Trước khi bước vào hội thi Lớn lên cùng sách, 200 học sinh từ lớp 6 đến lớp 9 ở TP.HCM đã được trải nghiệm mua sách tặng bạn ở Cần Giờ.
-- Ngoài Tập đoàn DMH Capital Group, nhiều khả năng còn có thêm nhà đầu tư khác dự định đầu tư tái cấu trúc Trường quốc tế AISVN.
-- Đề xuất cải tiến lương giáo viên là nỗ lực được Bộ GD-ĐT xem như giải pháp quan trọng để ngăn tình trạng giáo viên nghỉ việc, thu hút người giỏi.
-- Phụ huynh bức xúc việc học sinh Trường tiểu học và trung học cơ sở Hiệp Hòa, huyện Vũ Thư, tỉnh Thái Bình phải đến trường ngày nghỉ lễ giỗ Tổ.
-- Ông Trần Anh Tuấn - phó chủ tịch tỉnh - được giao điều hành Trường cao đẳng Y tế Quảng Nam sau khi hiệu trưởng trường này bị khởi tố.
-- Nhiều trường ĐH lớn bắt đầu nhận hồ sơ xét tuyển học bạ THPT cho mùa tuyển sinh ĐH năm nay.
-- Không chỉ học sinh chuẩn bị vào lớp 6, học sinh lớp 3 cũng được yêu cầu khai thông tin. Phụ huynh bối rối không biết ghi thông tin nơi sinh, quê quán sao cho đúng.
-- Chiều 18-4, ông Lê Hoài Nam, phó giám đốc Sở Giáo dục và Đào tạo TP.HCM, đã giải thích về việc giảm chỉ tiêu tuyển sinh lớp 10 năm 2024 ở trường THPT công lập.
-- Chiều 18-4, Sở Giáo dục và Đào tạo TP.HCM công bố mức học phí của các loại hình trường chuẩn bị tuyển sinh lớp 10 năm 2024.
-- Lãnh đạo UBND tỉnh Nghệ An và Thanh Chương từng đối thoại, giải đáp những kiến nghị của phụ huynh về chủ trương sáp nhập trường.
-- Ngày 17-4, ban giám khảo tiến hành chấm điểm những tác phẩm vòng chung kết hội thi ảnh Tuổi Xanh dành cho học sinh ở TP.HCM.
-- Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) vẫn không thay đổi quyết định tổ chức lễ tốt nghiệp tháng 4-2024 ở hai hội trường A5 và B4, dù sinh viên phản ứng.
-- Nữ sinh trường Ams Lê Hà Anh vừa nhận tin trúng tuyển 14 trường đại học, tất cả đều là ngành kinh tế, trong đó có 3 trường thuộc nhóm Ivy League.
-- 8h30 sáng 21-4, chương trình tư vấn tuyển sinh đặc biệt dành cho phụ huynh, chủ đề "Cùng con chọn trường", được báo Tuổi Trẻ tổ chức tại Đại học Kinh tế TP.HCM (279 Nguyễn Tri Phương, phường 5, quận 10) với sự đồng hành của Tập đoàn VinGroup.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Sáng nay 22-4, Ngân hàng Nhà nước tung 16.800 lượng vàng miếng SJC (tương đương 631kg vàng) ra đấu giá.
-- Tin tức đáng chú ý: Chi phí dự triển lãm khoảng 5-7 tỉ đồng, một số hãng ô tô rút lui vì ít hiệu quả; Ủy ban Thường vụ Quốc hội xem xét kết quả giám sát gói hỗ trợ phục hồi, phát triển; Ca sởi đầu tiên tại Hà Nội, bệnh nhân đã tiêm đủ mũi vắc xin...
-- Hôm nay thời tiết nắng nóng tiếp diễn cả nước, về chiều tối vài nơi mưa rào kèm dông.
-- Em S.A.L. và L.A.C. (sinh năm 2009) đạp xe đi cách nhà gần 500km. Sau khi xác minh, Công an huyện Mai Châu (Hòa Bình) đã đưa hai thiếu niên về bàn giao cho gia đình.
-- Tối 21-4, Công an TP Quy Nhơn (Bình Định) cho biết vừa nhận đơn báo từ một người phụ nữ ở Quy Nhơn rằng mình bị lừa hơn 200 triệu đồng sau khi nhận được tin báo trúng thưởng qua mạng.
-- Liên quan bài viết “Chủ đầu tư nợ tiền, các nút giao cao tốc Phan Thiết - Dầu Giây bị cúp điện”, tối 21-4, Công ty TNHH một thành viên Điện lực Đồng Nai đã phản hồi đến Tuổi Trẻ Online.
-- Tối 21-4, ông Nguyễn Tấn Nghĩa - chủ tịch hội đồng quản trị Công ty cổ phần Môi trường Bình Định - cho biết trong ngày 20 và 21-4, lực lượng cứu hộ bờ biển Quy Nhơn đã cứu bốn người bị đuối nước khi tắm biển.
-- Theo dự báo của cơ quan khí tượng cho thấy dịp nghỉ lễ 30-4 và 1-5, khả năng nhiều địa phương trên cả nước xảy ra nắng nóng, đặc biệt tại miền Trung dự báo nắng nóng trên 40 độ C, thậm chí lên tới 45 độ C.
-- Vé máy bay nội địa đắt đỏ hơn hẳn so với nhiều chặng bay quốc tế, khiến nhiều người tính toán thay đổi điểm du lịch trong nước sang đi nước ngoài như Thái Lan, Malaysia, Trung Quốc.
-- Thủ tướng trăn trở làm sao nâng cấp quốc lộ 4B nhanh nhất để hai tỉnh miền núi Lạng Sơn, Cao Bằng 'có biển', kết nối cụm cảng phía Hải Phòng, Quảng Ninh.
-- Do chủ đầu tư nợ tiền nhiều kỳ nên tại các nút giao của cao tốc Phan Thiết - Dầu Giây đi qua hai tỉnh Đồng Nai, Bình Thuận đã bị các đơn vị điện lực cúp điện.
-- Long An đang tính toán các hướng tuyến để tiếp tục mở rộng quốc lộ 62 lên 6 làn xe sau khi tuyến đường này được Bộ Giao thông vận tải đầu tư nâng cấp, cải tạo.
-- Vào lúc 18h15 chiều nay 21-4, lãnh đạo ngành đường sắt đã chính thức phát lệnh thông tuyến đường sắt qua hầm Bãi Gió sau gần 10 ngày bị sự cố.
-- Liên quan đến vụ cướp tiệm vàng ở TP Phan Thiết, ngày 21-4, tin từ Cơ quan cảnh sát điều tra Công an tỉnh Bình Thuận cho biết đã khởi tố, bắt tạm giam bị can Thái Văn Trường.
-- Dự án đập dâng hạ lưu sông Trà Khúc ban đầu là đập cao su, vốn chỉ 60 tỉ đồng. Sau nhiều lần điều chỉnh, thay đổi công trình thành đập bê tông kết hợp cầu giao thông, vốn cũng đẩy lên 1.500 tỉ đồng.
-- Cùng một dự án mở rộng đường Nguyễn Ảnh Thủ nối dài, đoạn đã xong đường rộng thênh thang, đoạn còn lại đứng hình.
-- 6 thí sinh đậu kỳ thi viên chức 2023 của tỉnh Quảng Ngãi vừa bị UBND tỉnh hủy bỏ kết trúng tuyển.
-- Một tháng tới, nắng nóng có xu hướng gia tăng nhiều hơn tại khu vực Bắc Bộ và miền Trung, còn khu vực Tây Nguyên - Nam Bộ tiếp tục nắng nóng diện rộng.
-- Cao tốc Nha Trang - Cam Lâm thu phí từ ngày 26-4, giá mỗi lượt từ gần 82.000 - 311.000 đồng, khi đi qua hơn 49km đường cao tốc này.
-- Quảng Trị hiện còn tồn 23.196 giấy chứng nhận quyền sử dụng đất (sổ đỏ) tại các địa phương. Cơ quan chức năng sẽ mời người dân đến nhận sổ đỏ và hoàn thành trong năm 2024.
-- Mưa lớn kèm gió lốc xảy ra rạng sáng 21-4 làm sập nhà, khiến em Giàng T.M. (5 tuổi, thôn Phúng Tủng, xã Sủng Trái, Đồng Văn, Hà Giang) tử vong.
-- Nhiều chủ quán ăn uống ở thị xã Bình Minh, tỉnh Vĩnh Long than vãn, đóng cửa do cúp nước liên tục 3 ngày. Nhiều phường dù đã được khắc phục, song nước còn yếu.
-- Lễ 30-4 và 1-5 được nghỉ 5 ngày liên tiếp mở ra ‘cơ hội vàng’ để du khách trong và ngoài nước đến Phú Quốc. Các doanh nghiệp làm du lịch địa phương rộn ràng ưu đãi giá dịch vụ lưu trú, vui chơi 15-20% để thu hút khách nội địa đến chơi lễ.
-- Vụ tai nạn của tàu Hàng Châu là do chạy ẩu hay do trên sông dày đặc sà lan chở cát?
-- Mưa dông lớn đêm 20-4 khiến hơn 400 cây xanh tại Hà Nội gãy đổ, nghiêng ngả. Đến ngày 21-4, toàn TP chưa ghi nhận thiệt hại về người.
-- Địa phương ở Nghệ An lý giải việc đặt tên xã Quỳnh An khi sáp nhập hai xã Quỳnh Đôi và Quỳnh Hậu mang nhiều ý nghĩa, hài hòa.
-- Từ ngày 22-4 sẽ thí điểm cấp phiếu lý lịch tư pháp trên VNeID ở Hà Nội, Thừa Thiên Huế, sau đó nhân rộng toàn quốc.
-- Một người đàn ông vào cửa hàng điện thoại giả vờ mua rồi cướp điện thoại chạy nhưng không thoát khỏi chủ cửa hàng đang bồng con nhỏ.
-- Thủ tướng phát động khởi công cao tốc cửa khẩu Hữu Nghị - Chi Lăng hơn 11.000 tỉ đồng, đoạn cuối cùng của tuyến cao tốc Bắc - Nam phía đông.
-- Dự kiến 17h chiều nay ngành đường sắt tiến hành thông kỹ thuật, thử tải bằng tàu hàng qua hầm Bãi Gió. Nếu ổn định, từ 18h chiều nay toàn bộ các đoàn tàu sẽ đi qua hầm đường sắt từng bị sạt lở phải khắc phục 10 ngày qua.
+- Sau một thời gian đình trệ, nhà thầu Anh Vinh đưa máy móc tới công trường để thi công lại nhưng chủ đầu tư không đồng ý.
+- Trong những tháng tới (tháng 5 đến tháng 7-2024), thời tiết các miền trên cả nước có những chuyển biến rõ rệt.
+- Một số tin tức đáng chú ý: TP.HCM kiểm tra việc tái lập mặt đường dịp lễ; Công ty cổ phần Hoàng Anh Gia Lai vừa có thêm 1.300 tỉ đồng trả nợ; Phát hiện thủ đoạn lừa đảo đi Canada...
+- Hôm nay thời tiết cả nước nắng nóng gay gắt khắp nơi, trời khô hạn, oi bức, chiều tối Bắc Bộ đề phòng mưa dông, gió lốc.
+- Sở Nông nghiệp và Phát triển nông thôn tỉnh Long An đề nghị tăng cường xả nước từ hồ Dầu Tiếng về sông Vàm Cỏ Đông để khống chế ranh mặn, tạo nguồn nước chống hạn mặn.
+- Người đứng đầu Chính phủ Lào - nước đang giữ ghế chủ tịch ASEAN năm 2024 - đã đến Việt Nam, tham dự Diễn đàn Tương lai ASEAN theo lời mời của Thủ tướng Phạm Minh Chính.
+- Liên quan đến vụ tai nạn lao động đặc biệt nghiêm trọng làm 7 người chết ở Công ty cổ phần Xi măng và Khoáng sản Yên Bái, Thủ tướng yêu cầu khẩn trương điều tra, làm rõ nguyên nhân, làm rõ trách nhiệm tổ chức, cá nhân liên quan.
+- Bí thư Tỉnh ủy Yên Bái Đỗ Đức Duy đã tới bệnh viện thăm hỏi 3 nạn nhân bị thương trong vụ tai nạn lao động đặc biệt nghiêm trọng xảy ra tại Công ty cổ phần Xi măng và Khoáng sản Yên Bái.
+- Cơ quan chức năng đang khảo sát, lấy mẫu thí nghiệm 52 mỏ cát ở các tỉnh Vĩnh Long, Tiền Giang và Bến Tre để đề xuất phục vụ cho vành đai 3 TP.HCM.
+- Sở Kế hoạch và Đầu tư Khánh Hòa vừa đề nghị làm thủ tục đi công tác cho 16 cán bộ lãnh đạo, chuyên viên xuất cảnh sang Mỹ xúc tiến đầu tư, kết nghĩa với hai TP Mỹ, học hỏi mô hình kinh đô điện ảnh Hollywood.
+- Theo chuyên gia khí tượng, thời tiết chủ đạo trong 5 ngày nghỉ lễ 30-4 và 1-5 là nắng nóng bao trùm khắp các tỉnh thành trên cả nước.
+- Các đại biểu cho rằng quy hoạch chung và quy hoạch kinh tế xã hội thực tế trùng nhau, chỉ cần một quy hoạch chung giúp giảm bớt phiền hà và kinh phí cho Nhà nước.
+- Đơn vị cấp nước lý giải nguyên nhân hàng trăm hộ dân ở phường Đông Thuận, thị xã Bình Minh, tỉnh Vĩnh Long 4 ngày liên tục gặp tình trạng khuya có nước, nhưng ban ngày cúp nước.
+- Chiều 22-4, Chủ tịch Quốc hội đã góp ý vào một số nội dung dự Luật Địa chất và Khoáng sản tại phiên họp của Ủy ban Thường vụ Quốc hội.
+- Không ít các bệnh nhân lớn tuổi mắc các bệnh mạn tính, đã điều trị ổn định vẫn phải vất vả bắt xe vượt hàng chục km đến bệnh viện thăm khám hằng tháng.
+- Ban quản lý dự án đầu tư xây dựng các công trình giao thông Đà Nẵng xác nhận có tình trạng xe chở đất xử lý sạt trượt từ dự án đường vành đai phía Tây đi ra ngoài khu vực được phê duyệt đổ đất.
+- Ông Phan Thành Được - tài công lái tàu Hàng Châu gây tai nạn khiến 1 người chết, 2 người bị thương - bị khởi tố, bắt tạm giam.
+- Theo Cục Đường bộ Việt Nam, hiện phương án tổ chức giao thông trên cao tốc Cam Lộ - La Sơn chỉ là phương án tạm thời được Bộ Giao thông vận tải phê duyệt.
+- Sau 8 ngày đóng quốc lộ 1 qua đèo Cả (địa phận Phú Yên, Khánh Hòa) để đảm bảo an toàn, khắc phục sự cố sạt lở hầm đường sắt Bãi Gió, từ chiều tối nay đường đèo này hoạt động lại bình thường.
+- Tổng thư ký ASEAN Kao Kim Hourn chia sẻ ông được truyền cảm hứng khi lắng nghe các câu hỏi và đề nghị của thanh niên khu vực trong cuộc đối thoại ở Hà Nội.
+- Hiện tại, mùa mưa bão sắp đến, trong trường hợp thời tiết xấu, mưa lớn và triều cường, các nhà dân dọc theo tuyến kè 1.1 Thanh Đa (gồm 32 hộ dân) có thể sạt lở về phía sông bất cứ khi nào.
+- Để chủ động phòng chống hạn mặn, UBND TP.HCM yêu cầu các địa phương tuyên truyền người dân có hình thức linh hoạt trữ nước ngọt, sử dụng nước tiết kiệm, tránh lãng phí nguồn nước ngọt.
+- 3 thanh niên dắt chó chiếm gốc cây mai anh đào đẹp nhất ở quảng trường Lâm Viên Đà Lạt để thu tiền chụp ảnh bị phạt 1,5 triệu đồng/trường hợp.
+- Một xe Đà Nẵng 2 tháng liên tiếp đứng đầu sổ vi phạm tốc độ theo dữ liệu hộp đen. Một nhà xe khách thì có 17 trong số 20 xe đứng đầu bảng danh sách vi phạm tốc độ.
+- Đã quá hạn cưỡng chế đối với công trình trái phép tòa nhà câu lạc bộ golf Đồi Cù Đà Lạt, nhưng việc cưỡng chế còn dây dưa.
+- Việt Nam đã học được nhiều kinh nghiệm từ Hiệp định Geneve năm 1954, xem đây là cuốn cẩm nang quý báu kể từ đó đến nay.
+- Do thời tiết nắng nóng, số người bị đột quỵ tại 2 tỉnh Bình Định, Phú Yên tăng cao, nhất là người lớn tuổi.
+- Một vụ tai nạn lao động đặc biệt nghiêm trọng xảy ra tại Công ty cổ phần Xi măng và Khoáng sản Yên Bái làm 7 người tử vong.
+- Cựu giám đốc Sở Giáo dục và Đào tạo tỉnh Gia Lai nhận án 12 tháng tù cho hưởng án treo, do sai phạm trong dự án số hóa hồ sơ, bảng điểm học sinh.
+- Trên đường đi học về, 3 học sinh một trường tiểu học tại huyện Cư Kuin (tỉnh Đắk Lắk) rủ nhau xuống hồ tắm và rơi vào vùng nước sâu nên chết đuối.
 ![New](News.png)
 ## Nhịp sống số 
 - Việc đầu tư khoảng 1 tỉ USD để đào tạo 50.000 kỹ sư bán dẫn sẽ gián tiếp tạo nguồn thu 15 - 16 tỉ USD cho nền kinh tế.
