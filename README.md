@@ -1,6 +1,26 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Đang là sinh viên năm cuối chuẩn bị tốt nghiệp tại ĐH Cambridge danh giá, Nguyên Anh đã nhận học bổng tiến sĩ toàn phần tại Viện Công nghệ California (Caltech).
+- UBND quận 8 vừa ban hành kế hoạch huy động trẻ ra lớp và tuyển sinh vào các lớp 1, lớp 6 năm học 2024-2025.
+- Tất cả học sinh của một trường đều đoạt giải trong kỳ thi học sinh giỏi hóa tỉnh Bà Rịa - Vũng Tàu. Sở Giáo dục và Đào tạo tỉnh đã chính thức có những lời giải thích.
+- Việc chuyển đổi Khoa Các khoa học liên ngành thành Trường Khoa học liên ngành và Nghệ thuật là bước chuyển đổi quan trọng, là mảnh ghép còn thiếu trong mô hình tổ chức đại học đa ngành, đa lĩnh vực của Đại học Quốc gia Hà Nội.
+- Một ngôi trường mang tên cố nhạc sĩ tài hoa Trịnh Công Sơn vừa khánh thành và đưa vào sử dụng ở huyện miền núi Nam Đông (Thừa Thiên Huế).
+- Với mỗi lớp học chỉ vỏn vẹn có một hai chiếc quạt nhỏ, 7.000 trường công lập tại Philippines chuyển sang học trực tuyến do thời tiết nắng nóng lên đến 44 độ C.
+- Nhiều người nghĩ rằng ngành giáo dục mầm non chỉ phù hợp với nữ, nên khi một trường đại học công bố thưởng tiền cho thí sinh nam đăng ký vào ngành này đã gây tranh cãi.
+- Nhiều phụ huynh và học sinh ám ảnh với chuyện kẹt xe mỗi khi tan trường. Học sinh phải len lỏi giữa dòng xe đông đúc, rất nguy hiểm.
+- Theo báo cáo của UBND phường Linh Đông (Thủ Đức, TP.HCM), giáo viên có hành vi bạo hành tại lớp mẫu giáo Tí Bo cũng chính là chủ lớp mẫu giáo này.
+- Phụ huynh an tâm khi chọn cho con trại hè kết hợp vui chơi và học tập trải nghiệm, được thiết kế với nội dung phong phú.
+- Trong hơn 50.000 thí sinh tham dự ba đợt thi đánh giá năng lực (HSA) vừa qua của Đại học Quốc gia Hà Nội, thí sinh đạt điểm cao nhất là 129/150, thấp nhất 17/150.
+- Trường đại học Ngoại ngữ - Tin học TP.HCM (HUFLIT) sẽ gặp gỡ thí sinh, phụ huynh trong số phát sóng Khám phá trường học tối nay 24-4.
+- Sáng 24-4, chương trình gặp gỡ Ấn Độ - Việt Nam trong lĩnh vực giáo dục với chủ đề “Đổi mới trong giáo dục: Đào tạo và Hợp tác” đã diễn ra tại quận 1, TP.HCM.
+- Phòng giáo dục quận 5 cho hay Trường mầm non Vàng Anh sẽ được đầu tư theo hướng hiện đại, ngang tầm trường quốc tế.
+- Năm 2022 chỉ có 244/650 thí sinh trúng tuyển các ngành sư phạm Trường đại học Sài Gòn đăng ký hưởng chính sách ưu đãi học phí, sinh hoạt phí.
+- Nhiều trường THCS ở TP.HCM cho học sinh nghỉ 9 ngày dịp lễ 30-4. Tuy nhiên, giáo viên vẫn nghỉ 5 ngày theo đúng quy định.
+- Nhóm học sinh lột áo bạn quay clip và đánh hội đồng một nữ sinh lớp 9 tại Quảng Bình nhập viện bị cho ngừng học một tuần.
+- Hai đoạn video lan truyền trên mạng xã hội thể hiện chủ nhóm lớp mầm non ở TP Thủ Đức dùng tay đánh, ngồi hẳn lên người bé trai rồi nhét thức ăn vào miệng khiến cháu bé khóc thất thanh.
+- Kết quả xét nghiệm học sinh lớp 7 Trường THCS Lê Quý Đôn (quận 3, TP.HCM) không có chất gây nghiện sau khi hút thuốc lá điện tử có biểu hiện chóng mặt, co giật, lơ mơ.
+- Học sinh lớp 12 sẽ bắt đầu 5 ngày thử nghiệm đăng ký dự thi tốt nghiệp THPT năm 2024 từ hôm nay 24-4, theo hình thức trực tuyến.
 - Trường đại học RMIT năm thứ 2 liên tiếp đã giành chiến thắng trong trận chung kết cuộc thi khởi nghiệp từ ý tưởng sáng tạo của sinh viên.
 - Phát hiện một con chim lớn trên cục nóng máy lạnh, học sinh Trường THCS Vân Đồn (quận 4, TP.HCM) đã báo cho nhà trường.
 - Trường đại học Sư phạm - Đại học Đà Nẵng cho biết trường có quyết định thưởng 5 triệu cho sinh viên nam đăng ký học ngành giáo dục mầm non.
@@ -11,60 +31,41 @@
 - Mấy ngày qua, nhiều thí sinh sốt ruột vì không thể truy cập trang web tuyển sinh của Trường đại học Kiến trúc TP.HCM để đăng ký dự thi, đăng ký xét tuyển.
 - Nhiều loại hàng rong từ que cay, cá viên chiên, trà sữa... đến những món đồ không rõ nguồn gốc được bày bán la liệt trước nhiều cổng trường tại TP.HCM.
 - Thời gian qua xảy ra nhiều vụ việc học sinh nhập viện nghi ngộ độc thực phẩm do ăn hàng rong trước cổng trường.
-- Giáo viên thông báo đợt nghỉ lễ sắp tới, trường hợp đặc biệt phải báo cáo lãnh đạo xin phép, còn lại không được về cả cuối tuần, ở lại ôn thi.
-- Thứ trưởng Bộ Giáo dục và Đào tạo Hoàng Minh Sơn nói một số trường đại học tuyển sinh bất chấp, tuyển vượt năng lực đào tạo.
-- Trường đại học Bách khoa TP.HCM vừa có quyết định chính thức về tổ chức lễ tốt nghiệp tháng 4-2024 ở hội trường A5, sau khi khảo sát, lấy ý kiến sinh viên về việc này.
-- Lợi dụng việc sáp nhập trường ở huyện Thanh Chương, Nghệ An, một số người dùng mạng xã hội đưa các thông tin sai sự thật.
-- Thầy Phan Khắc Đáp, giáo viên môn tiếng Anh ở Trường tiểu học Ân Tường Đông (huyện Hoài Ân, tỉnh Bình Định), thiết kế một ứng dụng giúp học sinh "vừa chơi vừa học" tiếng Anh hiệu quả.
-- Công an đang xác minh làm rõ nghi vấn học sinh nhập viện sau khi hút thuốc lá điện tử tại Trường THCS Lê Quý Đôn, quận 3, TP.HCM.
-- Sự phát triển công nghệ, trí tuệ nhân tạo những năm gần đây đã phần nào tác động đến xu thế nghề nghiệp, thu nhập, đời sống của nhiều người.
-- Thầy cô cũng có thể trở thành nạn nhân của bạo lực học đường, với nhiều hình thức và ở các mức độ nghiêm trọng khác nhau nên cũng cần được "chữa lành".
-- Mùa tuyển sinh lớp 10 năm 2024, học sinh ở TP.HCM sẽ được đăng ký cùng lúc vào lớp 10 tiếng Anh tích hợp và lớp 10 chuyên Anh mới.
-- Sáng 15-4, trường THPT Hà Đông (Hà Nội) tổ chức lễ trao học bổng du học Canada và tuyên dương học sinh giỏi cho những em có thành tích xuất sắc.
-- Phòng Giáo dục và Đào tạo huyện Cái Bè, tỉnh Tiền Giang cho biết đã nắm được vụ việc gia đình một nam sinh lớp 6 trình báo bị bạn học đánh khi đang trên đường đi học về nhà.
-- Sở Giáo dục và Đào tạo TP.HCM vừa có hướng dẫn cách đăng ký thi tuyển sinh lớp 10 chuyên năm học 2024-2025.
-- Nộp hồ sơ vào Trường đại học Ngoại thương để 'thoát khỏi ù lì, tự ti', Lê Đỗ Thành Trung đã có cú bứt phá ngoạn mục với điểm GPA toàn khóa 3.93/4.0, điểm rèn luyện 100/100.
-- Trường đại học Bách khoa TP.HCM đang khảo sát học viên, sinh viên một số khoa về công tác tổ chức lễ tốt nghiệp đợt tháng 4-2024, sau khi sinh viên phản ứng.
-- Thanh tra tỉnh Nghệ An báo cáo việc các thầy cô mượn đất của trường để ở và cho rằng đó là đất của gia đình là không có cơ sở.
-- Tỉnh Nghệ An sẽ tuyển dụng 2.187 giáo viên mầm non và phổ thông công lập vào biên chế cho năm học 2023-2024.
-- Có nên cho trẻ lớp lá học trước chương trình lớp 1 hay không là câu hỏi gây tranh cãi, thậm chí 'đau đầu' với các bậc phụ huynh.
-- Máy sấy của thầy Hiệp có thể sấy trung bình 100kg sản phẩm/mẻ sấy, một giờ chỉ tốn 0,6 -2,5 kWh điện tùy trời nắng hay mưa.
-- Năm học 2024-2025, nhiều trường tư thục tại TP.HCM thu học phí bậc mầm non trên 300 triệu đồng, có trường vượt 500 triệu đồng/năm.
-- Bước đầu xác định do học sinh lớp 1 quên bài nên cô giáo nóng nảy và đã 'tác động vật lý' nhẹ với em.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Bộ Y tế đang nghiên cứu đề xuất quy định mức hưởng bảo hiểm y tế 100% cho một số trường hợp được khám, chữa bệnh tại cấp chuyên môn cao hơn mà không cần theo trình tự, thủ tục khám chữa bệnh theo tuyến thông thường.
-- Dự báo trong khoảng từ 30 phút đến 3 giờ tới, vùng mây này gây mưa cho các quận/huyện nội và ngoại thành Hà Nội.
-- Đến mùa khô, Đồng bằng sông Cửu Long lại 'khát' nước. Bài toán thiếu nước, đi tìm nguồn nước đã đặt ra từ nhiều năm nhưng vì sao chưa có lời giải?
-- Hôm nay thời tiết nắng nóng có giảm nhẹ về cường độ, nhiệt độ giảm 1-2 độ C, về chiều tối nhiều nơi có mưa rào đến mưa to.
-- Một số tin tức đáng chú ý: Đảm bảo thuốc điều trị tay chân miệng khi ca bệnh gia tăng; TP.HCM xử nghiêm vi phạm tốc độ, say xỉn dịp lễ 30-4; Sẽ hạn chế xe đi nhiều đường quận 1 phục vụ Giải việt dã truyền thống 30-4...
-- Liên quan vụ 7 công nhân tử vong trong vụ tai nạn lao động tại Nhà máy xi măng Yên Bái, Công an tỉnh này đã khởi tố, bắt tạm giam một nhân viên nhà máy xi măng.
-- Đến 19h30 tối 23-4 tình hình giao thông trên đường Phạm Văn Đồng (TP.HCM) cơ bản ổn định. Trước đó, hàng dài xe nối đuôi nhau nhích từng chút.
-- Dự báo đêm 23 và ngày 24-4, ở Bắc Bộ và Thanh Hóa, Nghệ An có mưa rào và dông rải rác, cục bộ có mưa to.
-- Chiều 23-4, thứ trưởng Bộ Quốc phòng hai nước Việt Nam và Hàn Quốc đồng chủ trì Đối thoại chính sách quốc phòng Việt Nam - Hàn Quốc lần thứ 11.
-- Sở Giao thông vận tải TP.HCM vừa yêu cầu các trung tâm triển khai các giải pháp nhằm đảm bảo tình hình đăng kiểm.
-- Ông Nguyễn Văn Khước, phó chủ tịch tỉnh Vĩnh Phúc và phó giám đốc Sở Tài chính bị Cơ quan điều tra Bộ Công an khởi tố bị can, bắt tạm giam để điều tra hành vi nhận hối lộ từ chủ tịch Tập đoàn Phúc Sơn.
-- Nhiều nông dân tại tỉnh Bến Tre bất chấp khuyến cáo của cơ quan chức năng vẫn gieo sạ lúa vụ 3 và đã có hàng chục héc ta lúa bị chết do nhiễm mặn.
-- Năm 2023 kiều hối chảy về Việt Nam ước đạt khoảng 16 tỉ USD, riêng TP.HCM là khoảng 9,46 tỉ USD, tăng 43,3% so với năm 2022.
-- Dự án hồ thủy lợi không hoàn thành nhưng chủ đầu tư bắt tay với các nhà thầu nâng nghiệm thu khống khối lượng công trình lên hơn 7 tỉ.
-- Chiều 23-4, Sở Giao thông vận tải Thanh Hóa vừa có thông báo về việc tạm dừng khai thác 2 nút giao Đồng Thắng, huyện Triệu Sơn và Thiệu Giang, huyện Thiệu Hóa thuộc đường bộ cao tốc Bắc - Nam phía Đông đoạn Mai Sơn - quốc lộ 45.
-- Ủy ban Tài chính - Ngân sách đề nghị Chính phủ tham khảo xu thế chung để cân nhắc bỏ quy định miễn thuế VAT với hàng hóa nhập khẩu có giá trị nhỏ.
-- Sông Vu Gia (Quảng Nam) có thể thiếu hụt tới 90% tổng lượng nước dòng chảy ảnh hưởng đến Đà Nẵng.
-- Đại diện Cục Cảnh sát giao thông (Bộ Công an) vừa có khuyến cáo giao thông phục vụ lễ kỷ niệm 70 năm chiến thắng Điện Biên Phủ.
-- TP.HCM sẽ tiếp tục phối hợp chặt chẽ với tỉnh Đồng Nai trong quá trình nghiên cứu đầu tư dự án cầu Cát Lái.
-- Bí thư Nguyễn Văn Nên yêu cầu người đứng đầu hành động quyết liệt hơn trong chỉ đạo thực hiện các hoạt động phòng, chống tham nhũng.
-- Doanh thu kinh tế số năm 2023 của ASEAN ước đạt 100 tỉ USD và sẽ tăng gấp 10 lần trong 7 năm tới, cho thấy tiềm năng lớn của khu vực.
-- Hà Nội sẽ tổ chức 6 điểm bắn pháo hoa, với 7 trận địa bắn pháo hoa tầm cao kết hợp pháo hoa tầm thấp dịp kỷ niệm 70 năm Ngày Giải phóng thủ đô.
-- Chiều 23-4, sau 4,5 ngày làm việc, Chủ tịch Quốc hội Vương Đình Huệ đã phát biểu bế mạc phiên họp thứ 32 của Ủy ban Thường vụ Quốc hội.
-- Gần 29.000 tàu cá, chiếm hơn 97% số tàu cá dài hơn 15m ở nước ta, đã được gắn thiết bị giám sát hành trình VMS.
-- Sau khi được một phụ nữ đang ở Mỹ 'nhờ', hai người đàn ông đã đi đập phá ô tô người khác và nay phải lãnh án tù.
-- Cơ quan cảnh sát điều tra khởi tố tổng giám đốc Công ty cổ phần Cao su Đắk Lắk do sai phạm hợp đồng mua bán mủ, giống cây cao su xảy ra năm 2008.
-- Theo lãnh đạo UBND xã Xuân Lai, huyện Yên Bình, Yên Bái, 7 công nhân tử vong trong vụ tai nạn lao động tại Nhà máy Xi măng Yên Bái có 3 người ở xã Xuân Lai, trong đó có 2 anh em ruột.
-- Nhiều loại hàng rong từ que cay, cá viên chiên, trà sữa... đến những món đồ không rõ nguồn gốc được bày bán la liệt trước nhiều cổng trường tại TP.HCM.
-- Nút giao Tân Vạn trên vành đai 3 TP.HCM nối Bình Dương và các tỉnh Đông Nam Bộ trị giá hơn 1.800 tỉ đồng, được đánh giá là một trong những nút giao phức tạp nhất Việt Nam, đã được khởi công.
-- Theo báo cáo của Liên đoàn Lao động tỉnh Yên Bái, vụ tai nạn làm 7 người chết là do sai sót trong thực hiện quy trình vận hành sửa chữa.
+- Thời gian đầu tham gia 'sàn thương mại điện tử', anh N. thấy có tiền hoa hồng trả về nên mừng thầm. Nhưng khi số tiền đến hàng tỉ đồng, anh không thể rút được.
+- Tin tức đáng chú ý: Có 8.000 người đã được ghép thận sau hơn 30 năm triển khai ghép tạng tại Việt Nam; Quý 1 xăng dầu tăng giá 5,4-18,1% so với cùng kỳ.
+- Sau một vài ngày có mưa, thời tiết Bắc Bộ nắng trở lại, còn khu vực từ Thanh Hóa đến Cà Mau nắng nóng gay gắt, có nơi đặc biệt gay gắt.
+- "Phát triển nguồn nhân lực cho công nghiệp bán dẫn là 'đột phá của đột phá' trong đào tạo nhân lực chất lượng cao", Thủ tướng Phạm Minh Chính nhấn mạnh.
+- Cao tốc Cam Lâm - Vĩnh Hảo qua ba tỉnh Khánh Hòa - Ninh Thuận - Bình Thuận sẽ chính thức mở tuyến cho xe lưu thông từ 7h sáng 26-4 tới đây.
+- UBND TP Nha Trang (Khánh Hòa) vừa có quyết định xử phạt ông Nguyễn Tấn Việt - chủ quán Thạnh Sương (số 102 Trần Phú) - 34 triệu đồng.
+- Vừa kết thúc thu hoạch cà phê, Đà Lạt đã tuyển chọn “hoa hậu” cà phê arabica, tìm ra những mẫu cà phê ngon nhất đại diện cho Việt Nam.
+- Có hợp đồng vận chuyển 5 triệu tấn than đá, Công ty Hoành Sơn đề nghị cho xe đầu kéo chạy trên cao tốc Cam Lộ - La Sơn để giảm áp lực quốc lộ 1 và giao than kịp thời cho nhà máy nhiệt điện.
+- Chủ tịch UBND TP.HCM Phan Văn Mãi vừa ký văn bản gửi các chủ tịch UBND tỉnh Long An, Bình Dương, Đồng Nai và Bà Rịa - Vũng Tàu về tình hình triển khai dự án vành đai 4 TP.HCM.
+- Đây là kết luận của Phó thủ tướng Trần Hồng Hà liên quan việc bố trí tái định cư cho các hộ dân bị ảnh hưởng bởi cao tốc Biên Hòa - Vũng Tàu và tuyến giao thông kết nối T1, T2.
+- Cơ quan cảnh sát điều tra Công an tỉnh An Giang vừa yêu cầu cung cấp tài liệu liên quan đến việc khai thác, mua bán khoáng sản tại huyện Tri Tôn.
+- Chiều 24-4, ở xã Lóng Luông, huyện Vân Hồ, tỉnh Sơn La xảy ra mưa đá kéo dài cả tiếng, đá phủ trắng mặt đất. Ở Hòa Bình, Yên Bái, Lào Cai cũng có mưa đá.
+- Hẻm 76/47 Phan Tây Hồ, phường 7, quận Phú Nhuận (TP.HCM) đã nhỏ hẹp lại còn xuống cấp nhiều năm qua. Nay người dân đồng thuận hiến đất để mở rộng.
+- Ngày 24-4, phiên hòa giải lần thứ nhất vụ Công ty cổ phần dệt Hòa Khánh Đà Nẵng nợ tiền lương, trợ cấp thôi việc của 89 người lao động kết thúc nhưng chưa đi đến kết quả.
+- Ông Lê Thanh Nam - giám đốc Sở Tài nguyên và Môi trường Hà Nội - nói sẽ biến bãi rác Nam Sơn thành địa điểm 'check-in' khi trả lời kiến nghị của cử tri.
+- Công an Đà Nẵng vừa bắt nghi phạm thường xuyên kêu gọi quyên góp từ thiện qua việc đăng tải các hình ảnh thương tâm, lừa đảo chiếm đoạt tài sản hàng ngàn người.
+- Công an tỉnh Đắk Nông và Đắk Lắk vừa thực hiện đợt cao điểm đưa người dính bẫy 'việc nhẹ, lương cao' ở nước ngoài hồi hương.
+- UBND TP.HCM vừa có quyết định thành lập hội đồng và tổ giúp việc Hội đồng đánh giá đề án thí điểm chính sách khuyến khích và bảo vệ cán bộ năng động, sáng tạo, dám nghĩ dám làm, dám chịu trách nhiệm vì lợi ích chung theo kết luận 14 của Bộ Chính trị.
+- Giữa lúc nhiều tỉnh tại khu vực ĐBSCL đang quay cuồng ứng phó với tình trạng xâm nhập mặn thì tỉnh Trà Vinh - một địa phương nằm giáp biển và bị ảnh hưởng nặng của tình trạng xâm nhập mặn - vẫn 'sống khỏe'. Vì sao?
+- Đây là vụ việc hai phóng viên tại Hà Nội tố bị hành hung khi đang tác nghiệp đưa tin vụ cháy tại huyện Thanh Trì.
+- Nắng nóng kéo dài tại các tỉnh Tây Nguyên nhiều tháng qua, khiến các vùng trồng cà phê chết cháy trong cơn hạn.
+- Hội thánh Cao Đài Tây Ninh đã tặng 300 phần quà gồm gạo, nước tương, dầu ăn, các nhu yếu phẩm cùng nước lọc cho bà con nghèo ở vùng hạn mặn huyện Gò Công Đông, tỉnh Tiền Giang.
+- Ủy ban Kiểm tra Trung ương quyết định kỷ luật cảnh cáo nguyên chủ tịch tỉnh An Giang Vương Bình Thạnh, khiển trách nguyên chủ tịch tỉnh Sóc Trăng Trần Văn Chuyện.
+- Thấy con chim công có bộ lông màu trắng không thể bay đi được, nên người dân ở TP Thủ Đức đã đem con chim vào nhà rồi giao cho kiểm lâm chăm sóc, cứu hộ.
+- Ở phường Long Phước, TP Thủ Đức (TP.HCM) tồn tại hàng loạt công trình lấn sông, kênh rạch. Trong đó, nổi bật là những khu cắm trại với diện tích lớn, lấn chiếm hết mặt sông.
+- Ủy ban Kiểm tra Trung ương đã quyết định kỷ luật cảnh cáo nguyên chủ tịch tỉnh Vĩnh Phúc Nguyễn Văn Trì và loạt cán bộ của tỉnh này.
+- Ngày 24-4, Bộ Y tế có công văn yêu cầu các bệnh viện trên cả nước chấn chỉnh công tác quản lý chất lượng, an toàn người bệnh và khuyến cáo phòng ngừa sự cố y khoa.
+- Sà lan chìm ở khu vực biển đảo Lý Sơn được xác định, nhưng tàu kéo mất tích, cơ quan chức năng không liên lạc được, chưa thể xác định đã chìm hay gặp sự cố chết máy và trôi đạt.
+- Sau khi Tuổi Trẻ Online phản ánh việc rừng dừa nước tại Hội An bị tàn phá, một cán bộ xã nơi xảy ra vụ việc đã viết đơn xin nghỉ việc. Tuy nhiên thành phố Hội An không chấp thuận, mà yêu cầu chờ kết quả xử lý.
+- Người dân huyện Yên Thành, Nghệ An được một phen thót tim khi thấy mảnh giấy có nội dung 'Con xin lỗi bố mẹ vì áp lực học tập' để cùng đôi dép bên bờ kênh.
 ![New](News.png)
 ## Nhịp sống số 
+- Kết hợp lợi ích của public cloud và các máy chủ vật lý trong một mô hình Hybrid tăng mức độ linh hoạt, khả năng mở rộng và hiệu quả chi phí tối ưu.
 - Galaxy AI trên S24 chưa kịp ngưng sốt thì mới đây, người dùng có cơ hội trải nghiệm những tính năng thông minh trên dòng Galaxy Tab S9.
 - Việc đầu tư khoảng 1 tỉ USD để đào tạo 50.000 kỹ sư bán dẫn sẽ gián tiếp tạo nguồn thu 15 - 16 tỉ USD cho nền kinh tế.
 - Đại diện Cục Bản quyền tác giả nói môi trường số là môi trường xuyên biên giới, nên nạn đánh cắp bản quyền càng nghiêm trọng, khó giải quyết.
@@ -94,5 +95,4 @@
 - Nhóm nghiên cứu đến từ Trường đại học California, Riverside (UCR) phát triển thuật toán giúp gia tăng tốc độ xử lý của máy tính hiện nay lên gấp đôi.
 - Tỉ phú Elon Musk thông báo xAI sẽ biến chatbot Grok thành nguồn mở trong tuần này, chỉ vài ngày sau khi ông kiện OpenAI vì từ bỏ sứ mệnh ban đầu để chạy theo lợi nhuận.
 - Nhà mạng FPT Telecom ra mắt gói cước F-Game với tốc độ internet vượt trội nhằm đáp ứng nhu cầu của cộng đồng game thủ.
-- Nhiều sinh viên không khỏi ngạc nhiên và gọi trải nghiệm tại Galaxy Campus Tour là "trải nghiệm phải thử một lần trong đời và không thể bỏ lỡ".
 ![life](Life.png)
