@@ -1,6 +1,19 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Tối 25-4, Trường đại học Khoa học xã hội và Nhân văn (Đại học Quốc gia TP.HCM) đã chính thức công bố đề án tuyển sinh năm 2024, trong đó có mức thu học phí chương trình đào tạo đại học chính quy khóa 2024-2025.
+- 'Ngày thứ năm hạnh phúc' là ngày học sinh được mặc đồng phục mình yêu thích, mang ba lô, túi đựng sách vở tùy ý và đặc biệt học sinh sẽ có những phút giây 'quẩy' hết mình với bạn bè theo điệu nhạc…
+- Nhiều học sinh ở TP.HCM đã tâm đắc chia sẻ đề văn cuối học kỳ 2 lớp 10 của Trường THPT Nguyễn Thượng Hiền, quận Tân Bình, TP.HCM.
+- Bà Nguyễn Thị Thu Hiền, phó Phòng Giáo dục và Đào tạo TP Thủ Đức, nêu quan điểm về việc lắp camera trong lớp mầm non. Bà cho rằng hình ảnh của trẻ và cô trong lớp là cái gì đó rất riêng tư, cần sự bảo vệ.
+- Nhiều màn đối đầu của những chiếc xe năng lượng mặt trời chỉ được phân biệt thắng thua bằng một vài phân chênh lệch.
+- Ngày 25-4, Sở Giáo dục và Đào tạo có văn bản báo cáo UBND TP.HCM về vụ việc bạo hành học sinh tại lớp mẫu giáo Tí Bo, TP Thủ Đức.
+- Số lượng ngành mới do các trường đại học tự chủ mở tăng vọt trong những năm gần đây. Điều đáng nói là có không ít ngành mới mở năm trước, năm sau đã dẹp.
+- Mong muốn đưa nghệ thuật âm nhạc vào trong công nghệ, nhóm sinh viên Đại học Kinh tế TP.HCM đã chế tạo robot có thể chơi đàn piano.
+- Hơn 100 trường đại học, cao đẳng sử dụng kết quả kỳ thi đánh giá năng lực do Đại học Quốc gia TP.HCM tổ chức năm 2024 để xét tuyển. Việc đăng ký xét tuyển sẽ thực hiện ra sao?
+- Học sinh Trường THPT Marie Curie, quận 3, TP.HCM phản ánh đề văn kiểm tra cuối học kỳ II của khối 10 quá dài và quá khó.
+- Trường mầm non Vàng Anh (đường Nguyễn Trãi, phường 2, quận 5, TP.HCM) đang gây xôn xao khi dự kiến tăng học phí gần 8 triệu đồng/tháng.
+- Nhu cầu chăm sóc sức khỏe của người dân ngày càng cao, sức khỏe - y dược cũng trở thành ngành hot khiến nhiều cơ sở đào tạo xin mở ngành hoặc chuyên đào tạo y khoa.
+- Trường đại học Y khoa Phạm Ngọc Thạch vừa công bố điều chỉnh học phí đại học năm học 2023-2024, giảm mức đóng đối với các ngành đào tạo bác sĩ, dược sĩ.
 - Đang là sinh viên năm cuối chuẩn bị tốt nghiệp tại ĐH Cambridge danh giá, Nguyên Anh đã nhận học bổng tiến sĩ toàn phần tại Viện Công nghệ California (Caltech).
 - UBND quận 8 vừa ban hành kế hoạch huy động trẻ ra lớp và tuyển sinh vào các lớp 1, lớp 6 năm học 2024-2025.
 - Tất cả học sinh của một trường đều đoạt giải trong kỳ thi học sinh giỏi hóa tỉnh Bà Rịa - Vũng Tàu. Sở Giáo dục và Đào tạo tỉnh đã chính thức có những lời giải thích.
@@ -18,51 +31,38 @@
 - Năm 2022 chỉ có 244/650 thí sinh trúng tuyển các ngành sư phạm Trường đại học Sài Gòn đăng ký hưởng chính sách ưu đãi học phí, sinh hoạt phí.
 - Nhiều trường THCS ở TP.HCM cho học sinh nghỉ 9 ngày dịp lễ 30-4. Tuy nhiên, giáo viên vẫn nghỉ 5 ngày theo đúng quy định.
 - Nhóm học sinh lột áo bạn quay clip và đánh hội đồng một nữ sinh lớp 9 tại Quảng Bình nhập viện bị cho ngừng học một tuần.
-- Hai đoạn video lan truyền trên mạng xã hội thể hiện chủ nhóm lớp mầm non ở TP Thủ Đức dùng tay đánh, ngồi hẳn lên người bé trai rồi nhét thức ăn vào miệng khiến cháu bé khóc thất thanh.
-- Kết quả xét nghiệm học sinh lớp 7 Trường THCS Lê Quý Đôn (quận 3, TP.HCM) không có chất gây nghiện sau khi hút thuốc lá điện tử có biểu hiện chóng mặt, co giật, lơ mơ.
-- Học sinh lớp 12 sẽ bắt đầu 5 ngày thử nghiệm đăng ký dự thi tốt nghiệp THPT năm 2024 từ hôm nay 24-4, theo hình thức trực tuyến.
-- Trường đại học RMIT năm thứ 2 liên tiếp đã giành chiến thắng trong trận chung kết cuộc thi khởi nghiệp từ ý tưởng sáng tạo của sinh viên.
-- Phát hiện một con chim lớn trên cục nóng máy lạnh, học sinh Trường THCS Vân Đồn (quận 4, TP.HCM) đã báo cho nhà trường.
-- Trường đại học Sư phạm - Đại học Đà Nẵng cho biết trường có quyết định thưởng 5 triệu cho sinh viên nam đăng ký học ngành giáo dục mầm non.
-- Vòng Sơ kết cuộc thi 'Vẽ tranh cùng AI' nhận tác phẩm dự thi đến hết ngày 29-4-2024.
-- Công an TP Vũng Tàu đã vào cuộc xác minh có hay không việc thầy giáo ở Trường THPT chuyên Lê Quý Đôn, tỉnh Bà Rịa - Vũng Tàu bị tố quấy rối tình dục học sinh.
-- Mỗi học sinh Đài Loan tham dự sẽ đọc một đoạn thơ bằng tiếng Việt và được ban giám khảo cho điểm.
-- Theo đó, trường mầm non có quy mô tối thiểu 9 nhóm, lớp và tối đa 30 nhóm, lớp. Đối với các trường tiểu học, quy mô tối thiểu 10 lớp và tối đa 40 lớp.
-- Mấy ngày qua, nhiều thí sinh sốt ruột vì không thể truy cập trang web tuyển sinh của Trường đại học Kiến trúc TP.HCM để đăng ký dự thi, đăng ký xét tuyển.
-- Nhiều loại hàng rong từ que cay, cá viên chiên, trà sữa... đến những món đồ không rõ nguồn gốc được bày bán la liệt trước nhiều cổng trường tại TP.HCM.
-- Thời gian qua xảy ra nhiều vụ việc học sinh nhập viện nghi ngộ độc thực phẩm do ăn hàng rong trước cổng trường.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Thời gian đầu tham gia 'sàn thương mại điện tử', anh N. thấy có tiền hoa hồng trả về nên mừng thầm. Nhưng khi số tiền đến hàng tỉ đồng, anh không thể rút được.
-- Tin tức đáng chú ý: Có 8.000 người đã được ghép thận sau hơn 30 năm triển khai ghép tạng tại Việt Nam; Quý 1 xăng dầu tăng giá 5,4-18,1% so với cùng kỳ.
-- Sau một vài ngày có mưa, thời tiết Bắc Bộ nắng trở lại, còn khu vực từ Thanh Hóa đến Cà Mau nắng nóng gay gắt, có nơi đặc biệt gay gắt.
-- "Phát triển nguồn nhân lực cho công nghiệp bán dẫn là 'đột phá của đột phá' trong đào tạo nhân lực chất lượng cao", Thủ tướng Phạm Minh Chính nhấn mạnh.
-- Cao tốc Cam Lâm - Vĩnh Hảo qua ba tỉnh Khánh Hòa - Ninh Thuận - Bình Thuận sẽ chính thức mở tuyến cho xe lưu thông từ 7h sáng 26-4 tới đây.
-- UBND TP Nha Trang (Khánh Hòa) vừa có quyết định xử phạt ông Nguyễn Tấn Việt - chủ quán Thạnh Sương (số 102 Trần Phú) - 34 triệu đồng.
-- Vừa kết thúc thu hoạch cà phê, Đà Lạt đã tuyển chọn “hoa hậu” cà phê arabica, tìm ra những mẫu cà phê ngon nhất đại diện cho Việt Nam.
-- Có hợp đồng vận chuyển 5 triệu tấn than đá, Công ty Hoành Sơn đề nghị cho xe đầu kéo chạy trên cao tốc Cam Lộ - La Sơn để giảm áp lực quốc lộ 1 và giao than kịp thời cho nhà máy nhiệt điện.
-- Chủ tịch UBND TP.HCM Phan Văn Mãi vừa ký văn bản gửi các chủ tịch UBND tỉnh Long An, Bình Dương, Đồng Nai và Bà Rịa - Vũng Tàu về tình hình triển khai dự án vành đai 4 TP.HCM.
-- Đây là kết luận của Phó thủ tướng Trần Hồng Hà liên quan việc bố trí tái định cư cho các hộ dân bị ảnh hưởng bởi cao tốc Biên Hòa - Vũng Tàu và tuyến giao thông kết nối T1, T2.
-- Cơ quan cảnh sát điều tra Công an tỉnh An Giang vừa yêu cầu cung cấp tài liệu liên quan đến việc khai thác, mua bán khoáng sản tại huyện Tri Tôn.
-- Chiều 24-4, ở xã Lóng Luông, huyện Vân Hồ, tỉnh Sơn La xảy ra mưa đá kéo dài cả tiếng, đá phủ trắng mặt đất. Ở Hòa Bình, Yên Bái, Lào Cai cũng có mưa đá.
-- Hẻm 76/47 Phan Tây Hồ, phường 7, quận Phú Nhuận (TP.HCM) đã nhỏ hẹp lại còn xuống cấp nhiều năm qua. Nay người dân đồng thuận hiến đất để mở rộng.
-- Ngày 24-4, phiên hòa giải lần thứ nhất vụ Công ty cổ phần dệt Hòa Khánh Đà Nẵng nợ tiền lương, trợ cấp thôi việc của 89 người lao động kết thúc nhưng chưa đi đến kết quả.
-- Ông Lê Thanh Nam - giám đốc Sở Tài nguyên và Môi trường Hà Nội - nói sẽ biến bãi rác Nam Sơn thành địa điểm 'check-in' khi trả lời kiến nghị của cử tri.
-- Công an Đà Nẵng vừa bắt nghi phạm thường xuyên kêu gọi quyên góp từ thiện qua việc đăng tải các hình ảnh thương tâm, lừa đảo chiếm đoạt tài sản hàng ngàn người.
-- Công an tỉnh Đắk Nông và Đắk Lắk vừa thực hiện đợt cao điểm đưa người dính bẫy 'việc nhẹ, lương cao' ở nước ngoài hồi hương.
-- UBND TP.HCM vừa có quyết định thành lập hội đồng và tổ giúp việc Hội đồng đánh giá đề án thí điểm chính sách khuyến khích và bảo vệ cán bộ năng động, sáng tạo, dám nghĩ dám làm, dám chịu trách nhiệm vì lợi ích chung theo kết luận 14 của Bộ Chính trị.
-- Giữa lúc nhiều tỉnh tại khu vực ĐBSCL đang quay cuồng ứng phó với tình trạng xâm nhập mặn thì tỉnh Trà Vinh - một địa phương nằm giáp biển và bị ảnh hưởng nặng của tình trạng xâm nhập mặn - vẫn 'sống khỏe'. Vì sao?
-- Đây là vụ việc hai phóng viên tại Hà Nội tố bị hành hung khi đang tác nghiệp đưa tin vụ cháy tại huyện Thanh Trì.
-- Nắng nóng kéo dài tại các tỉnh Tây Nguyên nhiều tháng qua, khiến các vùng trồng cà phê chết cháy trong cơn hạn.
-- Hội thánh Cao Đài Tây Ninh đã tặng 300 phần quà gồm gạo, nước tương, dầu ăn, các nhu yếu phẩm cùng nước lọc cho bà con nghèo ở vùng hạn mặn huyện Gò Công Đông, tỉnh Tiền Giang.
-- Ủy ban Kiểm tra Trung ương quyết định kỷ luật cảnh cáo nguyên chủ tịch tỉnh An Giang Vương Bình Thạnh, khiển trách nguyên chủ tịch tỉnh Sóc Trăng Trần Văn Chuyện.
-- Thấy con chim công có bộ lông màu trắng không thể bay đi được, nên người dân ở TP Thủ Đức đã đem con chim vào nhà rồi giao cho kiểm lâm chăm sóc, cứu hộ.
-- Ở phường Long Phước, TP Thủ Đức (TP.HCM) tồn tại hàng loạt công trình lấn sông, kênh rạch. Trong đó, nổi bật là những khu cắm trại với diện tích lớn, lấn chiếm hết mặt sông.
-- Ủy ban Kiểm tra Trung ương đã quyết định kỷ luật cảnh cáo nguyên chủ tịch tỉnh Vĩnh Phúc Nguyễn Văn Trì và loạt cán bộ của tỉnh này.
-- Ngày 24-4, Bộ Y tế có công văn yêu cầu các bệnh viện trên cả nước chấn chỉnh công tác quản lý chất lượng, an toàn người bệnh và khuyến cáo phòng ngừa sự cố y khoa.
-- Sà lan chìm ở khu vực biển đảo Lý Sơn được xác định, nhưng tàu kéo mất tích, cơ quan chức năng không liên lạc được, chưa thể xác định đã chìm hay gặp sự cố chết máy và trôi đạt.
-- Sau khi Tuổi Trẻ Online phản ánh việc rừng dừa nước tại Hội An bị tàn phá, một cán bộ xã nơi xảy ra vụ việc đã viết đơn xin nghỉ việc. Tuy nhiên thành phố Hội An không chấp thuận, mà yêu cầu chờ kết quả xử lý.
-- Người dân huyện Yên Thành, Nghệ An được một phen thót tim khi thấy mảnh giấy có nội dung 'Con xin lỗi bố mẹ vì áp lực học tập' để cùng đôi dép bên bờ kênh.
+- Tuổi Trẻ ghi nhận ý kiến của một số đại biểu Quốc hội, chuyên gia xung quanh về một đề xuất phạt nguội với xe máy mới đây.
+- Sáng 26-4, một số nơi của TP.HCM có mưa. Trời cũng âm u, nắng yếu. Vậy hôm nay có mưa to hay không?
+- Một số tin tức đáng chú ý: Mở tổng đài 1900 8099 nhận phản ảnh vi phạm trên cao tốc; Điều chỉnh giao thông qua nút giao An Phú; TP.HCM đã có đầy đủ các loại vắc xin trong chương trình tiêm chủng mở rộng...
+- Tòa án nhân dân tỉnh Quảng Ngãi tuyên bị cáo Trương Đình Nhạt 9 năm tù giam, bị cáo Nguyễn Thị Thủy 3 năm tù giam, dù đại diện viện kiểm sát và luật sư bào chữa đều đề nghị mức án thấp hơn cho vợ chồng đánh shipper gãy 2 tay.
+- Hôm nay thời tiết nắng nóng mở rộng và tăng cường độ trên cả nước, nhiều nơi nóng 39-40 độ C
+- Lực lượng cảnh sát phòng cháy chữa cháy và cứu hộ cứu nạn đã phá cửa cuốn, kịp thời cứu một người đàn ông đang bất tỉnh do mắc kẹt trong đám cháy.
+- Trung ương Đoàn, Hội đồng Đội trung ương tuyên dương 200 đội viên, thiếu nhi xuất sắc trong Liên hoan Chiến sĩ nhỏ Điện Biên toàn quốc lần thứ 5 năm 2024.
+- Khu quản lý đường bộ III (Cục Đường bộ Việt Nam) vừa có văn bản yêu cầu Ban quản lý dự án đường HCM chỉ đạo đơn vị thi công hoàn trả hộ lan và tường rào bảo vệ cao tốc Nha Trang - Cam Lâm sau khi tự ý tháo dỡ để làm trạm dừng nghỉ tạm.
+- Tượng Chủ tịch Hồ Chí Minh với chủ đề 'Bác Hồ về thăm quê' sẽ được đặt tại sân vận động Làng Sen, xã Kim Liên, huyện Nam Đàn, Nghệ An.
+- Nhằm đảm bảo an toàn, hạn chế sự cố ngã cây xanh trước mùa mưa năm 2024, các đơn vị không chỉ cắt tỉa, xử lý nhánh khô mà còn thay thế, loại bỏ các cây xanh mất an toàn.
+- Đến cuối ngày 25-4, lực lượng tìm kiếm tìm thấy hai thi thể vụ lật thuyền vì dông lốc tại thị xã Quảng Yên, tỉnh Quảng Ninh và vẫn đang tìm hai người còn lại.
+- Một nữ sinh lớp 7 ở Trường THCS Đinh Tiên Hoàng (huyện Tây Hòa, Phú Yên) bị phụ huynh bạn học cùng lớp tát nhiều cái trước cổng trường.
+- Theo chuyên gia thời tiết, thống kê 10 năm gần đây cho thấy chưa có năm nào cả ba miền Bắc, Trung và Nam cùng xảy ra nắng nóng trong giai đoạn nghỉ lễ 30-4 và 1-5 như năm nay.
+- Đó là thông tin Phó cục trưởng Cục Quản lý thị trường TP.HCM Nguyễn Quang Huy nêu ra tại họp báo chiều 25-4.
+- Việc gắn chip và đăng ký chăn nuôi chó, mèo với địa phương sẽ giúp giám sát dịch bệnh, dự trù vắc xin và góp phần duy trì thành công TP.HCM là vùng an toàn dịch bệnh động vật.
+- Ban Chỉ đạo phòng chống tham nhũng, tiêu cực An Giang thống nhất đưa ba vụ việc sai phạm về tài chính, đầu tư công vào diện theo dõi, chỉ đạo.
+- Sau khi dạy xong, một cô giáo ở Hà Tĩnh rời khỏi trường ra về thì không may bị tai nạn dẫn đến tử vong.
+- TP.HCM đặt chỉ tiêu giai đoạn 2024-2025 phát triển tối thiểu 68ha công viên công cộng, tối thiểu 4ha mảng xanh công cộng, trồng mới và cải tạo 12.000 cây xanh.
+- Tỉnh ủy Lâm Đồng chỉ đạo xử lý vụ Đồi Cù Đà Lạt đúng luật, đúng hiện trạng sai phạm, phù hợp nguyện vọng của người dân.
+- Các nhà thầu đẩy nhanh thi công cao tốc Bắc - Nam, đoạn Diễn Châu - Bãi Vọt dự kiến sẽ thông xe từ Hà Nội về TP Vinh dịp nghỉ lễ 30-4 và 1-5.
+- Cục trưởng Cục Kiểm tra văn bản quy phạm pháp luật, Bộ Tư pháp nêu nhiều điểm trái pháp luật trong quy chế họp báo do UBND TP Cần Thơ ban hành.
+- Đó là khẳng định từ chủ đầu tư những dự án trọng điểm của TP.HCM có một số gói thầu mà Tập đoàn Thuận An tham gia (sau khi một số lãnh đạo của tập đoàn này bị bắt, điều tra).
+- Bà Nguyễn Thị Thu Hiền, phó Phòng Giáo dục và Đào tạo TP Thủ Đức, nêu quan điểm về việc lắp camera trong lớp mầm non. Bà cho rằng hình ảnh của trẻ và cô trong lớp là cái gì đó rất riêng tư, cần sự bảo vệ.
+- Đến nay hơn 3 tháng kể từ khi một Việt kiều mất, mà đại diện gia đình chưa được giải quyết thủ tục khai tử do các cơ quan chức năng ở TP.HCM chỉ qua chỉ lại.
+- Sau nhiều lần lỗi hẹn thông xe, cầu Trần Hoàng Na bắc qua sông Cần Thơ sẽ chính thức đưa vào khai thác vào sáng 26-4.
+- Sở Nông nghiệp và Phát triển nông thôn tỉnh Tiền Giang nhận định mặn đã đạt đỉnh và đang có xu hướng giảm dần, nên đề nghị Ban Quản lý đầu tư và xây dựng thủy lợi 10 mở cống ngăn mặn Nguyễn Tấn Thành để giải quyết ô nhiễm môi trường.
+- Thông tin từ Bộ Giao thông vận tải ngày 25-4 cho biết trong khi chờ đấu thầu chọn nhà đầu tư trạm dừng nghỉ, các đơn vị liên quan đã bố trí trạm dừng nghỉ tạm trên cao tốc Bắc - Nam phía Đông để phục vụ người dân.
+- Không khí lạnh tương tác với nền nhiệt cao, tạo điều kiện cho vùng mây đối lưu phát triển mạnh và dịch chuyển chậm, nên gây ra mưa đá dày đặc ở Sơn La, Hòa Bình.
+- Vụ chìm sà lan, 4 thi thể được tìm thấy thì có 3 người không nằm trong danh sách thuyền viên đã đăng ký với cơ quan chức năng trước khi xuất bến từ cảng Kỳ Hà (Quảng Nam) đi đảo Lý Sơn (Quảng Ngãi).
+- Thanh tra Bộ Xây dựng yêu cầu Sở Xây dựng tỉnh Lâm Đồng cung cấp các thông tin liên quan vụ xây không phép cụm 22 căn biệt thự ở phía nam Lâm Đồng.
 ![New](News.png)
 ## Nhịp sống số 
 - Kết hợp lợi ích của public cloud và các máy chủ vật lý trong một mô hình Hybrid tăng mức độ linh hoạt, khả năng mở rộng và hiệu quả chi phí tối ưu.
