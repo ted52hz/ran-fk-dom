@@ -1,6 +1,12 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Nhà chức trách Trung Quốc ngày 28-4 cho biết nước này sẽ phát động chiến dịch chống bắt nạt học đường trên quy mô toàn quốc.
+- Trường ĐH Y dược Thái Bình bác tin đồn một lưu học sinh có quan hệ tình cảm vượt quá giới hạn với cán bộ nhà trường.
+- Bộ Lao động - Thương binh và Xã hội đã có trả lời về đề xuất bổ sung giáo viên mầm non vào nghề nặng nhọc, độc hại, nguy hiểm và có thể nghỉ hưu sớm hơn.
+- Liệu đề văn có thật sự quá dài hay do học sinh thiếu kỹ năng đọc bởi thói quen lướt TikTok?
+- Nhiều phụ huynh và sinh viên ở Ký túc xá Đại học Quốc gia TP.HCM lo lắng với thông tin lan truyền trên mạng xã hội việc người thân tìm một sinh viên.
+- Theo Bộ Y tế, đến năm 2023 lĩnh vực đào tạo nhân lực y tế có 66 cơ sở đào tạo trình độ đại học với mỗi năm có hơn 10.000 bác sĩ.
 - Với thành tích 1 huy chương vàng, 5 huy chương bạc và 4 huy chương đồng tại cuộc thi Olympic hóa học quốc tế Mendeleev, Việt Nam xếp hạng ba toàn đoàn, sau đoàn Trung Quốc và Nga.
 - Dù bạn đọc nhiều lần phản ánh nhưng bến xe này vẫn tồn tại ngay cạnh trường tiểu học ở quận 5 (TP.HCM), gây mất an toàn cho học sinh.
 - Sở Giáo dục và Đào tạo TP.HCM vừa công bố danh sách thí sinh giành các giải thưởng chung cuộc tại hội thi sáng tác ảnh Tuổi Xanh năm nay.
@@ -25,44 +31,38 @@
 - Nhiều học sinh ở TP.HCM đã tâm đắc chia sẻ đề văn cuối học kỳ 2 lớp 10 của Trường THPT Nguyễn Thượng Hiền, quận Tân Bình, TP.HCM.
 - Bà Nguyễn Thị Thu Hiền, phó Phòng Giáo dục và Đào tạo TP Thủ Đức, nêu quan điểm về việc lắp camera trong lớp mầm non. Bà cho rằng hình ảnh của trẻ và cô trong lớp là cái gì đó rất riêng tư, cần sự bảo vệ.
 - Nhiều màn đối đầu của những chiếc xe năng lượng mặt trời chỉ được phân biệt thắng thua bằng một vài phân chênh lệch.
-- Ngày 25-4, Sở Giáo dục và Đào tạo có văn bản báo cáo UBND TP.HCM về vụ việc bạo hành học sinh tại lớp mẫu giáo Tí Bo, TP Thủ Đức.
-- Số lượng ngành mới do các trường đại học tự chủ mở tăng vọt trong những năm gần đây. Điều đáng nói là có không ít ngành mới mở năm trước, năm sau đã dẹp.
-- Mong muốn đưa nghệ thuật âm nhạc vào trong công nghệ, nhóm sinh viên Đại học Kinh tế TP.HCM đã chế tạo robot có thể chơi đàn piano.
-- Hơn 100 trường đại học, cao đẳng sử dụng kết quả kỳ thi đánh giá năng lực do Đại học Quốc gia TP.HCM tổ chức năm 2024 để xét tuyển. Việc đăng ký xét tuyển sẽ thực hiện ra sao?
-- Học sinh Trường THPT Marie Curie, quận 3, TP.HCM phản ánh đề văn kiểm tra cuối học kỳ II của khối 10 quá dài và quá khó.
-- Trường mầm non Vàng Anh (đường Nguyễn Trãi, phường 2, quận 5, TP.HCM) đang gây xôn xao khi dự kiến tăng học phí gần 8 triệu đồng/tháng.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Kỷ lục về nắng nóng vừa được thiết lập nhiều nơi ở miền Trung ngày hôm trước đã bị xô đổ ngay lập tức. Nhiều nơi nắng nóng kỷ lục chưa từng có.
-- Tin tức đáng chú ý: Đầu tư mở rộng cao tốc Bắc - Nam phía Đông đoạn La Sơn - Hòa Liên; Nắng nóng gay gắt trên cả nước kéo dài đến ngày 30-4; Xây dựng Phú Quốc trở thành trung tâm du lịch biển đảo tầm cỡ quốc tế...
-- Tối 27-4, hàng ngàn người dân, du khách đã đến quảng trường 2 Tháng 4, TP Nha Trang (Khánh Hòa) để thưởng thức các tiết mục hấp dẫn trong chương trình Liên hoan Jazz quốc tế lần thứ I - Nha Trang 2024 lần đầu tiên được tổ chức tại Việt Nam.
-- Hôm nay thời tiết cả nước tiếp tục nắng nóng, nhiệt độ các tỉnh phía Bắc cao hơn phía Nam.
-- Cơ quan chức năng ra quyết định xử phạt 5 triệu đồng đối với nam TikToker liên quan vụ việc "bị đuổi khỏi quán phở vì ngồi xe lăn". Anh này đồng thời đã xin lỗi trên mạng xã hội.
-- Đội ngũ phân tích chứng khoán Phú Hưng cho rằng một số doanh nghiệp FDI cũng như các ngân hàng thương mại vẫn còn xu hướng găm giữ ngoại tệ khi Fed chưa giảm lãi suất USD.
-- Công an đã mời bốn tài xế liên quan vụ đoàn xe sang đón dâu dừng giữa đường để chụp ảnh. Các tài xế nhận thức được hành vi vi phạm trên là nguy hiểm, gây cản trở an toàn giao thông.
-- Công ty cổ phần Cao tốc Cam Lâm - Vĩnh Hảo cho biết sẽ tạm thời đóng làn đường cao tốc Cam Lâm - Vĩnh Hảo từ 7h sáng đến 18h ngày 28-4 để phục vụ lễ khánh thành.
-- Hàng ngàn người dân và du khách đổ về bãi biển Cửa Lò, Nghệ An trong ngày đầu tiên kỳ nghỉ lễ 30-4 và 1-5.
-- Trung tâm Phát triển hạ tầng kỹ thuật TP Thủ Đức cho biết để làm dự án tăng khả năng kết nối của các nhà ga thuộc metro số 1 và các tuyến xe buýt, 185 cây xanh sẽ được di dời và đốn hạ.
-- Bước đầu, cơ quan chức năng 'giải mã' được vì sao 4 nạn nhân tử vong vụ sà lan chìm ở khu vực biển cách đảo Lý Sơn 3 hải lý lại không có tên trong danh sách 5 thuyền viên đăng ký rời cảng.
-- Chiếc thùng chứa nước đóng chai kèm lời mời shipper lấy chai nước uống cho đỡ mệt tại một quán ăn ở quận 5 (TP.HCM) khiến nhiều người cảm thấy mát lòng dưới tiết trời nắng nóng.
-- Bộ Công an cho biết hiện đang triển khai xây dựng dự án sân bay Gia Bình tại tỉnh Bắc Ninh để phục vụ hoạt động của đơn vị không quân Công an nhân dân.
-- Trường đại học Trà Vinh tiếp đón và làm việc với đoàn công tác Tập đoàn Aquaworks (Hàn Quốc) về việc trao đổi, ký kết ghi nhớ hợp tác khoa học trong lĩnh vực nghiên cứu và phát triển công nghệ nước sạch, lắp đặt thiết bị xử lý nước.
-- Chiều 27-4, một trận động đất mạnh 4 độ (độ lớn M, thang Momen) vừa xảy ra tại khu vực huyện Hàm Yên, tỉnh Tuyên Quang. Người dân ở các tỉnh Yên Bái, Hà Giang cũng cảm nhận được rung lắc.
-- Chiều 27-4, trên đường Võ Nguyên Giáp (TP Thủ Đức) vẫn đang xảy ra tình trạng kẹt xe kéo dài, hàng ngàn xe nối đuôi nhau tạo cảnh 'ken đặc', người dân đi lại khổ sở.
-- Do lượng xe đổ dồn về cao tốc TP.HCM - Long Thành - Dầu Giây quá đông nên cơ quan chức năng đóng mở linh hoạt để phân luồng, tuy nhiên do không thông báo trước khiến nhiều xe vào đường dẫn rồi "chôn bánh" tại chỗ.
-- Sau khi mở rộng, sáp nhập đơn vị hành chính, TP Vinh sẽ có 33 phường, xã, trong đó một số phường sáp nhập sẽ không còn giữ tên cũ.
-- App xe công nghệ tung nhiều chính sách tăng tiền thưởng thu hút tài xế công nghệ tham gia chạy dịp lễ 30-4. Thời tiết nắng nóng, nhiều tài xế tắt app vì khó đạt mức thưởng, khách hàng tốn thêm chi phí nhưng vẫn chờ lâu.
-- Trong ngày đầu tiên kỳ nghỉ lễ 30-4 và 1-5, nắng nóng tiếp tục bao trùm cả nước. Miền Bắc và miền Trung nắng nóng như 'thiêu đốt', nhiều nơi nhiệt độ lên trên 40 độ C.
-- Tổng Thanh tra Chính phủ Đoàn Hồng Phong đã thông tin về đề án tháo gỡ khó khăn, vướng mắc các dự án, đất đai.
-- Trung tâm an ninh hàng không - cảng hàng không quốc tế Đà Nẵng đã bàn giao chiếc túi có hơn 300 triệu cho hành khách để quên ở sân bay Đà Nẵng.
-- TP.HCM cấm xe nhiều tuyến đường khu vực trung tâm quận 1 để bảo đảm trật tự an toàn giao thông phục vụ tổ chức bắn pháo hoa mừng lễ 30-4.
-- Từ ngày 28-4, ô tô không được phép quay đầu ở cầu Bà Dạt (hướng nút giao An Phú đi Đồng Nai) thuộc đường dẫn cao tốc TP.HCM - Long Thành - Dầu Giây trong giờ cao điểm.
-- Con khỉ xuất hiện quậy phá một số nhà dân ở huyện Củ Chi (TP.HCM) vừa bị kiểm lâm bắn gây mê đưa về cứu hộ.
-- Ngày 27-4, hàng chục nhân viên cứu hộ bãi biển chuyên nghiệp trong nước và nước ngoài tham dự hội thi cứu hộ biển quốc tế tại TP Đà Nẵng.
-- Tàu cao tốc từ TP Rạch Giá, TP Hà Tiên đi TP Phú Quốc tăng chuyến chạy phục vụ khách du lịch ra đảo chơi dịp lễ 30-4.
-- Sau gần ba năm thi công, cao tốc Bắc - Nam đoạn Diễn Châu - Bãi Vọt sẽ thông xe tới quốc lộ 46B, Nghệ An vào chiều 28-4.
-- Khởi đầu kỳ nghỉ lễ 30-4, Tân Sơn Nhất bất ngờ thông thoáng. Hình ảnh chen chúc, xếp hàng đông ở khu vực lối vào soi chiếu an ninh đã không còn.
-- Đường Tạ Quang Bửu (quận 8) vừa thông xe sau 23 năm khởi công, nhiều bạn đọc thắc mắc vì sao thời gian làm một đoạn đường gần bằng nửa đời người?
+- Sáng 29-4, Công an tỉnh Đồng Nai cho hay đang yêu cầu kiểm tra, làm rõ vụ người vi phạm leo lên xe xử lý vi phạm giao thông đốt xe máy.
+- Rừng tràm ở xã Vĩnh Phú, huyện Giang Thành từ chiều hôm qua (ngày 28-4) bất ngờ cháy lớn và lan rộng. Lực lượng chức năng địa phương hiện cơ bản khống chế được đám cháy. Do lớp than bùn còn âm ỉ nên khả năng dễ bùng phát cháy lại.
+- Một số tin tức đáng chú ý: Cách tính lương thưởng đi làm dịp lễ; TP.HCM, Long An phối hợp xử lý ô nhiễm kênh rạch; Phá đường dây tội phạm xuyên quốc gia truyền bá văn hóa phẩm đồi trụy...
+- Hôm nay thời tiết nắng nóng lại diễn ra khắp cả nước, nhiệt độ nhích lên thêm, có nơi vượt ngưỡng 42 độ C.
+- Hàng chục cảnh sát và nhiều xe chữa cháy được huy động để dập tắt vụ cháy công ty gỗ trên quốc lộ 13 giáp với TP.HCM. Người đi đường nhìn thấy ngọn lửa được gió thổi sáng rực một góc trời.
+- Hàng trăm người tụ tập về 14 giếng cổ 2.000 năm tuổi ở xã Gio An (Quảng Trị) để tắm giải nhiệt trong những ngày nắng nóng 42 độ C kỷ lục miền Trung.
+- Đám cháy lớn xuất phát tại cửa hàng điện thoại trên đường Lê Văn Thọ, sau đó bùng lên dữ dội, thiêu rụi nhiều tài sản có giá trị lớn bên trong.
+- Cao tốc Cam Lâm - Vĩnh Hảo đi qua 3 tỉnh Khánh Hòa - Ninh Thuận - Bình Thuận, chính thức thông tuyến vào ngày 26-4, tuyến đường có những đoạn chạy băng qua những cánh đồng điện gió ở Ninh Thuận đẹp mê đắm lòng người.
+- Đất cằn Tu Tra đến cây cà phê mít chịu hạn giỏi còn sống lay lắt, nay thành điểm đến quốc tế với dự án Khu du lịch Samten Hills Dalat.
+- Chiều 28-4, các bãi biển ở Đà Nẵng nườm nượp dòng người đổ về để “giải nhiệt”.
+- Cách TP Rạch Giá khoảng 60-90km đường biển, Nam Du, Hòn Sơn (huyện Kiên Hải, Kiên Giang) chưa bao giờ làm khách du lịch thất vọng về cảnh đẹp của biển, rừng. Lễ 30-4 và 1-5, khách đông đúc chọn điểm này để vui cùng bạn bè.
+- Nhiều ngày nay, tình trạng cá chết hàng loạt ở cả loại cá nuôi lồng và cá tự nhiên trên sông Mã đoạn qua huyện miền núi Bá Thước, Thanh Hóa khiến người dân lo lắng.
+- Điều khiển xe limousine lạng lách trên cao tốc Hà Nội - Hải Phòng sáng 28-4, tài xế N.V.S. bị phạt 15 triệu đồng và tước bằng lái 3 tháng.
+- Chiều 28-4, Thủ tướng Phạm Minh Chính đã dự và cắt băng khánh thành tuyến cao tốc Cam Lâm - Vĩnh Hảo, một dự án thành phần của dự án xây dựng đường bộ cao tốc Bắc - Nam phía Đông giai đoạn 2017 - 2020.
+- Nhiều người dân Nghệ An tới các sông, suối tắm "giải nhiệt" do nắng nóng đỉnh điểm trong kỳ nghỉ lễ 30-4 và 1-5.
+- Lãnh đạo UBND phường Tây Mỗ cho hay thời điểm phát hiện thi thể đã khô, phía trong có điện thoại nhưng bị tháo sim, nhiều đồ đạc, quần áo đã được dọn dẹp.
+- Nắng nóng gay gắt khiến người dân lựa chọn các trung tâm thương mại, khu vui chơi trong nhà thay vì các điểm vui chơi ngoài trời trong kỳ nghỉ lễ 30-4 và 1-5.
+- Bộ Lao động - Thương binh và Xã hội đã có trả lời về đề xuất bổ sung giáo viên mầm non vào nghề nặng nhọc, độc hại, nguy hiểm và có thể nghỉ hưu sớm hơn.
+- Một nhóm ngư dân ở Hà Tĩnh vừa đánh bắt được một mẻ cá chim vàng hơn 1 tấn, thu về hơn 300 triệu đồng sau một đêm ra khơi.
+- Tận dụng dịp nghỉ lễ 30-4, 1-5 dài ngày, nhiều khách du lịch tới TP.HCM vui chơi, nghỉ dưỡng. Trong đó, đi buýt sông hai tầng (Saigon WaterGo) được nhiều khách lựa chọn.
+- Cao tốc Diễn Châu - Bãi Vọt khánh thành, chính thức thông xe và đưa vào khai thác từ chiều 28-4.
+- Sông khô cạn trơ đáy làm cho đất ven sông sụp lún, nhiều tuyến đường, cầu giao thông nông thôn trị giá hàng tỉ đồng ở huyện Trần Văn Thời, tỉnh Cà Mau bị sụp xuống sông.
+- Ngày thứ hai kỳ nghỉ lễ, nắng nóng 39 độ C khiến nhiều người dân Hà Nội ngại ra đường. Các nút giao, đường phố vắng lặng giữa trưa.
+- Từ khoảng chiều tối và đêm 30-4, ở miền Bắc khả năng có mưa rào và dông rải rác, cục bộ có mưa nên nắng nóng giảm nhiệt từ 1-5.
+- Dưới cái nóng oi bức vùng nắng hạn Ninh Thuận, Thủ tướng ra đồng thăm hỏi, động viên bà con nông dân vượt khó, cố gắng sản xuất.
+- Hàng trăm hộ dân tại xã Tây Giang (huyện Tây Sơn, tỉnh Bình Định) vô cùng lo lắng, bức xúc vì nhà cửa bị nứt toác, xuống cấp nghiêm trọng.
+- Nắng nóng có thể gây ra căng thẳng nhiệt, ảnh hưởng tới cả người làm việc ngoài trời lẫn trong nhà, Bộ Y tế đã có lời khuyên về việc này.
+- Thứ trưởng Bộ Quốc phòng chủ trì kiểm tra hợp luyện lực lượng diễu binh, diễu hành kỷ niệm 70 năm Chiến thắng Điện Biên Phủ.
+- Ngày 28-4, lượng khách nghỉ lễ đến Khánh Hòa bật tăng. Một số trục đường tại Nha Trang xảy ra tình trạng kẹt xe tạm thời.
+- Con đường nhỏ bé, dài 1,6km ở xã Đức Lợi, huyện Mộ Đức, Quảng Ngãi bị "rút ruột" hơn 1 tỉ đồng bằng cách nâng dự toán, quyết toán khống.
 ![New](News.png)
 ## Nhịp sống số 
 - Để các đối tác nhà hàng, quán ăn được tiếp sức trên chặng đường đầy cạnh tranh, Gojek tiếp tục xây dựng kế hoạch hỗ trợ trong năm 2024.
