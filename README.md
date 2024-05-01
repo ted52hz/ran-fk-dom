@@ -1,6 +1,12 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Hai đại học thuộc nhóm Ivy League bắt đầu đình chỉ sinh viên từ chối ngừng biểu tình.
+- Đề văn dài ba trang A4 là chuyện bình thường và độ dài của đề văn này chưa là gì so với các văn bản xuất hiện trong các đề thi tiếng Anh?
+- Lệnh cấm điện thoại di động, thuốc lá điện tử trong trường học được Ontario áp dụng từ năm học tới. Học sinh vi phạm có thể bị đình chỉ học.
+- Thí sinh tự do sẽ đăng ký dự thi tốt nghiệp THPT trực tiếp tại các địa điểm do Sở Giáo dục và Đào tạo quy định.
+- Đại học Quốc gia TP.HCM vừa công bố danh sách 149 trường THPT thuộc diện ưu tiên xét tuyển theo quy định của đại học này năm 2024.
+- Sở Giáo dục và Đào tạo Hà Nội gửi thông báo khẩn sau vụ 2 nam sinh lớp 11 chết đuối ngày 29-4. 3 trẻ khác chết đuối ở Quảng Ninh và Lào Cai.
 - Giải chạy việt dã lần I, năm 2024 thuộc chương trình "VTTU - WE ARE ONE" (Chúng ta là một) do Trường đại học Võ Trường Toản (VTTU) tổ chức.
 - Tính đến ngày 29-4, đã có gần 20 trường đại học công bố điểm chuẩn xét tuyển sớm theo phương thức xét học bạ THPT, trong đó nhiều ngành/chương trình đào tạo thí sinh có học bạ đạt 6 điểm/môn có thể trúng tuyển đại học.
 - Hơn 100 đại học, cao đẳng sử dụng kết quả thi đánh giá năng lực Đại học Quốc gia TP.HCM năm 2024 để xét tuyển. Sắp xếp nguyện vọng thế nào để tăng cơ hội trúng tuyển ở phương thức này?
@@ -25,44 +31,38 @@
 - Cục trưởng Cục Nhà trường (Bộ Quốc phòng) cho biết từ năm 2025 sẽ có kỳ thi đánh giá riêng để sử dụng kết quả tuyển sinh quân đội.
 - Trường đại học Lạc Hồng vừa có thêm sáu chương trình đào tạo đạt chuẩn kiểm định chất lượng AUN-QA và ABET.
 - Nhiều bạn đọc không đồng tình với hình thức kỷ luật cho nghỉ học một tuần với nhóm học sinh đánh hội đồng, lột áo nữ sinh lớp 9 quay clip.
-- ‘Săn học bổng’ với nhiều bạn trẻ Việt giờ đây không chỉ đơn thuần là tìm kiếm sự hỗ trợ tài chính mà còn là một cách để chứng tỏ bản lĩnh và năng lực.
-- Các ngành thuộc nhóm marketing, truyền thông tại trường Đại học Kinh tế - Tài chính TP.HCM (UEF) đang được nhiều thí sinh lựa chọn.
-- Đại học Quản lý Singapore, trường nằm trong top 5 đại học tốt nhất Singapore, vừa đặt văn phòng đại diện tại Việt Nam.
-- Điều gì thúc đẩy một người đầu tư cho một cơ sở giáo dục, ngồi lên người một em bé 5 tuổi, để nhét quýt vào miệng, bắt phải ăn?
-- TP.HCM thực hiện tuyển sinh đầu cấp mầm non, lớp 1, lớp 6 năm học 2024-2025 trực tuyến như năm học trước.
-- Đợt tốt nghiệp tháng 4-2024 của Trường đại học Bách khoa (Đại học Quốc gia TP.HCM), có một nam sinh viên học vượt, tốt nghiệp xuất sắc, đứng đầu ngành.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Hôm nay thời tiết Bắc Bộ tiếp tục nắng nóng gay gắt trước khi bắt đầu đợt mưa dông, Nam Bộ ngày nắng, độ ẩm cao khiến trời oi nực.
-- Một số tin tức đáng chú ý: 15.000 trường hợp vi phạm trật tự, an toàn giao thông đường bộ; Cách xử trí sốc nhiệt trong thời tiết nắng nóng; Việt Nam nên tăng lãi suất ngăn sự mất giá tiền đồng...
-- Dự báo từ đêm 30-4 đến ngày 2-5, thời tiết miền Bắc mát mẻ nhờ đón một đợt không khí lạnh yếu kèm theo những cơn mưa rào và mưa dông.
-- Hàng ngàn du khách đi cáp treo, trải nghiệm tổ hợp Sun World Hòn Thơm, bất chấp thời tiết nắng nóng gay gắt.
-- Chiều thứ ba trong kỳ nghỉ lễ dài ngày ở Hội An chứng kiến cảnh tượng đông "khủng khiếp" khi dòng xe cộ nối hàng cây số từ Đà Nẵng vào trung tâm phố cổ. Trong khi đó các bãi biển người chen người.
-- Cá chết hàng loạt nổi trắng hồ Sông Mây (Đồng Nai) bốc mùi hôi thối nồng nặc khiến người dân xung quanh không khỏi bức xúc.
-- Trải nghiệm nghề chằm lá dừa, câu cá và ngồi vỏ lãi ngắm vẻ đẹp làng đầm Đông Hồ ở TP Hà Tiên (Kiên Giang) khiến khách du lịch mê tít và có chuyến nghỉ lễ 30-4 nhiều kỷ niệm bên gia đình.
-- Chiều 29-4, Thủ tướng Phạm Minh Chính cùng đoàn công tác đã đến kiểm tra hiện trường cao tốc Chí Thạnh - Vân Phong.
-- Giữa trưa nắng nóng, lửa bốc lên rồi lan ra trên diện tích nhiều ha rừng phòng hộ ven biển Hải Ninh (huyện Quảng Ninh, Quảng Bình). Nguy hiểm hơn, đám cháy rừng đã lan tới sát nhiều khu dân cư.
-- Thời gian qua, nhiều tài xế căng thẳng khi đi trên đường cao tốc La Sơn - Hòa Liên, nhất là vào ban đêm. Hiện tuyến đã được phê duyệt đầu tư, mở rộng lên 4 làn xe, sẽ hoàn thành năm 2025.
-- Để giới thiệu cho du khách về ngày lễ trọng đại của Việt Nam, một khu lưu trú chuyên dòng khách quốc tế ở Hội An đã đồng loạt treo cờ ở tất cả các ban công trong dịp nghỉ lễ 30-4, 1-5.
-- Sở Giao thông vận tải TP.HCM cho biết sẽ mở nút giao Mai Chí Thọ - D1 (TP Thủ Đức) đúng vào ngày 30-4 phục vụ người dân đi lại.
-- Trời nắng nóng, nhiệt độ ngoài trời cao, người dân ở Quảng Nam đã "dí dỏm" đem chảo đặt ngoài mặt đường để rán trứng.
-- Bộ trưởng Bộ Văn hóa - Thể thao và Du lịch đã có phản hồi về đề nghị xử nghiêm nghệ sĩ phát ngôn thiếu chuẩn mực đạo đức, tự mãn, coi thường khán giả.
-- Trong khung giờ nắng nóng đỉnh điểm từ 13 - 15h, đường phố tại TP Đông Hà vắng hoe, người đi đường tận dụng tất cả bóng râm khi dừng đèn đỏ trong bối cảnh nhiệt độ tăng cao kỷ lục trong 48 năm qua tại TP này.
-- Chủ tịch UBND tỉnh Kiên Giang Lâm Minh Thành đã ký văn bản chỉ đạo sở ngành, thủ trưởng đơn vị tăng cường ứng trực phòng cháy chữa cháy trong dịp lễ 30-4 và 1-5.
-- Trao đổi với Tuổi Trẻ Online trưa 29-4, đại diện Tập đoàn Mai Linh cho biết vừa quyết định tặng giấy khen cho một nhân viên điều hành vì đã có cách hành xử rất đẹp: trả lại 300 triệu đồng cho người bỏ quên.
-- Từ tháng 7-2023 đến nay, UBND tỉnh Bình Định ít nhất 5 lần chỉ đạo xử lý vụ Petrolimex không chi trả tiền bồi thường thu hồi đất của dân ở TP Quy Nhơn trong hành lang an toàn của kho xăng dầu, nhưng đến nay vụ việc vẫn nhùng nhằng.
-- Cơ quan chức năng quyết định dừng tìm kiếm trên biển với nhận định khả năng 5 thuyền viên mất tích còn sống sót rất thấp.
-- Người dân đăng lên mạng xã hội kêu gọi giải cứu giúp 100 con dê chết, bị thương sau vụ lật xe tải trên quốc lộ 9 qua Quảng Trị.
-- Dưới thời tiết nắng nóng, tạm gác niềm vui bên gia đình trong kỳ nghỉ lễ, nhiều công nhân vẫn miệt mài trên các công trường.
-- Ban Quản lý đường sắt đô thị TP.HCM cho biết đã hoàn thành gác dầm tại 5/9 cầu đi bộ kết nối metro số 1. Trong đó, 2 cầu bộ hành tại ga Khu công nghệ cao và ga Bình Thái đã xong toàn bộ.
-- Ngày 29-4, Thủ tướng Phạm Minh Chính và đoàn công tác đi kiểm tra hiện trường, động viên cán bộ, công nhân đang làm việc trên công trường, đốc thúc một số dự án thành phần thuộc tuyến cao tốc Bắc - Nam phía đông giai đoạn 2021-2025.
-- Sáng 29-4, Thảo cầm viên Sài Gòn tổ chức đầy năm cho hươu cao cổ Thảo Em, buổi tiệc thu hút đông đảo du khách tham gia.
-- Ba ngày liên tiếp, nhiều trạm ở miền Trung ghi nhận nhiệt độ của ngày hôm sau cao hơn hôm trước. Như tại TP Đông Hà (tỉnh Quảng Trị) là 44 độ C, cao hơn hôm trước 1,1 độ C.
-- Dù nhận định đã qua thời điểm nhiệt độ đạt mức đỉnh nhưng những ngày gần đây thời tiết TP.HCM nóng hầm hập, nhiều người cảm thán ‘mở mắt ra mồ hôi đã đầm đìa’.
-- Mạng xã hội lan truyền clip kèm thông tin người đậu ô tô, xe máy trên đường Nguyễn Huệ ở TP Quy Nhơn (tỉnh Bình Định) bị người lạ thu phí đến cả trăm ngàn đồng/xe.
-- Bộ Công an nhấn mạnh việc kiểm soát chặt chẽ nồng độ cồn ngoài ý nghĩa bảo đảm trật tự, an toàn giao thông còn có ý nghĩa xã hội sâu sắc.
-- Nhìn thấy 1 người bơi bộ, 3 người khác bơi bằng phao có nguy cơ gặp nạn trên bãi biển Sầm Sơn, Đội cứu nạn - cứu hộ của thành phố Sầm Sơn liền nhanh chóng bơi ra đưa 4 du khách vào bờ an toàn.
-- Sáng 29-4, Công an tỉnh Đồng Nai cho hay đang yêu cầu kiểm tra, làm rõ vụ người vi phạm leo lên xe xử lý vi phạm giao thông đốt xe máy.
+- Quê Hà Tĩnh, nhưng Tổng bí thư đầu tiên của Đảng cộng sản Việt Nam sinh ra tại thành An Thổ (xã An Dân, huyện Tuy An, Phú Yên).
+- Tin tức đáng chú ý: Trả lương hưu sau 30-4 và 1-5 thế nào?; TP.HCM thu hơn 3.230 tỉ du lịch dịp nghỉ lễ; Đề nghị bổ sung thêm chế độ cho người tham gia bảo hiểm xã hội tự nguyện, không nên xây dựng chế độ khác biệt với bảo hiểm bắt buộc...
+- Ảnh hưởng không khí lạnh nên thời tiết Bắc Bộ giảm nắng nóng, mưa dông xuất hiện, Nam Bộ vẫn nắng nóng gay gắt, chờ  ngày có mưa.
+- Garuda giành quán quân hạng mục Battle; Planet Lock giành quán quân hạng mục Showcase cuộc thi Dalat Best Dance Crew 2024, bảng quốc tế tổ chức tại Đà Lạt.
+- TP Nha Trang vừa đề nghị tỉnh Khánh Hòa chỉ đạo phương án hạn chế tình trạng xâm nhập mặn lấn sâu vào sông Cái, sông Quán Trường.
+- Tối 30-4, người dân TP.HCM đổ về trung tâm thành phố để vui chơi và xem màn bắn pháo hoa chào mừng 49 năm Ngày thống nhất đất nước ngay từ sớm.
+- Kiều bào đã ủng hộ gần 1,6 tỉ đồng, gồm 850 triệu đồng ủng hộ chương trình "Cả nước vì Trường Sa" và nhu yếu phẩm trị giá gần 750 triệu đồng được trao trực tiếp cho các điểm đảo và nhà giàn DK-I/14.
+- Ngày 30-4, người dân đến bến Bạch Đằng (quận 1, TP.HCM) trải nghiệm buýt sông, tàu buýt hai tầng đông đảo khiến nơi đây trở nên nhộn nhịp.
+- Chiều 30-4, người dân các tỉnh, thành ở miền Trung di chuyển vào TP.HCM đông đúc sau kỳ nghỉ lễ, xảy ra tình trạng ùn ứ trên cao tốc Phan Thiết - Dầu Giây.
+- Nguyên chủ tịch Hội Người tù kháng chiến TP Cần Thơ cho rằng đặc san của Tuổi Trẻ ra dịp lễ 30-4 'có giá trị rất lớn'.
+- Đến 18h ngày 30-4, tình hình giao thông trên đường Lý Thái Tổ (Đồng Nai) hướng về phà Cát Lái TP.HCM diễn ra căng thẳng. Hàng dài xe hơi nối đuôi nhau "lết" từng chút một.
+- Theo Bộ Nội vụ, các địa phương có điều kiện phát triển kinh tế cần có chính sách hỗ trợ phù hợp, ngoài chính sách chế độ tiền lương chung của cán bộ.
+- Trong lúc đi dã ngoại trên sông Pô Kô, người phụ nữ trượt chân ngã xuống sông, hai người đàn ông nhảy xuống ứng cứu nhưng không may chết đuối cả ba.
+- Sau khi quen nhau trên mạng qua nhóm 'vỡ nợ muốn làm liều', nhóm 3 người bàn bạc sau khi xông vào biệt thự cướp sẽ trốn đi Campuchia tẩu thoát. Lực lượng công an đã mật phục 3 ngày để bắt nhóm này.
+- Ngoài những điểm vui chơi nổi tiếng, du khách còn vui thích trải nghiệm ngủ lều, câu cá và đặc biệt cho cá ăn giữa biển Phú Quốc trong chuyến nghỉ lễ 30-4 và 1-5 này.
+- Để mở rộng cao tốc Cam Lộ - La Sơn từ 2 làn xe, rộng 12m lên 4 làn xe, rộng 22 - 23,25m cần khoảng 7.000 tỉ đồng vốn ngân sách. Nếu dự án mở rộng cao tốc này được thực hiện năm 2024 sẽ cơ bản hoàn thành vào năm 2025.
+- Lo ngại ùn tắc trong ngày nghỉ cuối cùng, nhiều người quyết định quay trở lại Hà Nội sớm một ngày. Dưới nắng nóng bỏng rát 41 độ C, không ít người tỏ ra mệt mỏi.
+- Đến 15h30 ngày 30-4, tàu tìm kiếm cứu nạn SAR 411 và tàu cá do Bộ đội biên phòng Nam Định điều động đã cứu nạn thành công 10 thuyền viên tàu Sunrise 268 bị chìm tại vùng biển cửa Ba Lạt, Nam Định.
+- Quản lý khai thác 22 sân bay và chủ đầu tư xây dựng giai đoạn 1 sân bay Long Thành, Tổng công ty Cảng hàng không Việt Nam (ACV) lãi 2.900 tỉ đồng trong quý 1-2024. ACV ráo riết thu nợ nghìn tỉ đồng của hãng bay nội địa, tính đến khả năng kiện.
+- Trang thông tin điện tử Công an tỉnh Lâm Đồng khẳng định thông tin 'Đà Lạt xảy ra biến lớn' đang lan truyền trên mạng là sai sự thật, vi phạm pháp luật.
+- Tỉnh Quảng Trị hứa đến 30-4 sẽ có đủ mặt bằng sạch, nhưng đến giờ chưa có. Nhà thầu cao tốc Cam Lộ - Vạn Ninh lo ngại sẽ không đủ thời gian hoàn thành đào đắp nền đường trước mùa mưa vào tháng 9.
+- Trong 2 ngày lễ, Tiểu đoàn bộ binh 43 mở gian hàng 0 đồng trước cổng đơn vị, tặng một tấn rau củ quả  do bộ đội tăng gia cho người dân.
+- Cảnh sát hình sự Công an Đà Nẵng bắt giữ 2 thanh niên đi xe SH dùng mã tấu chém người đi đường để cướp tài sản.
+- Tháng 5, một số chính sách mới liên quan cải cách chính sách tiền lương mới, điều chỉnh giá điện, tiêu chuẩn các chức danh... sẽ có hiệu lực.
+- Những ngày tháng tư lịch sử, từng đoàn du khách ngược xuôi đến thăm di tích lịch sử bến tàu không số Hòn Hèo ở xã Ninh Vân, thị xã Ninh Hòa (Khánh Hòa).
+- Tuyến metro số 1 dài gần 20km (Bến Thành - Suối Tiên) với 3 ga ngầm và 11 ga trên cao đã xây dựng hoàn thiện, chờ ngày đưa vào hoạt động.
+- Ngày 30-4, suốt chiều dài hơn 17km trải dài qua hai tỉnh Tiền Giang và Bến Tre, hàng trăm công nhân, kỹ sư vẫn miệt mài làm việc.
+- TP.HCM đề nghị Bộ Nội vụ cho phép quyết định việc xây dựng vị trí việc làm đặc thù, không có trong quy định của trung ương.
+- Mực nước hồ xuống thấp, nắng nóng kéo dài không có nguồn nước bổ sung khiến cá chết hàng loạt, nổi trắng mặt hồ Sông Mây.
+- 49 năm đã qua, những người đã từng đi qua chiến tranh hồi ức lại chiến tranh như ký ức về một thời trai trẻ và mong sao quê hương luôn được hòa bình.
 ![New](News.png)
 ## Nhịp sống số 
 - Để các đối tác nhà hàng, quán ăn được tiếp sức trên chặng đường đầy cạnh tranh, Gojek tiếp tục xây dựng kế hoạch hỗ trợ trong năm 2024.
