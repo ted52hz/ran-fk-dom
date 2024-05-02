@@ -1,6 +1,15 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Ngay sau kỳ nghỉ lễ dài, học sinh nhiều bậc học sẽ bước vào kiểm tra cuối học kỳ 2 và những kỳ thi quan trọng: tuyển sinh lớp 10, thi tốt nghiệp THPT.
+- Từ hôm nay (2-5) đến 17h ngày 10-5, thí sinh sẽ chính thức đăng ký dự thi tốt nghiệp THPT năm 2024 theo hình thức trực tuyến.
+- Học sinh lớp 9 ở TP.HCM đăng ký thi tuyển sinh lớp 10 năm 2024 từ 15h ngày 3-5 tại địa chỉ: https://Ts10.hcm.edu.vn.
+- Khảo sát mới của tổ chức giáo dục IDP vào tháng 3-2024 cho thấy nhiều thay đổi trong xu hướng du học năm 2024.
+- Có tới 100 trường học trên khắp Delhi và vùng thủ đô quốc gia (NCR) của Ấn Độ đã nhận được thư điện tử đe dọa đánh bom. Trong đó, hàng chục trường học đã được sơ tán.
+- Năm 2025, sau khi dừng các lớp chuyên trong trường THPT thường, TP.HCM có thể thành lập thêm trường THPT chuyên thứ 3 để đáp ứng nhu cầu của học sinh toàn thành phố.
+- Đại học Quốc gia TP.HCM tuyển sinh theo nhiều phương thức khác nhau. Thực tế cho thấy điểm chuẩn các nhóm ngành rất khác nhau ở các phương thức xét tuyển.
+- Đây là những bức ảnh ghi lại góc nhìn độc đáo của học sinh TP.HCM trên chuyến thủy trình xuôi dòng sông Sài Gòn trong chung kết hội thi sáng tác ảnh Tuổi Xanh.
+- Từ năm học mới tới đây, sinh viên quốc tế tại Canada chỉ có thể làm việc tối đa 24 giờ trong tuần bên ngoài trường học, theo các quy định mới.
 - Hai đại học thuộc nhóm Ivy League bắt đầu đình chỉ sinh viên từ chối ngừng biểu tình.
 - Đề văn dài ba trang A4 là chuyện bình thường và độ dài của đề văn này chưa là gì so với các văn bản xuất hiện trong các đề thi tiếng Anh?
 - Lệnh cấm điện thoại di động, thuốc lá điện tử trong trường học được Ontario áp dụng từ năm học tới. Học sinh vi phạm có thể bị đình chỉ học.
@@ -22,47 +31,38 @@
 - Dù bạn đọc nhiều lần phản ánh nhưng bến xe này vẫn tồn tại ngay cạnh trường tiểu học ở quận 5 (TP.HCM), gây mất an toàn cho học sinh.
 - Sở Giáo dục và Đào tạo TP.HCM vừa công bố danh sách thí sinh giành các giải thưởng chung cuộc tại hội thi sáng tác ảnh Tuổi Xanh năm nay.
 - Năm 2024, tổng số thí sinh đăng ký dự thi đánh giá năng lực của Trường đại học Sư phạm Hà Nội là 11.537, tăng gấp gần 2,5 lần so với năm ngoái.
-- Phần lớn phụ huynh, chuyên gia giáo dục và các trường ở TP.HCM ủng hộ tuyển sinh đầu cấp theo nơi ở thực tế của học sinh.
-- Từ trước tới nay, đa số vụ bạo hành trẻ đều xảy ra trong giờ ăn của trường, nhóm, lớp mầm non. Tại sao như vậy?
-- Theo Cục Đào tạo, Bộ Công an, đề thi tham khảo có cấu trúc giống đề thi đánh giá chính thức, gồm hai phần trắc nghiệm và tự luận. Thí sinh làm bài trong 180 phút, tương tự năm ngoái.
-- Ông Nguyễn Tiến Thanh được bổ nhiệm giữ chức chủ tịch hội đồng thành viên đồng thời là tổng giám đốc Nhà xuất bản Giáo Dục Việt Nam.
-- 18 bạn nhỏ xuất sắc nhất đoạt giải Trạng Nguyên đã tái hiện lễ rước Trạng Nguyên theo nghi thức xưa tại sân Thái Học, Văn Miếu - Quốc Tử Giám.
-- Hàng triệu học sinh ở Bangladesh đã phải nghỉ học khi các trường học đóng cửa do nắng nóng quá mức.
-- Cục trưởng Cục Nhà trường (Bộ Quốc phòng) cho biết từ năm 2025 sẽ có kỳ thi đánh giá riêng để sử dụng kết quả tuyển sinh quân đội.
-- Trường đại học Lạc Hồng vừa có thêm sáu chương trình đào tạo đạt chuẩn kiểm định chất lượng AUN-QA và ABET.
-- Nhiều bạn đọc không đồng tình với hình thức kỷ luật cho nghỉ học một tuần với nhóm học sinh đánh hội đồng, lột áo nữ sinh lớp 9 quay clip.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Quê Hà Tĩnh, nhưng Tổng bí thư đầu tiên của Đảng cộng sản Việt Nam sinh ra tại thành An Thổ (xã An Dân, huyện Tuy An, Phú Yên).
-- Tin tức đáng chú ý: Trả lương hưu sau 30-4 và 1-5 thế nào?; TP.HCM thu hơn 3.230 tỉ du lịch dịp nghỉ lễ; Đề nghị bổ sung thêm chế độ cho người tham gia bảo hiểm xã hội tự nguyện, không nên xây dựng chế độ khác biệt với bảo hiểm bắt buộc...
-- Ảnh hưởng không khí lạnh nên thời tiết Bắc Bộ giảm nắng nóng, mưa dông xuất hiện, Nam Bộ vẫn nắng nóng gay gắt, chờ  ngày có mưa.
-- Garuda giành quán quân hạng mục Battle; Planet Lock giành quán quân hạng mục Showcase cuộc thi Dalat Best Dance Crew 2024, bảng quốc tế tổ chức tại Đà Lạt.
-- TP Nha Trang vừa đề nghị tỉnh Khánh Hòa chỉ đạo phương án hạn chế tình trạng xâm nhập mặn lấn sâu vào sông Cái, sông Quán Trường.
-- Tối 30-4, người dân TP.HCM đổ về trung tâm thành phố để vui chơi và xem màn bắn pháo hoa chào mừng 49 năm Ngày thống nhất đất nước ngay từ sớm.
-- Kiều bào đã ủng hộ gần 1,6 tỉ đồng, gồm 850 triệu đồng ủng hộ chương trình "Cả nước vì Trường Sa" và nhu yếu phẩm trị giá gần 750 triệu đồng được trao trực tiếp cho các điểm đảo và nhà giàn DK-I/14.
-- Ngày 30-4, người dân đến bến Bạch Đằng (quận 1, TP.HCM) trải nghiệm buýt sông, tàu buýt hai tầng đông đảo khiến nơi đây trở nên nhộn nhịp.
-- Chiều 30-4, người dân các tỉnh, thành ở miền Trung di chuyển vào TP.HCM đông đúc sau kỳ nghỉ lễ, xảy ra tình trạng ùn ứ trên cao tốc Phan Thiết - Dầu Giây.
-- Nguyên chủ tịch Hội Người tù kháng chiến TP Cần Thơ cho rằng đặc san của Tuổi Trẻ ra dịp lễ 30-4 'có giá trị rất lớn'.
-- Đến 18h ngày 30-4, tình hình giao thông trên đường Lý Thái Tổ (Đồng Nai) hướng về phà Cát Lái TP.HCM diễn ra căng thẳng. Hàng dài xe hơi nối đuôi nhau "lết" từng chút một.
-- Theo Bộ Nội vụ, các địa phương có điều kiện phát triển kinh tế cần có chính sách hỗ trợ phù hợp, ngoài chính sách chế độ tiền lương chung của cán bộ.
-- Trong lúc đi dã ngoại trên sông Pô Kô, người phụ nữ trượt chân ngã xuống sông, hai người đàn ông nhảy xuống ứng cứu nhưng không may chết đuối cả ba.
-- Sau khi quen nhau trên mạng qua nhóm 'vỡ nợ muốn làm liều', nhóm 3 người bàn bạc sau khi xông vào biệt thự cướp sẽ trốn đi Campuchia tẩu thoát. Lực lượng công an đã mật phục 3 ngày để bắt nhóm này.
-- Ngoài những điểm vui chơi nổi tiếng, du khách còn vui thích trải nghiệm ngủ lều, câu cá và đặc biệt cho cá ăn giữa biển Phú Quốc trong chuyến nghỉ lễ 30-4 và 1-5 này.
-- Để mở rộng cao tốc Cam Lộ - La Sơn từ 2 làn xe, rộng 12m lên 4 làn xe, rộng 22 - 23,25m cần khoảng 7.000 tỉ đồng vốn ngân sách. Nếu dự án mở rộng cao tốc này được thực hiện năm 2024 sẽ cơ bản hoàn thành vào năm 2025.
-- Lo ngại ùn tắc trong ngày nghỉ cuối cùng, nhiều người quyết định quay trở lại Hà Nội sớm một ngày. Dưới nắng nóng bỏng rát 41 độ C, không ít người tỏ ra mệt mỏi.
-- Đến 15h30 ngày 30-4, tàu tìm kiếm cứu nạn SAR 411 và tàu cá do Bộ đội biên phòng Nam Định điều động đã cứu nạn thành công 10 thuyền viên tàu Sunrise 268 bị chìm tại vùng biển cửa Ba Lạt, Nam Định.
-- Quản lý khai thác 22 sân bay và chủ đầu tư xây dựng giai đoạn 1 sân bay Long Thành, Tổng công ty Cảng hàng không Việt Nam (ACV) lãi 2.900 tỉ đồng trong quý 1-2024. ACV ráo riết thu nợ nghìn tỉ đồng của hãng bay nội địa, tính đến khả năng kiện.
-- Trang thông tin điện tử Công an tỉnh Lâm Đồng khẳng định thông tin 'Đà Lạt xảy ra biến lớn' đang lan truyền trên mạng là sai sự thật, vi phạm pháp luật.
-- Tỉnh Quảng Trị hứa đến 30-4 sẽ có đủ mặt bằng sạch, nhưng đến giờ chưa có. Nhà thầu cao tốc Cam Lộ - Vạn Ninh lo ngại sẽ không đủ thời gian hoàn thành đào đắp nền đường trước mùa mưa vào tháng 9.
-- Trong 2 ngày lễ, Tiểu đoàn bộ binh 43 mở gian hàng 0 đồng trước cổng đơn vị, tặng một tấn rau củ quả  do bộ đội tăng gia cho người dân.
-- Cảnh sát hình sự Công an Đà Nẵng bắt giữ 2 thanh niên đi xe SH dùng mã tấu chém người đi đường để cướp tài sản.
-- Tháng 5, một số chính sách mới liên quan cải cách chính sách tiền lương mới, điều chỉnh giá điện, tiêu chuẩn các chức danh... sẽ có hiệu lực.
-- Những ngày tháng tư lịch sử, từng đoàn du khách ngược xuôi đến thăm di tích lịch sử bến tàu không số Hòn Hèo ở xã Ninh Vân, thị xã Ninh Hòa (Khánh Hòa).
-- Tuyến metro số 1 dài gần 20km (Bến Thành - Suối Tiên) với 3 ga ngầm và 11 ga trên cao đã xây dựng hoàn thiện, chờ ngày đưa vào hoạt động.
-- Ngày 30-4, suốt chiều dài hơn 17km trải dài qua hai tỉnh Tiền Giang và Bến Tre, hàng trăm công nhân, kỹ sư vẫn miệt mài làm việc.
-- TP.HCM đề nghị Bộ Nội vụ cho phép quyết định việc xây dựng vị trí việc làm đặc thù, không có trong quy định của trung ương.
-- Mực nước hồ xuống thấp, nắng nóng kéo dài không có nguồn nước bổ sung khiến cá chết hàng loạt, nổi trắng mặt hồ Sông Mây.
-- 49 năm đã qua, những người đã từng đi qua chiến tranh hồi ức lại chiến tranh như ký ức về một thời trai trẻ và mong sao quê hương luôn được hòa bình.
+- Dự báo trong tháng 5, áp thấp nóng phía Tây tiếp tục hoạt động mạnh nên ở khu vực Bắc Bộ; các tỉnh từ Thanh Hóa đến Phú Yên xuất hiện nhiều ngày nắng nóng và nắng nóng gay gắt, có nơi đặc biệt gay gắt.
+- Chủ tịch UBND TP.HCM Phan Văn Mãi chỉ đạo dừng đầu tư dự án Nhà thi đấu Phan Đình Phùng theo hình thức đối tác công tư (hợp đồng BT), chuyển sang đầu tư công.
+- Trong ngày nghỉ lễ quốc tế lao động 1-5, ở Đồng Nai đã xảy ra một vụ tai nạn lao động đặc biệt nghiêm trọng tại Công ty TNHH sản xuất và thương mại gỗ Bình Minh (xã Thiện Tân, huyện Vĩnh Cửu) làm 6 người chết, 5 người bị thương.
+- Một số tin tức đáng chú ý: Thủ tướng chỉ đạo khẩn phòng, chống cháy rừng; Khám, cấp cứu gần 964.700 bệnh nhân trong dịp nghỉ lễ; Bắt đầu đăng ký dự thi tốt nghiệp THPT 2024...
+- Hôm nay, Bắc Bộ vẫn chịu ảnh hưởng không khí lạnh yếu nên thời tiết mưa dông. Trung Trung Bộ vào Nam Bộ nắng nóng gay gắt.
+- Nhà kho rộng hàng trăm mét vuông ở đường D6, phường Phước Long B, TP Thủ Đức bị cháy. Hiện lực lượng chức năng vẫn đang nỗ lực dập lửa.
+- Sau khi du khách chết đuối trên suối Nước Lạnh, chính quyền địa phương đã buộc tháo dỡ hai điểm du lịch tự phát ở đây.
+- Ủy ban Thường vụ Quốc hội thông qua nghị quyết tạm đình chỉ thực hiện nhiệm vụ, quyền hạn đại biểu Quốc hội với bí thư Tỉnh ủy Bắc Giang Dương Văn Thái để cơ quan chức năng thực hiện việc khởi tố, bắt tạm giam.
+- Sau vụ 3 người chết đuối trên sông Pô Kô trưa 30-4, ngày 1-5, chính quyền huyện Đức Cơ (Gia Lai) đã nghiêm cấm hoạt động tiềm ẩn nguy hiểm trên khúc sông này.
+- Sau khi ăn bánh mì thịt, 73 người ở Đồng Nai có biểu hiện nôn ói, đau bụng, tiêu chảy, sốt phải nhập viện theo dõi và điều trị.
+- Đến khoảng 19h ngày 1-5, trạm thu phí BOT Rạch Miễu xả trạm ở cả 3 làn hướng từ Bến Tre đi Tiền Giang để giải tỏa bớt lượng xe ùn ứ trên quốc lộ 60. Đây là lần xả trạm thứ 3 trong ngày.
+- Liên quan vụ tai nạn xe khách tại thị trấn Chư Sê (Gia Lai), nguyên nhân ban đầu được xác định do một xe khách chạy quá tốc độ, không nhường đường khi qua ngã tư.
+- Thủ tướng vừa ký ban hành Công điện về vụ nổ lò hơi tại Đồng Nai, công điện được gửi tới nhiều bộ và các tỉnh.
+- Hai doanh nghiệp liên quan ông Đào Hồng Tuyển - chủ tịch Tập đoàn Tuần Châu - sẽ phải nộp hơn 6.095 tỉ đồng để đảm bảo nghĩa vụ bồi hoàn cho bà Trương Mỹ Lan trong vụ án.
+- Chi cục Kiểm lâm TP.HCM vừa tiếp nhận một con kỳ đà vân có tên trong trong danh mục động vật rừng nguy cấp quý hiếm do người dân tự nguyện giao.
+- Chiều 1-5, tình trạng giao thông tại các cửa ngõ dễ thở, chỉ xảy ra ùn ứ tại các giao lộ trong vài thời điểm.
+- Chiều 1-5, Bộ Lao động - Thương binh và Xã hội có công văn yêu cầu xử lý nghiêm, xem xét trách nhiệm hình sự nếu có trong vụ nổ lò hơi tại Đồng Nai.
+- Trong 5 ngày nghỉ lễ 30-4 và 1-5, cả nước xảy ra 347 vụ tai nạn giao thông, làm chết 138 người, bị thương 285 người.
+- Taxi đậu đầy bãi tạm khu vực sân bay Tân Sơn Nhất, tài xế sẵn sàng đến lượt vào chở khách. Xe công nghệ đua tăng cường người hướng dẫn khách tìm xe.
+- Nhiều địa phương ở Nghệ An có mưa dông, kết thúc chuỗi ngày nắng nóng đỉnh điểm, thậm chí một số nơi còn xuất hiện mưa đá.
+- Đoàn trinh sát số 2, Bộ tư lệnh Cảnh sát biển Việt Nam vừa phát hiện một tàu cá của tỉnh Kiên Giang giấu thiết bị giám sát hành trình của 14 tàu cá khác.
+- 170.000 lượt khách đến Đà Lạt nghỉ mát, tham quan bất chấp tin giả bủa vây trong dịp lễ 30-4 và 1-5 là thống kê mới nhất của UBND TP Đà Lạt.
+- Liên quan vụ cháy rừng ở xã Vĩnh Phú (huyện Giang Thành, Kiên Giang), UBND tỉnh Kiên Giang đã thống kê có khoảng 371ha rừng bị cháy.
+- Ngày 1-5, lãnh đạo UBND tỉnh Đắk Nông cho biết đã cung cấp hồ sơ các dự án điện gió theo yêu cầu của Ủy ban Kiểm tra Trung ương.
+- Trước khi vụ nổ lò hơi xảy ra làm 6 người chết, công ty đã phát hiện trục trặc và báo đơn vị cung cấp đến sửa chữa.
+- Công an huyện Nậm Pồ (Điện Biên) đang điều tra nguyên nhân vụ ba bố con chết cháy ở khe núi, nghi do tai nạn khi đi bắt dúi.
+- Do ảnh hưởng của không khí lạnh yếu kết hợp với hội tụ gió nên chiều tối và đêm nay (1-5), ở Bắc Bộ và Bắc Trung Bộ có mưa rào và dông rải rác, cục bộ có mưa to. Người dân cần đề phòng lốc, sét, mưa đá và gió giật mạnh.
+- Mạng xã hội Facebook đang lan truyền đoạn video kèm nội dung "cảnh sát giao thông An Lạc đạp người dân", video nhận được nhiều lượt chia sẻ, bình luận. Hiện tại Phòng PC08 đang tiến hành làm rõ.
+- Công đoàn đề nghị nghiên cứu, bổ sung dự thảo Luật Bảo hiểm xã hội sửa đổi việc hoán đổi năm đóng thêm bảo hiểm xã hội cho người nghỉ hưu sớm.
+- Đã xuống giống 4.000ha lúa hè thu sớm và có nguy cơ thiệt hại, tỉnh Bạc Liêu yêu cầu kiên quyết vận động người dân không tiếp tục xuống giống 5.000ha còn lại, bởi hạn hán còn tiếp diễn trong thời gian tới.
 ![New](News.png)
 ## Nhịp sống số 
 - Để các đối tác nhà hàng, quán ăn được tiếp sức trên chặng đường đầy cạnh tranh, Gojek tiếp tục xây dựng kế hoạch hỗ trợ trong năm 2024.
