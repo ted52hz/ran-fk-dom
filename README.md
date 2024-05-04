@@ -1,6 +1,19 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Sáng 4-5, Sở Giáo dục và Đào tạo TP.HCM đã ban hành quy trình 6 bước đăng ký thi tuyển sinh lớp 10 năm 2024.
+- Nữ sinh Kim Ngọc từng thử áp dụng vào bài kiểm tra môn hóa ở lớp. Kết quả, cô đạt 4 điểm ở bài thi này.
+- Từ ngày 2-11, người đề nghị công nhận văn bằng do nước ngoài cấp có thể tải hồ sơ và các minh chứng lên cổng dịch vụ công trực tuyến của cơ quan có thẩm quyền công nhận văn bằng, rút ngắn thời gian nhận kết quả.
+- Chiều 3-5, Đại học Quốc gia TP.HCM công bố kết quả trúng tuyển chương trình thu hút các nhà khoa học trẻ xuất sắc, nhà khoa học đầu ngành về công tác tại Đại học Quốc gia TP.HCM đợt 1 năm 2024.
+- Bộ trưởng Bộ Giáo dục và Đào tạo đã ban hành quyết định về việc phê duyệt chủ trương thành lập Phân hiệu Trường đại học Cần Thơ tại tỉnh Sóc Trăng.
+- Năm 2019 TP.HCM có 478 trường nghề tư thục, đến năm 2023 còn 301. Năm 2019, các trường nghề tư thục tuyển sinh được hơn 280.000, đến năm 2023 còn hơn 77.000.
+- Sở Giáo dục và Đào tạo TP.HCM yêu cầu Trường Quốc tế TP.HCM kiểm điểm giáo viên phát sách có nội dung giường chiếu nhạy cảm cho học sinh lớp 11.
+- Điểm đến tiếp theo trong chương trình Khám phá trường học là Trường đại học Quản lý và Công nghệ TP.HCM (UMT).
+- Cơn mưa giải nhiệt kèm theo lốc xoáy đã tàn phá một ngôi trường tiểu học ở Huế khiến toàn bộ học sinh của trường buộc phải nghỉ học.
+- Ở nhiều trường đại học, thí sinh chỉ cần học bạ đạt 5 điểm/môn là trúng tuyển, thậm chí dưới 5 điểm cũng đậu nếu có điểm ưu tiên.
+- Nắng nóng, nguồn nước cho Trường phổ thông dân tộc bán trú - THCS Trung Lý, huyện Mường Lát thiếu trầm trọng. Thầy giáo lại lên núi khơi nguồn nước.
+- Các thầy cô giáo đang bổ trợ kiến thức cho các học sinh đến lớp muộn sau sự việc phụ huynh phản đối sáp nhập trường ở huyện Thanh Chương, Nghệ An.
+- Phụ huynh bức xúc 'tố' giáo viên Trường Quốc tế TP.HCM phát cho học sinh lớp 11 một cuốn sách (tiếng Việt) với những ngôn ngữ trần trụi, nhạy cảm.
 - 15h chiều nay (3-5), Sở GD-ĐT TP.HCM sẽ mở cổng cho học sinh lớp 9 đăng ký nguyện vọng thi tuyển sinh lớp 10 năm 2024.
 - Bộ Giáo dục và Đào tạo vừa phê duyệt kế hoạch kiểm tra công tác chuẩn bị kỳ thi tốt nghiệp THPT năm 2024.
 - Chiều 2-5, nhà văn Mỹ Robert Olen Butler có dịp trò chuyện với sinh viên TP.HCM trong chương trình diễn ra tại Trường đại học Hoa Sen.
@@ -18,53 +31,42 @@
 - Năm 2025, sau khi dừng các lớp chuyên trong trường THPT thường, TP.HCM có thể thành lập thêm trường THPT chuyên thứ 3 để đáp ứng nhu cầu của học sinh toàn thành phố.
 - Đại học Quốc gia TP.HCM tuyển sinh theo nhiều phương thức khác nhau. Thực tế cho thấy điểm chuẩn các nhóm ngành rất khác nhau ở các phương thức xét tuyển.
 - Đây là những bức ảnh ghi lại góc nhìn độc đáo của học sinh TP.HCM trên chuyến thủy trình xuôi dòng sông Sài Gòn trong chung kết hội thi sáng tác ảnh Tuổi Xanh.
-- Từ năm học mới tới đây, sinh viên quốc tế tại Canada chỉ có thể làm việc tối đa 24 giờ trong tuần bên ngoài trường học, theo các quy định mới.
-- Hai đại học thuộc nhóm Ivy League bắt đầu đình chỉ sinh viên từ chối ngừng biểu tình.
-- Đề văn dài ba trang A4 là chuyện bình thường và độ dài của đề văn này chưa là gì so với các văn bản xuất hiện trong các đề thi tiếng Anh?
-- Lệnh cấm điện thoại di động, thuốc lá điện tử trong trường học được Ontario áp dụng từ năm học tới. Học sinh vi phạm có thể bị đình chỉ học.
-- Thí sinh tự do sẽ đăng ký dự thi tốt nghiệp THPT trực tiếp tại các địa điểm do Sở Giáo dục và Đào tạo quy định.
-- Đại học Quốc gia TP.HCM vừa công bố danh sách 149 trường THPT thuộc diện ưu tiên xét tuyển theo quy định của đại học này năm 2024.
-- Sở Giáo dục và Đào tạo Hà Nội gửi thông báo khẩn sau vụ 2 nam sinh lớp 11 chết đuối ngày 29-4. 3 trẻ khác chết đuối ở Quảng Ninh và Lào Cai.
-- Giải chạy việt dã lần I, năm 2024 thuộc chương trình "VTTU - WE ARE ONE" (Chúng ta là một) do Trường đại học Võ Trường Toản (VTTU) tổ chức.
-- Tính đến ngày 29-4, đã có gần 20 trường đại học công bố điểm chuẩn xét tuyển sớm theo phương thức xét học bạ THPT, trong đó nhiều ngành/chương trình đào tạo thí sinh có học bạ đạt 6 điểm/môn có thể trúng tuyển đại học.
-- Hơn 100 đại học, cao đẳng sử dụng kết quả thi đánh giá năng lực Đại học Quốc gia TP.HCM năm 2024 để xét tuyển. Sắp xếp nguyện vọng thế nào để tăng cơ hội trúng tuyển ở phương thức này?
-- Philippines sẽ đóng cửa các trường công lập trên toàn quốc ngày 29 và 30-4. Đồng thời, Lào đang xem xét cho học sinh nghỉ học trong bối cảnh nắng nóng kéo dài.
-- Nhiều thí sinh phản ánh hệ thống bị lỗi khiến thí sinh không thể hoàn thành bài thi, kết quả không được công nhận.
-- Nhà chức trách Trung Quốc ngày 28-4 cho biết nước này sẽ phát động chiến dịch chống bắt nạt học đường trên quy mô toàn quốc.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Phó bí thư Thường trực Tỉnh ủy Bắc Giang Lê Thị Thu Hồng tạm thời điều hành hoạt động của Tỉnh ủy Bắc Giang sau khi Bí thư Tỉnh ủy Bắc Giang Dương Văn Thái bị bãi nhiệm đại biểu Quốc hội.
-- Đang ở phòng làm việc, phó chánh án Tòa án nhân dân huyện Cam Lộ (Quảng Trị) bị một người đàn ông xông vào đâm trọng thương.
-- Một số tin tức đáng chú ý: Phạt Đất Xanh Miền Nam vì 'ém' thông tin trái phiếu; Tháng 4-2024, xảy ra 1.995 vụ tai nạn giao thông, làm chết 845 người; Tăng ca ngộ độc, giảm ca tai nạn giao thông tại Bệnh viện Chợ Rẫy kỳ nghỉ lễ...
-- Hôm nay 3-5, thời tiết các tỉnh phía Bắc đã bớt oi bức, mưa dông xuất hiện. Nam Bộ vẫn nắng nóng gay gắt dù một vài nơi mưa rào.
-- Công an đã bắt giữ Nguyễn Doãn B. để điều tra nghi án hiếp dâm cụ bà 75 tuổi khiến dư luận xôn xao.
-- Huế, Quảng Bình, Quảng Trị đón trận "mưa vàng" sau đợt nắng nóng kỷ lục lên đến 44 độ C những ngày qua.
-- Lực lượng chức năng huyện Châu Thành, Tây Ninh đang phong tỏa hiện trường, làm rõ vụ một bé gái 9 tháng tuổi chết bất thường ở địa phương.
-- Liên quan đến vụ phân lô, bán nền ở Phú Quốc, ông Đoàn Thanh Tuấn - cán bộ địa chính ở xã Cửa Dương (TP Phú Quốc) - hôm nay đã ra Công an TP Phú Quốc đầu thú vì nhận hối lộ 50 triệu đồng để làm ngơ như không biết sự việc trên.
-- UBND TP.HCM vừa có công văn kiến nghị Bộ Xây dựng về hướng dẫn phương pháp đánh giá về trật tự, an toàn giao thông.
-- Theo báo cáo của Bệnh viện Lê Văn Thịnh (TP Thủ Đức), đã có 15 học sinh thuộc nhiều trường tiểu học nghi ngộ độc thực phẩm.
-- Tiệm bánh mì giữa thành phố bán hơn 1.000 ổ mỗi ngày nhưng cơ sở này không có giấy chứng nhận cơ sở đủ điều kiện an toàn thực phẩm.
-- Chiều 2-5, các đoàn đại biểu TP.HCM đã đến tận nhà, thăm hỏi sức khỏe cựu chiến sĩ Điện Biên nhân kỷ niệm 70 Chiến thắng Điện Biên Phủ (ngày 7-5).
-- Ngày 2-5, Công an quận 12 (TP.HCM) đang điều tra làm rõ vụ việc một bé trai 7 tuổi đuối nước tử vong tại một hồ bơi ở phường Tân Thới Nhất (quận 12).
-- Sở Y tế Đồng Nai có văn bản hỏa tốc tăng cường công tác điều trị, điều tra vụ ngộ độc thực phẩm xảy ra sau khi ăn bánh mì khiến hơn 300 người nhập viện.
-- Sau nhiều ngày làm việc xuyên kỳ nghỉ lễ, đơn vị nuôi trồng thủy sản đã cơ bản thu dọn hết gần 200 tấn xác cá dưới hồ Sông Mây.
-- Dự báo khoảng từ ngày 5-5, nắng nóng diện rộng ở khu vực miền Trung và Nam Bộ sẽ giảm. Trong khi ở miền Bắc có mưa rào và dông vào chiều tối.
-- Ngày 2-5, Phó chủ tịch thường trực Quốc hội Trần Thanh Mẫn được phân công điều hành hoạt động của Ủy ban Thường vụ Quốc hội và Quốc hội.
-- Chiến sĩ cảnh sát giao thông ở huyện Cần Giờ (TP.HCM) trong lúc đuổi theo nam thanh niên chạy xe máy có dấu hiệu vi phạm giao thông đã va chạm với hai người đi xe máy khác, cả ba nguy kịch.
-- Quốc hội đã thông qua nghị quyết về việc bãi nhiệm đại biểu Quốc hội khóa XV với bí thư Tỉnh ủy Bắc Giang Dương Văn Thái.
-- Chiều 2-5, Quốc hội đã thống nhất miễn nhiệm chức vụ Chủ tịch Quốc hội nhiệm kỳ 2021 - 2026, cho thôi làm nhiệm vụ đại biểu Quốc hội khóa XV với ông Vương Đình Huệ.
-- Bộ Giao thông vận tải đề nghị các cơ quan liên quan của tỉnh Đồng Tháp sớm hoàn thiện thủ tục tăng công suất khai thác 5 mỏ cát trên địa bàn tỉnh, để cung cấp cho dự án đường cao tốc Cần Thơ - Hậu Giang và Hậu Giang - Cà Mau.
-- Một nam thanh niên điều khiển chiếc xe máy màu đen trong tư thế nằm trên yên, lao vun vút trong làn xe buýt nhanh BRT ở Hà Nội.
-- Nồi hơi là thiết bị phổ biến trong hoạt động của nhiều ngành công nghiệp hiện nay và cần đội ngũ có chuyên môn vận hành để đảm bảo an toàn.
-- Liên quan vụ ngộ độc sau khi ăn bánh mì, nhiều bệnh nhi nhiễm trùng đường ruột nặng phải chuyển viện. Trong đó, một bé trai bị sốc nặng, phải thở máy.
-- Chiếc xe BMW X5 đang đỗ ở lề đường Ngô Thì Sỹ (Hà Đông) bất ngờ bốc cháy nghi ngút.
-- Sau nhiều tháng nắng hạn liên tục, cơn 'mưa vàng' xuất hiện ở một số địa phương làm dịu đi cái nóng như thiêu đốt cho người và cây trồng.
-- Cống ngăn mặn Nguyễn Tấn Thành tại tỉnh Tiền Giang được xem là cống ngăn mặn lớn thứ 2 tại miền Tây, đã chính thức được mở sau 2 tháng đóng để ngăn mặn, trữ ngọt.
-- Sáng 2-5, Thường trực Tỉnh ủy Đắk Lắk tổ chức hội nghị công bố các quyết định điều động, bổ nhiệm nhiều lãnh đạo, cán bộ chủ chốt ở các sở ngành, địa phương.
-- Theo khảo sát, thương lái dùng nhiều mánh khóe để luôn ở thế cửa trên trong mua bán lúa với nông dân. Đó là những 'chiêu' nào?
-- Do chủ đầu tư đang chờ ý kiến từ Bộ Giao thông vận tải nên tuyến cao tốc Cam Lâm - Vĩnh Hảo vẫn chưa tổ chức thu phí như dự kiến.
+- Tổng cục Thuế kiến nghị bắt buộc thanh toán không dùng tiền mặt khi mua bán vàng để minh bạch hoạt động kinh doanh vàng.
+- Gần 100 cây xanh trên đường Hoàng Hoa Thám, quận Tân Bình, TP.HCM được di dời, đốn hạ để có mặt bằng thi công dự án mở rộng đường.
+- Từ khoảng 4h30 sáng 4-5, nhiều nơi tại TP.HCM có mưa dông rỉ rả kéo dài tới sáng.
+- Tin tức đáng chú ý: Bộ Giáo dục và Đào tạo nói gì về quản lý học sinh, sinh viên làm bán thời gian?; 'Sổ đỏ' theo Luật đất đai mới gồm những nội dung nào?; Từ ngày 1-7 chỉ sử dụng duy nhất tài khoản VNeID khi thực hiện dịch vụ công trực tuyến...
+- Hôm nay Nam Bộ thời tiết được dự báo nắng nóng vẫn chiếm ưu thế, chiều tối vài nơi mưa dông, Tây Nguyên vài nơi mưa to.
+- Nhóm người từ Tiền Giang qua Long An bắt ếch thì bị sét đánh khiến một người chết. Đài khí tượng thủy văn Nam Bộ cũng đã phát đi tin cảnh báo dông tố, lốc, sét, mưa đá và mưa lớn cục bộ.
+- Do gom nước thải chưa triệt để, công ty phát triển hạ tầng dệt may đã bị xử phạt 250 triệu đồng.
+- Hai doanh nghiệp hệ sinh thái Tuần Châu nhận từ phía bà Trương Mỹ Lan hơn 6.000 tỉ đồng trong thương vụ mua bán cổ phần và bất động sản tại Quảng Ninh. Song số tiền này lại được rút từ SCB.
+- Sự tham dự của Bộ trưởng Quốc phòng Pháp Sebastien Lecornu tại lễ kỷ niệm Chiến thắng Điện Biên Phủ là mang tính lịch sử, với một loạt cuộc gặp bao gồm cả các cựu chiến binh ở cả hai phía.
+- Phó thủ tướng Trần Lưu Quang vừa ký công điện số 44 ngày 3-5 của Thủ tướng Chính phủ yêu cầu các bộ, ngành, địa phương triển khai các biện pháp ngăn ngừa, xử lý ngộ độc thực phẩm.
+- Những ngày này, khắp các tuyến đường TP Điện Biên Phủ ngập tràn cờ hoa, banner, khẩu hiệu chào mừng 70 năm Chiến thắng Điện Biên Phủ.
+- Công an TP.HCM đang giám sát chặt hoạt động của 'hội vỡ nợ muốn làm liều' để ngăn chặn kịp thời các hành vi vi phạm pháp luật.
+- Chủ tịch UBND TP.HCM Phan Văn Mãi yêu  cầu Ban Quản lý đường sắt đô thị TP.HCM tháo gỡ khó khăn, nhanh chóng thanh toán cho nhà thầu để đưa tuyến metro số 1 vào vận hành trong năm nay.
+- Cơ quan khí tượng dự báo tối nay nhiều tỉnh thành từ Trung Bộ trở vào Nam Bộ mưa dông phủ lối. Bản đồ mây vệ tinh cũng cho thấy mây hình thành mạnh.
+- Ông Đỗ Tiến Đạt, phó giám đốc Sở Công Thương tỉnh Quảng Ngãi, có đơn xin thôi việc theo nguyện vọng cá nhân.
+- TP.HCM đã yêu cầu các chủ đầu tư rà soát các gói thầu có sự tham gia của Tập đoàn Thuận An.
+- Ngày 3-5, Ban Thường vụ Tỉnh ủy Bắc Giang thông tin chính thức về người điều hành hoạt động của Tỉnh ủy.
+- Viện Nghiên cứu nuôi trồng thủy sản III cho rằng tôm hùm Khánh Hòa chết do hàm lượng oxy hòa tan trong nước ở tầng đáy thấp, nhiệt độ nước tăng cao, thả tôm với mật độ dày...
+- Chiều 3-5, ghi nhận của Tuổi Trẻ Online, tại huyện Châu Thành và TP Rạch Giá đã xuất hiện mưa từ 15h30 đến 17h. Dù nhiều nơi chỉ mưa thoáng qua nhưng đã giúp phần nào giảm oi bức.
+- Nắng nóng kéo dài khiến cho tình trạng sạt lở, sụt lún đất ở vùng đệm U Minh Thượng diễn ra phức tạp và đặc biệt thiếu nước cục bộ khiến cho người dân xã đảo Tiên Hải, Hòn Sơn (Kiên Giang) gặp khó.
+- Ngay sau khi có thông tin AstraZeneca thừa nhận vắc xin COVID-19 của hãng có thể gây tác dụng phụ hiếm gặp là hình thành cục máu đông, có bác sĩ đã khuyến cáo người dân nên đi xét nghiệm để tìm “cục máu đông”. Liệu điều này có cần thiết?
+- Hình ảnh gần 200 tấn cá chết nổi trắng mặt hồ Sông Mây khiến nhiều người sửng sốt, xót xa. Song thực tế việc này như thế nào?
+- Anh hùng lao động Huỳnh Văn Thòn sẽ được làm quy trình cho thôi làm đại diện phần vốn nhà nước tại Công ty cổ phần Tập đoàn Lộc Trời do đã quá tuổi nghỉ hưu.
+- Bộ Giao thông vận tải bổ sung quy định giấy phép lái xe (bằng lái) có thông tin đã được xác thực trên VNeID là hợp lệ. Tuy nhiên, đến thời điểm này, tài xế vẫn phải mang theo bằng lái xe dù đã xác thực thông tin trên VNeID.
+- Thời gian qua, chính quyền TP.HCM đã có những buổi làm việc với các bên liên quan để tháo gỡ khó khăn, vướng mắc cho tuyến metro số 1.
+- Phản ánh công viên khu dân cư Vĩnh Lộc còn nhiều bất cập, cử tri quận Bình Tân kiến nghị địa phương có giải pháp quản lý, chấn chỉnh và khắc phục
+- Sở Du lịch TP.HCM đang xin chủ trương UBND TP bắn pháo hoa tầm thấp tại 3 điểm trong lễ khai mạc Lễ hội sông nước lần 2 năm 2024.
+- Ngày 3-5, Phó thủ tướng Trần Hồng Hà chủ trì cuộc họp nghe báo cáo, cho ý kiến về phương án đầu tư mở rộng đoạn TP.HCM - Long Thành thuộc dự án đường bộ cao tốc TP.HCM - Long Thành - Dầu Giây.
+- Liên tiếp nhiều vụ ngộ độc thực phẩm gần đây chủ yếu liên quan đến thức ăn đường phố, nắng nóng là điều kiện thuận lợi để vi khuẩn phát triển cấp số nhân.
+- Người dân đổ xô ra bãi biển nhặt sò huyết, ngao khi các loại hải sản này dạt kín dọc bãi biển Cửa Lò, Nghệ An.
 ![New](News.png)
 ## Nhịp sống số 
+- Với sự xuất hiện của 6G, thế hệ băng thông mở rộng tiếp theo sẽ mang đến nhiều công năng và bất ngờ hơn.
+- Con chip này còn có thể dùng trong các hệ thống cảm biến và giám sát như trong xe tự hành hoặc để phát hiện lỗi nhỏ trong dây chuyền lắp ráp robot.
 - Galaxy Z Fold là một biểu tượng của Samsung trong công nghệ mới, khi có khả năng gập đôi và màn hình rộng gần 8 inch.
 - Để các đối tác nhà hàng, quán ăn được tiếp sức trên chặng đường đầy cạnh tranh, Gojek tiếp tục xây dựng kế hoạch hỗ trợ trong năm 2024.
 - Kết hợp lợi ích của public cloud và các máy chủ vật lý trong một mô hình Hybrid tăng mức độ linh hoạt, khả năng mở rộng và hiệu quả chi phí tối ưu.
@@ -93,6 +95,4 @@
 - Theo lời giới thiệu của chủ tịch Jensen Huang, phiên bản chip AI mới có thể xử lý một số tác vụ nhanh gấp 30 lần so với thế hệ cũ.
 - Chuyên gia bảo mật phát hiện mối đe dọa phổ biến nhất nhắm vào smartphone chính là phần mềm quảng cáo, chiếm đến 40,8%.
 - Có nhiều nguyên nhân khiến máy tính xách tay cháy nổ, do đó người dùng nên trang bị kiến thức cần thiết để sử dụng và bảo quản máy đúng cách.
-- Ba nhà văn Brian Keene, Abdi Nazemian và Stewart O'Nan đã khởi kiện Nvidia vì tự ý sử dụng các tác phẩm của họ để huấn luyện công cụ AI NeMo.
-- Nhóm nghiên cứu đến từ Trường đại học California, Riverside (UCR) phát triển thuật toán giúp gia tăng tốc độ xử lý của máy tính hiện nay lên gấp đôi.
 ![life](Life.png)
