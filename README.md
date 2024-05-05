@@ -1,6 +1,17 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Sinh viên Trần Ngọc Quỳnh Giang đã đoạt giải đặc biệt tại kỳ thi Olympic toán học sinh viên và học sinh toàn quốc năm 2024.
+- Theo Phó thủ tướng Trần Hồng Hà, việc đào tạo ngành vi mạch bán dẫn cần có tính toán, dự báo dựa trên tín hiệu thị trường, thực sự đáp ứng nhu cầu của thị trường, tránh phát triển nóng, tràn lan, thiếu hiệu quả.
+- Phòng Giáo dục và Đào tạo TP Nha Trang (Khánh Hòa) vừa có văn bản gửi các trường tiểu học, THCS trên địa bàn không tự tổ chức các hoạt động trải nghiệm mang tính tự phát.
+- Phó chủ tịch UBND TP.HCM Dương Anh Đức yêu cầu sớm xử lý vi phạm tại lớp mẫu giáo Tí Bo.
+- Theo thống kê có khoảng 9 triệu lượt khách tham gia 'chữa lành' dịp lễ vừa qua, tăng 14,2% so với cùng kỳ năm trước.
+- Hàng loạt quốc gia châu Á tiếp tục đóng cửa trường học và chuyển sang hình thức học trực tuyến trong bối cảnh nắng nóng kéo dài.
+- Tôi đã đọc toàn bộ cuốn Một thoáng ta rực rỡ ở nhân gian của tác giả Ocean Vương ngay khi nó được xuất bản ở Việt Nam năm 2021 và có đọc cả bản gốc bằng tiếng Anh.
+- Nhiều phụ huynh lo lắng hỏi sách tham khảo được các trường lựa chọn thế nào mà xảy ra vụ học sinh được phát sách nhạy cảm?
+- Bộ Giáo dục và Đào tạo vừa công bố danh mục các phương thức xét tuyển năm 2024. Thí sinh nên lựa chọn thế nào và cần lưu ý gì?
+- Những lùm xùm xung quanh quyển sách có nội dung được cho là 'nhạy cảm' ở trường quốc tế ghi nhận nhiều ý kiến trái chiều.
+- Cách thức tuyển sinh lớp 1, lớp 6 năm 2024 ở TP.HCM có nhiều điểm mới. Vậy phụ huynh sẽ đăng ký ra sao, khi nào thì được đăng ký?
 - Sáng 4-5, Sở Giáo dục và Đào tạo TP.HCM đã ban hành quy trình 6 bước đăng ký thi tuyển sinh lớp 10 năm 2024.
 - Nữ sinh Kim Ngọc từng thử áp dụng vào bài kiểm tra môn hóa ở lớp. Kết quả, cô đạt 4 điểm ở bài thi này.
 - Từ ngày 2-11, người đề nghị công nhận văn bằng do nước ngoài cấp có thể tải hồ sơ và các minh chứng lên cổng dịch vụ công trực tuyến của cơ quan có thẩm quyền công nhận văn bằng, rút ngắn thời gian nhận kết quả.
@@ -20,49 +31,38 @@
 - Tính đến 17h hôm nay 2-5, hệ thống quản lý thi của Bộ Giáo dục và Đào tạo ghi nhận có 196.319 thí sinh đăng ký dự thi tốt nghiệp THPT năm 2024.
 - Ngày 2-5, Sở Giáo dục và Đào tạo Hà Nội công bố quy định cấu trúc định dạng và đề thi minh họa ba môn ngữ văn, toán, tiếng Anh của kỳ thi vào lớp 10 năm học 2024 - 2025.
 - 'Khoảng thời gian này các con chủ yếu ôn thi, thời tiết thì đang cao điểm nắng nóng, sao không cho học sinh tự học ở nhà mà phải đi học bù?', phụ huynh thắc mắc.
-- Bộ Giáo dục và Đào tạo ban hành kế hoạch chuẩn bị, tổ chức kỳ thi tốt nghiệp THPT năm 2024, với chi tiết các mốc thời gian thí sinh cần lưu ý.
-- Nhiều phương thức xét tuyển của Trường đại học Sư phạm TP.HCM yêu cầu thí sinh phải có học lực lớp 12 loại giỏi hoặc điểm xét tốt nghiệp THPT từ 8,0 trở lên.
-- Tại các trường đại học ở Mỹ, những cuộc biểu tình của sinh viên bày tỏ sự ủng hộ với Palestine và phản đối cuộc chiến của Israel ở Dải Gaza hiện chưa có dấu hiệu dừng lại.
-- Ngay sau kỳ nghỉ lễ dài, học sinh nhiều bậc học sẽ bước vào kiểm tra cuối học kỳ 2 và những kỳ thi quan trọng: tuyển sinh lớp 10, thi tốt nghiệp THPT.
-- Từ hôm nay (2-5) đến 17h ngày 10-5, thí sinh sẽ chính thức đăng ký dự thi tốt nghiệp THPT năm 2024 theo hình thức trực tuyến.
-- Học sinh lớp 9 ở TP.HCM đăng ký thi tuyển sinh lớp 10 năm 2024 từ 15h ngày 3-5 tại địa chỉ: https://Ts10.hcm.edu.vn.
-- Khảo sát mới của tổ chức giáo dục IDP vào tháng 3-2024 cho thấy nhiều thay đổi trong xu hướng du học năm 2024.
-- Có tới 100 trường học trên khắp Delhi và vùng thủ đô quốc gia (NCR) của Ấn Độ đã nhận được thư điện tử đe dọa đánh bom. Trong đó, hàng chục trường học đã được sơ tán.
-- Năm 2025, sau khi dừng các lớp chuyên trong trường THPT thường, TP.HCM có thể thành lập thêm trường THPT chuyên thứ 3 để đáp ứng nhu cầu của học sinh toàn thành phố.
-- Đại học Quốc gia TP.HCM tuyển sinh theo nhiều phương thức khác nhau. Thực tế cho thấy điểm chuẩn các nhóm ngành rất khác nhau ở các phương thức xét tuyển.
-- Đây là những bức ảnh ghi lại góc nhìn độc đáo của học sinh TP.HCM trên chuyến thủy trình xuôi dòng sông Sài Gòn trong chung kết hội thi sáng tác ảnh Tuổi Xanh.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Tổng cục Thuế kiến nghị bắt buộc thanh toán không dùng tiền mặt khi mua bán vàng để minh bạch hoạt động kinh doanh vàng.
-- Gần 100 cây xanh trên đường Hoàng Hoa Thám, quận Tân Bình, TP.HCM được di dời, đốn hạ để có mặt bằng thi công dự án mở rộng đường.
-- Từ khoảng 4h30 sáng 4-5, nhiều nơi tại TP.HCM có mưa dông rỉ rả kéo dài tới sáng.
-- Tin tức đáng chú ý: Bộ Giáo dục và Đào tạo nói gì về quản lý học sinh, sinh viên làm bán thời gian?; 'Sổ đỏ' theo Luật đất đai mới gồm những nội dung nào?; Từ ngày 1-7 chỉ sử dụng duy nhất tài khoản VNeID khi thực hiện dịch vụ công trực tuyến...
-- Hôm nay Nam Bộ thời tiết được dự báo nắng nóng vẫn chiếm ưu thế, chiều tối vài nơi mưa dông, Tây Nguyên vài nơi mưa to.
-- Nhóm người từ Tiền Giang qua Long An bắt ếch thì bị sét đánh khiến một người chết. Đài khí tượng thủy văn Nam Bộ cũng đã phát đi tin cảnh báo dông tố, lốc, sét, mưa đá và mưa lớn cục bộ.
-- Do gom nước thải chưa triệt để, công ty phát triển hạ tầng dệt may đã bị xử phạt 250 triệu đồng.
-- Hai doanh nghiệp hệ sinh thái Tuần Châu nhận từ phía bà Trương Mỹ Lan hơn 6.000 tỉ đồng trong thương vụ mua bán cổ phần và bất động sản tại Quảng Ninh. Song số tiền này lại được rút từ SCB.
-- Sự tham dự của Bộ trưởng Quốc phòng Pháp Sebastien Lecornu tại lễ kỷ niệm Chiến thắng Điện Biên Phủ là mang tính lịch sử, với một loạt cuộc gặp bao gồm cả các cựu chiến binh ở cả hai phía.
-- Phó thủ tướng Trần Lưu Quang vừa ký công điện số 44 ngày 3-5 của Thủ tướng Chính phủ yêu cầu các bộ, ngành, địa phương triển khai các biện pháp ngăn ngừa, xử lý ngộ độc thực phẩm.
-- Những ngày này, khắp các tuyến đường TP Điện Biên Phủ ngập tràn cờ hoa, banner, khẩu hiệu chào mừng 70 năm Chiến thắng Điện Biên Phủ.
-- Công an TP.HCM đang giám sát chặt hoạt động của 'hội vỡ nợ muốn làm liều' để ngăn chặn kịp thời các hành vi vi phạm pháp luật.
-- Chủ tịch UBND TP.HCM Phan Văn Mãi yêu  cầu Ban Quản lý đường sắt đô thị TP.HCM tháo gỡ khó khăn, nhanh chóng thanh toán cho nhà thầu để đưa tuyến metro số 1 vào vận hành trong năm nay.
-- Cơ quan khí tượng dự báo tối nay nhiều tỉnh thành từ Trung Bộ trở vào Nam Bộ mưa dông phủ lối. Bản đồ mây vệ tinh cũng cho thấy mây hình thành mạnh.
-- Ông Đỗ Tiến Đạt, phó giám đốc Sở Công Thương tỉnh Quảng Ngãi, có đơn xin thôi việc theo nguyện vọng cá nhân.
-- TP.HCM đã yêu cầu các chủ đầu tư rà soát các gói thầu có sự tham gia của Tập đoàn Thuận An.
-- Ngày 3-5, Ban Thường vụ Tỉnh ủy Bắc Giang thông tin chính thức về người điều hành hoạt động của Tỉnh ủy.
-- Viện Nghiên cứu nuôi trồng thủy sản III cho rằng tôm hùm Khánh Hòa chết do hàm lượng oxy hòa tan trong nước ở tầng đáy thấp, nhiệt độ nước tăng cao, thả tôm với mật độ dày...
-- Chiều 3-5, ghi nhận của Tuổi Trẻ Online, tại huyện Châu Thành và TP Rạch Giá đã xuất hiện mưa từ 15h30 đến 17h. Dù nhiều nơi chỉ mưa thoáng qua nhưng đã giúp phần nào giảm oi bức.
-- Nắng nóng kéo dài khiến cho tình trạng sạt lở, sụt lún đất ở vùng đệm U Minh Thượng diễn ra phức tạp và đặc biệt thiếu nước cục bộ khiến cho người dân xã đảo Tiên Hải, Hòn Sơn (Kiên Giang) gặp khó.
-- Ngay sau khi có thông tin AstraZeneca thừa nhận vắc xin COVID-19 của hãng có thể gây tác dụng phụ hiếm gặp là hình thành cục máu đông, có bác sĩ đã khuyến cáo người dân nên đi xét nghiệm để tìm “cục máu đông”. Liệu điều này có cần thiết?
-- Hình ảnh gần 200 tấn cá chết nổi trắng mặt hồ Sông Mây khiến nhiều người sửng sốt, xót xa. Song thực tế việc này như thế nào?
-- Anh hùng lao động Huỳnh Văn Thòn sẽ được làm quy trình cho thôi làm đại diện phần vốn nhà nước tại Công ty cổ phần Tập đoàn Lộc Trời do đã quá tuổi nghỉ hưu.
-- Bộ Giao thông vận tải bổ sung quy định giấy phép lái xe (bằng lái) có thông tin đã được xác thực trên VNeID là hợp lệ. Tuy nhiên, đến thời điểm này, tài xế vẫn phải mang theo bằng lái xe dù đã xác thực thông tin trên VNeID.
-- Thời gian qua, chính quyền TP.HCM đã có những buổi làm việc với các bên liên quan để tháo gỡ khó khăn, vướng mắc cho tuyến metro số 1.
-- Phản ánh công viên khu dân cư Vĩnh Lộc còn nhiều bất cập, cử tri quận Bình Tân kiến nghị địa phương có giải pháp quản lý, chấn chỉnh và khắc phục
-- Sở Du lịch TP.HCM đang xin chủ trương UBND TP bắn pháo hoa tầm thấp tại 3 điểm trong lễ khai mạc Lễ hội sông nước lần 2 năm 2024.
-- Ngày 3-5, Phó thủ tướng Trần Hồng Hà chủ trì cuộc họp nghe báo cáo, cho ý kiến về phương án đầu tư mở rộng đoạn TP.HCM - Long Thành thuộc dự án đường bộ cao tốc TP.HCM - Long Thành - Dầu Giây.
-- Liên tiếp nhiều vụ ngộ độc thực phẩm gần đây chủ yếu liên quan đến thức ăn đường phố, nắng nóng là điều kiện thuận lợi để vi khuẩn phát triển cấp số nhân.
-- Người dân đổ xô ra bãi biển nhặt sò huyết, ngao khi các loại hải sản này dạt kín dọc bãi biển Cửa Lò, Nghệ An.
+- Cơ quan điều tra ra quyết định khởi tố bị can, ra lệnh tạm giam ông Mai Tiến Dũng - cựu bộ trưởng, chủ nhiệm Văn phòng Chính phủ - để điều tra sai phạm liên quan vụ án tại tỉnh Lâm Đồng. Cụ thể ra sao?
+- Một số tin tức đáng chú ý: Lộ diện loạt cổ phiếu tăng 'bốc' nhất sàn; 40 điểm đón, trả khách từ sân bay Tân Sơn Nhất; Lập tổ công tác đôn đốc tiến độ đường sắt đô thị Hà Nội và TP.HCM...
+- Hôm nay 5-5, thời tiết nắng nóng giảm trên cả nước, nhiều nơi mưa dông. Nam Bộ mưa cũng xuất hiện nhiều hơn.
+- Thi thể hai ngư dân Nghệ An mất tích sau vụ chìm tàu câu mực được lực lượng cứu hộ tìm thấy sau hai ngày.
+- Chủ đầu tư dự án đập ngăn mặn ở Nha Trang kiến nghị tỉnh Khánh Hòa chi khoảng 6 tỉ đồng để bồi thường thu hồi đất thuộc dự án BT đường vành đai 2 của Tập đoàn Phúc Sơn.
+- Khoảng 20h tối 4-5, sấm chớp rền vang, gió thổi mạnh, mưa dông bắt đầu xảy ra ở nhiều quận huyện tại TP.HCM.
+- Giữa cái nắng oi nóng tháng 5 tại lòng chảo Điện Biên, hàng trăm nữ cán bộ, chiến sĩ thuộc các lực lượng quân đội và công an đang gấp rút tập luyện để hoàn thiện đội hình chuẩn bị cho lễ kỷ niệm 70 năm Chiến thắng Điện Biên Phủ.
+- Khánh Hòa tập trung chỉ đạo chống khai thác IUU, giám sát chặt hàng trăm tàu cá không đủ điều kiện  khai thác thủy sản.
+- Liên quan tới vụ trúng đấu giá 3 mỏ cát gần 1.700 tỉ ở Hà Nội, ngày 4-5, UBND TP Hà Nội vừa có văn bản báo cáo Thủ tướng Chính phủ, Bộ Tài nguyên và Môi trường.
+- Trả lời tại họp báo Chính phủ chiều tối 4-5, Chánh văn phòng Bộ Nội vụ Vũ Đăng Minh thông tin về tiến độ chuẩn bị cải cách tiền lương từ 1-7 tới đây.
+- Công an tỉnh Lâm Đồng khởi tố ông Phạm Bé, chánh Thanh tra Sở Giao thông vận tải tỉnh Lâm Đồng.
+- Quy hoạch vùng Đông Nam Bộ xác định cảng trung chuyển quốc tế Cần Giờ là một trong những dự án quan trọng của vùng Đông Nam Bộ, sẽ thực hiện cả trước và sau năm 2030.
+- Phòng Giáo dục và Đào tạo TP Nha Trang (Khánh Hòa) vừa có văn bản gửi các trường tiểu học, THCS trên địa bàn không tự tổ chức các hoạt động trải nghiệm mang tính tự phát.
+- Nhiều hộ dân ở xã Bình Hoà Phước, huyện Long Hồ, tỉnh Vĩnh Long lo bị thiệt hại nặng vì UBND huyện lập biên bản, buộc dừng ngay việc lấy nước ngầm nuôi lươn.
+- Kết quả xét nghiệm mẫu máu đối với 3 bệnh nhi ngộ độc sau khi ăn bánh mì thịt cho thấy bị nhiễm khuẩn E.coli.
+- Nhiễu động gió hoạt động mạnh lên kết hợp rãnh áp thấp xích đạo (chứa yếu tố gây mưa) dự báo sẽ gây mưa dông nhiều nơi cho TP.HCM trong tối nay.
+- Các đơn vị sẽ trồng lại bằng hoặc hơn lượng cây xanh đã đốn hạ với từng dự án. Còn trong phạm vi toàn TP, Ban giao thông sẽ có kiến nghị để trồng lại gấp đôi lượng cây đã đốn hạ.
+- Sở Tài nguyên và Môi trường Hà Nội đã có báo cáo nhanh gửi UBND TP Hà Nội liên quan tới sự việc bùn thải từ bãi rác Nam Sơn (Sóc Sơn) tràn xuống đường trong đêm.
+- Đường ĐT 741 đoạn qua Bình Phước được ví là tuyến đường “độc lạ Bình Phước” bởi có nhiều đoạn rất lạ. Trong khi một chiều chỉ 1 mặt đường, còn chiều ngược lại có 2-3 mặt đường.
+- Phó chủ tịch UBND TP.HCM Dương Anh Đức yêu cầu sớm xử lý vi phạm tại lớp mẫu giáo Tí Bo.
+- Trung tướng Tô Ân Xô cho biết ông Dương Văn Thái, nguyên bí thư tỉnh Bắc Giang, bị điều tra về hành vi lợi dụng chức vụ, quyền hạn trong khi thi hành công vụ liên quan vụ án tại Tập đoàn Thuận An.
+- Những ngày tháng 5 lịch sử, TP Điện Biên Phủ như được nhuộm đỏ bởi sắc áo của nhiều đoàn du khách với đồng phục áo cờ đỏ sao vàng cùng những gốc phượng già bung nở đỏ rực khắp thành phố và các điểm di tích Chiến thắng Điện Biên Phủ.
+- Nhà thầu đồng ý cho chủ đầu tư nợ 86 tỉ đồng để đưa Trung tâm Y tế Quân dân y kết hợp huyện Lý Sơn đi vào hoạt động khám chữa bệnh.
+- Chủ tịch UBND TP.HCM Phan Văn Mãi yêu cầu các chủ đầu tư xử lý nghiêm các nhà thầu không đảm bảo năng lực, chây ì, làm chậm trễ dự án.
+- Sau nhiều giờ nỗ lực tìm kiếm, lực lượng chức năng đã tìm thấy thi thể vợ chồng ngư dân đánh cá trên sông Trung Linh, tỉnh Nam Định không may bị lật thuyền.
+- Sau nhiều ngày nắng nóng, hôm nay 4-5, nhiều nơi ở miền Tây như Tiền Giang, Bến Tre, Kiên Giang đã đón 'mưa vàng' giải nhiệt.
+- Chỉ đạo cải cách tiền lương được Thủ tướng Phạm Minh Chính đưa ra, khi chủ trì phiên họp Chính phủ thường kỳ tháng 4-2024 vào sáng 4-5.
+- Ngày 4-5, tại hồ Bàu Sen, phường Lê Hồng Phong, TP Quy Nhơn (Bình Định) xuất hiện tình trạng cá chết hàng loạt, dạt vào bờ khiến nhiều người ngạc nhiên.
+- Cửa hàng hoa bị cháy, hệ thống điện trong nhà tự ngắt dẫn tới cửa cuốn đóng chặt, buộc lực lượng chức năng phải phá cửa.
+- Quy hoạch vùng Đông Nam Bộ xác định đến năm 2030 sẽ hoàn thành cơ bản hệ thống kết cấu hạ tầng khung kết nối vùng và liên vùng, bao gồm khoảng 850km đường bộ cao tốc trong vùng.
 ![New](News.png)
 ## Nhịp sống số 
 - Với sự xuất hiện của 6G, thế hệ băng thông mở rộng tiếp theo sẽ mang đến nhiều công năng và bất ngờ hơn.
