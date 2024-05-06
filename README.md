@@ -1,6 +1,13 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Mở ngành loạn xạ, hợp tác trường và ngành kinh tế còn hạn chế, doanh nghiệp vẫn kêu sinh viên tốt nghiệp thiếu kiến thức và kỹ năng làm việc...
+- Sở Giáo dục và Đào tạo tỉnh Bình Định vừa công bố chỉ tiêu tuyển sinh lớp 10 năm học 2024-2025 cho 56 trường THPT và trực thuộc.
+- Bộ Giáo dục và Đào tạo vừa lưu ý đặc biệt với các trường đại học về việc tuân thủ nghiêm quy định trong tuyển sinh năm 2024. Theo đó, bộ cấm các trường yêu cầu thí sinh xác nhận nhập học sớm.
+- TP Nha Trang (Khánh Hòa) yêu cầu xử lý dứt điểm tình trạng lấn chiếm vỉa hè, buôn bán hàng rong trước cổng trường, bệnh viện, trụ sở các cơ quan.
+- Nhà văn Robert Olen Butler từng đoạt giải Pulitzer (1993) vừa có chuyến đến Việt Nam trong những ngày đầu tháng 5, mà ông gọi là 'trở về'.
+- Một trong ba liên danh nhà thầu thi công dự án trường học gần 60 tỉ đồng ở Quảng Nam tuyên bố giải thể khiến dự án chậm tiến độ.
+- 20 năm kinh nghiệm trong lĩnh vực truyền thông, sau buổi dạy về truyền thông đa phương tiện tại một trường đại học, anh D. bị nhận xét kiến thức chưa vững.
 - Sinh viên Trần Ngọc Quỳnh Giang đã đoạt giải đặc biệt tại kỳ thi Olympic toán học sinh viên và học sinh toàn quốc năm 2024.
 - Theo Phó thủ tướng Trần Hồng Hà, việc đào tạo ngành vi mạch bán dẫn cần có tính toán, dự báo dựa trên tín hiệu thị trường, thực sự đáp ứng nhu cầu của thị trường, tránh phát triển nóng, tràn lan, thiếu hiệu quả.
 - Phòng Giáo dục và Đào tạo TP Nha Trang (Khánh Hòa) vừa có văn bản gửi các trường tiểu học, THCS trên địa bàn không tự tổ chức các hoạt động trải nghiệm mang tính tự phát.
@@ -24,45 +31,38 @@
 - Ở nhiều trường đại học, thí sinh chỉ cần học bạ đạt 5 điểm/môn là trúng tuyển, thậm chí dưới 5 điểm cũng đậu nếu có điểm ưu tiên.
 - Nắng nóng, nguồn nước cho Trường phổ thông dân tộc bán trú - THCS Trung Lý, huyện Mường Lát thiếu trầm trọng. Thầy giáo lại lên núi khơi nguồn nước.
 - Các thầy cô giáo đang bổ trợ kiến thức cho các học sinh đến lớp muộn sau sự việc phụ huynh phản đối sáp nhập trường ở huyện Thanh Chương, Nghệ An.
-- Phụ huynh bức xúc 'tố' giáo viên Trường Quốc tế TP.HCM phát cho học sinh lớp 11 một cuốn sách (tiếng Việt) với những ngôn ngữ trần trụi, nhạy cảm.
-- 15h chiều nay (3-5), Sở GD-ĐT TP.HCM sẽ mở cổng cho học sinh lớp 9 đăng ký nguyện vọng thi tuyển sinh lớp 10 năm 2024.
-- Bộ Giáo dục và Đào tạo vừa phê duyệt kế hoạch kiểm tra công tác chuẩn bị kỳ thi tốt nghiệp THPT năm 2024.
-- Chiều 2-5, nhà văn Mỹ Robert Olen Butler có dịp trò chuyện với sinh viên TP.HCM trong chương trình diễn ra tại Trường đại học Hoa Sen.
-- Tính đến 17h hôm nay 2-5, hệ thống quản lý thi của Bộ Giáo dục và Đào tạo ghi nhận có 196.319 thí sinh đăng ký dự thi tốt nghiệp THPT năm 2024.
-- Ngày 2-5, Sở Giáo dục và Đào tạo Hà Nội công bố quy định cấu trúc định dạng và đề thi minh họa ba môn ngữ văn, toán, tiếng Anh của kỳ thi vào lớp 10 năm học 2024 - 2025.
-- 'Khoảng thời gian này các con chủ yếu ôn thi, thời tiết thì đang cao điểm nắng nóng, sao không cho học sinh tự học ở nhà mà phải đi học bù?', phụ huynh thắc mắc.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Cơ quan điều tra ra quyết định khởi tố bị can, ra lệnh tạm giam ông Mai Tiến Dũng - cựu bộ trưởng, chủ nhiệm Văn phòng Chính phủ - để điều tra sai phạm liên quan vụ án tại tỉnh Lâm Đồng. Cụ thể ra sao?
-- Một số tin tức đáng chú ý: Lộ diện loạt cổ phiếu tăng 'bốc' nhất sàn; 40 điểm đón, trả khách từ sân bay Tân Sơn Nhất; Lập tổ công tác đôn đốc tiến độ đường sắt đô thị Hà Nội và TP.HCM...
-- Hôm nay 5-5, thời tiết nắng nóng giảm trên cả nước, nhiều nơi mưa dông. Nam Bộ mưa cũng xuất hiện nhiều hơn.
-- Thi thể hai ngư dân Nghệ An mất tích sau vụ chìm tàu câu mực được lực lượng cứu hộ tìm thấy sau hai ngày.
-- Chủ đầu tư dự án đập ngăn mặn ở Nha Trang kiến nghị tỉnh Khánh Hòa chi khoảng 6 tỉ đồng để bồi thường thu hồi đất thuộc dự án BT đường vành đai 2 của Tập đoàn Phúc Sơn.
-- Khoảng 20h tối 4-5, sấm chớp rền vang, gió thổi mạnh, mưa dông bắt đầu xảy ra ở nhiều quận huyện tại TP.HCM.
-- Giữa cái nắng oi nóng tháng 5 tại lòng chảo Điện Biên, hàng trăm nữ cán bộ, chiến sĩ thuộc các lực lượng quân đội và công an đang gấp rút tập luyện để hoàn thiện đội hình chuẩn bị cho lễ kỷ niệm 70 năm Chiến thắng Điện Biên Phủ.
-- Khánh Hòa tập trung chỉ đạo chống khai thác IUU, giám sát chặt hàng trăm tàu cá không đủ điều kiện  khai thác thủy sản.
-- Liên quan tới vụ trúng đấu giá 3 mỏ cát gần 1.700 tỉ ở Hà Nội, ngày 4-5, UBND TP Hà Nội vừa có văn bản báo cáo Thủ tướng Chính phủ, Bộ Tài nguyên và Môi trường.
-- Trả lời tại họp báo Chính phủ chiều tối 4-5, Chánh văn phòng Bộ Nội vụ Vũ Đăng Minh thông tin về tiến độ chuẩn bị cải cách tiền lương từ 1-7 tới đây.
-- Công an tỉnh Lâm Đồng khởi tố ông Phạm Bé, chánh Thanh tra Sở Giao thông vận tải tỉnh Lâm Đồng.
-- Quy hoạch vùng Đông Nam Bộ xác định cảng trung chuyển quốc tế Cần Giờ là một trong những dự án quan trọng của vùng Đông Nam Bộ, sẽ thực hiện cả trước và sau năm 2030.
-- Phòng Giáo dục và Đào tạo TP Nha Trang (Khánh Hòa) vừa có văn bản gửi các trường tiểu học, THCS trên địa bàn không tự tổ chức các hoạt động trải nghiệm mang tính tự phát.
-- Nhiều hộ dân ở xã Bình Hoà Phước, huyện Long Hồ, tỉnh Vĩnh Long lo bị thiệt hại nặng vì UBND huyện lập biên bản, buộc dừng ngay việc lấy nước ngầm nuôi lươn.
-- Kết quả xét nghiệm mẫu máu đối với 3 bệnh nhi ngộ độc sau khi ăn bánh mì thịt cho thấy bị nhiễm khuẩn E.coli.
-- Nhiễu động gió hoạt động mạnh lên kết hợp rãnh áp thấp xích đạo (chứa yếu tố gây mưa) dự báo sẽ gây mưa dông nhiều nơi cho TP.HCM trong tối nay.
-- Các đơn vị sẽ trồng lại bằng hoặc hơn lượng cây xanh đã đốn hạ với từng dự án. Còn trong phạm vi toàn TP, Ban giao thông sẽ có kiến nghị để trồng lại gấp đôi lượng cây đã đốn hạ.
-- Sở Tài nguyên và Môi trường Hà Nội đã có báo cáo nhanh gửi UBND TP Hà Nội liên quan tới sự việc bùn thải từ bãi rác Nam Sơn (Sóc Sơn) tràn xuống đường trong đêm.
-- Đường ĐT 741 đoạn qua Bình Phước được ví là tuyến đường “độc lạ Bình Phước” bởi có nhiều đoạn rất lạ. Trong khi một chiều chỉ 1 mặt đường, còn chiều ngược lại có 2-3 mặt đường.
-- Phó chủ tịch UBND TP.HCM Dương Anh Đức yêu cầu sớm xử lý vi phạm tại lớp mẫu giáo Tí Bo.
-- Trung tướng Tô Ân Xô cho biết ông Dương Văn Thái, nguyên bí thư tỉnh Bắc Giang, bị điều tra về hành vi lợi dụng chức vụ, quyền hạn trong khi thi hành công vụ liên quan vụ án tại Tập đoàn Thuận An.
-- Những ngày tháng 5 lịch sử, TP Điện Biên Phủ như được nhuộm đỏ bởi sắc áo của nhiều đoàn du khách với đồng phục áo cờ đỏ sao vàng cùng những gốc phượng già bung nở đỏ rực khắp thành phố và các điểm di tích Chiến thắng Điện Biên Phủ.
-- Nhà thầu đồng ý cho chủ đầu tư nợ 86 tỉ đồng để đưa Trung tâm Y tế Quân dân y kết hợp huyện Lý Sơn đi vào hoạt động khám chữa bệnh.
-- Chủ tịch UBND TP.HCM Phan Văn Mãi yêu cầu các chủ đầu tư xử lý nghiêm các nhà thầu không đảm bảo năng lực, chây ì, làm chậm trễ dự án.
-- Sau nhiều giờ nỗ lực tìm kiếm, lực lượng chức năng đã tìm thấy thi thể vợ chồng ngư dân đánh cá trên sông Trung Linh, tỉnh Nam Định không may bị lật thuyền.
-- Sau nhiều ngày nắng nóng, hôm nay 4-5, nhiều nơi ở miền Tây như Tiền Giang, Bến Tre, Kiên Giang đã đón 'mưa vàng' giải nhiệt.
-- Chỉ đạo cải cách tiền lương được Thủ tướng Phạm Minh Chính đưa ra, khi chủ trì phiên họp Chính phủ thường kỳ tháng 4-2024 vào sáng 4-5.
-- Ngày 4-5, tại hồ Bàu Sen, phường Lê Hồng Phong, TP Quy Nhơn (Bình Định) xuất hiện tình trạng cá chết hàng loạt, dạt vào bờ khiến nhiều người ngạc nhiên.
-- Cửa hàng hoa bị cháy, hệ thống điện trong nhà tự ngắt dẫn tới cửa cuốn đóng chặt, buộc lực lượng chức năng phải phá cửa.
-- Quy hoạch vùng Đông Nam Bộ xác định đến năm 2030 sẽ hoàn thành cơ bản hệ thống kết cấu hạ tầng khung kết nối vùng và liên vùng, bao gồm khoảng 850km đường bộ cao tốc trong vùng.
+- 7 người dân ở Sơn La đang ngồi uống nước ở nhà ven quốc lộ 6 thì chiếc xe tải bất ngờ lao vào làm 2 người tử vong, 5 người bị thương.
+- Hôm nay thời tiết Nam Bộ lại giảm mưa sau vài ngày có mưa nhiều, nắng nóng quay trở lại. Bắc Bộ có mưa rào đến mưa to.
+- Một số tin tức đáng chú ý: Quy hoạch vùng Đồng bằng sông Hồng; Công nhận thành phố Nam Định đạt tiêu chí đô thị loại II; Yên Bái tổ chức lễ gắn biển Di tích lịch sử quốc gia bến Âu Lâu...
+- UBND tỉnh Lâm Đồng sẽ kiểm tra, rà soát các dự án đầu tư kinh doanh bất động sản tại thành phố Đà Lạt và Bảo Lộc.
+- Bộ Ngoại giao khẳng định Việt Nam luôn coi trọng quan hệ, tôn trọng lợi ích chính đáng của Campuchia khi xây kênh đào Phù Nam Techo, nhưng đề nghị phối hợp chia sẻ thông tin về dự án này.
+- Vụ tai nạn liên hoàn trên cao tốc Nội Bài - Lào Cai chiều 5-5 khiến đoạn đường qua Vĩnh Phúc tê liệt nhiều giờ hướng về Hà Nội.
+- Phó thủ tướng Trần Lưu Quang ấn tượng với việc kiểm lâm viên đi 370km tuần tra bảo vệ rừng trong 1 tháng và gợi ý khen thưởng động viên.
+- Trung tâm Báo chí Lễ kỷ niệm 70 năm Chiến thắng Điện Biên Phủ đã được khai trương chiều 5-5 tại TP Điện Biên Phủ.
+- Cục Hàng không thành lập đoàn kiểm tra hoạt động bán vé, kê khai, niêm yết giá vé máy bay của các hãng hàng không Việt Nam.
+- Thủ tướng Chính phủ Phạm Minh Chính nhấn mạnh như trên khi tham dự Hội nghị công bố quy hoạch tỉnh Tây Ninh thời kỳ 2021-2030, tầm nhìn đến năm 2050 chiều 5-5.
+- Chiều 5-5, một số nơi tại TP.HCM mưa dông, có đường vừa mưa đã ngập, người dân đi lại khó khăn.
+- Bộ Y tế phản hồi ý kiến cử tri về tình trạng có quá nhiều đoàn cùng kiểm tra một cơ sở về một nội dung trong cùng thời điểm.
+- Với 50/63 tỉnh thành ghi nhận nhiệt độ kỉ lục trong tháng, tháng 4-2024 trở thành tháng 4 nóng nhất lịch sử tính từ năm 1980.
+- TP Nha Trang (Khánh Hòa) yêu cầu xử lý dứt điểm tình trạng lấn chiếm vỉa hè, buôn bán hàng rong trước cổng trường, bệnh viện, trụ sở các cơ quan.
+- Dự kiến cầu Trà Khúc 2 sẽ đóng từ ngày 10-5 để sửa chữa. Trong khoảng 50 ngày sửa, xe đi trên quốc lộ 1 chú ý khi qua TP Quảng Ngãi phải rẽ hướng khác.
+- Chỉ trong vòng 8 tháng, cả nước đã xảy ra ba vụ ngộ độc lớn và hàng loạt vụ ngộ độc nhỏ khiến hơn 1.000 người nhập viện.
+- Tăng tốc, đột phá, tiên phong, liên kết chặt chẽ, thực chất và hiệu quả. Đi đôi với đó là cơ chế chính sách thông thoáng, đổi mới, hiện đại và hạ tầng chiến lược phát triển nhanh là cách làm để vùng Đông Nam Bộ phát triển.
+- Trong tuần qua, giá cà phê xô lao dốc sau khi thiết lập đỉnh 134.000 đồng/kg. Chỉ trong vài ngày, giá  rớt mạnh, còn quanh mốc 100.000 đồng/kg.
+- Bộ Giao thông vận tải yêu cầu các chủ đầu tư, ban quản lý dự án rà soát các gói thầu có sự tham gia của Tập đoàn Thuận An, báo cáo trước ngày 6-5.
+- Tình trạng tai nạn giao thông xảy ra ngày càng nhiều, trong đó có xuất phát từ nguyên nhân sức khỏe người lái xe.
+- Đường Lã Xuân Oai, TP Thủ Đức liên tục ùn ứ. Tuy dự án nâng cấp đã triển khai nhưng thi công chậm do đội vốn chi phí giải phóng mặt bằng.
+- Chiếc ô tô đi từ huyện Nậm Pồ (Điện Biên) hướng về TP Điện Biên Phủ thì lao xuống vực sâu hàng chục mét, rất may cả 5 người trên xe chỉ bị thương nhẹ.
+- Những ngày nghỉ lễ 30-4, 1-5, dòng khách ùn ùn dồn vào phố cổ Hội An. Không ít khách Việt sau khi trở về đã bày tỏ sự chưa hài lòng thì ở chiều ngược lại, khách quốc tế lại khen hết lời.
+- Đại tướng Phan Văn Giang nêu rõ cuộc gặp với Bộ trưởng Bộ Quân đội Pháp Sébastien Lecornu có ý nghĩa rất quan trọng, mang tinh thần “khép lại quá khứ, hướng tới tương lai tốt đẹp”.
+- UBND TP Phú Quốc cùng doanh nghiệp du lịch đã làm việc với đoàn Tổng lãnh sự quán và Hiệp hội doanh nghiệp Trung Quốc về việc hợp tác xúc tiến du lịch.
+- Mới 12h15 trưa 5-5, bầu trời TP.HCM đã đen kịt mây, trời kéo mưa và đổ xuống nhiều quận huyện, dự báo hôm nay thành phố mưa lớn.
+- Do có khó khăn về ngân sách khi thực hiện dự án vành đai 4, các tỉnh đề nghị trung ương hỗ trợ vốn giải phóng mặt bằng, còn TP.HCM xin tự cân đối vốn.
+- Công ty Thành Đô - chủ đầu tư Cocobay - đã báo cáo cơ quan chức năng kế hoạch triển khai dự án và tình hình xử lý đơn thư của khách.
+- Thủ tướng Phạm Minh Chính vừa có thư biểu dương, khen ngợi những nỗ lực của lực lượng cảnh sát giao thông trong công tác đảm bảo trật tự an toàn giao thông dịp nghỉ lễ vừa qua.
+- Buổi tổng duyệt kỷ niệm 70 năm chiến thắng Điện Biên Phủ đã diễn ra với nhiều hình ảnh ấn tượng, sẵn sàng cho ngày chính thức 7-5.
 ![New](News.png)
 ## Nhịp sống số 
 - Với sự xuất hiện của 6G, thế hệ băng thông mở rộng tiếp theo sẽ mang đến nhiều công năng và bất ngờ hơn.
