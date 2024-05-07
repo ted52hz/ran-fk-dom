@@ -1,6 +1,11 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Sở Giáo dục và đào tạo TP.HCM vừa có báo cáo UBND TP về việc giảm chỉ tiêu tuyển sinh lớp 10 năm 2024. Trong đó, chủ yếu giảm chỉ tiêu ở các quận trung tâm.
+- Tuyển sinh vào lớp 1, lớp 6, lớp 10 ở TP.HCM năm nay có nhiều điểm mới, phụ huynh lưu ý gì để chọn được chỗ học như mong muốn cho con?
+- Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) vừa công bố đề án tuyển sinh năm 2024, trong đó có mức học phí khóa mới.
+- Nhiều phụ huynh cùng con mang những món đồ không dùng đến Nhà nhiều lá (quận 10, TP.HCM) để đổi lấy cây xanh, đọc sách miễn phí tại thư viện.
+- Hiệp hội Toán học công nghiệp và ứng dụng quốc tế SIAM vừa quyết định trao giải thưởng Dénes König 2024 cho TS Phạm Tuấn Huy.
 - Mở ngành loạn xạ, hợp tác trường và ngành kinh tế còn hạn chế, doanh nghiệp vẫn kêu sinh viên tốt nghiệp thiếu kiến thức và kỹ năng làm việc...
 - Sở Giáo dục và Đào tạo tỉnh Bình Định vừa công bố chỉ tiêu tuyển sinh lớp 10 năm học 2024-2025 cho 56 trường THPT và trực thuộc.
 - Bộ Giáo dục và Đào tạo vừa lưu ý đặc biệt với các trường đại học về việc tuân thủ nghiêm quy định trong tuyển sinh năm 2024. Theo đó, bộ cấm các trường yêu cầu thí sinh xác nhận nhập học sớm.
@@ -26,43 +31,38 @@
 - Bộ trưởng Bộ Giáo dục và Đào tạo đã ban hành quyết định về việc phê duyệt chủ trương thành lập Phân hiệu Trường đại học Cần Thơ tại tỉnh Sóc Trăng.
 - Năm 2019 TP.HCM có 478 trường nghề tư thục, đến năm 2023 còn 301. Năm 2019, các trường nghề tư thục tuyển sinh được hơn 280.000, đến năm 2023 còn hơn 77.000.
 - Sở Giáo dục và Đào tạo TP.HCM yêu cầu Trường Quốc tế TP.HCM kiểm điểm giáo viên phát sách có nội dung giường chiếu nhạy cảm cho học sinh lớp 11.
-- Điểm đến tiếp theo trong chương trình Khám phá trường học là Trường đại học Quản lý và Công nghệ TP.HCM (UMT).
-- Cơn mưa giải nhiệt kèm theo lốc xoáy đã tàn phá một ngôi trường tiểu học ở Huế khiến toàn bộ học sinh của trường buộc phải nghỉ học.
-- Ở nhiều trường đại học, thí sinh chỉ cần học bạ đạt 5 điểm/môn là trúng tuyển, thậm chí dưới 5 điểm cũng đậu nếu có điểm ưu tiên.
-- Nắng nóng, nguồn nước cho Trường phổ thông dân tộc bán trú - THCS Trung Lý, huyện Mường Lát thiếu trầm trọng. Thầy giáo lại lên núi khơi nguồn nước.
-- Các thầy cô giáo đang bổ trợ kiến thức cho các học sinh đến lớp muộn sau sự việc phụ huynh phản đối sáp nhập trường ở huyện Thanh Chương, Nghệ An.
 ![Edu](Edu.png)
 ## Thời Sự 
-- 7 người dân ở Sơn La đang ngồi uống nước ở nhà ven quốc lộ 6 thì chiếc xe tải bất ngờ lao vào làm 2 người tử vong, 5 người bị thương.
-- Hôm nay thời tiết Nam Bộ lại giảm mưa sau vài ngày có mưa nhiều, nắng nóng quay trở lại. Bắc Bộ có mưa rào đến mưa to.
-- Một số tin tức đáng chú ý: Quy hoạch vùng Đồng bằng sông Hồng; Công nhận thành phố Nam Định đạt tiêu chí đô thị loại II; Yên Bái tổ chức lễ gắn biển Di tích lịch sử quốc gia bến Âu Lâu...
-- UBND tỉnh Lâm Đồng sẽ kiểm tra, rà soát các dự án đầu tư kinh doanh bất động sản tại thành phố Đà Lạt và Bảo Lộc.
-- Bộ Ngoại giao khẳng định Việt Nam luôn coi trọng quan hệ, tôn trọng lợi ích chính đáng của Campuchia khi xây kênh đào Phù Nam Techo, nhưng đề nghị phối hợp chia sẻ thông tin về dự án này.
-- Vụ tai nạn liên hoàn trên cao tốc Nội Bài - Lào Cai chiều 5-5 khiến đoạn đường qua Vĩnh Phúc tê liệt nhiều giờ hướng về Hà Nội.
-- Phó thủ tướng Trần Lưu Quang ấn tượng với việc kiểm lâm viên đi 370km tuần tra bảo vệ rừng trong 1 tháng và gợi ý khen thưởng động viên.
-- Trung tâm Báo chí Lễ kỷ niệm 70 năm Chiến thắng Điện Biên Phủ đã được khai trương chiều 5-5 tại TP Điện Biên Phủ.
-- Cục Hàng không thành lập đoàn kiểm tra hoạt động bán vé, kê khai, niêm yết giá vé máy bay của các hãng hàng không Việt Nam.
-- Thủ tướng Chính phủ Phạm Minh Chính nhấn mạnh như trên khi tham dự Hội nghị công bố quy hoạch tỉnh Tây Ninh thời kỳ 2021-2030, tầm nhìn đến năm 2050 chiều 5-5.
-- Chiều 5-5, một số nơi tại TP.HCM mưa dông, có đường vừa mưa đã ngập, người dân đi lại khó khăn.
-- Bộ Y tế phản hồi ý kiến cử tri về tình trạng có quá nhiều đoàn cùng kiểm tra một cơ sở về một nội dung trong cùng thời điểm.
-- Với 50/63 tỉnh thành ghi nhận nhiệt độ kỉ lục trong tháng, tháng 4-2024 trở thành tháng 4 nóng nhất lịch sử tính từ năm 1980.
-- TP Nha Trang (Khánh Hòa) yêu cầu xử lý dứt điểm tình trạng lấn chiếm vỉa hè, buôn bán hàng rong trước cổng trường, bệnh viện, trụ sở các cơ quan.
-- Dự kiến cầu Trà Khúc 2 sẽ đóng từ ngày 10-5 để sửa chữa. Trong khoảng 50 ngày sửa, xe đi trên quốc lộ 1 chú ý khi qua TP Quảng Ngãi phải rẽ hướng khác.
-- Chỉ trong vòng 8 tháng, cả nước đã xảy ra ba vụ ngộ độc lớn và hàng loạt vụ ngộ độc nhỏ khiến hơn 1.000 người nhập viện.
-- Tăng tốc, đột phá, tiên phong, liên kết chặt chẽ, thực chất và hiệu quả. Đi đôi với đó là cơ chế chính sách thông thoáng, đổi mới, hiện đại và hạ tầng chiến lược phát triển nhanh là cách làm để vùng Đông Nam Bộ phát triển.
-- Trong tuần qua, giá cà phê xô lao dốc sau khi thiết lập đỉnh 134.000 đồng/kg. Chỉ trong vài ngày, giá  rớt mạnh, còn quanh mốc 100.000 đồng/kg.
-- Bộ Giao thông vận tải yêu cầu các chủ đầu tư, ban quản lý dự án rà soát các gói thầu có sự tham gia của Tập đoàn Thuận An, báo cáo trước ngày 6-5.
-- Tình trạng tai nạn giao thông xảy ra ngày càng nhiều, trong đó có xuất phát từ nguyên nhân sức khỏe người lái xe.
-- Đường Lã Xuân Oai, TP Thủ Đức liên tục ùn ứ. Tuy dự án nâng cấp đã triển khai nhưng thi công chậm do đội vốn chi phí giải phóng mặt bằng.
-- Chiếc ô tô đi từ huyện Nậm Pồ (Điện Biên) hướng về TP Điện Biên Phủ thì lao xuống vực sâu hàng chục mét, rất may cả 5 người trên xe chỉ bị thương nhẹ.
-- Những ngày nghỉ lễ 30-4, 1-5, dòng khách ùn ùn dồn vào phố cổ Hội An. Không ít khách Việt sau khi trở về đã bày tỏ sự chưa hài lòng thì ở chiều ngược lại, khách quốc tế lại khen hết lời.
-- Đại tướng Phan Văn Giang nêu rõ cuộc gặp với Bộ trưởng Bộ Quân đội Pháp Sébastien Lecornu có ý nghĩa rất quan trọng, mang tinh thần “khép lại quá khứ, hướng tới tương lai tốt đẹp”.
-- UBND TP Phú Quốc cùng doanh nghiệp du lịch đã làm việc với đoàn Tổng lãnh sự quán và Hiệp hội doanh nghiệp Trung Quốc về việc hợp tác xúc tiến du lịch.
-- Mới 12h15 trưa 5-5, bầu trời TP.HCM đã đen kịt mây, trời kéo mưa và đổ xuống nhiều quận huyện, dự báo hôm nay thành phố mưa lớn.
-- Do có khó khăn về ngân sách khi thực hiện dự án vành đai 4, các tỉnh đề nghị trung ương hỗ trợ vốn giải phóng mặt bằng, còn TP.HCM xin tự cân đối vốn.
-- Công ty Thành Đô - chủ đầu tư Cocobay - đã báo cáo cơ quan chức năng kế hoạch triển khai dự án và tình hình xử lý đơn thư của khách.
-- Thủ tướng Phạm Minh Chính vừa có thư biểu dương, khen ngợi những nỗ lực của lực lượng cảnh sát giao thông trong công tác đảm bảo trật tự an toàn giao thông dịp nghỉ lễ vừa qua.
-- Buổi tổng duyệt kỷ niệm 70 năm chiến thắng Điện Biên Phủ đã diễn ra với nhiều hình ảnh ấn tượng, sẵn sàng cho ngày chính thức 7-5.
+- Từ rạng sáng 7-5, đoàn người đã đổ về các ngả đường gần trung tâm sân vận động tỉnh Điện Biên để được hòa chung vào không khí đặc biệt dịp kỷ niệm 70 năm Chiến thắng lịch sử Điện Biên Phủ. Tuổi Trẻ Online cập nhật.
+- Từ 4h sáng, con phố Trường Chinh (thành phố Điện Biên Phủ) người người đi lại rộn ràng. Bà con dân tộc Thái cùng các dân tộc anh em từ Lai Châu, Sơn La, Hà Giang… xúng xính váy áo từ khắp nơi tề tựu về Điện Biên trong ngày 7-5 lịch sử.
+- Làm việc với lãnh đạo Đà Nẵng và Quảng Nam, Bộ Nông nghiệp và Phát triển nông thôn thống nhất phương án đầu tư xây dựng công trình đập Quảng Huế để điều tiết nước trên hệ thống sông Vu Gia - Thu Bồn.
+- 70 năm sau chiến thắng Điện Biên Phủ lẫy lừng, cả đất nước đang cùng chung một lòng hướng về Điện Biên trong ngày hội non sông đặc biệt của đất nước.
+- Sau chiến thắng lịch sử Điện Biên Phủ, hàng ngàn bộ đội trở lại chiến trường gỡ mìn, dọn thép gai. Chiến hào xưa thành kênh thủy lợi, hố bom thành ruộng, chiến trường xưa thành nông trường trù phú.
+- Tin tức đáng chú ý: 5,2% hộ gia đình đánh giá là thu nhập giảm, chủ yếu do mất việc; Không khí nhiều thành thị trong nước vẫn ô nhiễm; Lần đầu tiên Việt Nam có Trung tâm Y học thể thao đạt chuẩn của Liên đoàn Bóng đá châu Á...
+- Sáng nay 7-5, thời tiết Bắc Bộ có mưa rào đến mưa to, đặc biệt Điện Biên mưa tầm tã. Nam Bộ và Tây Nguyên ngày nắng nóng trở lại, chiều tối mưa rải rác.
+- 69 năm xây dựng, chiến đấu, chiến thắng và trưởng thành, các thế hệ cán bộ, chiến sĩ Hải quân nhân dân Việt Nam bằng mồ hôi, công sức và cả xương máu của mình ra sức giữ biển, bảo vệ chủ quyền thiêng liêng của Tổ quốc.
+- Hình ảnh cặp voọc Cát Bà ôm đàn con sơ sinh có bộ lông màu vàng thẫm trên vách núi đang gây sốt cộng đồng mạng.
+- Màn bắn pháo hoa tầm cao rực rỡ sắc màu vào tối 6-5 là cái kết ấn tượng trong chương trình nghệ thuật đặc biệt “Điện Biên Phủ - Mốc vàng lịch sử”, được tổ chức tại quảng trường 7-5, thành phố Điện Biên Phủ, tỉnh Điện Biên.
+- Ngày 6-5, Tập đoàn Dầu khí Việt Nam (PVN) vừa công bố hai phát hiện dầu khí mới tại mỏ Rồng và mỏ Bunga Aster.
+- Một cây phượng nằm giữa cánh đồng rau muống xanh mướt ở phường Thạnh Xuân (quận 12, TP.HCM) đang khoe sắc bông đỏ rực, thu hút nhiều người tìm đến chụp ảnh.
+- Hệ thống đèn chiếu sáng cao áp cần được thay thế bằng đèn chiếu sáng LED để tiết kiệm điện hiệu quả.
+- Vụ sạt lở đất xảy ra tại lán tạm của nhóm thi công đường dây 500kV mạch 3 qua Hà Tĩnh khiến 3 công nhân tử vong, 4 người bị thương và 11 người khác chạy thoát.
+- Tái định cư cho người dân vùng dự án cao tốc Biên Hòa - Vũng Tàu là rất quan trọng, địa phương cần đẩy nhanh xây dựng các khu tái định cư để người dân có nơi ở ổn định, yên tâm giao đất làm dự án.
+- Theo báo cáo của Chính phủ, đến hết năm 2023, Việt Nam có 4 nữ bộ trưởng và tương đương, 14 nữ thứ trưởng hoặc cấp tương đương.
+- Sau khi thông xe hai cầu vượt thép tại nút giao Mai Dịch (Hà Nội), luồng phương tiện nhập làn và thoát khỏi vành đai 3 trên cao vẫn xảy ra xung đột, gây ùn tắc trong khung giờ cao điểm.
+- Ngân hàng BIDV vừa có văn bản gửi UBND TP.HCM về việc bố trí vốn thanh toán dự án ngăn triều 10.000 tỉ. Đồng thời yêu cầu nhà đầu tư Trung Nam trả nợ và tái triển khai dự án này.
+- Giận chủ tàu không cho mượn tiền để lấy xe đã cầm ra nên Phạm Văn Sang đã đốt nhà kho làm cháy lan sang nhiều nhà, tàu cá khác đang neo đậu. Tổng thiệt hại trên 6,5 tỉ đồng.
+- Công trình có nguy cơ sập đổ cần được đưa vào phạm vi cứu nạn, cứu hộ bởi quy định cứu hộ cứu nạn với các sự cố đã xảy ra, nhưng thực tế là có những thứ đang ở mức nguy cơ có thể gây nguy hiểm.
+- Hàng chục người phải nhập viện và một người chết sau bữa cỗ có món tiết canh dê tại TP Thái Bình, tỉnh Thái Bình.
+- Kết quả xét nghiệm mẫu phân của một trẻ bị ngộ độc sau khi ăn bánh mì ở Đồng Nai đang điều trị tại Bệnh viện Nhi đồng 2 (TP.HCM) có vi khuẩn Salmonella.
+- Hồ Noọng Luông được người dân gọi là hồ Đại tướng Võ Nguyên Giáp. Hồ thủy lợi này đã biến cánh đồng một vụ rộng hàng trăm héc ta trước đây thành cánh đồng hai vụ.
+- Để xảy ra nhiều vi phạm của dự án khu tái định cư và nhà ở xã hội, Thanh tra tỉnh Bạc Liêu kiến nghị kiểm điểm lãnh đạo Sở Tài nguyên và Môi trường, Sở Xây dựng và UBND TP Bạc Liêu qua các thời kỳ.
+- Chiều 6-5, người dân phản ánh tàn tro bay vào nhiều nhà dân khu vực TP Thủ Đức (TP.HCM), Dĩ An (Bình Dương), ảnh hưởng cuộc sống khiến nhiều người bức xúc.
+- Bộ trưởng Bộ Quân đội Pháp Sébastien Lecornu đã đi thăm những di tích nổi tiếng gắn liền với chiến dịch Điện Biên Phủ là đồi A1 và hầm Đờ Cát vào chiều 6-5
+- Thủ tướng Phạm Minh Chính khẳng định Việt Nam mong muốn cùng Campuchia hợp tác chặt chẽ trong sử dụng, quản lý và bảo vệ sông Mekong, bảo đảm hài hòa lợi ích của các quốc gia ven sông.
+- Bà Ngô Thị Mỹ Lợi, phó bí thư thường trực Thành ủy Đà Lạt, được phân công điều hành Thành ủy Đà Lạt trong thời gian bí thư Thành ủy vắng mặt.
+- Một trận mưa lớn gây lở đất, vùi lấp lán trại có công nhân thi công đường dây 500kV ở Hà Tĩnh chiều 6-5.
+- Bộ Tài nguyên và Môi trường lưu ý Đà Nẵng phải kết hợp khai thác hết công suất nước từ nguồn tại chỗ, đồng thời chỉ đạo các thủy điện ở Quảng Nam "trả nước".
 ![New](News.png)
 ## Nhịp sống số 
 - Với sự xuất hiện của 6G, thế hệ băng thông mở rộng tiếp theo sẽ mang đến nhiều công năng và bất ngờ hơn.
