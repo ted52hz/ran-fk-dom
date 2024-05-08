@@ -1,6 +1,18 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Những thùng nước ngọt đầu tiên của học sinh, giáo viên, phụ huynh tại quận 8, TP.HCM được chở đến xã Tân Thành, huyện Gò Công Đông, tỉnh Tiền Giang từ ngày 7-5.
+- Thí sinh có điểm thi đánh giá tư duy cao nhất kíp thi sáng đợt 4 là học sinh Trường THPT Đan Phượng (Hà Nội), đạt 95,65/100 điểm.
+- Sở Giáo dục và Đào tạo tổ chức hội thi vẽ bích họa sen nhằm hưởng ứng Lễ hội sen Đồng Tháp lần thứ II-2024, qua đó thu hút hàng trăm tác phẩm tranh sen.
+- Chiều tối 7-5, ban tổ chức hội thi sáng tác ảnh Tuổi Xanh năm 2024 tổng kết và trao giải thưởng cho các thí sinh tham dự vòng chung kết.
+- Start-up có tên Tomia phát triển ứng dụng học tập kết hợp AI và phương pháp giáo dục Montessori vốn được nhiều trường mầm non và phụ huynh sử dụng trong nuôi dạy trẻ.
+- Sắp đến ngày diễn ra Hội thi khoa học kỹ thuật quốc tế diễn ra tại Mỹ, nhưng TP.HCM vẫn còn 1 học sinh chưa được cấp visa.
+- Sở Giáo dục và Đào tạo TP.HCM sẽ căn cứ kết quả tuyển sinh lớp 10 năm 2024 và có thể giao chỉ tiêu bổ sung cho các trường còn phòng học.
+- Cổng đăng ký dự thi đánh giá năng lực Đại học Quốc gia TP.HCM đợt 2 năm 2024 sẽ đóng vào cuối ngày hôm nay 7-5.
+- Sở Y tế TP.HCM cho biết không phát hiện vụ ngộ độc tập thể nào tại hai trường tiểu học ở quận 4 và TP Thủ Đức.
+- Có sinh viên đang dùng một lúc đến 4 ứng dụng AI cho học tập, nghiên cứu, từ chương trình chính khóa đến luyện thi tiếng Anh…
+- Từ các loại rác thải hữu cơ, nhóm năm sinh viên của Viện Nghiên cứu và đào tạo Việt - Anh (Đại học Đà Nẵng) đã hiện thực hóa ý tưởng làm ra loại mực viết, màu vẽ đặc biệt.
+- Đại học Quốc gia TP.HCM vừa công bố chỉ tiêu tuyển dụng đợt 2 các nhà khoa học trẻ xuất sắc, các nhà khoa học đầu ngành.
 - Sở Giáo dục và đào tạo TP.HCM vừa có báo cáo UBND TP về việc giảm chỉ tiêu tuyển sinh lớp 10 năm 2024. Trong đó, chủ yếu giảm chỉ tiêu ở các quận trung tâm.
 - Tuyển sinh vào lớp 1, lớp 6, lớp 10 ở TP.HCM năm nay có nhiều điểm mới, phụ huynh lưu ý gì để chọn được chỗ học như mong muốn cho con?
 - Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) vừa công bố đề án tuyển sinh năm 2024, trong đó có mức học phí khóa mới.
@@ -19,52 +31,42 @@
 - Phó chủ tịch UBND TP.HCM Dương Anh Đức yêu cầu sớm xử lý vi phạm tại lớp mẫu giáo Tí Bo.
 - Theo thống kê có khoảng 9 triệu lượt khách tham gia 'chữa lành' dịp lễ vừa qua, tăng 14,2% so với cùng kỳ năm trước.
 - Hàng loạt quốc gia châu Á tiếp tục đóng cửa trường học và chuyển sang hình thức học trực tuyến trong bối cảnh nắng nóng kéo dài.
-- Tôi đã đọc toàn bộ cuốn Một thoáng ta rực rỡ ở nhân gian của tác giả Ocean Vương ngay khi nó được xuất bản ở Việt Nam năm 2021 và có đọc cả bản gốc bằng tiếng Anh.
-- Nhiều phụ huynh lo lắng hỏi sách tham khảo được các trường lựa chọn thế nào mà xảy ra vụ học sinh được phát sách nhạy cảm?
-- Bộ Giáo dục và Đào tạo vừa công bố danh mục các phương thức xét tuyển năm 2024. Thí sinh nên lựa chọn thế nào và cần lưu ý gì?
-- Những lùm xùm xung quanh quyển sách có nội dung được cho là 'nhạy cảm' ở trường quốc tế ghi nhận nhiều ý kiến trái chiều.
-- Cách thức tuyển sinh lớp 1, lớp 6 năm 2024 ở TP.HCM có nhiều điểm mới. Vậy phụ huynh sẽ đăng ký ra sao, khi nào thì được đăng ký?
-- Sáng 4-5, Sở Giáo dục và Đào tạo TP.HCM đã ban hành quy trình 6 bước đăng ký thi tuyển sinh lớp 10 năm 2024.
-- Nữ sinh Kim Ngọc từng thử áp dụng vào bài kiểm tra môn hóa ở lớp. Kết quả, cô đạt 4 điểm ở bài thi này.
-- Từ ngày 2-11, người đề nghị công nhận văn bằng do nước ngoài cấp có thể tải hồ sơ và các minh chứng lên cổng dịch vụ công trực tuyến của cơ quan có thẩm quyền công nhận văn bằng, rút ngắn thời gian nhận kết quả.
-- Chiều 3-5, Đại học Quốc gia TP.HCM công bố kết quả trúng tuyển chương trình thu hút các nhà khoa học trẻ xuất sắc, nhà khoa học đầu ngành về công tác tại Đại học Quốc gia TP.HCM đợt 1 năm 2024.
-- Bộ trưởng Bộ Giáo dục và Đào tạo đã ban hành quyết định về việc phê duyệt chủ trương thành lập Phân hiệu Trường đại học Cần Thơ tại tỉnh Sóc Trăng.
-- Năm 2019 TP.HCM có 478 trường nghề tư thục, đến năm 2023 còn 301. Năm 2019, các trường nghề tư thục tuyển sinh được hơn 280.000, đến năm 2023 còn hơn 77.000.
-- Sở Giáo dục và Đào tạo TP.HCM yêu cầu Trường Quốc tế TP.HCM kiểm điểm giáo viên phát sách có nội dung giường chiếu nhạy cảm cho học sinh lớp 11.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Từ rạng sáng 7-5, đoàn người đã đổ về các ngả đường gần trung tâm sân vận động tỉnh Điện Biên để được hòa chung vào không khí đặc biệt dịp kỷ niệm 70 năm Chiến thắng lịch sử Điện Biên Phủ. Tuổi Trẻ Online cập nhật.
-- Từ 4h sáng, con phố Trường Chinh (thành phố Điện Biên Phủ) người người đi lại rộn ràng. Bà con dân tộc Thái cùng các dân tộc anh em từ Lai Châu, Sơn La, Hà Giang… xúng xính váy áo từ khắp nơi tề tựu về Điện Biên trong ngày 7-5 lịch sử.
-- Làm việc với lãnh đạo Đà Nẵng và Quảng Nam, Bộ Nông nghiệp và Phát triển nông thôn thống nhất phương án đầu tư xây dựng công trình đập Quảng Huế để điều tiết nước trên hệ thống sông Vu Gia - Thu Bồn.
-- 70 năm sau chiến thắng Điện Biên Phủ lẫy lừng, cả đất nước đang cùng chung một lòng hướng về Điện Biên trong ngày hội non sông đặc biệt của đất nước.
-- Sau chiến thắng lịch sử Điện Biên Phủ, hàng ngàn bộ đội trở lại chiến trường gỡ mìn, dọn thép gai. Chiến hào xưa thành kênh thủy lợi, hố bom thành ruộng, chiến trường xưa thành nông trường trù phú.
-- Tin tức đáng chú ý: 5,2% hộ gia đình đánh giá là thu nhập giảm, chủ yếu do mất việc; Không khí nhiều thành thị trong nước vẫn ô nhiễm; Lần đầu tiên Việt Nam có Trung tâm Y học thể thao đạt chuẩn của Liên đoàn Bóng đá châu Á...
-- Sáng nay 7-5, thời tiết Bắc Bộ có mưa rào đến mưa to, đặc biệt Điện Biên mưa tầm tã. Nam Bộ và Tây Nguyên ngày nắng nóng trở lại, chiều tối mưa rải rác.
-- 69 năm xây dựng, chiến đấu, chiến thắng và trưởng thành, các thế hệ cán bộ, chiến sĩ Hải quân nhân dân Việt Nam bằng mồ hôi, công sức và cả xương máu của mình ra sức giữ biển, bảo vệ chủ quyền thiêng liêng của Tổ quốc.
-- Hình ảnh cặp voọc Cát Bà ôm đàn con sơ sinh có bộ lông màu vàng thẫm trên vách núi đang gây sốt cộng đồng mạng.
-- Màn bắn pháo hoa tầm cao rực rỡ sắc màu vào tối 6-5 là cái kết ấn tượng trong chương trình nghệ thuật đặc biệt “Điện Biên Phủ - Mốc vàng lịch sử”, được tổ chức tại quảng trường 7-5, thành phố Điện Biên Phủ, tỉnh Điện Biên.
-- Ngày 6-5, Tập đoàn Dầu khí Việt Nam (PVN) vừa công bố hai phát hiện dầu khí mới tại mỏ Rồng và mỏ Bunga Aster.
-- Một cây phượng nằm giữa cánh đồng rau muống xanh mướt ở phường Thạnh Xuân (quận 12, TP.HCM) đang khoe sắc bông đỏ rực, thu hút nhiều người tìm đến chụp ảnh.
-- Hệ thống đèn chiếu sáng cao áp cần được thay thế bằng đèn chiếu sáng LED để tiết kiệm điện hiệu quả.
-- Vụ sạt lở đất xảy ra tại lán tạm của nhóm thi công đường dây 500kV mạch 3 qua Hà Tĩnh khiến 3 công nhân tử vong, 4 người bị thương và 11 người khác chạy thoát.
-- Tái định cư cho người dân vùng dự án cao tốc Biên Hòa - Vũng Tàu là rất quan trọng, địa phương cần đẩy nhanh xây dựng các khu tái định cư để người dân có nơi ở ổn định, yên tâm giao đất làm dự án.
-- Theo báo cáo của Chính phủ, đến hết năm 2023, Việt Nam có 4 nữ bộ trưởng và tương đương, 14 nữ thứ trưởng hoặc cấp tương đương.
-- Sau khi thông xe hai cầu vượt thép tại nút giao Mai Dịch (Hà Nội), luồng phương tiện nhập làn và thoát khỏi vành đai 3 trên cao vẫn xảy ra xung đột, gây ùn tắc trong khung giờ cao điểm.
-- Ngân hàng BIDV vừa có văn bản gửi UBND TP.HCM về việc bố trí vốn thanh toán dự án ngăn triều 10.000 tỉ. Đồng thời yêu cầu nhà đầu tư Trung Nam trả nợ và tái triển khai dự án này.
-- Giận chủ tàu không cho mượn tiền để lấy xe đã cầm ra nên Phạm Văn Sang đã đốt nhà kho làm cháy lan sang nhiều nhà, tàu cá khác đang neo đậu. Tổng thiệt hại trên 6,5 tỉ đồng.
-- Công trình có nguy cơ sập đổ cần được đưa vào phạm vi cứu nạn, cứu hộ bởi quy định cứu hộ cứu nạn với các sự cố đã xảy ra, nhưng thực tế là có những thứ đang ở mức nguy cơ có thể gây nguy hiểm.
-- Hàng chục người phải nhập viện và một người chết sau bữa cỗ có món tiết canh dê tại TP Thái Bình, tỉnh Thái Bình.
-- Kết quả xét nghiệm mẫu phân của một trẻ bị ngộ độc sau khi ăn bánh mì ở Đồng Nai đang điều trị tại Bệnh viện Nhi đồng 2 (TP.HCM) có vi khuẩn Salmonella.
-- Hồ Noọng Luông được người dân gọi là hồ Đại tướng Võ Nguyên Giáp. Hồ thủy lợi này đã biến cánh đồng một vụ rộng hàng trăm héc ta trước đây thành cánh đồng hai vụ.
-- Để xảy ra nhiều vi phạm của dự án khu tái định cư và nhà ở xã hội, Thanh tra tỉnh Bạc Liêu kiến nghị kiểm điểm lãnh đạo Sở Tài nguyên và Môi trường, Sở Xây dựng và UBND TP Bạc Liêu qua các thời kỳ.
-- Chiều 6-5, người dân phản ánh tàn tro bay vào nhiều nhà dân khu vực TP Thủ Đức (TP.HCM), Dĩ An (Bình Dương), ảnh hưởng cuộc sống khiến nhiều người bức xúc.
-- Bộ trưởng Bộ Quân đội Pháp Sébastien Lecornu đã đi thăm những di tích nổi tiếng gắn liền với chiến dịch Điện Biên Phủ là đồi A1 và hầm Đờ Cát vào chiều 6-5
-- Thủ tướng Phạm Minh Chính khẳng định Việt Nam mong muốn cùng Campuchia hợp tác chặt chẽ trong sử dụng, quản lý và bảo vệ sông Mekong, bảo đảm hài hòa lợi ích của các quốc gia ven sông.
-- Bà Ngô Thị Mỹ Lợi, phó bí thư thường trực Thành ủy Đà Lạt, được phân công điều hành Thành ủy Đà Lạt trong thời gian bí thư Thành ủy vắng mặt.
-- Một trận mưa lớn gây lở đất, vùi lấp lán trại có công nhân thi công đường dây 500kV ở Hà Tĩnh chiều 6-5.
-- Bộ Tài nguyên và Môi trường lưu ý Đà Nẵng phải kết hợp khai thác hết công suất nước từ nguồn tại chỗ, đồng thời chỉ đạo các thủy điện ở Quảng Nam "trả nước".
+- Rạng sáng nay (8-5) một vụ hỏa hoạn tại bãi gửi xe trong Trường Cao đẳng Điện lực Miền Trung ở Hội An đã thiêu rụi 40 xe điện chuyên dùng chở khách du lịch của một doanh nghiệp.
+- Tàu cá của ngư dân Quảng Bình bốc cháy trên vùng biển cách bờ 80 hải lý. May mắn, 7 ngư dân trên tàu được một tàu gần đó ứng cứu.
+- Một số tin tức đáng chú ý: Tàu cao tốc TP.HCM - Côn Đảo chạy từ ngày 13-5; Lãi suất huy động dự báo tiếp tục tăng; Sắp thông thêm cầu vượt tạm ở cửa ngõ sân bay Tân Sơn Nhất...
+- Hôm nay thời tiết Bắc Bộ chuyển mưa to đến rất to, Nam Bộ nắng nóng vẫn chủ đạo, mưa dông xảy ra rải rác và cục bộ trong ngày.
+- Với một số ý kiến tại Hội đồng Nhân quyền dựa trên các nguồn tin chưa kiểm chứng, đoàn Việt Nam đã giải đáp, cung cấp thông tin xác thực, đồng thời nhấn mạnh không có một mô hình chung cho tất cả các nước.
+- Khoảnh khắc sĩ quan cảnh sát cơ động ân cần tặng chiếc còi chỉ huy cho bé gái đứng chào đoàn diễu binh 70 năm Điện Biên Phủ đã "chạm đến trái tim" nhiều người.
+- 28 mỏ cát ở ba tỉnh Vĩnh Long, Tiền Giang và Bến Tre đảm bảo tiêu chuẩn kỹ thuật để sử dụng cho vành đai 3 TP.HCM.
+- Nguyễn Doãn Bảo (38 tuổi, ngụ Hà Tĩnh) bị khởi tố vì lợi dụng bà L. ở nhà một mình đã dùng vũ lực, khống chế và giao cấu, mặc nạn nhân van xin.
+- Ngày 7-5, Bộ Giao thông vận tải đã có văn bản gửi UBND tỉnh Kiên Giang yêu cầu đẩy nhanh tiến độ giải phóng mặt bằng để bàn giao cho đơn vị thi công dự án đường Hồ Chí Minh đoạn Rạch Sỏi - Bến Nhất, Gò Quao - Vĩnh Thuận.
+- Đội thuyết minh trong lễ diễu binh, diễu hành dịp kỷ niệm 70 năm Chiến thắng Điện Biên Phủ có 6 người được tuyển chọn từ ba miền Bắc - Trung - Nam. Họ đã góp phần mang đến cho người dân cả nước cảm xúc tự hào.
+- Ba người đàn ông sống lang thang ở An Giang rủ nhậu chung. Hai người kia bàn mưu cướp tiền của người nọ, rồi dẫn đến tương tàn lẫn nhau dẫn đến chết người.
+- Theo lãnh đạo phường Dịch Vọng Hậu (quận Cầu Giấy, Hà Nội), hàng loạt cây xanh ở các ngõ phố Duy Tân bị cắt trơ trụi là để hạ thấp bộ rễ cây xuống lòng đất, tránh việc bị đổ trong mùa mưa bão.
+- Sau cơn mưa chuyển mùa chiều 7-5, nhiều tuyến đường ở thành phố Biên Hòa (Đồng Nai) ngập nặng, nước chảy xiết làm người đi đường té ngã.
+- Cơ quan chức năng cho biết 5 tháng qua đã xử lý vi phạm 851 xe máy đi ngược chiều trên đường Phạm Văn Đồng (TP.HCM). Tuy nhiên, theo ghi nhận hiện nay, việc vi phạm vẫn còn nhiều.
+- Người mẹ về quê vừa trở lại miền Nam làm việc thì được báo tin con đang học lớp 6 nhảy lầu tự tử. Hiện cháu đang trong tình trạng nguy kịch, đa chấn thương.
+- Sau những cơn mưa rải rác trong ngày, chiều tối 7-5, TP.HCM mưa dông khắp nơi, một số nơi mưa lớn.
+- Theo Chánh án Nguyễn Hòa Bình, trong 6 tháng có 59 vụ, với 188 bị cáo đã khắc phục hậu quả, nộp lại tài sản đã chiếm đoạt trên 266 tỉ đồng.
+- Trong các mẫu thực phẩm lấy từ cơ sở bán bánh mì gửi đi xét nghiệm phát hiện tỉ lệ vi khuẩn Salmonella cao.
+- Mưa mới 15 phút, hàng "đống đống" rác từ con rạch ngang đường Tô Ngọc Vân (TP Thủ Đức) đã trồi lên đầy đường, người dân phải hì hục dọn vì lo ngập sâu.
+- Ba ngân hàng Vietcombank, VietinBank và BIDV dàn xếp vốn cho Tổng công ty Cảng hàng không Việt Nam - ACV vay 1,8 tỉ USD trong vòng 20 năm.
+- HĐND tỉnh Phú Yên mở phiên giải trình công tác quản lý nhà nước về khoáng sản, vì đây là lĩnh vực còn nhiều vướng mắc, bất cập.
+- Tại dự thảo nghị định mới, Bộ Công an đã sửa đổi, bổ sung tập trung vào các loại giấy người dân cần chứng minh chỗ ở hợp pháp khi đăng ký thường trú, tạm trú.
+- Chiều 7-5, TAND TP Đà Nẵng tuyên án các bị cáo trong đường dây sản xuất tiền giả.
+- Hàng rong vỉa hè đua nhau mọc lên trên đoạn đường vừa di dời, đốn hạ gần 100 cây xanh.
+- Ngày 7-5, nhân dịp Việt Nam tổ chức Lễ kỷ niệm 70 năm Chiến thắng Điện Biên Phủ, báo chí quốc tế cũng dành một sự quan tâm đặc biệt.
+- Khu vực thi công móng cột đường dây 500kV mạch 3 nằm bên sườn núi, cách đó khoảng 100m là lán tạm để sinh hoạt của 18 công nhân.
+- TP.HCM sẽ thuê đơn vị tư vấn lập báo cáo đánh giá tổng thể chung cho các dự án vành đai 4 TP.HCM.
+- Bốn ngư dân chứng kiến trận lốc xoáy khủng khiếp trên biển khiến hàng loạt tàu cá bị nhấn chìm đã về tới đất liền. Họ vẫn ám ảnh bởi những gì vừa trải qua.
+- Bị cáo Phạm Ngọc Phượng, cựu giám đốc Trung tâm Pháp y Quảng Ngãi, đã đưa cháu mình bị bệnh thận cấp độ 4 đi khám và đổi tên của người bị kết án vào giấy khám để hợp thức hóa, biến người này từ không có bệnh thành mang bệnh nặng.
+- Các thành viên của nhóm có tên Taxi Lương Sơn đã gửi nhiều tin nhắn, hình ảnh, ghi âm thông tin báo chốt của cảnh sát giao thông để né kiểm tra nồng độ cồn.
 ![New](News.png)
 ## Nhịp sống số 
+- Chỉ trong một thời gian ngắn, truyền hình MyTV của VNPT đã đạt được sự tăng trưởng thần tốc, thực sự trở thành người bạn đồng hành thân thiết với các gia đình Việt mỗi ngày.
+- Kết nối Internet quốc tế gặp sự cố, chập chờn thường là cơn đau đầu của các nhà cung cấp dịch vụ trực tuyến.
 - Với sự xuất hiện của 6G, thế hệ băng thông mở rộng tiếp theo sẽ mang đến nhiều công năng và bất ngờ hơn.
 - Con chip này còn có thể dùng trong các hệ thống cảm biến và giám sát như trong xe tự hành hoặc để phát hiện lỗi nhỏ trong dây chuyền lắp ráp robot.
 - Galaxy Z Fold là một biểu tượng của Samsung trong công nghệ mới, khi có khả năng gập đôi và màn hình rộng gần 8 inch.
@@ -93,6 +95,4 @@
 - Liên tục các vụ nạn nhân bị mất hàng chục, hàng trăm tỉ đồng, mới nhất là Chủ tịch huyện Nhơn Trạch. Tội phạm đã làm cách nào để lấy số tiền khủng như vậy từ tài khoản của khách hàng?
 - 20 cá nhân, tập thể xuất sắc nhất của Viettel trên toàn cầu đã được vinh danh Viettel’s Stars 2023.
 - Theo lời giới thiệu của chủ tịch Jensen Huang, phiên bản chip AI mới có thể xử lý một số tác vụ nhanh gấp 30 lần so với thế hệ cũ.
-- Chuyên gia bảo mật phát hiện mối đe dọa phổ biến nhất nhắm vào smartphone chính là phần mềm quảng cáo, chiếm đến 40,8%.
-- Có nhiều nguyên nhân khiến máy tính xách tay cháy nổ, do đó người dùng nên trang bị kiến thức cần thiết để sử dụng và bảo quản máy đúng cách.
 ![life](Life.png)
