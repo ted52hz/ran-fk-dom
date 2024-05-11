@@ -1,7 +1,23 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
-- Nhiều bước tiến mới về AI sẽ được Google và các chuyên gia công nghệ hàng đầu giới thiệu trong sự kiện AI Day tại TP.HCM. Tuổi TRẻ Online cập nhật.
+- Mức hỗ trợ học phí cho học sinh THCS là 100.000 đồng/học sinh/tháng đối với nhóm 1 và 85.000 đồng/học sinh/tháng đối với nhóm 2.
+- Hội đồng Anh đã cấp 90.481 chứng chỉ tiếng Anh, trong đó có 52.564 chứng chỉ IELTS khi chưa được cấp phép liên kết tổ chức thi.
+- Đại học Kinh tế TP.HCM (UEH) vừa có kết luận ban đầu về xử lý vụ GS.TS Võ Xuân Vinh thuộc Viện Nghiên cứu kinh doanh UEH, có tên trên bài báo vừa bị một tạp chí quốc tế gỡ bỏ.
+- Việc một giáo viên chụp ảnh trẻ không có đồng phục gửi lên nhóm phụ huynh kèm lời nhắn có phần phân biệt đang nhận nhiều sự quan tâm trên mạng xã hội.
+- Tính đến 17h ngày 10-5, cả nước có trên 1 triệu thí sinh đăng ký dự thi tốt nghiệp THPT năm 2024.
+- Năm 2024, Trường đại học Luật TP.HCM tăng chỉ tiêu tuyển sinh lên 1.134 sinh viên cho các phương thức xét tuyển sớm, dành cho 3 nhóm đối tượng.
+- Tổ chức khóa bồi dưỡng kỹ năng căn bản nhằm đáp ứng nhu cầu về kỹ năng trong lĩnh vực báo chí - truyền thông.
+- Ngày 10-5, Sở Giáo dục và Đào tạo Hà Nội công bố số lượng thí sinh đăng ký dự thi lớp 10 công lập năm học 2024-2025.
+- Chiều 10-5, sự kiện AI Day tiếp tục với hội thảo 'Hiểu AI, làm giàu hành trang nghề nghiệp'. Hội thảo được chia thành các phiên, tập trung vào từng lĩnh vực cụ thể mà AI đang để lại nhiều tác động.
+- Do đề thi môn tiếng Anh cuối học kỳ 2 có sơ sót, nên tất cả học sinh lớp 12 Trường THPT Lê Trọng Tấn, TP.HCM phải kiểm tra lại.
+- Đà Nẵng có 16.500 thí sinh đăng ký nguyện vọng 1 tuyển sinh vào lớp 10 THPT, trong khi đó chỉ tiêu phân bổ cho tất cả các trường là 11.616.
+- Hơn 350 câu hỏi của bạn đọc gửi về buổi giao lưu trực tuyến chủ đề 'Lưu ý gì về tuyển sinh lớp 1, lớp 6, lớp 10 trên địa bàn TP.HCM?' do báo Tuổi Trẻ tổ chức sáng 9-5.
+- Hiện học sinh lớp 12 Trường quốc tế AISVN đang thi kỳ thi tú tài quốc tế (IB), đến hôm nay 10-5 sẽ kết thúc. Theo kế hoạch, ngày 17-5 học sinh lớp 12 của trường sẽ tốt nghiệp THPT.
+- Số thí sinh dự thi lớp 10 Trường phổ thông Năng khiếu tăng gần 1.000 em so với năm trước.
+- Bình Dương tiếp tục có tỉ lệ thí sinh tốt nghiệp THPT nhập học đại học năm 2023 cao nhất. Hải Phòng rớt khỏi top 10, Hưng Yên thay thế.
+- Từ 8h-17h hôm nay 10-5, báo Tuổi Trẻ phối hợp với Google tổ chức sự kiện 'Hiểu AI làm giàu hành trang nghề nghiệp' tại Nhà Thiếu nhi TP. HCM. Không gian các gian hàng trong sự kiện AI Day đã sôi động ngay từ sớm.
+- Nhiều bước tiến mới về AI sẽ được Google và các chuyên gia công nghệ hàng đầu giới thiệu trong sự kiện AI Day tại TP.HCM. Tuổi Trẻ Online cập nhật.
 - Đăng ký 'trại hè quân đội nhí' cho con trên Facebook, chỉ trong 5 tiếng, chị M. bị lừa lấy hơn 1 tỉ đồng.
 - Học sinh có 4 ngày đăng ký dự khảo sát vào lớp 6 các trường THCS nổi tiếng ở TP Thủ Đức, TP.HCM.
 - Đại học Quốc gia TP.HCM vừa công bố triển khai phương thức ưu tiên xét tuyển thẳng thí sinh giỏi, tài năng...
@@ -15,54 +31,38 @@
 - GS.TS Võ Xuân Vinh, người ở vị trí thứ 8 trong 47 người Việt vào ‘top nhà khoa học ảnh hưởng nhất thế giới’, vừa bị một tạp chí gỡ bỏ bài báo quốc tế.
 - Phòng giáo dục và đào tạo TP Thủ Đức, TP.HCM vừa công bố kế hoạch tuyển sinh đầu cấp năm học 2024 - 2025.
 - Tại Việt Nam, AI đang được ứng dụng ngày càng rộng rãi trong trường học, mang đến những thay đổi tích cực.
-- Cử tri huyện Hóc Môn, TP.HCM cho rằng ngành giáo dục cần quản lý các trường quốc tế chặt chẽ hơn sau những vụ việc ồn ào thời gian qua.
-- Trong thông báo vừa phát đi, Công ty IDP cho biết hơn 56.200 chứng chỉ IELTS cấp năm 2022 vẫn được thế giới công nhận, dù Bộ Giáo dục và Đào tạo nói chưa tuân thủ quy định tại Việt Nam.
-- Tối 8-5, đã có 19 sinh viên ký túc xá Đại học Quốc gia TP.HCM nhập viện trong tình trạng đau bụng, tiêu chảy... nghi do ngộ độc thực phẩm.
-- Thật lạ khi ngày thi tuyển sinh lớp 10 tại TP.HCM còn hơn 1 tháng, nhiều học sinh lớp 9 đã rẽ hướng đăng ký học các trường nghề. Càng lạ hơn khi lựa chọn "bỏ" lớp 10 công lập có không ít học sinh giỏi.
-- Đến thời điểm này, hàng chục ngàn thí sinh trên cả nước đã biết mình đậu đại học (trúng tuyển có điều kiện) ở các phương thức xét tuyển sớm.
-- Tuyển sinh vào lớp 1, lớp 6, lớp 10 ở TP.HCM năm nay có nhiều điểm mới, phụ huynh lưu ý gì để chọn được chỗ học như mong muốn cho con?
-- Lãnh đạo Sở Giáo dục và Đào tạo Hà Nội khẳng định không cho phép các trường vận động, ép buộc học sinh không dự thi tuyển sinh vào lớp 10.
-- Trước khi giữ cương vị hiệu trưởng, PGS.TS Nguyễn Đức Sơn là phó hiệu trưởng Trường đại học Sư phạm Hà Nội.
-- Kết thúc đăng ký dự thi đánh giá năng lực Đại học Quốc gia TP.HCM đợt 2 năm 2024, có hơn 41.500 thí sinh đăng ký, ít hơn so với năm 2023.
-- Từ ngày 1-1-2022 đến ngày 31-12-2022, Công ty IDP đã liên kết tổ chức thi và cấp 56.230 chứng chỉ  IELTS dù chưa được cấp phép.
-- UBND tỉnh Nghệ An kết luận phần đất các thầy cô mượn để ở thuộc diện tích Trường THPT Dân tộc nội trú tỉnh.
-- Với dự thảo Luật Việc làm sửa đổi, các cơ quan, ban ngành, địa phương nêu nhiều góp ý, đề nghị, trong đó có quản lý học sinh sinh viên làm thêm giờ.
-- Ngoài chatbot AI, còn có nhiều công nghệ mới đang được áp dụng trong giảng dạy và quản lý tại các trường đại học TP.HCM.
-- Em Nguyễn Lê Quốc Bảo, học sinh Trường chuyên Lê Hồng Phong, TP.HCM, đã được cấp visa đi Mỹ dự thi khoa học kỹ thuật quốc tế vào sáng 8-5.
-- Tham gia các câu lạc bộ ở trường cao đẳng, đại học giúp sinh viên có cơ hội hợp tác với các nghệ sĩ nổi tiếng, tự tin tổ chức sự kiện.
-- Mùa tuyển sinh lớp 10 năm 2024, Trường chuyên Lê Hồng Phong và Trần Đại Nghĩa sẽ tuyển sinh lớp chuyên Anh đề án 5695. Lớp này khác lớp chuyên Anh ra sao?
 ![Edu](Edu.png)
 ## Thời Sự 
-- Bà Vũ Thị Minh Châu - chủ tịch UBND huyện Trảng Bom, tỉnh Đồng Nai đang có đơn xin nghỉ việc. Trước đó, bà Châu đã bị kỷ luật cảnh cáo.
-- Đó là một trong những hình thức kiểm tra đột xuất của đoàn kiểm tra về việc thực hiện các nhiệm vụ của đề án 06 tại các sở ngành, địa phương của TP.HCM.
-- Nhiều ý kiến đã không mấy hài lòng về việc cây xanh bị cắt tỉa cành trong những ngày nắng nóng tại các đô thị như TP.HCM và TP Hà Nội.
-- Gương chiếu hậu là thiết bị an toàn thiết yếu của các phương tiện ô tô và xe máy, giúp lái xe có thể quan sát phía sau mà không cần phải quay đầu.
-- UBND TP.HCM sẽ xử lý trách nhiệm người đứng đầu sở ngành, đơn vị có liên quan không thực hiện tốt quy chế phối hợp, không có ý kiến, chậm trễ có ý kiến.
-- Theo Viện trưởng Lê Minh Trí, 6 tháng qua đã khởi tố mới nhiều vụ án tham nhũng lớn, trong đó có vụ liên quan các bộ, ngành, địa phương, có sự cấu kết chặt chẽ, tinh vi giữa cán bộ với doanh nghiệp.
-- Tin tức đáng chú ý: TP.HCM thực hiện nhiều giải pháp giảm địa điểm cứ mưa là ngập; Samsung sẽ đầu tư thêm vào Việt Nam 1 tỉ USD/năm; Người lao động có đất thu hồi được hỗ trợ trong thời hạn 5 năm
-- Hôm nay nắng nóng thu hẹp ở Nam Bộ, mưa gia tăng, nhiều nơi mưa to. Bắc Bộ sáng mưa dông diện rộng.
-- Nằm ven biển và trên con đường du lịch kết nối Đà Nẵng - Hội An là danh thắng độc đáo Ngũ Hành Sơn.
-- Thấy hai bạn không may đuối nước, cháu nhỏ gọi ông nội ra cứu. Hố nước sâu tích tụ sau các cơn mưa lớn khiến 3 ông cháu tử vong.
-- Tối 9-5, Ban Quản lý đường sắt đô thị TP.HCM đến khảo sát công trường di dời hạ tầng kỹ thuật tuyến metro số 2.
-- Ông Nguyễn Hồng Linh - cựu chủ tịch UBND huyện Chư Sê (tỉnh Gia Lai) - bị kỷ luật cảnh cáo vì liên quan sai phạm bồi thường, tái định cư dự án đường Hồ Chí Minh.
-- Liên quan đến vụ việc bệnh viện ở tỉnh Quảng Nam siêu âm nữ bệnh nhân bị u nang buồng trứng phải nhưng khi phẫu thuật bóc khối u bên buồng trứng trái, Cục Quản lý khám, chữa bệnh, Bộ Y tế đã yêu cầu báo cáo làm rõ, xử nghiêm vi phạm nếu có.
-- Thức ăn đường phố được ưa chuộng vì sự tiện lợi, giá rẻ. Tuy nhiên, nó cũng tiềm ẩn nhiều nguy cơ mất an toàn vệ sinh thực phẩm bên cạnh hàng rong trước các cổng trường.
-- Các lực lượng Việt Nam cùng Trung Quốc đã tìm kiếm được 14 ngư dân, trong đó 1 người thiệt mạng và đang tích cực tìm kiếm 10 người còn lại.
-- Bốn công nhân Công ty Điện lực Chợ Lớn TP.HCM đã bị bỏng nặng do chập điện cháy nổ trong lúc sửa điện tại đường dây cáp ngầm.
-- Chủ tịch UBND TP.HCM nhấn mạnh rằng đề án metro là nội dung giúp TP cụ thể hóa thực hiện kết luận số 49 của Bộ Chính trị. Đây cũng là công cụ quan trọng để TP tái cấu trúc đô thị.
-- Việc chậm đưa dự án nhiệt điện Nhơn Trạch 3 và 4 vào vận hành có thể gây thiệt hại khoảng 13 tỉ đồng mỗi ngày.
-- Người dân xã Nguyễn Văn Thảnh, huyện Bình Tân, tỉnh Vĩnh Long bức xúc vì đường dân sinh cặp cao tốc dẫn vào ‘đường cùng, ngõ cụt’.
-- Đây là thông tin do ông Đinh Thiên Tân, trưởng Phòng Quản lý vận hành, Sở Xây dựng TP.HCM nêu ra tại họp báo chiều 9-5.
-- Tính đến hết năm 2023, thành phố còn 13 đường trục chính ngập do mưa mưa, và 5 đường trục chính ngập do triều cường.
-- Hồ Xuân Hải, người chồng dùng khí CO đầu độc chết vợ và 3 con ruột của mình, bị tuyên án tử hình.
-- Đó là phản hồi của Bộ Ngoại giao Việt Nam khi được hỏi về phiên điều trần tại Bộ Thương mại Mỹ liên quan việc công nhận Việt Nam là nền kinh tế thị trường.
-- Đó là thông tin mà đại diện Sở An toàn thực phẩm TP.HCM nêu ra về vụ nghi ngộ độc thực phẩm diễn ra tại ký túc xá Đại học Quốc gia TP.HCM.
-- Trước phản ánh việc một số trung tâm đăng kiểm chỉ nhận thanh toán bằng tiền mặt, Cục Đăng kiểm phát công văn yêu cầu chấp nhận thanh toán bằng các hình thức không dùng tiền mặt.
-- Bộ ngoại giao Việt Nam tiếp tục kêu gọi Campuchia phối hợp chặt chẽ trong chia sẻ thông tin về kênh đào Phù Nam Techo.
-- Sự cố tấm kính rơi khiến chị H.M.L. chấn thương nặng, hiện đang được cấp cứu và phải trải qua nhiều lần phẫu thuật.
-- Công an tỉnh Đồng Nai đã khởi tố thêm 23 bị can trong đường dây buôn lậu gần 200 triệu lít xăng từ Singapore về Việt Nam.
-- Có tổng cộng 20 sinh viên nghi ngộ độc thực phẩm sau khi ăn tại một tòa nhà ký túc xá khu B Đại học Quốc gia TP.HCM.
-- Thủ tướng Phạm Minh Chính khẳng định như vậy tại hội nghị lần thứ 3 của Hội đồng điều phối vùng Đồng bằng sông Hồng diễn ra sáng 9-5.
+- Cuối ngày 10-5, giá vàng miếng SJC đã chạm mức 92,4 triệu đồng/lượng nhưng trong ngày vẫn có rất nhiều người xếp hàng chờ mua bán.
+- Theo thông tin từ Bệnh viện Đại học Y Hà Nội, sức khỏe nữ bác sĩ Hoàng Minh Lý đã tiến triển tốt hơn nhưng khả năng phục hồi rất khó.
+- Đã có rất nhiều vụ việc người mua nhà bị chậm giao nhà, chậm giao sổ. Cách nào để buộc chủ đầu tư giao nhà, giao sổ đúng cam kết?
+- Nhiều ý kiến phản ánh hầu hết trung tâm đăng kiểm chỉ thu tiền mặt. Cục Đăng kiểm Việt Nam đã ra chỉ thị về thanh toán không tiền mặt.
+- Một số tin tức đáng chú ý: Tổ chức lại giao thông quanh nút giao An Phú; Ngân hàng tăng vay nợ qua trái phiếu; Miễn phí trung chuyển khách đi tàu cao tốc TP.HCM - Côn Đảo...
+- Hôm nay thời tiết ba miền cả nước có nét tương đồng khi ban ngày trời nắng, chiều tối mưa rào đến mưa to.
+- Lượng điện sử dụng trong mùa nắng nóng năm nay ở TP.HCM liên tục lập kỷ lục mới trong từng ngày, một số nơi xảy ra quá tải cục bộ.
+- Ngày 10-5, cảnh giao thông hỗn loạn xảy ra tại các tuyến đường dân sinh mà nhiều xe cộ thường đi “né” trạm thu phí ở thị xã Điện Bàn, Quảng Nam.
+- Sở Văn hóa, Thể thao và Du lịch Ninh Thuận báo cáo UBND tỉnh kết quả xác minh việc du khách tố bị hành hung tại khu vực Bãi Kinh.
+- Qua nghiên cứu sơ bộ, Sở Giao thông vận tải Hà Nội cho biết đã tính tới 3 phương án để việc mở rộng đường Láng hiệu quả nhất.
+- Trong lúc tắm biển thấy bạn bị sóng biển cuốn ra xa, nam sinh lớp 8 ở huyện Núi Thành, Quảng Nam bơi ra cứu nhưng không may bị sóng cuốn mất tích.
+- Chủ tịch UBND TP Hà Nội nói như vậy tại hội nghị đối thoại tháo gỡ khó khăn và thúc đẩy hoạt động công nghệ cao tại Khu công nghệ cao Hòa Lạc.
+- Dù 13 căn hộ tại chung cư Nguyễn Quyền tự ý xây lụi và bị cơ quan chức năng buộc tháo dỡ nhưng Công ty Nguyễn Quyền vẫn bán cho cư dân.
+- Chiều 10-5, hàng dài xe hơi, xe container từ các hướng nối đuôi nhau về nút giao An Phú gây ùn ứ cục bộ.
+- Trong 4 tháng đầu năm 2024, chi phí khám chữa bệnh bảo hiểm y tế tăng gần 5.600 tỉ đồng so với cùng kỳ năm 2023.
+- Một người đàn ông đến ngân hàng giao dịch có thái độ bất thường, nhân viên giao dịch nghi vấn ông bị lừa đảo nên ngay lập tức gọi điện cho cảnh sát.
+- Lãnh đạo Tỉnh ủy Quảng Nam yêu cầu vào cuộc quyết liệt trong công tác giải phóng mặt bằng, ưu tiên số một cho dự án cải tạo, nâng cấp quốc lộ 14E vì đây là tuyến đường rất có ý nghĩa đối với địa phương.
+- Cử tri cho rằng chất lượng cao tốc vẫn còn nhiều dư luận khác nhau, kiến nghị Chính phủ có sự quan tâm và Quốc hội có chuyên đề giám sát.
+- Làm rõ 2 văn bản chỉ đạo liên quan đến việc hình thành công trình trái phép ở Đồi Cù Đà Lạt.
+- TP.HCM khuyến khích người dân sử dụng dịch vụ công trực tuyến và sẽ trình HĐND TP.HCM chính sách miễn phí khi người dân sử dụng 5 dịch vụ công trực tuyến.
+- Người phụ nữ tóc bạc phơ sau 55 năm xa người em yêu quý vì quá xúc động chỉ thốt được hai tiếng 'em ơi, em ơi' khi nhận kỷ vật từ Mỹ.
+- Hơn 1,3 triệu m3 cát của dự án nạo vét để khơi thông dòng chảy sông Cổ Cò đã qua hai lần được tổ chức đấu giá nhưng chưa có đơn vị nào tham gia.
+- Nhiều người dân đến mua vàng nhẫn, vàng SJC tại phố vàng Trần Nhân Tông (Hà Nội) phải quay xe về không vì vàng hết từ sớm.
+- Các bất động sản tại huyện Nhơn Trạch, tỉnh Đồng Nai và xã Phước Kiển, huyện Nhà Bè, TP.HCM (thuộc dự án Bắc Phước Kiển) có liên quan bà Trương Mỹ Lan đang được Bộ Công an tiếp tục làm rõ.
+- Thông tin trên được Văn phòng UBND TP Hà Nội phát đi ngày 10-5 trong thông báo kết luận của Chủ tịch UBND TP Trần Sỹ Thanh.
+- Hai nghi phạm người Lào vận chuyển số ma túy lớn vào Việt Nam để lấy 28.000 USD.
+- Đại diện đội cảnh sát quản lý hành chính về trật tự xã hội Công an quận Cầu Giấy thông tin về điều kiện, trình tự, thủ tục cấp căn cước với người dưới 14 tuổi và thời hạn sử dụng chứng minh thư nhân dân.
+- Chuyên gia cho rằng nếu để đường Láng tồn tại như một nút thắt về ùn tắc giao thông, việc đầu tư hàng tỉ USD cho các dự án thành phần trên trục vành đai 2 sẽ mất đi nhiều ý nghĩa.
+- Trận lũ quét xảy ra tại xã Phì Nhừ (huyện Điện Biên Đông, tỉnh Điện Biên) làm 30 ngôi nhà chìm trong bùn đất.
+- Từ nay đến năm 2030 cả nước có ít nhất 2 triệu doanh nghiệp, trong đó có 10 doanh nhân là lãnh đạo các doanh nghiệp lọt vào danh sách tỉ phú USD thế giới, 5 doanh nhân quyền lực nhất châu Á do các tổ chức uy tín thế giới bình chọn.
 ![New](News.png)
 ## Nhịp sống số 
 - Chỉ trong một thời gian ngắn, truyền hình MyTV của VNPT đã đạt được sự tăng trưởng thần tốc, thực sự trở thành người bạn đồng hành thân thiết với các gia đình Việt mỗi ngày.
