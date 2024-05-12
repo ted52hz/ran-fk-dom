@@ -1,6 +1,12 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Giáo viên phát đơn "xin không tham gia thi tuyển sinh lớp 10" cho học sinh điền tên. Sự việc xảy ra tại Trường THCS Nguyễn Văn Bứa, huyện Hóc Môn, TP.HCM.
+- Trí tuệ nhân tạo (AI) đang là xu hướng nổi bật trong mọi lĩnh vực toàn cầu và lĩnh vực y tế cũng không ngoại lệ. Rất nhiều ứng dụng AI trong y tế đã ra đời để giảm tải gánh nặng cho các bệnh viện, nâng cao hiệu quả điều trị bệnh.
+- Đây là thông điệp xuyên suốt được các diễn giả, chuyên gia từ Google đưa ra trong sự kiện AI Day.
+- Bạn Trần Ngọc Thi Văn, lớp 12 Trường TH-THCS-THPT Tân Phú (TP.HCM), gửi bó hoa đến người thân duy nhất đến dự lễ - bà ngoại, trong lễ tri ân và trưởng thành của trường này sáng nay 11-5.
+- Nhiều năm nay, thầy giáo Vỹ rong ruổi khắp bản làng vùng cao, kêu gọi kinh phí xây hàng chục cây cầu treo, làm giếng nước cho học sinh và giáo viên sử dụng.
+- Trong hơn 11.000 thí sinh tham dự kỳ thi đánh giá năng lực của Trường đại học Sư phạm Hà Nội sáng 11-5, có cả thí sinh từ Kiên Giang, Cà Mau...
 - Mức hỗ trợ học phí cho học sinh THCS là 100.000 đồng/học sinh/tháng đối với nhóm 1 và 85.000 đồng/học sinh/tháng đối với nhóm 2.
 - Hội đồng Anh đã cấp 90.481 chứng chỉ tiếng Anh, trong đó có 52.564 chứng chỉ IELTS khi chưa được cấp phép liên kết tổ chức thi.
 - Đại học Kinh tế TP.HCM (UEH) vừa có kết luận ban đầu về xử lý vụ GS.TS Võ Xuân Vinh thuộc Viện Nghiên cứu kinh doanh UEH, có tên trên bài báo vừa bị một tạp chí quốc tế gỡ bỏ.
@@ -25,44 +31,38 @@
 - Ngày 10-5, AI Day - 'Hiểu Al làm giàu hành trang nghề nghiệp' được Tuổi Trẻ phối hợp với Google tổ chức tại TP.HCM với nhiều hoạt động hấp dẫn.
 - Tận dụng vỏ trái cây, nhóm nữ sinh viên Trường đại học Quốc tế đã làm ra màng bọc thực phẩm có thể ăn được.
 - Chiều 9-5, Cục Quản lý chất lượng, Bộ Giáo dục và Đào tạo chính thức thông tin về phương án xử lý với hơn 56.000 chứng chỉ IELTS do IDP tổ chức thi tại Việt Nam trong thời gian chưa được cấp phép.
-- Làm thế nào để bịt lỗ hổng kiểm định đại học khi sinh viên tốt nghiệp đi phụ bán cà phê, bưng phở cũng xếp vào có việc làm.
-- Có tổng cộng 20 sinh viên nghi ngộ độc thực phẩm sau khi ăn tại một tòa nhà ký túc xá khu B Đại học Quốc gia TP.HCM.
-- Ngày 10-5, báo Tuổi Trẻ phối hợp cùng Google tổ chức sự kiện ‘Hiểu AI - Làm giàu hành trang nghề nghiệp ’
-- GS.TS Võ Xuân Vinh, người ở vị trí thứ 8 trong 47 người Việt vào ‘top nhà khoa học ảnh hưởng nhất thế giới’, vừa bị một tạp chí gỡ bỏ bài báo quốc tế.
-- Phòng giáo dục và đào tạo TP Thủ Đức, TP.HCM vừa công bố kế hoạch tuyển sinh đầu cấp năm học 2024 - 2025.
-- Tại Việt Nam, AI đang được ứng dụng ngày càng rộng rãi trong trường học, mang đến những thay đổi tích cực.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Cuối ngày 10-5, giá vàng miếng SJC đã chạm mức 92,4 triệu đồng/lượng nhưng trong ngày vẫn có rất nhiều người xếp hàng chờ mua bán.
-- Theo thông tin từ Bệnh viện Đại học Y Hà Nội, sức khỏe nữ bác sĩ Hoàng Minh Lý đã tiến triển tốt hơn nhưng khả năng phục hồi rất khó.
-- Đã có rất nhiều vụ việc người mua nhà bị chậm giao nhà, chậm giao sổ. Cách nào để buộc chủ đầu tư giao nhà, giao sổ đúng cam kết?
-- Nhiều ý kiến phản ánh hầu hết trung tâm đăng kiểm chỉ thu tiền mặt. Cục Đăng kiểm Việt Nam đã ra chỉ thị về thanh toán không tiền mặt.
-- Một số tin tức đáng chú ý: Tổ chức lại giao thông quanh nút giao An Phú; Ngân hàng tăng vay nợ qua trái phiếu; Miễn phí trung chuyển khách đi tàu cao tốc TP.HCM - Côn Đảo...
-- Hôm nay thời tiết ba miền cả nước có nét tương đồng khi ban ngày trời nắng, chiều tối mưa rào đến mưa to.
-- Lượng điện sử dụng trong mùa nắng nóng năm nay ở TP.HCM liên tục lập kỷ lục mới trong từng ngày, một số nơi xảy ra quá tải cục bộ.
-- Ngày 10-5, cảnh giao thông hỗn loạn xảy ra tại các tuyến đường dân sinh mà nhiều xe cộ thường đi “né” trạm thu phí ở thị xã Điện Bàn, Quảng Nam.
-- Sở Văn hóa, Thể thao và Du lịch Ninh Thuận báo cáo UBND tỉnh kết quả xác minh việc du khách tố bị hành hung tại khu vực Bãi Kinh.
-- Qua nghiên cứu sơ bộ, Sở Giao thông vận tải Hà Nội cho biết đã tính tới 3 phương án để việc mở rộng đường Láng hiệu quả nhất.
-- Trong lúc tắm biển thấy bạn bị sóng biển cuốn ra xa, nam sinh lớp 8 ở huyện Núi Thành, Quảng Nam bơi ra cứu nhưng không may bị sóng cuốn mất tích.
-- Chủ tịch UBND TP Hà Nội nói như vậy tại hội nghị đối thoại tháo gỡ khó khăn và thúc đẩy hoạt động công nghệ cao tại Khu công nghệ cao Hòa Lạc.
-- Dù 13 căn hộ tại chung cư Nguyễn Quyền tự ý xây lụi và bị cơ quan chức năng buộc tháo dỡ nhưng Công ty Nguyễn Quyền vẫn bán cho cư dân.
-- Chiều 10-5, hàng dài xe hơi, xe container từ các hướng nối đuôi nhau về nút giao An Phú gây ùn ứ cục bộ.
-- Trong 4 tháng đầu năm 2024, chi phí khám chữa bệnh bảo hiểm y tế tăng gần 5.600 tỉ đồng so với cùng kỳ năm 2023.
-- Một người đàn ông đến ngân hàng giao dịch có thái độ bất thường, nhân viên giao dịch nghi vấn ông bị lừa đảo nên ngay lập tức gọi điện cho cảnh sát.
-- Lãnh đạo Tỉnh ủy Quảng Nam yêu cầu vào cuộc quyết liệt trong công tác giải phóng mặt bằng, ưu tiên số một cho dự án cải tạo, nâng cấp quốc lộ 14E vì đây là tuyến đường rất có ý nghĩa đối với địa phương.
-- Cử tri cho rằng chất lượng cao tốc vẫn còn nhiều dư luận khác nhau, kiến nghị Chính phủ có sự quan tâm và Quốc hội có chuyên đề giám sát.
-- Làm rõ 2 văn bản chỉ đạo liên quan đến việc hình thành công trình trái phép ở Đồi Cù Đà Lạt.
-- TP.HCM khuyến khích người dân sử dụng dịch vụ công trực tuyến và sẽ trình HĐND TP.HCM chính sách miễn phí khi người dân sử dụng 5 dịch vụ công trực tuyến.
-- Người phụ nữ tóc bạc phơ sau 55 năm xa người em yêu quý vì quá xúc động chỉ thốt được hai tiếng 'em ơi, em ơi' khi nhận kỷ vật từ Mỹ.
-- Hơn 1,3 triệu m3 cát của dự án nạo vét để khơi thông dòng chảy sông Cổ Cò đã qua hai lần được tổ chức đấu giá nhưng chưa có đơn vị nào tham gia.
-- Nhiều người dân đến mua vàng nhẫn, vàng SJC tại phố vàng Trần Nhân Tông (Hà Nội) phải quay xe về không vì vàng hết từ sớm.
-- Các bất động sản tại huyện Nhơn Trạch, tỉnh Đồng Nai và xã Phước Kiển, huyện Nhà Bè, TP.HCM (thuộc dự án Bắc Phước Kiển) có liên quan bà Trương Mỹ Lan đang được Bộ Công an tiếp tục làm rõ.
-- Thông tin trên được Văn phòng UBND TP Hà Nội phát đi ngày 10-5 trong thông báo kết luận của Chủ tịch UBND TP Trần Sỹ Thanh.
-- Hai nghi phạm người Lào vận chuyển số ma túy lớn vào Việt Nam để lấy 28.000 USD.
-- Đại diện đội cảnh sát quản lý hành chính về trật tự xã hội Công an quận Cầu Giấy thông tin về điều kiện, trình tự, thủ tục cấp căn cước với người dưới 14 tuổi và thời hạn sử dụng chứng minh thư nhân dân.
-- Chuyên gia cho rằng nếu để đường Láng tồn tại như một nút thắt về ùn tắc giao thông, việc đầu tư hàng tỉ USD cho các dự án thành phần trên trục vành đai 2 sẽ mất đi nhiều ý nghĩa.
-- Trận lũ quét xảy ra tại xã Phì Nhừ (huyện Điện Biên Đông, tỉnh Điện Biên) làm 30 ngôi nhà chìm trong bùn đất.
-- Từ nay đến năm 2030 cả nước có ít nhất 2 triệu doanh nghiệp, trong đó có 10 doanh nhân là lãnh đạo các doanh nghiệp lọt vào danh sách tỉ phú USD thế giới, 5 doanh nhân quyền lực nhất châu Á do các tổ chức uy tín thế giới bình chọn.
+- Trung tâm Hội nghị triển lãm tỉnh Quảng Ngãi (TP Quảng Ngãi) chưa xây dựng xong, cây xanh đã phủ bóng mát. Đó là kết quả của việc quý trọng từng mầm xanh.
+- Những công viên cây xanh rộng lớn, những hàng cây trải dài bóng mát dọc những tuyến đường luôn được xem là biểu tượng và là niềm tự hào của người dân thành phố, góp phần tạo cảnh quan xanh mát và điều hòa không khí, nhất là giữa những ngày nắng nóng.
+- Một số tin tức đáng chú ý: Đại gia bất động sản còn hơn 100.000 tỉ đồng nợ trái phiếu năm nay; Xâm nhập mặn ở miền Tây sắp kết thúc; Người Việt thảo luận gì về nắng nóng?...
+- Hôm nay Bắc Bộ chịu ảnh hưởng không khí lạnh yếu nên có mưa vừa đến mưa to; Nam Bộ ngày nắng, chiều tối mưa.
+- Nhiều người bị cuốn vào vòng quay lừa đảo khi lòng tin đặt nhầm chỗ để rồi mất trắng số tiền lớn lên đến vài tỉ đồng, khả năng thu hồi rất mong manh.
+- Lễ hội Làng Sen hằng năm trên quê hương Chủ tịch Hồ Chí Minh trở thành sự kiện chính trị, văn hóa có ý nghĩa quan trọng.
+- UBND huyện Bảo Lâm (tỉnh Lâm Đồng) đang làm rõ vụ tổ chức đua xe địa hình trong khu rừng tại xã Lộc Đức dù đã có lệnh hoãn.
+- TP Nha Trang vừa đầu tư 14,99 tỉ đồng ngân sách nhà nước trồng cây xanh tại nhánh phía nam đường vành đai 2.
+- Cầu treo Đakrông huyết mạch nối quốc lộ 9 với các nước Lào, Thái Lan đang phải hạn chế tốc độ còn 5km/h, xe qua từng chiếc một.
+- Phó thủ tướng Trần Hồng Hà đã lắng nghe và giải đáp những ý kiến lo ngại của người dân tỉnh Vĩnh Long.
+- Sau 5 ngày, các lực lượng chức năng vẫn chưa bắt được nghi phạm giết người bỏ trốn vào khu vực rừng sâu giáp biên giới Việt - Lào. Biên phòng Quảng Bình đã thông báo cho quân đội phía Lào hỗ trợ.
+- Ban tổ chức sân Vinh sẽ mở cửa miễn phí đón khán giả vào sân cổ vũ Sông Lam Nghệ An, trong 5 trận đấu còn lại trên sân nhà của mùa giải V-League 2024.
+- Chỉ trong 4 tháng đầu năm 2024, chi phí khám chữa bệnh bảo hiểm y tế tại các cơ sở khám chữa bệnh trên địa bàn TP.HCM đã gia tăng nhanh chóng, lên mức 960 tỉ đồng. Tại sao?
+- Chiều 11-5, UBND TP Hải Phòng cùng Công ty TNHH Ecovance Việt Nam thuộc Tập đoàn SK Hàn Quốc khởi công xây dựng nhà máy sản xuất vật liệu phân hủy sinh học công nghệ cao tại quận Hải An.
+- Do ảnh hưởng của không khí lạnh nén rãnh áp thấp, nên đêm nay và ngày mai (12-5), ở khu vực Bắc Bộ và Bắc Trung Bộ có mưa vừa và dông.
+- Đánh giá về hiện trạng thoát nước ở Đà Nẵng, nhiều chuyên gia cho rằng thành phố vừa có lợi thế vừa có hạn chế. Có ý kiến đề xuất mở thêm tuyến cống ra sông Cẩm Lệ để thoát nước sân bay Đà Nẵng.
+- Chi cục thuế TP Thủ Đức đã chuyển tin báo việc CCCD của một người ở Bà Rịa - Vũng Tàu bị lấy để đứng tên một doanh nghiệp.
+- Hẹn gặp để mua ô tô, người đàn ông đòi lên lái thử, rồi phóng xe bỏ chạy trên nhiều tuyến phố ở Hà Nội.
+- Cơ quan chức năng ở huyện Núi Thành, Quảng Nam đã tìm thấy thi thể nam học sinh lớp 8 bị đuối nước khi bơi ra cứu bạn.
+- Hạn mặn kéo dài khiến nguồn nước ngọt tại các tỉnh miền Tây khan hiếm dẫn đến tình trạng xứ dừa thiếu dừa, vương quốc sầu riêng khan hiếm sầu riêng.
+- Qua rà soát, kiểm tra hoạt động bán vé máy bay, Cục Hàng không Việt Nam ghi nhận các hãng hàng không Việt Nam đều tuân thủ về mức giá vé máy bay trong việc bán vé trên các đường bay nội địa.
+- Các dự án cao tốc qua tỉnh Bình Định, Phú Yên, Khánh Hòa đang vướng hạ tầng kỹ thuật, đường điện cao thế, trong đó nhiều nhất là cao tốc Vân Phong - Nha Trang.
+- Trong giai đoạn nắng nóng gay gắt, nhiều người dân và công ty ở TP.HCM vẫn dùng điện hiệu quả, nhờ đó hóa đơn điện không tăng sốc.
+- Theo báo cáo mới nhất của Chính phủ, dự án hồ Ka Pét ở huyện Hàm Thuận Nam, tỉnh Bình Thuận nguy cơ chậm tiến độ so với nghị quyết chủ trương đầu tư.
+- Hàng ngàn căn hộ tái định cư tại TP.HCM bỏ trống lâu ngày, có nơi bỏ trống hàng chục năm khiến cơ sở vật chất đang dần xuống cấp. Chưa kể, TP.HCM phải trả phí quản lý vận hành phát sinh hàng chục tỉ cho các căn hộ này.
+- Nhân viên ngân hàng nhận thấy khách hàng đến gửi tiền có thái độ lạ nên một mặt tìm hiểu kỹ thông tin người nhận, mặt khác gọi điện cảnh sát đến làm rõ, từ đó giúp người đàn ông tránh mất số tiền 90 triệu đồng.
+- Một trại heo ở huyện Tuy Đức, tỉnh Đắk Nông gây ô nhiễm môi trường, bị phạt hành chính hơn 1,4 tỉ đồng. Chủ trại heo sau đó đã kiện chủ tịch tỉnh ra tòa.
+- Một tuần trở lại đây, hàng trăm người dân nhiều xã miền núi huyện Hướng Hóa (Quảng Trị) vào nương rẫy nhặt xác ve sầu về bán, thời điểm cao nhất lên đến 2 triệu đồng/kg.
+- Lượng lớn rác thải nhựa, rác thải sinh hoạt gây ô nhiễm vịnh Vũng Rô (thị xã Đông Hòa), vịnh Xuân Đài (thị xã Sông Cầu) - 2 danh thắng ở Phú Yên.
+- 'Cháu nghe mọi người bảo có Bộ trưởng Quân đội Pháp đến nên muốn hát tặng ông bài hát Hello Vietnam, mong ông có những ngày tuyệt vời tại Điện Biên', Tường Minh chia sẻ.
 ![New](News.png)
 ## Nhịp sống số 
 - Chỉ trong một thời gian ngắn, truyền hình MyTV của VNPT đã đạt được sự tăng trưởng thần tốc, thực sự trở thành người bạn đồng hành thân thiết với các gia đình Việt mỗi ngày.
