@@ -1,6 +1,16 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Sự phát triển vượt bậc của công nghệ mở ra kỷ nguyên mới trong lĩnh vực thiết kế vi mạch.
+- Ông Johnathan Hạnh Nguyễn đã có liên tục gần 3 giờ trao đổi với sinh viên Trường đại học Đà Lạt về sự học và phát triển bản thân trong chiều 6-5.
+- Sáng 12-5, gần 600 học sinh lớp 6, 7, 8, 9 của TP.HCM và các tỉnh đã tranh tài giải Lê Quý Đôn tại Thảo Cầm Viên, quận 1, TP.HCM.
+- Phòng Giáo dục và Đào tạo huyện Hóc Môn, TP.HCM vừa có báo cáo về vụ phát hành đơn 'xin không thi tuyển sinh lớp 10' ở Trường THCS Nguyễn Văn Bứa.
+- Tham dự và phát biểu tại Ngày hội khởi nghiệp quốc gia của học sinh, sinh viên, Thủ tướng Chính phủ Phạm Minh Chính đã nêu ra những từ khóa định hướng khởi nghiệp trong thời gian tới.
+- Chiến dịch 'ăn sạch, sống sành, trường sanh' do Đại học RMIT Việt Nam phát động. Người đủ 18 tuổi có thể tham gia các hoạt động.
+- Dữ liệu một số bài báo của các nhà khoa học là tác giả liên quan đến những bài báo bị tạp chí quốc tế gỡ bỏ vừa bất ngờ biến mất trên thư viện online Đại học Kinh tế TP.HCM.
+- Ngày hội ‘Hiểu AI - Làm giàu hành trang nghề nghiệp’ do báo Tuổi Trẻ phối hợp cùng Google tổ chức vào ngày 10-5 đã thu hút hàng nghìn học sinh, sinh viên, lao động trẻ tham gia.
+- Giải nhất quốc gia cuộc thi viết thư quốc tế UPU năm 2024 thuộc về em Nguyễn Đỗ Quang Minh - học sinh lớp 9 ở TP Đà Nẵng.
+- Mắc bệnh hiếm không răng, không xương răng, bệnh nhân Nguyễn Ngọc Hạnh được các bác sĩ phẫu thuật thành công nhờ vào 'trợ lý' AI.
 - Giáo viên phát đơn "xin không tham gia thi tuyển sinh lớp 10" cho học sinh điền tên. Sự việc xảy ra tại Trường THCS Nguyễn Văn Bứa, huyện Hóc Môn, TP.HCM.
 - Trí tuệ nhân tạo (AI) đang là xu hướng nổi bật trong mọi lĩnh vực toàn cầu và lĩnh vực y tế cũng không ngoại lệ. Rất nhiều ứng dụng AI trong y tế đã ra đời để giảm tải gánh nặng cho các bệnh viện, nâng cao hiệu quả điều trị bệnh.
 - Đây là thông điệp xuyên suốt được các diễn giả, chuyên gia từ Google đưa ra trong sự kiện AI Day.
@@ -21,50 +31,41 @@
 - Hơn 350 câu hỏi của bạn đọc gửi về buổi giao lưu trực tuyến chủ đề 'Lưu ý gì về tuyển sinh lớp 1, lớp 6, lớp 10 trên địa bàn TP.HCM?' do báo Tuổi Trẻ tổ chức sáng 9-5.
 - Hiện học sinh lớp 12 Trường quốc tế AISVN đang thi kỳ thi tú tài quốc tế (IB), đến hôm nay 10-5 sẽ kết thúc. Theo kế hoạch, ngày 17-5 học sinh lớp 12 của trường sẽ tốt nghiệp THPT.
 - Số thí sinh dự thi lớp 10 Trường phổ thông Năng khiếu tăng gần 1.000 em so với năm trước.
-- Bình Dương tiếp tục có tỉ lệ thí sinh tốt nghiệp THPT nhập học đại học năm 2023 cao nhất. Hải Phòng rớt khỏi top 10, Hưng Yên thay thế.
-- Từ 8h-17h hôm nay 10-5, báo Tuổi Trẻ phối hợp với Google tổ chức sự kiện 'Hiểu AI làm giàu hành trang nghề nghiệp' tại Nhà Thiếu nhi TP. HCM. Không gian các gian hàng trong sự kiện AI Day đã sôi động ngay từ sớm.
-- Nhiều bước tiến mới về AI sẽ được Google và các chuyên gia công nghệ hàng đầu giới thiệu trong sự kiện AI Day tại TP.HCM. Tuổi Trẻ Online cập nhật.
-- Đăng ký 'trại hè quân đội nhí' cho con trên Facebook, chỉ trong 5 tiếng, chị M. bị lừa lấy hơn 1 tỉ đồng.
-- Học sinh có 4 ngày đăng ký dự khảo sát vào lớp 6 các trường THCS nổi tiếng ở TP Thủ Đức, TP.HCM.
-- Đại học Quốc gia TP.HCM vừa công bố triển khai phương thức ưu tiên xét tuyển thẳng thí sinh giỏi, tài năng...
-- Với sự phát triển không ngừng của xã hội, AI ngày càng có sức ảnh hưởng đến con người, đặc biệt là giới trẻ. Vậy AI trong mắt giới trẻ như thế nào?
-- Ngày 10-5, AI Day - 'Hiểu Al làm giàu hành trang nghề nghiệp' được Tuổi Trẻ phối hợp với Google tổ chức tại TP.HCM với nhiều hoạt động hấp dẫn.
-- Tận dụng vỏ trái cây, nhóm nữ sinh viên Trường đại học Quốc tế đã làm ra màng bọc thực phẩm có thể ăn được.
-- Chiều 9-5, Cục Quản lý chất lượng, Bộ Giáo dục và Đào tạo chính thức thông tin về phương án xử lý với hơn 56.000 chứng chỉ IELTS do IDP tổ chức thi tại Việt Nam trong thời gian chưa được cấp phép.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Trung tâm Hội nghị triển lãm tỉnh Quảng Ngãi (TP Quảng Ngãi) chưa xây dựng xong, cây xanh đã phủ bóng mát. Đó là kết quả của việc quý trọng từng mầm xanh.
-- Những công viên cây xanh rộng lớn, những hàng cây trải dài bóng mát dọc những tuyến đường luôn được xem là biểu tượng và là niềm tự hào của người dân thành phố, góp phần tạo cảnh quan xanh mát và điều hòa không khí, nhất là giữa những ngày nắng nóng.
-- Một số tin tức đáng chú ý: Đại gia bất động sản còn hơn 100.000 tỉ đồng nợ trái phiếu năm nay; Xâm nhập mặn ở miền Tây sắp kết thúc; Người Việt thảo luận gì về nắng nóng?...
-- Hôm nay Bắc Bộ chịu ảnh hưởng không khí lạnh yếu nên có mưa vừa đến mưa to; Nam Bộ ngày nắng, chiều tối mưa.
-- Nhiều người bị cuốn vào vòng quay lừa đảo khi lòng tin đặt nhầm chỗ để rồi mất trắng số tiền lớn lên đến vài tỉ đồng, khả năng thu hồi rất mong manh.
-- Lễ hội Làng Sen hằng năm trên quê hương Chủ tịch Hồ Chí Minh trở thành sự kiện chính trị, văn hóa có ý nghĩa quan trọng.
-- UBND huyện Bảo Lâm (tỉnh Lâm Đồng) đang làm rõ vụ tổ chức đua xe địa hình trong khu rừng tại xã Lộc Đức dù đã có lệnh hoãn.
-- TP Nha Trang vừa đầu tư 14,99 tỉ đồng ngân sách nhà nước trồng cây xanh tại nhánh phía nam đường vành đai 2.
-- Cầu treo Đakrông huyết mạch nối quốc lộ 9 với các nước Lào, Thái Lan đang phải hạn chế tốc độ còn 5km/h, xe qua từng chiếc một.
-- Phó thủ tướng Trần Hồng Hà đã lắng nghe và giải đáp những ý kiến lo ngại của người dân tỉnh Vĩnh Long.
-- Sau 5 ngày, các lực lượng chức năng vẫn chưa bắt được nghi phạm giết người bỏ trốn vào khu vực rừng sâu giáp biên giới Việt - Lào. Biên phòng Quảng Bình đã thông báo cho quân đội phía Lào hỗ trợ.
-- Ban tổ chức sân Vinh sẽ mở cửa miễn phí đón khán giả vào sân cổ vũ Sông Lam Nghệ An, trong 5 trận đấu còn lại trên sân nhà của mùa giải V-League 2024.
-- Chỉ trong 4 tháng đầu năm 2024, chi phí khám chữa bệnh bảo hiểm y tế tại các cơ sở khám chữa bệnh trên địa bàn TP.HCM đã gia tăng nhanh chóng, lên mức 960 tỉ đồng. Tại sao?
-- Chiều 11-5, UBND TP Hải Phòng cùng Công ty TNHH Ecovance Việt Nam thuộc Tập đoàn SK Hàn Quốc khởi công xây dựng nhà máy sản xuất vật liệu phân hủy sinh học công nghệ cao tại quận Hải An.
-- Do ảnh hưởng của không khí lạnh nén rãnh áp thấp, nên đêm nay và ngày mai (12-5), ở khu vực Bắc Bộ và Bắc Trung Bộ có mưa vừa và dông.
-- Đánh giá về hiện trạng thoát nước ở Đà Nẵng, nhiều chuyên gia cho rằng thành phố vừa có lợi thế vừa có hạn chế. Có ý kiến đề xuất mở thêm tuyến cống ra sông Cẩm Lệ để thoát nước sân bay Đà Nẵng.
-- Chi cục thuế TP Thủ Đức đã chuyển tin báo việc CCCD của một người ở Bà Rịa - Vũng Tàu bị lấy để đứng tên một doanh nghiệp.
-- Hẹn gặp để mua ô tô, người đàn ông đòi lên lái thử, rồi phóng xe bỏ chạy trên nhiều tuyến phố ở Hà Nội.
-- Cơ quan chức năng ở huyện Núi Thành, Quảng Nam đã tìm thấy thi thể nam học sinh lớp 8 bị đuối nước khi bơi ra cứu bạn.
-- Hạn mặn kéo dài khiến nguồn nước ngọt tại các tỉnh miền Tây khan hiếm dẫn đến tình trạng xứ dừa thiếu dừa, vương quốc sầu riêng khan hiếm sầu riêng.
-- Qua rà soát, kiểm tra hoạt động bán vé máy bay, Cục Hàng không Việt Nam ghi nhận các hãng hàng không Việt Nam đều tuân thủ về mức giá vé máy bay trong việc bán vé trên các đường bay nội địa.
-- Các dự án cao tốc qua tỉnh Bình Định, Phú Yên, Khánh Hòa đang vướng hạ tầng kỹ thuật, đường điện cao thế, trong đó nhiều nhất là cao tốc Vân Phong - Nha Trang.
-- Trong giai đoạn nắng nóng gay gắt, nhiều người dân và công ty ở TP.HCM vẫn dùng điện hiệu quả, nhờ đó hóa đơn điện không tăng sốc.
-- Theo báo cáo mới nhất của Chính phủ, dự án hồ Ka Pét ở huyện Hàm Thuận Nam, tỉnh Bình Thuận nguy cơ chậm tiến độ so với nghị quyết chủ trương đầu tư.
-- Hàng ngàn căn hộ tái định cư tại TP.HCM bỏ trống lâu ngày, có nơi bỏ trống hàng chục năm khiến cơ sở vật chất đang dần xuống cấp. Chưa kể, TP.HCM phải trả phí quản lý vận hành phát sinh hàng chục tỉ cho các căn hộ này.
-- Nhân viên ngân hàng nhận thấy khách hàng đến gửi tiền có thái độ lạ nên một mặt tìm hiểu kỹ thông tin người nhận, mặt khác gọi điện cảnh sát đến làm rõ, từ đó giúp người đàn ông tránh mất số tiền 90 triệu đồng.
-- Một trại heo ở huyện Tuy Đức, tỉnh Đắk Nông gây ô nhiễm môi trường, bị phạt hành chính hơn 1,4 tỉ đồng. Chủ trại heo sau đó đã kiện chủ tịch tỉnh ra tòa.
-- Một tuần trở lại đây, hàng trăm người dân nhiều xã miền núi huyện Hướng Hóa (Quảng Trị) vào nương rẫy nhặt xác ve sầu về bán, thời điểm cao nhất lên đến 2 triệu đồng/kg.
-- Lượng lớn rác thải nhựa, rác thải sinh hoạt gây ô nhiễm vịnh Vũng Rô (thị xã Đông Hòa), vịnh Xuân Đài (thị xã Sông Cầu) - 2 danh thắng ở Phú Yên.
-- 'Cháu nghe mọi người bảo có Bộ trưởng Quân đội Pháp đến nên muốn hát tặng ông bài hát Hello Vietnam, mong ông có những ngày tuyệt vời tại Điện Biên', Tường Minh chia sẻ.
+- Đang bơm bê tông công trình không phép thì nắp cống vỉa hè trên đường Trần Thủ Độ, phường Tiền Phong, TP Thái Bình, bị sập làm vòi bơm văng trúng tổ thợ khiến ba người bị thương.
+- Ba trẻ em chơi tại vị trí sát tường nhà, phía ngoài tường là ta luy đất. Trong cơn mưa lớn, dòng nước xối từ ta luy đất đã ép tường nhà đổ vào ba em.
+- Tin tức đáng chú ý: Điều chỉnh dự án hỗ trợ, tái định cư Cảng hàng không Long Thành; Sầu riêng vào chính vụ, giá giảm nhanh; Vì sao cháy giữa ruộng ở Sóc Trăng?...
+- Hôm nay thời tiết Bắc Bộ có mưa to. Nam Bộ, Tây Nguyên ngày nắng, chiều tối mưa dông.
+- Chiếc ô tô bốc cháy trong cơn mưa lớn tối 12-5 khiến đường vành đai 3 (hướng đi cầu Thanh Trì, Hà Nội) ùn tắc ở làn đường cao tốc.
+- Sau khoảng hai giờ mưa to, một số tuyến phố ở các quận nội thành Hà Nội đã xuất hiện tình trạng ngập úng.
+- Sau tiếng nổ lớn tại một nhà dân ở huyện Tiên Phước, Quảng Nam, mọi người phát hiện 1 người chết, 1 người bị thương.
+- Tiếp xúc cử tri tại TP Cần Thơ, Thủ tướng Phạm Minh Chính giải đáp nhiều kiến nghị của cử tri liên quan đến đầu tư cơ sở hạ tầng cho vùng, vấn đề hạn mặn, sạt lở và môi trường, an sinh xã hội…
+- Rất nhiều vị trí "đất vàng" tại Đắk Lắk được giao doanh nghiệp làm dự án nhưng xây dựng dang dở, thậm chí bỏ hoang hàng chục năm.
+- Trong phiên thảo luận Hội thảo văn hóa 2024, nhiều đại biểu nhận định cơ chế chính sách vẫn còn bất cập, gây khó cho thúc đẩy thiết chế văn hóa, thể thao.
+- Sở Văn hóa và Thể thao Hà Nội cho biết các đơn vị của sở đang rà soát, xử lý các thông tin liên quan đến giải "WPT VietNam 2024" (một giải đấu poker) đang được quảng cáo trên mạng xã hội.
+- Cơ quan chức năng đã vào cuộc kiểm tra vụ 'Vẫn đua xe địa hình dù đã yêu cầu tạm hoãn'. Lý do tạm hoãn được địa phương giải thích: chưa ổn pháp lý và an toàn.
+- Lượng lớn rác thải nhựa, rác sinh hoạt ở vịnh Vũng Rô và vịnh Xuân Đài, hai danh thắng ở Phú Yên, đã được dọn dẹp trong ngày 12-5.
+- Ngày 12-5, đoàn đại biểu Liên minh châu Âu (EU) đã chung tay thu gom rác tại khu vực bãi biển Hạ Long, tỉnh Quảng Ninh.
+- Nhận định về việc UBND quận Tân Bình kiến nghị nộp tiền chênh lệch để khắc phục do bán rẻ nhà số 9 Tự Cường, Sở Tài chính cho rằng không có cơ sở.
+- Tổng liên đoàn Lao động Việt Nam đề xuất người đóng trên 12 năm bảo hiểm thất nghiệp, không nhận trợ cấp, được thêm quyền lợi.
+- Sân Chi Lăng đang là tài sản thi hành án trong vụ án Phạm Công Danh, vậy liệu có thể giữ lại 'chảo lửa' một thời như nguyện vọng của người dân thành phố không?
+- Lãnh đạo Bộ Công an vừa gửi thư khen Cục An ninh mạng và phòng chống tội phạm sử dụng công nghệ cao (A05) và Công an tỉnh Phú Yên vụ triệt phá đường dây thu thập, sử dụng thông tin cá nhân để mở và bán tài khoản ngân hàng trái phép.
+- Du khách người Pháp chia sẻ bức xúc khi phải trả 500.000 đồng cho cuốc taxi ngắn và thêm 500.000 đồng để lấy lại tài sản bỏ quên trên taxi.
+- Sáng 12-5, Thảo cầm viên Sài Gòn tổ chức thôi nôi cho 2 con hổ Bengal Bình và Dương, rất đông du khách đã đến và hát chúc mừng 2 bé hổ này.
+- Thấy nhân viên cứu hộ đang bơi ra chỗ nạn nhân bị đuối nước, nhưng cứ bơi ra thì sóng lại đẩy vào, anh Tính liền mượn 2 áo phao rồi lao xuống.
+- Đánh giá công tác triển khai nghị quyết 98 gần 1 năm qua, Chủ tịch UBND TP.HCM Phan Văn Mãi cho rằng kết quả bước đầu khá tốt, khối lượng công việc đã làm hơn kỳ thực hiện nghị quyết 54.
+- Tham dự và phát biểu tại Ngày hội khởi nghiệp quốc gia của học sinh, sinh viên, Thủ tướng Chính phủ Phạm Minh Chính đã nêu ra những từ khóa định hướng khởi nghiệp trong thời gian tới.
+- Sở Du lịch Quảng Bình sẽ cử đoàn khảo sát hồ nước bí ẩn mới được phát hiện trong hang Thung.
+- Ông Nguyễn Văn Thọ - phó chủ tịch UBND phường Mũi Né, TP Phan Thiết, Bình Thuận - cho biết trong hai ngày cuối tuần, 11 và 12-5, địa phương đã huy động hàng trăm người để thu gom, xử lý rác đại dương và dầu vón cục trôi dạt vào bờ biển.
+- Ngày 12-5, lãnh đạo Cục Thuế tỉnh Kiên Giang xác nhận đơn vị đã có văn bản gửi Cục Quản lý xuất nhập cảnh (Bộ Công an) về việc tạm hoãn xuất cảnh đối với 2 giám đốc doanh nghiệp nợ thuế.
+- Đó là thông tin Giám đốc Sở An toàn thực phẩm TP.HCM Phạm Khánh Phong Lan nêu ra tại chương trình Dân hỏi - Chính quyền trả lời khi cử tri hỏi về hoạt động của sở cũng như một số vụ nghi ngờ ngộ độc thực phẩm đã xảy ra.
+- Tuần này nắng nóng còn vài nơi ở Nam Bộ nhưng mưa xuất hiện nhiều hơn; thời tiết Bắc Bộ có mưa to vào đầu tuần.
+- Hàng ngàn Phật tử mọi miền đất nước cùng dự lễ Phật đản ở chùa An Trú, cầu nguyện quốc thái dân an, hòa bình thế giới.
+- Tuy chỉ là hiện tượng tự nhiên nhưng nhiều người đã mê tín tổ chức cúng bái, lấy nước từ giếng khoan về uống để chữa bệnh và đổ vào đồng ruộng với hy vọng lúa trúng mùa.
 ![New](News.png)
 ## Nhịp sống số 
+- Doanh nghiệp và người tiêu dùng đều cần công cụ để tự bảo vệ mình trước những hình thức gian lận mới của thanh toán số.
 - Chỉ trong một thời gian ngắn, truyền hình MyTV của VNPT đã đạt được sự tăng trưởng thần tốc, thực sự trở thành người bạn đồng hành thân thiết với các gia đình Việt mỗi ngày.
 - Kết nối Internet quốc tế gặp sự cố, chập chờn thường là cơn đau đầu của các nhà cung cấp dịch vụ trực tuyến.
 - Với sự xuất hiện của 6G, thế hệ băng thông mở rộng tiếp theo sẽ mang đến nhiều công năng và bất ngờ hơn.
@@ -94,5 +95,4 @@
 - Qua 15 năm hoạt động, dấu ấn của Vietnamobile để lại trong lòng khách hàng xuất phát từ chính ưu đãi hấp dẫn về giá và dữ liệu.
 - Liên tục các vụ nạn nhân bị mất hàng chục, hàng trăm tỉ đồng, mới nhất là Chủ tịch huyện Nhơn Trạch. Tội phạm đã làm cách nào để lấy số tiền khủng như vậy từ tài khoản của khách hàng?
 - 20 cá nhân, tập thể xuất sắc nhất của Viettel trên toàn cầu đã được vinh danh Viettel’s Stars 2023.
-- Theo lời giới thiệu của chủ tịch Jensen Huang, phiên bản chip AI mới có thể xử lý một số tác vụ nhanh gấp 30 lần so với thế hệ cũ.
 ![life](Life.png)
