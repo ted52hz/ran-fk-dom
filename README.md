@@ -1,6 +1,17 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Số lượng sinh viên quốc tế ở Úc đã đạt mức cao kỷ lục là 671.000 người vào tháng 3 vừa qua, tăng 15% so với năm ngoái.
+- Tại hội nghị, Phó chủ tịch TP.HCM Dương Anh Đức mong lĩnh vực năng lực sức khỏe sẽ được tích hợp vào chương trình đào tạo của Trường đại học Y khoa Phạm Ngọc Thạch.
+- Trường THCS Nguyễn Văn Bứa, TP.HCM có chủ trương gửi mẫu đơn 'xin không thi tuyển sinh lớp 10' cho phụ huynh là không đúng quy định.
+- Thời gian tới, Bộ Khoa học và Công nghệ sẽ không quá ưu tiên vào  công bố quốc tế, mà ưu tiên cho các nhà khoa học trẻ.
+- Với 20 phương thức xét tuyển đại học năm 2024, thí sinh có nhiều lựa chọn để đăng ký ngành, trường yêu thích.
+- Chuyến xe Khám phá trường học tiếp tục đưa khán giả tham quan một cơ sở giáo dục mới, lần này là hệ thống Trường Me Since 1988 tại TP.HCM.
+- Sức hút ngành quan hệ công chúng tăng dần và liên tục thu hút thí sinh quan tâm trên các diễn đàn nghề nghiệp.
+- Quản trị kinh doanh luôn có sức hút mạnh mẽ đối với Gen Z và là một ngành hot mỗi mùa tuyển sinh đại học.
+- Dự kiến bắt đầu từ 17h ngày mai 14-5, học sinh lớp 9 ở TP.HCM sẽ có 5 ngày để thay đổi nguyện vọng tuyển sinh lớp 10.
+- Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) vừa công bố chi tiết về phương thức xét tuyển tổng hợp năm 2024 với cách tính điểm đặc biệt.
+- Thủ tướng Phạm Minh Chính nhắn nhủ như vậy tại lễ khai mạc Ngày hội khởi nghiệp quốc gia của học sinh, sinh viên diễn ra tại TP Cần Thơ vào ngày 12-5.
 - Sự phát triển vượt bậc của công nghệ mở ra kỷ nguyên mới trong lĩnh vực thiết kế vi mạch.
 - Ông Johnathan Hạnh Nguyễn đã có liên tục gần 3 giờ trao đổi với sinh viên Trường đại học Đà Lạt về sự học và phát triển bản thân trong chiều 6-5.
 - Sáng 12-5, gần 600 học sinh lớp 6, 7, 8, 9 của TP.HCM và các tỉnh đã tranh tài giải Lê Quý Đôn tại Thảo Cầm Viên, quận 1, TP.HCM.
@@ -20,49 +31,38 @@
 - Mức hỗ trợ học phí cho học sinh THCS là 100.000 đồng/học sinh/tháng đối với nhóm 1 và 85.000 đồng/học sinh/tháng đối với nhóm 2.
 - Hội đồng Anh đã cấp 90.481 chứng chỉ tiếng Anh, trong đó có 52.564 chứng chỉ IELTS khi chưa được cấp phép liên kết tổ chức thi.
 - Đại học Kinh tế TP.HCM (UEH) vừa có kết luận ban đầu về xử lý vụ GS.TS Võ Xuân Vinh thuộc Viện Nghiên cứu kinh doanh UEH, có tên trên bài báo vừa bị một tạp chí quốc tế gỡ bỏ.
-- Việc một giáo viên chụp ảnh trẻ không có đồng phục gửi lên nhóm phụ huynh kèm lời nhắn có phần phân biệt đang nhận nhiều sự quan tâm trên mạng xã hội.
-- Tính đến 17h ngày 10-5, cả nước có trên 1 triệu thí sinh đăng ký dự thi tốt nghiệp THPT năm 2024.
-- Năm 2024, Trường đại học Luật TP.HCM tăng chỉ tiêu tuyển sinh lên 1.134 sinh viên cho các phương thức xét tuyển sớm, dành cho 3 nhóm đối tượng.
-- Tổ chức khóa bồi dưỡng kỹ năng căn bản nhằm đáp ứng nhu cầu về kỹ năng trong lĩnh vực báo chí - truyền thông.
-- Ngày 10-5, Sở Giáo dục và Đào tạo Hà Nội công bố số lượng thí sinh đăng ký dự thi lớp 10 công lập năm học 2024-2025.
-- Chiều 10-5, sự kiện AI Day tiếp tục với hội thảo 'Hiểu AI, làm giàu hành trang nghề nghiệp'. Hội thảo được chia thành các phiên, tập trung vào từng lĩnh vực cụ thể mà AI đang để lại nhiều tác động.
-- Do đề thi môn tiếng Anh cuối học kỳ 2 có sơ sót, nên tất cả học sinh lớp 12 Trường THPT Lê Trọng Tấn, TP.HCM phải kiểm tra lại.
-- Đà Nẵng có 16.500 thí sinh đăng ký nguyện vọng 1 tuyển sinh vào lớp 10 THPT, trong khi đó chỉ tiêu phân bổ cho tất cả các trường là 11.616.
-- Hơn 350 câu hỏi của bạn đọc gửi về buổi giao lưu trực tuyến chủ đề 'Lưu ý gì về tuyển sinh lớp 1, lớp 6, lớp 10 trên địa bàn TP.HCM?' do báo Tuổi Trẻ tổ chức sáng 9-5.
-- Hiện học sinh lớp 12 Trường quốc tế AISVN đang thi kỳ thi tú tài quốc tế (IB), đến hôm nay 10-5 sẽ kết thúc. Theo kế hoạch, ngày 17-5 học sinh lớp 12 của trường sẽ tốt nghiệp THPT.
-- Số thí sinh dự thi lớp 10 Trường phổ thông Năng khiếu tăng gần 1.000 em so với năm trước.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Đang bơm bê tông công trình không phép thì nắp cống vỉa hè trên đường Trần Thủ Độ, phường Tiền Phong, TP Thái Bình, bị sập làm vòi bơm văng trúng tổ thợ khiến ba người bị thương.
-- Ba trẻ em chơi tại vị trí sát tường nhà, phía ngoài tường là ta luy đất. Trong cơn mưa lớn, dòng nước xối từ ta luy đất đã ép tường nhà đổ vào ba em.
-- Tin tức đáng chú ý: Điều chỉnh dự án hỗ trợ, tái định cư Cảng hàng không Long Thành; Sầu riêng vào chính vụ, giá giảm nhanh; Vì sao cháy giữa ruộng ở Sóc Trăng?...
-- Hôm nay thời tiết Bắc Bộ có mưa to. Nam Bộ, Tây Nguyên ngày nắng, chiều tối mưa dông.
-- Chiếc ô tô bốc cháy trong cơn mưa lớn tối 12-5 khiến đường vành đai 3 (hướng đi cầu Thanh Trì, Hà Nội) ùn tắc ở làn đường cao tốc.
-- Sau khoảng hai giờ mưa to, một số tuyến phố ở các quận nội thành Hà Nội đã xuất hiện tình trạng ngập úng.
-- Sau tiếng nổ lớn tại một nhà dân ở huyện Tiên Phước, Quảng Nam, mọi người phát hiện 1 người chết, 1 người bị thương.
-- Tiếp xúc cử tri tại TP Cần Thơ, Thủ tướng Phạm Minh Chính giải đáp nhiều kiến nghị của cử tri liên quan đến đầu tư cơ sở hạ tầng cho vùng, vấn đề hạn mặn, sạt lở và môi trường, an sinh xã hội…
-- Rất nhiều vị trí "đất vàng" tại Đắk Lắk được giao doanh nghiệp làm dự án nhưng xây dựng dang dở, thậm chí bỏ hoang hàng chục năm.
-- Trong phiên thảo luận Hội thảo văn hóa 2024, nhiều đại biểu nhận định cơ chế chính sách vẫn còn bất cập, gây khó cho thúc đẩy thiết chế văn hóa, thể thao.
-- Sở Văn hóa và Thể thao Hà Nội cho biết các đơn vị của sở đang rà soát, xử lý các thông tin liên quan đến giải "WPT VietNam 2024" (một giải đấu poker) đang được quảng cáo trên mạng xã hội.
-- Cơ quan chức năng đã vào cuộc kiểm tra vụ 'Vẫn đua xe địa hình dù đã yêu cầu tạm hoãn'. Lý do tạm hoãn được địa phương giải thích: chưa ổn pháp lý và an toàn.
-- Lượng lớn rác thải nhựa, rác sinh hoạt ở vịnh Vũng Rô và vịnh Xuân Đài, hai danh thắng ở Phú Yên, đã được dọn dẹp trong ngày 12-5.
-- Ngày 12-5, đoàn đại biểu Liên minh châu Âu (EU) đã chung tay thu gom rác tại khu vực bãi biển Hạ Long, tỉnh Quảng Ninh.
-- Nhận định về việc UBND quận Tân Bình kiến nghị nộp tiền chênh lệch để khắc phục do bán rẻ nhà số 9 Tự Cường, Sở Tài chính cho rằng không có cơ sở.
-- Tổng liên đoàn Lao động Việt Nam đề xuất người đóng trên 12 năm bảo hiểm thất nghiệp, không nhận trợ cấp, được thêm quyền lợi.
-- Sân Chi Lăng đang là tài sản thi hành án trong vụ án Phạm Công Danh, vậy liệu có thể giữ lại 'chảo lửa' một thời như nguyện vọng của người dân thành phố không?
-- Lãnh đạo Bộ Công an vừa gửi thư khen Cục An ninh mạng và phòng chống tội phạm sử dụng công nghệ cao (A05) và Công an tỉnh Phú Yên vụ triệt phá đường dây thu thập, sử dụng thông tin cá nhân để mở và bán tài khoản ngân hàng trái phép.
-- Du khách người Pháp chia sẻ bức xúc khi phải trả 500.000 đồng cho cuốc taxi ngắn và thêm 500.000 đồng để lấy lại tài sản bỏ quên trên taxi.
-- Sáng 12-5, Thảo cầm viên Sài Gòn tổ chức thôi nôi cho 2 con hổ Bengal Bình và Dương, rất đông du khách đã đến và hát chúc mừng 2 bé hổ này.
-- Thấy nhân viên cứu hộ đang bơi ra chỗ nạn nhân bị đuối nước, nhưng cứ bơi ra thì sóng lại đẩy vào, anh Tính liền mượn 2 áo phao rồi lao xuống.
-- Đánh giá công tác triển khai nghị quyết 98 gần 1 năm qua, Chủ tịch UBND TP.HCM Phan Văn Mãi cho rằng kết quả bước đầu khá tốt, khối lượng công việc đã làm hơn kỳ thực hiện nghị quyết 54.
-- Tham dự và phát biểu tại Ngày hội khởi nghiệp quốc gia của học sinh, sinh viên, Thủ tướng Chính phủ Phạm Minh Chính đã nêu ra những từ khóa định hướng khởi nghiệp trong thời gian tới.
-- Sở Du lịch Quảng Bình sẽ cử đoàn khảo sát hồ nước bí ẩn mới được phát hiện trong hang Thung.
-- Ông Nguyễn Văn Thọ - phó chủ tịch UBND phường Mũi Né, TP Phan Thiết, Bình Thuận - cho biết trong hai ngày cuối tuần, 11 và 12-5, địa phương đã huy động hàng trăm người để thu gom, xử lý rác đại dương và dầu vón cục trôi dạt vào bờ biển.
-- Ngày 12-5, lãnh đạo Cục Thuế tỉnh Kiên Giang xác nhận đơn vị đã có văn bản gửi Cục Quản lý xuất nhập cảnh (Bộ Công an) về việc tạm hoãn xuất cảnh đối với 2 giám đốc doanh nghiệp nợ thuế.
-- Đó là thông tin Giám đốc Sở An toàn thực phẩm TP.HCM Phạm Khánh Phong Lan nêu ra tại chương trình Dân hỏi - Chính quyền trả lời khi cử tri hỏi về hoạt động của sở cũng như một số vụ nghi ngờ ngộ độc thực phẩm đã xảy ra.
-- Tuần này nắng nóng còn vài nơi ở Nam Bộ nhưng mưa xuất hiện nhiều hơn; thời tiết Bắc Bộ có mưa to vào đầu tuần.
-- Hàng ngàn Phật tử mọi miền đất nước cùng dự lễ Phật đản ở chùa An Trú, cầu nguyện quốc thái dân an, hòa bình thế giới.
-- Tuy chỉ là hiện tượng tự nhiên nhưng nhiều người đã mê tín tổ chức cúng bái, lấy nước từ giếng khoan về uống để chữa bệnh và đổ vào đồng ruộng với hy vọng lúa trúng mùa.
+- Thủ tướng Chính phủ vừa có công điện về việc tăng cường quản lý thuốc lá điện tử, thuốc lá nung nóng.
+- Nút giao Nguyễn Văn Linh - Nguyễn Hữu Thọ là cửa ngõ quan trọng phía Nam TP.HCM nhưng phải rào chắn từ ngày 8-2 để làm đốt hầm kín. Đến cuối tháng 9, giao lộ sẽ được trả lại hiện trạng phần giữa.
+- Đến mùa mưa, người dân TP.HCM lại lo ngập nước. Thành phố sẽ chuẩn bị những gì để ứng phó mùa mưa sắp tới?
+- Thời gian qua tại Hà Nội, thường xảy ra tình trạng các gánh hàng rong, taxi "chặt chém" du khách trong và ngoài nước.
+- Hôm nay thời tiết ba miền cả nước có nét tương đồng khi ban ngày nắng, có nơi nắng nóng, chiều tối có mưa dông.
+- Một số tin tức đáng chú ý: Công bố tỉ lệ 'chọi' vào lớp 10 ở TP.HCM; Trồng 350 cây xanh tại nhà ga metro số 1...
+- Tối 13-5, lãnh đạo Sở Y tế Bình Thuận cho biết đang làm rõ thông tin hàng chục du khách nghi ngộ độc sau khi ăn tại một nhà hàng ở phường Hàm Tiến, Phan Thiết.
+- Hàng loạt cây cầu hàng trăm tỉ đồng tại nhiều địa phương của tỉnh Quảng Nam đã làm xong phần cầu từ lâu nhưng đường dẫn vẫn chưa hoàn thành, chậm tiến độ khiến người dân ngán ngẩm.
+- Vụ tai nạn lao động xảy ra tại hầm lò Công ty than Quang Hanh, TP Cẩm Phả, Quảng Ninh khiến 3 người chết.
+- Thầy thuốc nhân dân, GS.TS.BS Nguyễn Huy Dung, người từng chăm sóc sức khỏe Bác Hồ, người thầy lớn của nhiều thế hệ bác sĩ giỏi, đã từ trần.
+- Thấy con chim lạ đậu trên giàn mướp, người dân bắt giao cho kiểm lâm cứu hộ. Kiểm lâm viên ghi nhận đây là niệc mỏ vằn quý hiếm, thuộc họ hồng hoàng.
+- Theo quy hoạch, Hà Nội có 1.620 bãi đỗ xe nhưng hiện chỉ có 57 bãi đỗ xe hoạt động, còn lại đang trong quá trình chuẩn bị đầu tư và còn rất nhiều vướng mắc.
+- Hai nữ sinh chở nhau bằng xe đạp điện trên đường đi học về thì va chạm với xe tải, một em chết tại chỗ, một em bị thương.
+- Chưa ngăn chặn, hạn chế được các cuộc gọi lừa đảo vì có nhiều thuê bao không còn sử dụng nhưng chưa cập nhật thông tin thuê bao - Bộ Thông tin và Truyền thông lý giải.
+- Ông Nguyễn Trọng Nghĩa - trưởng Ban Tuyên giáo Trung ương - làm việc tại An Giang, tặng quà cho học sinh, gia đình chính sách và hộ nghèo huyện Thoại Sơn.
+- Đơn vị phường đã ra quân xử lý rác sinh hoạt, nước thải, xác động vật... nổi lềnh bềnh phủ kín mặt kênh ảnh hưởng đến người dân.
+- Khu du lịch triệu đô nằm dọc bãi biển Lăng Cô - Cảnh Dương (tỉnh Thừa Thiên Huế) nhiều năm liền bị bỏ hoang.
+- Nguyên lãnh đạo tỉnh Bà Rịa - Vũng Tàu đã có những nhìn nhận thẳng thắn, trực diện về những ‘nút thắt’ cần tháo gỡ để phát triển tỉnh này thành trung tâm kinh tế biển quốc gia.
+- Theo báo cáo ban đầu, vụ tai nạn liên hoàn ở ĐT 741 (Bình Phước) sáng 13-5 khiến 1 người chết, 3 người bị thương nặng.
+- Sau thời gian vào cuộc quyết liệt, đơn vị giải phóng mặt bằng huyện Thạch Hà (tỉnh Hà Tĩnh) đã hoàn tất việc bàn giao một phần trại heo án ngự trên cao tốc Bắc - Nam, để nhà thầu triển khai thi công dự án.
+- Luồng lạch dẫn vào Cảng cá Cửa Sót bị bồi lắng nặng nề, khi thủy triều xuống tàu thuyền có công suất lớn không thể vào cảng,
+- Liên quan vụ tai nạn đặc biệt nghiêm trọng giữa xe Thành Bưởi và xe 16 chỗ khiến 5 người chết, viện kiểm sát đã ra cáo trạng truy tố phó giám đốc nhà xe Thành Bưởi và tài xế.
+- Lực lượng chức năng đang tìm kiếm một cháu bé 6 tuổi mất tích nghi bị sóng biển cuốn trôi ở bãi biển thuộc thị trấn Lăng Cô (huyện Phú Lộc, tỉnh Thừa Thiên Huế).
+- Sáng 13-5, Phó bí thư thường trực Thành ủy TP.HCM Nguyễn Hồ Hải đã trao huy hiệu 75 năm tuổi Đảng cho ông Phạm Trương tại huyện Nhà Bè.
+- 'Cần coi các doanh nghiệp lớn là tài sản quốc gia chứ không nên nghĩ doanh nghiệp đó thuộc sở hữu của một cá nhân' là ý kiến của ông Vũ Tiến Lộc - ủy viên Ủy ban Kinh tế của Quốc hội, chủ tịch Trung tâm trọng tài quốc tế Việt Nam (VIAC).
+- Vụ tai nạn và cháy xe container ngùn ngụt khiến hơn 10 người bị thương, trong đó nhiều người bị thương nặng.
+- Phó thủ tướng Lê Minh Khái nói rõ việc người dân quan tâm thị trường vàng là đúng nhưng phải đánh giá kỹ, bình tĩnh, tìm được giải pháp.
+- UBND TP Hải Phòng vừa phê duyệt chương trình phát triển đô thị thành phố với những mốc chỉ tiêu cụ thể theo từng giai đoạn, xây dựng tầm nhìn đến năm 2050.
+- Văn phòng UBND TP Hà Nội đã có văn bản truyền đạt ý kiến chỉ đạo của Chủ tịch UBND TP Hà Nội về giải "WPT Vietnam 2024".
+- Sáng 13-5, Sở Giao thông vận tải TP.HCM phối hợp các đơn vị tổ chức lễ khai trương tàu cao tốc Thăng Long từ Nhà Bè (TP.HCM) đi Côn Đảo (Bà  Rịa - Vũng Tàu), phục vụ nhu cầu đi lại rất lớn của người dân.
 ![New](News.png)
 ## Nhịp sống số 
 - Doanh nghiệp và người tiêu dùng đều cần công cụ để tự bảo vệ mình trước những hình thức gian lận mới của thanh toán số.
