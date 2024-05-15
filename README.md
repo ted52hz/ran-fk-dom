@@ -1,6 +1,24 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Tỉ lệ 'chọi' thi vào lớp 10 ở TP.HCM có nhiều điểm bất ngờ. Trong đó, trường THPT tốp giữa lại có tỉ lệ 'chọi' cao hơn cả trường tốp đầu.
+- Liên quan đến phản ánh bữa ăn bán trú bị cắt xén, Ban Thường vụ huyện ủy Bắc Hà (Lào Cai) quyết định khai trừ Đảng đối với ông Trần Ngọc Hà.
+- Đại học Kinh tế TP.HCM có thông tin chính thức về việc GS.TS Võ Xuân Vinh xin rút khỏi hội đồng liêm chính học thuật và hội đồng giáo sư cơ sở UEH năm 2024.
+- Một không gian AI đa chiều, từ những chiếc smartphone, chatbot đến các công nghệ mới trong lĩnh vực y khoa, cùng với đó là những buổi hội thảo, workshop của các chuyên gia công nghệ hàng đầu, đã mang đến trải nghiệm có một không hai cho học sinh.
+- Robot có thể giúp đỡ người già đi lại, bật tắt các thiết bị gia dụng, liên hệ với người thân trong trường hợp khẩn cấp…
+- Có nhiều thay đổi bất ngờ trong mùa tuyển sinh lớp 10 năm nay ở TP.HCM. Trong đó nhiều trường THPT ở vùng ven có tỉ lệ chọi rất cao.
+- Năm 2024, Trường Đại học Công nghệ TP.HCM (HUTECH) mang đến những suất học bổng hấp dẫn nhằm tiếp thêm động lực cho thí sinh.
+- Sinh viên học văn bằng 2, Trường đại học Khoa học - Đại học Huế bức xúc vì cận kề ngày tốt nghiệp phải đóng 3.750.000 đồng học phí và 800.000 đồng lệ phí mới được tốt nghiệp.
+- Theo chuyên gia, ngày càng ghi nhận nhiều sinh viên Việt Nam tham gia vào thị trường chứng khoán.
+- 19h tối nay 14-5, Học viện Đào tạo Hoạt hình Quốc tế Sconnect sẽ lên sóng chương trình Khám phá trường học của báo Tuổi Trẻ.
+- Nguồn tài nguyên từ bài viết, video, podcast đề cập đến các chủ đề 'khó nói' giúp học sinh, sinh viên và các lao động trẻ hiểu hơn về giáo dục giới tính.
+- Trong số 114.933 học sinh lớp 9 ở TP.HCM năm nay, chỉ có 98.681 em đăng ký thi lớp 10. Như vậy, có 16.252 học sinh không đăng ký thi.
+- Sở Giáo dục và Đào tạo TP.HCM vừa công bố số thí sinh dự thi lớp 10 vào từng trường công lập năm 2024 và tỉ lệ chọi.
+- Trưởng khoa của một trường đại học đồng thời làm giám đốc phát triển tập đoàn, đại diện pháp luật chi nhánh công ty tư nhân nên bị giảng viên tố vi phạm quy định của pháp luật.
+- Việc giáo viên phát đơn xin không thi tuyển sinh lớp 10 cho học sinh trường THCS ở TP.HCM gây dư luận bức xúc. Tuy nhiên không ít ý kiến trái chiều.
+- 'Chúng tôi biết con khó đậu lớp 10 công lập, nhưng tại sao không để con thi thử sức trước khi nộp vào trường nghề?'
+- 5 năm qua, hai khối nhà sau lưng Công an thị trấn Ia Ly (huyện Chư Păh, tỉnh Gia Lai) đã trở thành ký túc xá miễn phí của cả trăm lượt học sinh Trường THPT Ia Ly.
+- Từ 17h hôm nay, 14-5, đến chậm nhất 17h ngày 19-5, học sinh có thể điều chỉnh, thay đổi nguyện vọng vào lớp 10 sau khi Sở Giáo dục và Đào tạo TP.HCM công bố tỉ lệ chọi nguyện vọng 1.
 - Số lượng sinh viên quốc tế ở Úc đã đạt mức cao kỷ lục là 671.000 người vào tháng 3 vừa qua, tăng 15% so với năm ngoái.
 - Tại hội nghị, Phó chủ tịch TP.HCM Dương Anh Đức mong lĩnh vực năng lực sức khỏe sẽ được tích hợp vào chương trình đào tạo của Trường đại học Y khoa Phạm Ngọc Thạch.
 - Trường THCS Nguyễn Văn Bứa, TP.HCM có chủ trương gửi mẫu đơn 'xin không thi tuyển sinh lớp 10' cho phụ huynh là không đúng quy định.
@@ -13,56 +31,38 @@
 - Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) vừa công bố chi tiết về phương thức xét tuyển tổng hợp năm 2024 với cách tính điểm đặc biệt.
 - Thủ tướng Phạm Minh Chính nhắn nhủ như vậy tại lễ khai mạc Ngày hội khởi nghiệp quốc gia của học sinh, sinh viên diễn ra tại TP Cần Thơ vào ngày 12-5.
 - Sự phát triển vượt bậc của công nghệ mở ra kỷ nguyên mới trong lĩnh vực thiết kế vi mạch.
-- Ông Johnathan Hạnh Nguyễn đã có liên tục gần 3 giờ trao đổi với sinh viên Trường đại học Đà Lạt về sự học và phát triển bản thân trong chiều 6-5.
-- Sáng 12-5, gần 600 học sinh lớp 6, 7, 8, 9 của TP.HCM và các tỉnh đã tranh tài giải Lê Quý Đôn tại Thảo Cầm Viên, quận 1, TP.HCM.
-- Phòng Giáo dục và Đào tạo huyện Hóc Môn, TP.HCM vừa có báo cáo về vụ phát hành đơn 'xin không thi tuyển sinh lớp 10' ở Trường THCS Nguyễn Văn Bứa.
-- Tham dự và phát biểu tại Ngày hội khởi nghiệp quốc gia của học sinh, sinh viên, Thủ tướng Chính phủ Phạm Minh Chính đã nêu ra những từ khóa định hướng khởi nghiệp trong thời gian tới.
-- Chiến dịch 'ăn sạch, sống sành, trường sanh' do Đại học RMIT Việt Nam phát động. Người đủ 18 tuổi có thể tham gia các hoạt động.
-- Dữ liệu một số bài báo của các nhà khoa học là tác giả liên quan đến những bài báo bị tạp chí quốc tế gỡ bỏ vừa bất ngờ biến mất trên thư viện online Đại học Kinh tế TP.HCM.
-- Ngày hội ‘Hiểu AI - Làm giàu hành trang nghề nghiệp’ do báo Tuổi Trẻ phối hợp cùng Google tổ chức vào ngày 10-5 đã thu hút hàng nghìn học sinh, sinh viên, lao động trẻ tham gia.
-- Giải nhất quốc gia cuộc thi viết thư quốc tế UPU năm 2024 thuộc về em Nguyễn Đỗ Quang Minh - học sinh lớp 9 ở TP Đà Nẵng.
-- Mắc bệnh hiếm không răng, không xương răng, bệnh nhân Nguyễn Ngọc Hạnh được các bác sĩ phẫu thuật thành công nhờ vào 'trợ lý' AI.
-- Giáo viên phát đơn "xin không tham gia thi tuyển sinh lớp 10" cho học sinh điền tên. Sự việc xảy ra tại Trường THCS Nguyễn Văn Bứa, huyện Hóc Môn, TP.HCM.
-- Trí tuệ nhân tạo (AI) đang là xu hướng nổi bật trong mọi lĩnh vực toàn cầu và lĩnh vực y tế cũng không ngoại lệ. Rất nhiều ứng dụng AI trong y tế đã ra đời để giảm tải gánh nặng cho các bệnh viện, nâng cao hiệu quả điều trị bệnh.
-- Đây là thông điệp xuyên suốt được các diễn giả, chuyên gia từ Google đưa ra trong sự kiện AI Day.
-- Bạn Trần Ngọc Thi Văn, lớp 12 Trường TH-THCS-THPT Tân Phú (TP.HCM), gửi bó hoa đến người thân duy nhất đến dự lễ - bà ngoại, trong lễ tri ân và trưởng thành của trường này sáng nay 11-5.
-- Nhiều năm nay, thầy giáo Vỹ rong ruổi khắp bản làng vùng cao, kêu gọi kinh phí xây hàng chục cây cầu treo, làm giếng nước cho học sinh và giáo viên sử dụng.
-- Trong hơn 11.000 thí sinh tham dự kỳ thi đánh giá năng lực của Trường đại học Sư phạm Hà Nội sáng 11-5, có cả thí sinh từ Kiên Giang, Cà Mau...
-- Mức hỗ trợ học phí cho học sinh THCS là 100.000 đồng/học sinh/tháng đối với nhóm 1 và 85.000 đồng/học sinh/tháng đối với nhóm 2.
-- Hội đồng Anh đã cấp 90.481 chứng chỉ tiếng Anh, trong đó có 52.564 chứng chỉ IELTS khi chưa được cấp phép liên kết tổ chức thi.
-- Đại học Kinh tế TP.HCM (UEH) vừa có kết luận ban đầu về xử lý vụ GS.TS Võ Xuân Vinh thuộc Viện Nghiên cứu kinh doanh UEH, có tên trên bài báo vừa bị một tạp chí quốc tế gỡ bỏ.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Thủ tướng Chính phủ vừa có công điện về việc tăng cường quản lý thuốc lá điện tử, thuốc lá nung nóng.
-- Nút giao Nguyễn Văn Linh - Nguyễn Hữu Thọ là cửa ngõ quan trọng phía Nam TP.HCM nhưng phải rào chắn từ ngày 8-2 để làm đốt hầm kín. Đến cuối tháng 9, giao lộ sẽ được trả lại hiện trạng phần giữa.
-- Đến mùa mưa, người dân TP.HCM lại lo ngập nước. Thành phố sẽ chuẩn bị những gì để ứng phó mùa mưa sắp tới?
-- Thời gian qua tại Hà Nội, thường xảy ra tình trạng các gánh hàng rong, taxi "chặt chém" du khách trong và ngoài nước.
-- Hôm nay thời tiết ba miền cả nước có nét tương đồng khi ban ngày nắng, có nơi nắng nóng, chiều tối có mưa dông.
-- Một số tin tức đáng chú ý: Công bố tỉ lệ 'chọi' vào lớp 10 ở TP.HCM; Trồng 350 cây xanh tại nhà ga metro số 1...
-- Tối 13-5, lãnh đạo Sở Y tế Bình Thuận cho biết đang làm rõ thông tin hàng chục du khách nghi ngộ độc sau khi ăn tại một nhà hàng ở phường Hàm Tiến, Phan Thiết.
-- Hàng loạt cây cầu hàng trăm tỉ đồng tại nhiều địa phương của tỉnh Quảng Nam đã làm xong phần cầu từ lâu nhưng đường dẫn vẫn chưa hoàn thành, chậm tiến độ khiến người dân ngán ngẩm.
-- Vụ tai nạn lao động xảy ra tại hầm lò Công ty than Quang Hanh, TP Cẩm Phả, Quảng Ninh khiến 3 người chết.
-- Thầy thuốc nhân dân, GS.TS.BS Nguyễn Huy Dung, người từng chăm sóc sức khỏe Bác Hồ, người thầy lớn của nhiều thế hệ bác sĩ giỏi, đã từ trần.
-- Thấy con chim lạ đậu trên giàn mướp, người dân bắt giao cho kiểm lâm cứu hộ. Kiểm lâm viên ghi nhận đây là niệc mỏ vằn quý hiếm, thuộc họ hồng hoàng.
-- Theo quy hoạch, Hà Nội có 1.620 bãi đỗ xe nhưng hiện chỉ có 57 bãi đỗ xe hoạt động, còn lại đang trong quá trình chuẩn bị đầu tư và còn rất nhiều vướng mắc.
-- Hai nữ sinh chở nhau bằng xe đạp điện trên đường đi học về thì va chạm với xe tải, một em chết tại chỗ, một em bị thương.
-- Chưa ngăn chặn, hạn chế được các cuộc gọi lừa đảo vì có nhiều thuê bao không còn sử dụng nhưng chưa cập nhật thông tin thuê bao - Bộ Thông tin và Truyền thông lý giải.
-- Ông Nguyễn Trọng Nghĩa - trưởng Ban Tuyên giáo Trung ương - làm việc tại An Giang, tặng quà cho học sinh, gia đình chính sách và hộ nghèo huyện Thoại Sơn.
-- Đơn vị phường đã ra quân xử lý rác sinh hoạt, nước thải, xác động vật... nổi lềnh bềnh phủ kín mặt kênh ảnh hưởng đến người dân.
-- Khu du lịch triệu đô nằm dọc bãi biển Lăng Cô - Cảnh Dương (tỉnh Thừa Thiên Huế) nhiều năm liền bị bỏ hoang.
-- Nguyên lãnh đạo tỉnh Bà Rịa - Vũng Tàu đã có những nhìn nhận thẳng thắn, trực diện về những ‘nút thắt’ cần tháo gỡ để phát triển tỉnh này thành trung tâm kinh tế biển quốc gia.
-- Theo báo cáo ban đầu, vụ tai nạn liên hoàn ở ĐT 741 (Bình Phước) sáng 13-5 khiến 1 người chết, 3 người bị thương nặng.
-- Sau thời gian vào cuộc quyết liệt, đơn vị giải phóng mặt bằng huyện Thạch Hà (tỉnh Hà Tĩnh) đã hoàn tất việc bàn giao một phần trại heo án ngự trên cao tốc Bắc - Nam, để nhà thầu triển khai thi công dự án.
-- Luồng lạch dẫn vào Cảng cá Cửa Sót bị bồi lắng nặng nề, khi thủy triều xuống tàu thuyền có công suất lớn không thể vào cảng,
-- Liên quan vụ tai nạn đặc biệt nghiêm trọng giữa xe Thành Bưởi và xe 16 chỗ khiến 5 người chết, viện kiểm sát đã ra cáo trạng truy tố phó giám đốc nhà xe Thành Bưởi và tài xế.
-- Lực lượng chức năng đang tìm kiếm một cháu bé 6 tuổi mất tích nghi bị sóng biển cuốn trôi ở bãi biển thuộc thị trấn Lăng Cô (huyện Phú Lộc, tỉnh Thừa Thiên Huế).
-- Sáng 13-5, Phó bí thư thường trực Thành ủy TP.HCM Nguyễn Hồ Hải đã trao huy hiệu 75 năm tuổi Đảng cho ông Phạm Trương tại huyện Nhà Bè.
-- 'Cần coi các doanh nghiệp lớn là tài sản quốc gia chứ không nên nghĩ doanh nghiệp đó thuộc sở hữu của một cá nhân' là ý kiến của ông Vũ Tiến Lộc - ủy viên Ủy ban Kinh tế của Quốc hội, chủ tịch Trung tâm trọng tài quốc tế Việt Nam (VIAC).
-- Vụ tai nạn và cháy xe container ngùn ngụt khiến hơn 10 người bị thương, trong đó nhiều người bị thương nặng.
-- Phó thủ tướng Lê Minh Khái nói rõ việc người dân quan tâm thị trường vàng là đúng nhưng phải đánh giá kỹ, bình tĩnh, tìm được giải pháp.
-- UBND TP Hải Phòng vừa phê duyệt chương trình phát triển đô thị thành phố với những mốc chỉ tiêu cụ thể theo từng giai đoạn, xây dựng tầm nhìn đến năm 2050.
-- Văn phòng UBND TP Hà Nội đã có văn bản truyền đạt ý kiến chỉ đạo của Chủ tịch UBND TP Hà Nội về giải "WPT Vietnam 2024".
-- Sáng 13-5, Sở Giao thông vận tải TP.HCM phối hợp các đơn vị tổ chức lễ khai trương tàu cao tốc Thăng Long từ Nhà Bè (TP.HCM) đi Côn Đảo (Bà  Rịa - Vũng Tàu), phục vụ nhu cầu đi lại rất lớn của người dân.
+- Một số tin tức đáng chú ý: Giá USD tự do lại vọt lên, tiến gần ngưỡng 26.000 đồng; TP.HCM cấm xe vào làn ô tô trên đường Lê Lợi 13 ngày; Khánh thành Trung tâm hợp tác với WHO nhằm ứng phó đại dịch, quản lý bệnh truyền nhiễm...
+- Tối 14-5, Cục An toàn thực phẩm (Bộ Y tế) có văn bản gửi Sở Y tế Vĩnh Phúc sau vụ việc 350 công nhân Công ty TNHH Shinwon Ebenezer Việt Nam (tỉnh Vĩnh Phúc) nhập viện nghi do ngộ độc thực phẩm. Cục đề nghị đình chỉ ngay bếp ăn của công ty này.
+- Hôm nay 15-5, thời tiết mưa sẽ chiếm ưu thế trên cả nước, Nam Bộ mưa to, Bắc Bộ có nơi mưa rất to.
+- Ông T.H.H. - người đại diện theo pháp luật của Công ty cổ phần 99 Núi (TP Phú Quốc) - được đề nghị tạm hoãn xuất cảnh do chưa hoàn thành nghĩa vụ nộp thuế.
+- Ban Thường vụ Tỉnh ủy Hưng Yên quyết định đồng ý để ông Doãn Anh Quân, bí thư Huyện ủy huyện Tiên Lữ được nghỉ hưu trước tuổi theo nguyện vọng cá nhân.
+- Sở Giao thông vận tải TP.HCM vừa đề nghị Sở Văn hóa và Thể thao TP.HCM góp ý về việc tổ chức các hoạt động (thể thao, diễu hành, lễ hội) có sử dụng tạm thời một phần lòng đường, vỉa hè.
+- Ủy ban Kiểm tra Tỉnh ủy Hòa Bình đề nghị Ban Thường vụ Tỉnh ủy thi hành kỷ luật phó trưởng Ban Tuyên giáo Tỉnh ủy Nguyễn Vũ Chi - nguyên chủ tịch UBND huyện Lương Sơn.
+- Năm cầu thủ Câu lạc bộ Hồng Lĩnh Hà Tĩnh tổ chức sử dụng ma túy trong khách sạn đã bị công an ra quyết định khởi tố.
+- Hàng trăm công nhân Công ty TNHH Shinwon Ebenezer Việt Nam (Vĩnh Phúc) nhập viện cấp cứu nghi ngộ độc thực phẩm với các triệu chứng đau bụng, buồn nôn và nôn, đau đầu, mệt…
+- Liên quan việc Trung Quốc thông báo lệnh cấm đánh bắt cá có thời hạn trên Biển Đông, Quảng Nam đã yêu cầu các địa phương tăng cường hỗ trợ ngư dân.
+- Công an huyện Đam Rông (tỉnh Lâm Đồng) triệu tập nam thiếu niên lái xe bằng chân trên quốc lộ 27, gây nguy hiểm cho người đi đường.
+- Thủ tướng Phạm Minh Chính vừa ký các quyết định kỷ luật Bộ trưởng Bộ Lao động - Thương binh và Xã hội Đào Ngọc Dung, cựu bộ trưởng Phạm Thị Hải Chuyền.
+- Sau hai năm được đưa từ Vườn quốc gia Pù Mát (Nghệ An) vào nuôi ở Vườn quốc gia Phong Nha - Kẻ Bàng, 7 con hổ hoang dã đã bắt đầu tuổi trưởng thành.
+- Thanh tra Sở Y tế và Thanh tra Sở Lao động - Thương binh và Xã hội TP.HCM vừa phát hiện một cơ sở thẩm mỹ đào tạo tiêm filler, botox trái phép tại quận Tân Bình.
+- Các chuyên gia Pháp đề xuất làm một số loại 'bậc thang kiểu Nhật' dưới dạng 'đảo vườn' nổi hoặc cố định ở đoạn sông Sài Gòn chảy qua trung tâm TP.HCM.
+- Do mâu thuẫn trong cuộc sống với gia đình bà của bé gái 8 tuổi, nên người phụ nữ là giáo viên mầm non đã nảy sinh ý định hành hung bé gái khi thấy bé đi qua trước cửa nhà.
+- Cơ quan Cảnh sát điều tra đã khởi tố người đàn ông dùng tuýp sắt đánh vào đầu 5 người phụ nữ đi đường.
+- Liên quan đến phản ánh bữa ăn bán trú bị cắt xén, Ban Thường vụ huyện ủy Bắc Hà (Lào Cai) quyết định khai trừ Đảng đối với ông Trần Ngọc Hà.
+- Tại dự thảo nghị quyết về thí điểm bổ sung cơ chế, chính sách đặc thù, Chính phủ đề xuất Quốc hội xem xét tăng thêm 1 phó chủ tịch UBND tỉnh Nghệ An.
+- Sau nhiều ồn ào liên quan đến hồ sơ tu bổ di tích Chùa Cầu được cho là chưa đa chiều, UBND tỉnh Quảng Nam đã đồng ý gia hạn tiến độ, đồng thời yêu cầu kiểm tra lại tính pháp lý nêu trong hợp đồng.
+- Một công ty ở Đồng Nai tặng nhẫn vàng cho 400 người lao động nhằm tri ân những đóng góp của họ.
+- Sáng 14-5, Bộ Nông nghiệp và Phát triển nông thôn cùng tỉnh Tây Ninh tổ chức họp báo về kế hoạch tổ chức lễ công bố vùng an toàn dịch bệnh tỉnh Tây Ninh.
+- Sở Giao thông vận tải TP.HCM vừa thông báo điều chỉnh tổ chức giao thông phục vụ thi công xây dựng nút giao An Phú, TP Thủ Đức.
+- Hệ thống mạng của Văn phòng Đăng ký đất đai Đà Nẵng bị tấn công không thể truy cập được gây ảnh hưởng đến việc giải quyết các thủ tục dịch vụ công.
+- Ban Bí thư quyết định khai trừ Đảng ông Phạm Thái Hà, cựu phó chủ nhiệm Văn phòng Quốc hội, trợ lý Chủ tịch Quốc hội.
+- Bộ Chính trị đề nghị kỷ luật các ông Lê Thanh Hải, Mai Tiến Dũng, Dương Văn Thái. Đồng thời kỷ luật cảnh cáo các ông Lê Hoàng Quân, Nguyễn Thành Phong.
+- Ngày 14-5, Phó bí thư Thành ủy TP.HCM Nguyễn Phước Lộc đã tham dự buổi lễ và trao huy hiệu 80 năm tuổi Đảng cho bà Trần Thị Phát, đảng viên thuộc Đảng bộ phường 14, quận 10.
+- Một phó chủ tịch UBND xã ở huyện Tân Kỳ, Nghệ An bị người dân tố cáo về việc có lời nói dọa dân 'có thích tôi bắn không' ngay ở chợ.
+- Sở Y tế TP.HCM liên tiếp phát hiện, xử lý các cơ sở đăng ký hộ kinh doanh trên địa bàn quận 10 nhưng 'lấn sân' sang phẫu thuật thẩm mỹ, quảng cáo trái phép.
+- Khoảng 4 ngày qua, TP.HCM nắng nóng, tuy không quá gay gắt như  tháng 4 nhưng trời rất oi bức. Trong 2-3 ngày tới, trời sẽ mưa nhiều,
 ![New](News.png)
 ## Nhịp sống số 
 - Doanh nghiệp và người tiêu dùng đều cần công cụ để tự bảo vệ mình trước những hình thức gian lận mới của thanh toán số.
