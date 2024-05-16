@@ -1,6 +1,14 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Ban tổ chức Festival guitar talent toàn quốc năm 2024 vừa kêu gọi phụ huynh cảnh giác với các trò lừa đảo trên mạng.
+- Quy định về chứng chỉ hành nghề nhà giáo nằm trong một chương của dự thảo Luật Nhà giáo vừa được Bộ Giáo dục và Đào tạo công bố.
+- Trường đại học Kinh tế - Luật (Đại học Quốc gia TP.HCM) vừa chính thức mở cổng đăng ký các phương thức xét tuyển sớm đại học chính quy năm 2024.
+- Đây là chia sẻ của Bộ trưởng Nguyễn Kim Sơn trong buổi làm việc với Trường đại học Sư phạm Hà Nội sáng 15-5.
+- Sau phản ánh của Tuổi Trẻ Online trong bài viết “Chỉ còn vài ngày là tốt nghiệp, sinh viên bức xúc vì phải đóng thêm học phí”, phó hiệu trưởng nhà trường đã thông tin.
+- Mặc dù pháp luật hiện nay không cho phép nhưng nhiều ý kiến cho rằng cần có nhiều trưởng khoa, giảng viên là giám đốc doanh nghiệp để dạy tốt hơn, vì phải có thực tài mới làm được vậy.
+- Nhiều học sinh đăng ký vào lớp 10 năm nay chia sẻ đang như 'ngồi trên lửa' vì không biết Trường Trần Đại Nghĩa mới có thành lập không?
+- Cử tri Bình Dương phản ánh giáo viên TP Tân Uyên không được chi trả tiền lương dạy thêm giờ theo quy định.
 - Tỉ lệ 'chọi' thi vào lớp 10 ở TP.HCM có nhiều điểm bất ngờ. Trong đó, trường THPT tốp giữa lại có tỉ lệ 'chọi' cao hơn cả trường tốp đầu.
 - Liên quan đến phản ánh bữa ăn bán trú bị cắt xén, Ban Thường vụ huyện ủy Bắc Hà (Lào Cai) quyết định khai trừ Đảng đối với ông Trần Ngọc Hà.
 - Đại học Kinh tế TP.HCM có thông tin chính thức về việc GS.TS Võ Xuân Vinh xin rút khỏi hội đồng liêm chính học thuật và hội đồng giáo sư cơ sở UEH năm 2024.
@@ -23,48 +31,41 @@
 - Tại hội nghị, Phó chủ tịch TP.HCM Dương Anh Đức mong lĩnh vực năng lực sức khỏe sẽ được tích hợp vào chương trình đào tạo của Trường đại học Y khoa Phạm Ngọc Thạch.
 - Trường THCS Nguyễn Văn Bứa, TP.HCM có chủ trương gửi mẫu đơn 'xin không thi tuyển sinh lớp 10' cho phụ huynh là không đúng quy định.
 - Thời gian tới, Bộ Khoa học và Công nghệ sẽ không quá ưu tiên vào  công bố quốc tế, mà ưu tiên cho các nhà khoa học trẻ.
-- Với 20 phương thức xét tuyển đại học năm 2024, thí sinh có nhiều lựa chọn để đăng ký ngành, trường yêu thích.
-- Chuyến xe Khám phá trường học tiếp tục đưa khán giả tham quan một cơ sở giáo dục mới, lần này là hệ thống Trường Me Since 1988 tại TP.HCM.
-- Sức hút ngành quan hệ công chúng tăng dần và liên tục thu hút thí sinh quan tâm trên các diễn đàn nghề nghiệp.
-- Quản trị kinh doanh luôn có sức hút mạnh mẽ đối với Gen Z và là một ngành hot mỗi mùa tuyển sinh đại học.
-- Dự kiến bắt đầu từ 17h ngày mai 14-5, học sinh lớp 9 ở TP.HCM sẽ có 5 ngày để thay đổi nguyện vọng tuyển sinh lớp 10.
-- Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) vừa công bố chi tiết về phương thức xét tuyển tổng hợp năm 2024 với cách tính điểm đặc biệt.
-- Thủ tướng Phạm Minh Chính nhắn nhủ như vậy tại lễ khai mạc Ngày hội khởi nghiệp quốc gia của học sinh, sinh viên diễn ra tại TP Cần Thơ vào ngày 12-5.
-- Sự phát triển vượt bậc của công nghệ mở ra kỷ nguyên mới trong lĩnh vực thiết kế vi mạch.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Một số tin tức đáng chú ý: Giá USD tự do lại vọt lên, tiến gần ngưỡng 26.000 đồng; TP.HCM cấm xe vào làn ô tô trên đường Lê Lợi 13 ngày; Khánh thành Trung tâm hợp tác với WHO nhằm ứng phó đại dịch, quản lý bệnh truyền nhiễm...
-- Tối 14-5, Cục An toàn thực phẩm (Bộ Y tế) có văn bản gửi Sở Y tế Vĩnh Phúc sau vụ việc 350 công nhân Công ty TNHH Shinwon Ebenezer Việt Nam (tỉnh Vĩnh Phúc) nhập viện nghi do ngộ độc thực phẩm. Cục đề nghị đình chỉ ngay bếp ăn của công ty này.
-- Hôm nay 15-5, thời tiết mưa sẽ chiếm ưu thế trên cả nước, Nam Bộ mưa to, Bắc Bộ có nơi mưa rất to.
-- Ông T.H.H. - người đại diện theo pháp luật của Công ty cổ phần 99 Núi (TP Phú Quốc) - được đề nghị tạm hoãn xuất cảnh do chưa hoàn thành nghĩa vụ nộp thuế.
-- Ban Thường vụ Tỉnh ủy Hưng Yên quyết định đồng ý để ông Doãn Anh Quân, bí thư Huyện ủy huyện Tiên Lữ được nghỉ hưu trước tuổi theo nguyện vọng cá nhân.
-- Sở Giao thông vận tải TP.HCM vừa đề nghị Sở Văn hóa và Thể thao TP.HCM góp ý về việc tổ chức các hoạt động (thể thao, diễu hành, lễ hội) có sử dụng tạm thời một phần lòng đường, vỉa hè.
-- Ủy ban Kiểm tra Tỉnh ủy Hòa Bình đề nghị Ban Thường vụ Tỉnh ủy thi hành kỷ luật phó trưởng Ban Tuyên giáo Tỉnh ủy Nguyễn Vũ Chi - nguyên chủ tịch UBND huyện Lương Sơn.
-- Năm cầu thủ Câu lạc bộ Hồng Lĩnh Hà Tĩnh tổ chức sử dụng ma túy trong khách sạn đã bị công an ra quyết định khởi tố.
-- Hàng trăm công nhân Công ty TNHH Shinwon Ebenezer Việt Nam (Vĩnh Phúc) nhập viện cấp cứu nghi ngộ độc thực phẩm với các triệu chứng đau bụng, buồn nôn và nôn, đau đầu, mệt…
-- Liên quan việc Trung Quốc thông báo lệnh cấm đánh bắt cá có thời hạn trên Biển Đông, Quảng Nam đã yêu cầu các địa phương tăng cường hỗ trợ ngư dân.
-- Công an huyện Đam Rông (tỉnh Lâm Đồng) triệu tập nam thiếu niên lái xe bằng chân trên quốc lộ 27, gây nguy hiểm cho người đi đường.
-- Thủ tướng Phạm Minh Chính vừa ký các quyết định kỷ luật Bộ trưởng Bộ Lao động - Thương binh và Xã hội Đào Ngọc Dung, cựu bộ trưởng Phạm Thị Hải Chuyền.
-- Sau hai năm được đưa từ Vườn quốc gia Pù Mát (Nghệ An) vào nuôi ở Vườn quốc gia Phong Nha - Kẻ Bàng, 7 con hổ hoang dã đã bắt đầu tuổi trưởng thành.
-- Thanh tra Sở Y tế và Thanh tra Sở Lao động - Thương binh và Xã hội TP.HCM vừa phát hiện một cơ sở thẩm mỹ đào tạo tiêm filler, botox trái phép tại quận Tân Bình.
-- Các chuyên gia Pháp đề xuất làm một số loại 'bậc thang kiểu Nhật' dưới dạng 'đảo vườn' nổi hoặc cố định ở đoạn sông Sài Gòn chảy qua trung tâm TP.HCM.
-- Do mâu thuẫn trong cuộc sống với gia đình bà của bé gái 8 tuổi, nên người phụ nữ là giáo viên mầm non đã nảy sinh ý định hành hung bé gái khi thấy bé đi qua trước cửa nhà.
-- Cơ quan Cảnh sát điều tra đã khởi tố người đàn ông dùng tuýp sắt đánh vào đầu 5 người phụ nữ đi đường.
-- Liên quan đến phản ánh bữa ăn bán trú bị cắt xén, Ban Thường vụ huyện ủy Bắc Hà (Lào Cai) quyết định khai trừ Đảng đối với ông Trần Ngọc Hà.
-- Tại dự thảo nghị quyết về thí điểm bổ sung cơ chế, chính sách đặc thù, Chính phủ đề xuất Quốc hội xem xét tăng thêm 1 phó chủ tịch UBND tỉnh Nghệ An.
-- Sau nhiều ồn ào liên quan đến hồ sơ tu bổ di tích Chùa Cầu được cho là chưa đa chiều, UBND tỉnh Quảng Nam đã đồng ý gia hạn tiến độ, đồng thời yêu cầu kiểm tra lại tính pháp lý nêu trong hợp đồng.
-- Một công ty ở Đồng Nai tặng nhẫn vàng cho 400 người lao động nhằm tri ân những đóng góp của họ.
-- Sáng 14-5, Bộ Nông nghiệp và Phát triển nông thôn cùng tỉnh Tây Ninh tổ chức họp báo về kế hoạch tổ chức lễ công bố vùng an toàn dịch bệnh tỉnh Tây Ninh.
-- Sở Giao thông vận tải TP.HCM vừa thông báo điều chỉnh tổ chức giao thông phục vụ thi công xây dựng nút giao An Phú, TP Thủ Đức.
-- Hệ thống mạng của Văn phòng Đăng ký đất đai Đà Nẵng bị tấn công không thể truy cập được gây ảnh hưởng đến việc giải quyết các thủ tục dịch vụ công.
-- Ban Bí thư quyết định khai trừ Đảng ông Phạm Thái Hà, cựu phó chủ nhiệm Văn phòng Quốc hội, trợ lý Chủ tịch Quốc hội.
-- Bộ Chính trị đề nghị kỷ luật các ông Lê Thanh Hải, Mai Tiến Dũng, Dương Văn Thái. Đồng thời kỷ luật cảnh cáo các ông Lê Hoàng Quân, Nguyễn Thành Phong.
-- Ngày 14-5, Phó bí thư Thành ủy TP.HCM Nguyễn Phước Lộc đã tham dự buổi lễ và trao huy hiệu 80 năm tuổi Đảng cho bà Trần Thị Phát, đảng viên thuộc Đảng bộ phường 14, quận 10.
-- Một phó chủ tịch UBND xã ở huyện Tân Kỳ, Nghệ An bị người dân tố cáo về việc có lời nói dọa dân 'có thích tôi bắn không' ngay ở chợ.
-- Sở Y tế TP.HCM liên tiếp phát hiện, xử lý các cơ sở đăng ký hộ kinh doanh trên địa bàn quận 10 nhưng 'lấn sân' sang phẫu thuật thẩm mỹ, quảng cáo trái phép.
-- Khoảng 4 ngày qua, TP.HCM nắng nóng, tuy không quá gay gắt như  tháng 4 nhưng trời rất oi bức. Trong 2-3 ngày tới, trời sẽ mưa nhiều,
+- Vụ lật xuồng chở 6 công nhân trên sông Ba, khiến 1 người chết và 2 người mất tích, là do xuồng va đập trụ cầu.
+- Ngày 15-5, Ủy ban Thường vụ Quốc hội tham gia ý kiến về dự thảo báo cáo tổng hợp ý kiến, kiến nghị của cử tri, nhân dân gửi đến kỳ họp thứ 7 tới của Quốc hội.
+- Dự án xây hệ thống thoát nước đường Võ Văn Ngân với tổng mức đầu tư 248 tỉ đồng vừa khánh thành ngày 27-4 trong niềm hân hoan của người dân TP Thủ Đức. Thế nhưng sau trận mưa lớn chiều 15-5, nhiều người đã đặt dấu chấm hỏi về tính khả thi của dự án.
+- Tin tức đáng chú ý: Đơn giản hóa được 765/1.082 thủ tục hành chính; Không để xảy ra ngập hầm đường bộ tại TP.HCM khi mưa lớn; Lãi suất cho vay bình quân giảm nhẹ...
+- Hôm nay thời tiết cả nước tiếp tục mưa to, nhiều nơi mưa rất to, cần đề phòng lũ, ngập nước, thiên tại khác đi kèm.
+- Ban tổ chức Festival guitar talent toàn quốc năm 2024 vừa kêu gọi phụ huynh cảnh giác với các trò lừa đảo trên mạng.
+- Xuồng chở sáu công nhân thi công cầu bắc qua sông Ba (thuộc dự án cao tốc Bắc - Nam) ở Phú Yên không may bị lật trong đêm.
+- Các đơn vị liên quan đang tập trung gỡ vướng, đẩy nhanh tiến độ di dời hạ tầng kỹ thuật, đường điện cao thế ở dự án cao tốc qua tỉnh Phú Yên và Khánh Hòa, nhất là cao tốc Vân Phong - Nha Trang.
+- UBND TP.HCM vừa có văn bản chỉ đạo các đơn vị khẩn trương giải quyết bất cập hạ tầng giao thông, tổ chức giao thông trên địa bàn TP.HCM.
+- Sau bữa tối, gần 100 công nhân ở Đồng Nai phải vào viện điều trị với triệu chứng đau bụng, nhức đầu, chóng mặt nghi ngộ độc.
+- Từ ngày 15-5, PGS.TS Phạm Ngọc Đông - phó giám đốc Bệnh viện Mắt trung ương - phụ trách, quản lý, điều hành bệnh viện cho đến khi kiện toàn giám đốc bệnh viện.
+- Cửa biển Cửa Tùng bị bồi lấp nhiều năm qua, lúc cạn nhất chỉ 50cm, khiến tàu cá ngư dân không thể ra khơi, nhiều tàu mắc cạn, thậm chí có tàu cá ngoại tỉnh phải vứt tàu do hư hỏng nặng.
+- Cục Quản lý khám chữa bệnh, Bộ Y tế vừa có văn bản đề nghị Sở Y tế Vĩnh Phúc tập trung cấp cứu, điều trị kịp thời cho 336 công nhân nhập viện nghi do ngộ độc thực phẩm sau bữa ăn trưa ngày 14-5.
+- Chiều 15-5, cơn mưa lớn nhất từ đầu năm đến nay khiến nhiều tuyến đường ở TP.HCM ngập, bên cạnh đó, mưa đúng giờ tan tầm nên giao thông TP.HCM hỗn loạn, hàng ngàn người đi làm về bị kẹt xe khắp nơi.
+- Cơn mưa chiều nay trút xuống khu vực TP Thủ Đức có vũ lượng lên tới 121mm, đây là trận lớn nhất từ đầu năm.
+- Lãnh đạo TP.HCM tham dự các buổi lễ trao huy hiệu Đảng đợt ngày 19-5 tại huyện Bình Chánh và Củ Chi, trong đó có nhiều đảng viên 50, 60, 70 năm tuổi Đảng.
+- Lĩnh vực an toàn thực phẩm không chỉ riêng của Bộ Y tế quản lý, mà các cấp các ngành đều phải vào cuộc, theo Thứ trưởng Đỗ Xuân Tuyên.
+- Chiều 15-5, cơn mưa lớn như trút nước xuống toàn TP.HCM, trong đó có khu vực TP Thủ Đức. Cơn mưa như một phép thử đối với dự án thoát nước đường Võ Văn Ngân, dự án đã thất thủ.
+- Năm 2024 đánh dấu 74 năm thiết lập quan hệ ngoại giao và 30 năm ký kết Hiệp ước về các nguyên tắc cơ bản trong quan hệ hữu nghị Việt Nam - Nga.
+- Mưa lớn xảy ra trong chiều 15-5 khiến nhiều tuyến đường tại Hà Nội biến thành 'sông' do ngập sâu, nhiều xe bị chết máy khi đi qua đoạn ngập.
+- Thủ tướng yêu cầu các bộ, ngành điều tra và xác minh để xử lý triệt để, nghiêm minh các trường hợp tàu cá vi phạm quy định về VMS. Kiên quyết xử lý nghiêm các tổ chức, cá nhân cố tình vi phạm về chống khai thác IUU.
+- Theo định hướng, tầm nhìn đến 2045, Cái Mép - Thị Vải sẽ trở thành cảng trung chuyển quốc tế tầm cỡ châu Á và thế giới. Vậy cần làm gì để cảng này đạt được mục tiêu trên?
+- Người dân đem súng, vật liệu nổ, công cụ hỗ trợ đến giao nộp cho công an được nhận món quà như: ấm siêu tốc, mũ bảo hiểm, nước mắm, đường, dầu ăn, mì chính. Đây là cách làm của Công an huyện vùng cao Quan Hóa.
+- Đúng giờ tan tầm, mưa tối trời tối đất khiến nhiều tuyến phố ở TP.HCM bắt đầu ngập. Đây là trận mưa lớn nhất sau một mùa khô nóng kéo dài khiến giao thông nhiều nơi tê liệt.
+- Chủ nhiệm Ủy ban Kinh tế Vũ Hồng Thanh bày tỏ rất quan tâm đến vấn đề thị trường bất động sản, việc đầu cơ bất động sản.
+- Châu Đốc cách Long Xuyên 60km, Long Xuyên cách Cần Thơ 60km, Cần Thơ cách Sóc Trăng 60km, Sóc Trăng cách Bạc Liêu gần 60km và Bạc Liêu lại cách Cà Mau cũng khoảng 60km.
+- Khu vực 700m liên quan đến vụ 'doanh nghiệp đòi cát' có 449m ảnh hưởng dự án vành đai 3 TP.HCM, nay việc thi công trong khu vực này diễn ra bình thường, chưa gặp sự cản trở.
+- Bảo tàng đa dạng sinh học tỉnh Quảng Nam hiện lưu giữ hơn 3.700 bức ảnh, hơn 1.200 mẫu vật, tiêu bản động, thực vật.
+- UBND TP Cần Thơ phê duyệt kết quả thi tuyển phương án kiến trúc trụ sở văn phòng HĐND TP Cần Thơ, nhưng ba tháng sau vẫn chưa trao thưởng.
+- Ngày 15-5, Đại sứ Nga tại Việt Nam Gennady Bezdetko khẳng định Nga ủng hộ Việt Nam tham gia BRICS, với một hình thức phù hợp theo lựa chọn của Việt Nam.
 ![New](News.png)
 ## Nhịp sống số 
+- Nghiên cứu mới của ĐH Michigan (Mỹ) chỉ ra rằng cách tốt nhất để quản lý thời gian dùng điện thoại là... làm cho nó đơ ra mỗi khi xài lâu.
 - Doanh nghiệp và người tiêu dùng đều cần công cụ để tự bảo vệ mình trước những hình thức gian lận mới của thanh toán số.
 - Chỉ trong một thời gian ngắn, truyền hình MyTV của VNPT đã đạt được sự tăng trưởng thần tốc, thực sự trở thành người bạn đồng hành thân thiết với các gia đình Việt mỗi ngày.
 - Kết nối Internet quốc tế gặp sự cố, chập chờn thường là cơn đau đầu của các nhà cung cấp dịch vụ trực tuyến.
@@ -94,5 +95,4 @@
 - Giành ngôi vô địch ở giải đấu của những hacker hàng đầu thế giới ở tuổi 20, nghiên cứu công nghệ 5G từ khi còn ngồi trên ghế nhà trường…
 - Qua 15 năm hoạt động, dấu ấn của Vietnamobile để lại trong lòng khách hàng xuất phát từ chính ưu đãi hấp dẫn về giá và dữ liệu.
 - Liên tục các vụ nạn nhân bị mất hàng chục, hàng trăm tỉ đồng, mới nhất là Chủ tịch huyện Nhơn Trạch. Tội phạm đã làm cách nào để lấy số tiền khủng như vậy từ tài khoản của khách hàng?
-- 20 cá nhân, tập thể xuất sắc nhất của Viettel trên toàn cầu đã được vinh danh Viettel’s Stars 2023.
 ![life](Life.png)
