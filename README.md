@@ -1,6 +1,17 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Bạo lực, kể cả về thể xác lẫn tinh thần, đều là phản giáo dục, không thể chấp nhận được trong môi trường giáo dục, thể hiện sự bất lực của người lớn khi không thể tìm được một cách nào tốt hơn.
+- Kết hợp khoa học, công nghiệp và đổi mới sáng tạo sẽ tạo ra môi trường phát triển động lực, tăng cường sức mạnh cạnh tranh của doanh nghiệp
+- Thành viên nhóm chuyên gia của dự thảo Luật Nhà giáo, khẳng định về chứng chỉ hành nghề đối với nhà giáo bên lề tọa đàm về dự án Luật Nhà giáo.
+- Trường đại học Đà Lạt đã hợp tác với hơn 100 doanh nghiệp mở cổng thông tin việc làm để hỗ trợ sinh viên tìm việc.
+- Nhiều ý kiến bạn đọc về vụ việc giáo viên chủ nhiệm ở TP.HCM cho 6 học sinh đánh bạn ngay trong lớp vì đi học muộn.
+- Sinh viên Trường đại học Nha Trang đua xe 4 bánh, tàu thủy tự chế trong ngày hội STEM.
+- Chủ tịch UBND TP Hải Phòng chỉ đạo làm rõ việc trẻ 5 tuổi theo học tại Trường mầm non An Dương, quận Lê Chân bị bầm tím lưng.
+- GS.TS Nguyễn Vũ Quốc Huy - hiệu trưởng - cho biết 'không có ý đánh đố thí sinh và phụ huynh' trong việc công bố học phí.
+- Trường THCS-THPT Trần Đại Nghĩa sẽ tuyển 350 học sinh lớp 6 và 205 học sinh lớp 10 năm học 2024-2025.
+- Tại quận Hà Đông, nếu căn cứ điểm chuẩn năm trước và tỉ lệ chọi năm nay, học sinh phải đạt 8,25 - 8,50 điểm mỗi môn mới hy vọng đỗ vào lớp 10.
+- Chỉ thị số 15 về tăng cường chỉ đạo, phối hợp tổ chức kỳ thi tốt nghiệp THPT và tuyển sinh đại học, giáo dục nghề nghiệp năm 2024.
 - Hiệu trưởng Trường THPT Nguyễn Thị Diệu, TP.HCM đã quyết định tạm đình chỉ công tác giáo viên cho 6 học sinh đánh bạn trong lớp học.
 - Sau khi Trường đại học Hà Nội thông báo sẽ tăng học phí năm học 2024 - 2025, nhiều sinh viên đã bày tỏ bức xúc.
 - Ngày 16-5, thông tin từ Phòng Giáo dục và Đào tạo quận Ninh Kiều (TP Cần Thơ) cho hay đã có chỉ đạo về việc chấn chỉnh công tác nuôi dạy trẻ tại các trường mầm non trên địa bàn, sau vụ việc cô giáo bị tố bạo hành khiến một trẻ 5 tuổi bầm tím mặt.
@@ -20,49 +31,38 @@
 - Những năm qua dư luận nói nhiều về chất lượng và tác động của việc kiểm định chất lượng giáo dục đại học.
 - Trường Quốc tế Á Châu (Asian School) đã tạo dựng 'bệ phóng' vững chắc để hàng ngàn học sinh tự tin chuyển tiếp du học thành công tại 502 trường ở 22 quốc gia.
 - Ban tổ chức Festival guitar talent toàn quốc năm 2024 vừa kêu gọi phụ huynh cảnh giác với các trò lừa đảo trên mạng.
-- Quy định về chứng chỉ hành nghề nhà giáo nằm trong một chương của dự thảo Luật Nhà giáo vừa được Bộ Giáo dục và Đào tạo công bố.
-- Trường đại học Kinh tế - Luật (Đại học Quốc gia TP.HCM) vừa chính thức mở cổng đăng ký các phương thức xét tuyển sớm đại học chính quy năm 2024.
-- Đây là chia sẻ của Bộ trưởng Nguyễn Kim Sơn trong buổi làm việc với Trường đại học Sư phạm Hà Nội sáng 15-5.
-- Sau phản ánh của Tuổi Trẻ Online trong bài viết “Chỉ còn vài ngày là tốt nghiệp, sinh viên bức xúc vì phải đóng thêm học phí”, phó hiệu trưởng nhà trường đã thông tin.
-- Mặc dù pháp luật hiện nay không cho phép nhưng nhiều ý kiến cho rằng cần có nhiều trưởng khoa, giảng viên là giám đốc doanh nghiệp để dạy tốt hơn, vì phải có thực tài mới làm được vậy.
-- Nhiều học sinh đăng ký vào lớp 10 năm nay chia sẻ đang như 'ngồi trên lửa' vì không biết Trường Trần Đại Nghĩa mới có thành lập không?
-- Cử tri Bình Dương phản ánh giáo viên TP Tân Uyên không được chi trả tiền lương dạy thêm giờ theo quy định.
-- Tỉ lệ 'chọi' thi vào lớp 10 ở TP.HCM có nhiều điểm bất ngờ. Trong đó, trường THPT tốp giữa lại có tỉ lệ 'chọi' cao hơn cả trường tốp đầu.
-- Liên quan đến phản ánh bữa ăn bán trú bị cắt xén, Ban Thường vụ huyện ủy Bắc Hà (Lào Cai) quyết định khai trừ Đảng đối với ông Trần Ngọc Hà.
-- Đại học Kinh tế TP.HCM có thông tin chính thức về việc GS.TS Võ Xuân Vinh xin rút khỏi hội đồng liêm chính học thuật và hội đồng giáo sư cơ sở UEH năm 2024.
-- Một không gian AI đa chiều, từ những chiếc smartphone, chatbot đến các công nghệ mới trong lĩnh vực y khoa, cùng với đó là những buổi hội thảo, workshop của các chuyên gia công nghệ hàng đầu, đã mang đến trải nghiệm có một không hai cho học sinh.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Trận mưa đầu mùa ngày 15-5 gây ngập nhiều nơi tại TP.HCM qua đó bộc lộ một số vấn đề bất cập trong công tác chống ngập.
-- Công ty đường sắt đề nghị Đà Nẵng đình chỉ khu vực xây lấn phạm vi bảo vệ cầu đường sắt Nam Ô (quận Liên Chiểu) và rà soát lại phạm vi cấp giấy phép xây dựng.
-- Một số tin tức đáng chú ý: Hơn 300 dự án chưa giải ngân đồng nào; Giá USD ngân hàng quay đầu giảm; 86% ca tử vong do tai nạn giao thông ở TP.HCM là người đi xe máy...
-- Hôm nay thời tiết Bắc Bộ mưa giảm bớt, vùng núi vẫn mưa to. Nam Bộ ngày nắng nóng, chiều tối mưa nhiều nơi.
-- Một nhóm học sinh tại Quảng Trị đã xây dựng dự án phủ xanh rừng tự nhiên. Nhóm vừa trồng 1.000 cây xanh bản địa như lim, sến, lát hoa tại Khu bảo tồn thiên nhiên Đakrông.
-- Chiều 16-5, Đà Nẵng tổ chức lễ khai trương phòng nuôi con bằng sữa mẹ tại nhà ga quốc tế Đà Nẵng, nhân dịp kỷ niệm Ngày Hiến tặng sữa mẹ thế giới (19-5).
-- Tối 16-5, Ban Quản lý đường sắt đô thị TP.HCM đã có thông tin gửi báo chí về phản hồi của đại sứ Nhật Bản đối với tình hình tiến độ dự án metro số 1.
-- PGS.TS Lê Anh Tuấn cho rằng người Pháp đến đô hộ khi Đồng bằng sông Cửu Long đã hình thành những trấn với các khu dân cư, họ chỉ đặt nền hành chính tại đây, không quy hoạch rồi làm các đô thị cách nhau 60km.
-- Phó chủ tịch Tổng liên đoàn Lao động Việt Nam Ngọ Duy Hiểu và Chủ tịch UBND tỉnh Quảng Ninh Cao Tường Huy xuống hầm lò khai thác than ở Quảng Ninh để thăm hỏi, động viên công nhân đang sản xuất.
-- Để đảm bảo tiến độ dự án vành đai 3 TP.HCM cần phải đẩy nhanh các thủ tục gia hạn, cấp phép khai thác mỏ cát.
-- Độc quyền của SJC không mang lợi ích cho Công ty SJC hay một cá nhân, tập thể nào. Ngược lại, Công ty SJC luôn bị mang tiếng độc quyền để trục lợi, kiến nghị cho phép nhập khẩu vàng.
-- Đó là thông tin đại diện Sở Công Thương TP.HCM nêu ra tại họp báo kinh tế - xã hội chiều 16-5 theo tiến độ giai đoạn 1 đề án lắp đặt điện mặt trời áp mái trên trụ sở công.
-- Để có mặt bằng làm các dự án hạ tầng giao thông lớn ở TP.HCM, nhiều cây xanh phải di dời hoặc bị đốn hạ.
-- Cụ bà L.T.N. bị tai nạn giao thông khiến bàn chân gần đứt lìa đã được các bác sĩ phẫu thuật nối lại thành công.
-- 11 hài cốt liệt sĩ là quân tình nguyện và chuyên gia Việt Nam hy sinh tại Lào đã được tìm thấy đưa về nước an táng.
-- Chiều 16-5, Trang tin điện tử Đảng bộ TP.HCM tổ chức hội nghị họp mặt kỷ niệm 20 năm thành lập trang (20-4-2004 - 20-4-2024).
-- Bộ Giao thông vận tải đề nghị UBND tỉnh Nam Định rà soát khả năng cân đối vốn, quy mô, suất đầu tư dự án đường cao tốc Hà Nam - Nam Định.
-- Tỉnh Quảng Nam bất ngờ nhận văn bản đòi khoản nợ hơn 500.000 USD và hơn 27.000 USD tiền lãi vay tiền làm dự án chậm đóng.
-- Sau khi tiếp nhận nhiều phản ánh của báo chí về tính hiệu quả của hệ thống thoát nước đường Võ Văn Ngân sau trận mưa chiều 15-5, Phó chủ tịch UBND TP Thủ Đức Mai Hữu Quyết đã có phản hồi chính thức.
-- Các ông Lê Minh Hưng, Nguyễn Trọng Nghĩa, Đỗ Văn Chiến và bà Bùi Thị Minh Hoài đã được Ban Chấp hành Trung ương Đảng bầu bổ sung làm ủy viên Bộ Chính trị khóa XIII.
-- Ban Chấp hành Trung ương Đảng quyết định khai trừ Đảng ông Mai Tiến Dũng, Dương Văn Thái, cách tất cả chức vụ trong Đảng ông Lê Thanh Hải.
-- Ban Chấp hành Trung ương Đảng đã quyết định giới thiệu nhân sự để bầu giữ chức Chủ tịch nước, Chủ tịch Quốc hội nhiệm kỳ 2021 - 2026.
-- Ban Chấp hành Trung ương Đảng đã đồng ý cho bà Trương Thị Mai thôi giữ các chức vụ Ủy viên Bộ Chính trị, Ủy viên Trung ương Đảng khóa XIII.
-- Chủ nhiệm Tổng cục Chính trị Quân đội nhân dân Việt Nam, Đại tướng Lương Cường đã được Bộ Chính trị phân công làm Thường trực Ban Bí thư thay bà Trương Thị Mai.
-- Năm 2023, chỉ số chuyển đổi số của huyện Nhà Bè được xếp cuối bảng ở khối địa phương, đại diện huyện này cho biết do việc phối hợp báo cáo còn thiếu sót…
-- Ô tô bảng số xanh chở giám đốc Sở Tư pháp tỉnh Khánh Hòa gặp tai nạn nhiều người bị thương.
-- Kiên Giang những ngày qua có mưa khiến cho nồng độ mặn ở các kênh, sông nội đồng giảm. Tuy nhiên, vùng đệm U Minh Thượng sạt lở, sụt lún đất, đứt gãy đường càng thêm nghiêm trọng, ảnh hưởng đến đời sống người dân địa phương.
-- Báo cáo của cơ quan chức năng TP Thủ Đức nhận định dự án thoát nước đường Võ Văn Ngân đã phát huy hiệu quả, nhưng mưa vượt thiết kế. Vì vậy cống bung, đường bể.
-- Ngày 16-5, Công an huyện Củ Chi (TP.HCM) lập hồ sơ, điều tra nguyên nhân tử vong của một người đàn ông được phát hiện chết trên cột điện ở xã Tân Thạnh Tây.
-- Sau khi ra quân "giải cứu" vào chiều 13-5, kênh Nước Đen (quận Bình Tân, TP.HCM) đã được dọn sạch rác và lục bình, người dân vui mừng vì đã bớt mùi hôi, thông thoáng hơn.
+- Các hãng bay đều thừa nhận giá vé có tăng nhưng không... vượt giá trần do Chính phủ quy định!
+- Đang ru con ngủ trong căn nhà 35m², chị Đặng Mỹ Thu (công nhân Công ty TNHH Yamaneseiki Việt Nam - Hà Nam, quê Điện Biên) nói chỗ ở mới rất đẹp, tiện nghi và sạch sẽ.
+- Hôm nay 18-5, thời tiết nhiều nơi có mưa. Nam Bộ ngày nắng, chiều tối mưa rào; Bắc Bộ, Tây Nguyên, Tây Nam Bộ mưa to.
+- Một số tin tức đáng chú ý: Trình Chính phủ tăng lương tối thiểu vùng từ 1-7; 'Thủ phạm' gây áp lực lạm phát; Huy động 13.800 tỉ đồng "xanh hóa" xe buýt...
+- 2 cuốn sách "Hồ Chí Minh - Trái tim quả đất" và "Chủ tịch Hồ Chí Minh - Tư tưởng lý luận, phong cách, đạo đức soi sáng đường chúng ta đi" vừa được trao tặng cho Ban Tuyên giáo Thành ủy TP.HCM.
+- Thủ tướng yêu cầu các doanh nghiệp, chủ đầu tư dự án lập tiến độ, chuẩn bị đầy đủ nguồn lực tài chính, rút ngắn thời gian thi công; công bố công khai thông tin về dự án nhà ở xã hội để người dân biết.
+- Lãnh đạo TP Thủ Đức kiến nghị Sở Nội vụ bố trí số cấp phó dôi dư đến làm việc tại các địa phương khác hoặc đơn vị có nhu cầu, TP Thủ Đức cũng sẽ cố gắng sắp xếp trong khả năng.
+- Ngày 17-5, tân Đại sứ Nhật Bản Ito Naoki trình quốc thư lên quyền Chủ tịch nước Võ Thị Ánh Xuân, đánh dấu việc chính thức bắt đầu nhiệm kỳ 4 năm tại Việt Nam.
+- Hình ảnh nhóm yoga nằm, ngồi giữa đường chụp hình bằng lăng tím được cho xảy ra tại tuyến đường Trần Hưng Đạo, thị trấn Thanh Nê, huyện Kiến Xương, Thái Bình.
+- Ổ dịch tả heo châu Phi vừa được phát hiện tại thôn 1, xã Tiền Phong, thị xã Quảng Yên, Quảng Ninh.
+- UBND TP.HCM vừa báo cáo Bộ Giao thông vận tải về phương án đầu tư, nâng cấp dự án vành đai 3 TP.HCM theo quy mô hoàn chỉnh.
+- Nội dung kịch bản diễn tập chiều 17-5 là đoàn tàu metro Nhổn - ga Hà Nội đi từ ga S02 - Minh Khai về ga S01 - Nhổn thì hành khách phát hiện khói bốc cháy dữ dội trên tàu.
+- Quá trình thi công dự án nâng cấp quốc lộ 8A làm ảnh hưởng hơn 160 nhà dân nằm ngoài phạm vi giải phóng mặt bằng.
+- Tảng đá lở trên quốc lộ 6 vào chiều 17-5 khiến 2 ô tô bị đè trúng. Những người ngồi trong xe đều thoát nạn.
+- Trong ngày làm việc thứ 2 của Hội nghị Trung ương Đảng lần thứ 9, Ban Chấp hành Trung ương đã làm việc tại tổ, thảo luận các nội dung quan trọng.
+- Đến năm 2028 mới đến tuổi nghỉ hưu nhưng ông Đoàn Minh Thọ, chủ tịch UBND thị xã Ba Đồn (Quảng Bình), đã chủ động làm đơn xin nghỉ hưu trước tuổi.
+- Một chiếc xe con đang chạy trên đường bất ngờ bốc cháy dữ dội. Khi xảy ra vụ việc, có hai người trên xe, nhưng rất may không có ai bị thương.
+- Thang máy tự chế vận chuyển vật liệu xây dựng bất ngờ rơi tự do, dẫn tới 7 người bị thương phải cấp cứu.
+- Hàng loạt dự án nghỉ dưỡng, du lịch nằm trên tuyến đường ven biển của Quảng Nam chậm tiến độ, thi công dang dở. Có dự án bỏ hoang, bị tỉnh chấm dứt hoạt động.
+- Đại diện Cục Cảnh sát giao thông cho biết việc sử dụng rượu bia khi lái xe gây ra nhiều hậu quả nghiêm trọng và liên quan đến các hành vi khác như giết người, gây rối... Vì vậy cần cấm tuyệt đối nồng độ cồn với tài xế.
+- Liên quan đến vụ nhà xe Đại Ngân lập một số “bến cóc” tại quận 5 tiềm ẩn nguy cơ mất an toàn giao thông, ùn ứ xe cộ, cơ quan chức năng vừa có thông tin cụ thể.
+- Chiều 17-5, nhiều cựu chiến binh ở các huyện vùng cao Quảng Nam có mặt tại gian trưng bày kỷ vật Huyền thoại Trường Sơn đã nghẹn ngào xúc động, khi thấy một phần hình ảnh của mình trong những ngày đỏ lửa.
+- Cựu bộ trưởng Nguyễn Thanh Long được tòa phúc thẩm chấp nhận kháng cáo giảm nhẹ hình phạt, do nộp thêm 1 tỉ giúp tổng giám đốc Công ty Việt Á khắc phục hậu quả.
+- Công an quận Tây Hồ (Hà Nội) xác định thi thể nam giới được tìm thấy ở phường Nhật Tân có liên quan đến vụ án mạng xảy ra tại huyện Sóc Sơn hôm 13-5.
+- Liên quan đến vụ việc người nhà tố Bệnh viện Thu Cúc tắc trách khiến thai nhi tử vong trong bụng mẹ, hội đồng chuyên môn của Sở Y tế Hà Nội đã có thông tin kết luận.
+- Việc nước sạch chảy yếu vào cuối tuần này ở một số quận tại TP.HCM vì liên quan đến hoạt động khảo sát, sửa chữa sự cố xì bể tuyến ống thép DN1000 và lắp đặt thêm 1 bơm nước sạch.
+- Sau 5 năm không nhìn thấy, mới đây một đàn voọc bạc gồm 7 con đã xuất hiện trở lại tại Vườn quốc gia Chư Mom Ray (Kon Tum).
+- UBND TP.HCM vừa có quyết định về giao biên chế công chức hành chính làm việc tại UBND phường thực hiện chính quyền đô thị giai đoạn 2024-2026.
+- Nguyên nhân nào khiến suối Lương - dòng suối duy nhất chảy từ rừng Hải Vân về Đà Nẵng - đang trong tình trạng khô cạn, trơ trọi toàn sỏi, đá?
+- Đoàn cựu chiến binh vì hòa bình - chi hội 160 đã trao tặng 60 chiếc xe đạp hỗ trợ giáo dục cho trẻ em của 3 huyện tại Quảng Trị.
 ![New](News.png)
 ## Nhịp sống số 
 - Nhiều người thường ngại ngùng khi bắt chuyện lại với người bạn đã lâu không liên lạc. Các nhà khoa học đã có cách giúp họ.
