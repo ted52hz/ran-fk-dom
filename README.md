@@ -1,6 +1,13 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Học sinh tiểu học, THCS ở quận 8, TP.HCM thích thú tham gia loạt hoạt động trong ngày hội 'Em là công dân số'.
+- 'Không có gì quá đặc biệt khi nói thế hệ Gen Z hay nhảy việc. Ở đâu các bạn cảm thấy công việc phù hợp thì các bạn sẽ dừng lại đó'.
+- Nhiều học sinh ở quận Phú Nhuận, TP.HCM cho biết đã rất bất ngờ khi nhận được thư khen của cô trưởng Phòng Giáo dục và Đào tạo.
+- Dù được khởi công xây dựng từ năm 2009, tuy nhiên đến nay chỉ một phần dự án khu nhà ở được đưa vào hoạt động, nhiều hạng mục xây dở dang và bỏ hoang phế.
+- Đại học Quốc gia TP.HCM kéo dài thời gian đăng ký nguyện vọng xét tuyển trực tuyến của phương thức xét điểm thi đánh giá năng lực, do số thí sinh đăng ký xét tuyển còn thấp so với năm 2023.
+- Sau ba ngày, số lượng học sinh đăng ký thay đổi nguyện vọng vào lớp 10 ở TP.HCM không nhiều.
+- Đoàn Việt Nam đoạt giải nhì chính thức và giải tư của Hiệp hội Máy tính Mỹ tại Hội thi khoa học kỹ thuật quốc tế 2024. Cả 2 giải đều thuộc về học sinh Trường chuyên Lê Hồng Phong, TP.HCM.
 - Bạo lực, kể cả về thể xác lẫn tinh thần, đều là phản giáo dục, không thể chấp nhận được trong môi trường giáo dục, thể hiện sự bất lực của người lớn khi không thể tìm được một cách nào tốt hơn.
 - Kết hợp khoa học, công nghiệp và đổi mới sáng tạo sẽ tạo ra môi trường phát triển động lực, tăng cường sức mạnh cạnh tranh của doanh nghiệp
 - Thành viên nhóm chuyên gia của dự thảo Luật Nhà giáo, khẳng định về chứng chỉ hành nghề đối với nhà giáo bên lề tọa đàm về dự án Luật Nhà giáo.
@@ -24,45 +31,8 @@
 - Việc xét công nhận đạt tiêu chuẩn chức danh giáo sư, phó giáo sư năm 2024 sẽ thẩm định kỹ chất lượng các công trình khoa học và các tạp chí đăng tải, bảo đảm tính liêm chính khoa học đối với từng hồ sơ.
 - Chuyện trưởng khoa một trường đại học làm giám đốc doanh nghiệp ngoài trường tạo dư luận trái chiều.
 - Sở Giáo dục và Đào tạo TP.HCM vừa có quyết định tăng hơn 5.500 chỉ tiêu tuyển sinh lớp 10 năm học 2024-2025.
-- Hai đội thi đến từ Trường đại học Ngân hàng TP.HCM đoạt giải nhất và ba cuộc thi đầu tư chứng khoán dành cho sinh viên. Đội giải nhì đến từ Đại học Kinh tế TP.HCM.
-- Giáo sư và phó giáo sư ít giảng dạy bậc đại học nhưng hệ số xác định chỉ tiêu tuyển sinh của họ thì cao hơn mấy lần so với thạc sĩ.
-- Chị N.T.H. cho biết chị bị phá sản, không thể đóng học phí nên bị một trường quốc tế ở TP.HCM giữ học bạ của con chị suốt 2 năm qua.
-- Nhiều thí sinh lo lắng khi đăng ký nguyện vọng vào lớp 10 Trường Trần Đại Nghĩa nhưng trường vẫn chưa thành lập.
-- Những năm qua dư luận nói nhiều về chất lượng và tác động của việc kiểm định chất lượng giáo dục đại học.
-- Trường Quốc tế Á Châu (Asian School) đã tạo dựng 'bệ phóng' vững chắc để hàng ngàn học sinh tự tin chuyển tiếp du học thành công tại 502 trường ở 22 quốc gia.
-- Ban tổ chức Festival guitar talent toàn quốc năm 2024 vừa kêu gọi phụ huynh cảnh giác với các trò lừa đảo trên mạng.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Các hãng bay đều thừa nhận giá vé có tăng nhưng không... vượt giá trần do Chính phủ quy định!
-- Đang ru con ngủ trong căn nhà 35m², chị Đặng Mỹ Thu (công nhân Công ty TNHH Yamaneseiki Việt Nam - Hà Nam, quê Điện Biên) nói chỗ ở mới rất đẹp, tiện nghi và sạch sẽ.
-- Hôm nay 18-5, thời tiết nhiều nơi có mưa. Nam Bộ ngày nắng, chiều tối mưa rào; Bắc Bộ, Tây Nguyên, Tây Nam Bộ mưa to.
-- Một số tin tức đáng chú ý: Trình Chính phủ tăng lương tối thiểu vùng từ 1-7; 'Thủ phạm' gây áp lực lạm phát; Huy động 13.800 tỉ đồng "xanh hóa" xe buýt...
-- 2 cuốn sách "Hồ Chí Minh - Trái tim quả đất" và "Chủ tịch Hồ Chí Minh - Tư tưởng lý luận, phong cách, đạo đức soi sáng đường chúng ta đi" vừa được trao tặng cho Ban Tuyên giáo Thành ủy TP.HCM.
-- Thủ tướng yêu cầu các doanh nghiệp, chủ đầu tư dự án lập tiến độ, chuẩn bị đầy đủ nguồn lực tài chính, rút ngắn thời gian thi công; công bố công khai thông tin về dự án nhà ở xã hội để người dân biết.
-- Lãnh đạo TP Thủ Đức kiến nghị Sở Nội vụ bố trí số cấp phó dôi dư đến làm việc tại các địa phương khác hoặc đơn vị có nhu cầu, TP Thủ Đức cũng sẽ cố gắng sắp xếp trong khả năng.
-- Ngày 17-5, tân Đại sứ Nhật Bản Ito Naoki trình quốc thư lên quyền Chủ tịch nước Võ Thị Ánh Xuân, đánh dấu việc chính thức bắt đầu nhiệm kỳ 4 năm tại Việt Nam.
-- Hình ảnh nhóm yoga nằm, ngồi giữa đường chụp hình bằng lăng tím được cho xảy ra tại tuyến đường Trần Hưng Đạo, thị trấn Thanh Nê, huyện Kiến Xương, Thái Bình.
-- Ổ dịch tả heo châu Phi vừa được phát hiện tại thôn 1, xã Tiền Phong, thị xã Quảng Yên, Quảng Ninh.
-- UBND TP.HCM vừa báo cáo Bộ Giao thông vận tải về phương án đầu tư, nâng cấp dự án vành đai 3 TP.HCM theo quy mô hoàn chỉnh.
-- Nội dung kịch bản diễn tập chiều 17-5 là đoàn tàu metro Nhổn - ga Hà Nội đi từ ga S02 - Minh Khai về ga S01 - Nhổn thì hành khách phát hiện khói bốc cháy dữ dội trên tàu.
-- Quá trình thi công dự án nâng cấp quốc lộ 8A làm ảnh hưởng hơn 160 nhà dân nằm ngoài phạm vi giải phóng mặt bằng.
-- Tảng đá lở trên quốc lộ 6 vào chiều 17-5 khiến 2 ô tô bị đè trúng. Những người ngồi trong xe đều thoát nạn.
-- Trong ngày làm việc thứ 2 của Hội nghị Trung ương Đảng lần thứ 9, Ban Chấp hành Trung ương đã làm việc tại tổ, thảo luận các nội dung quan trọng.
-- Đến năm 2028 mới đến tuổi nghỉ hưu nhưng ông Đoàn Minh Thọ, chủ tịch UBND thị xã Ba Đồn (Quảng Bình), đã chủ động làm đơn xin nghỉ hưu trước tuổi.
-- Một chiếc xe con đang chạy trên đường bất ngờ bốc cháy dữ dội. Khi xảy ra vụ việc, có hai người trên xe, nhưng rất may không có ai bị thương.
-- Thang máy tự chế vận chuyển vật liệu xây dựng bất ngờ rơi tự do, dẫn tới 7 người bị thương phải cấp cứu.
-- Hàng loạt dự án nghỉ dưỡng, du lịch nằm trên tuyến đường ven biển của Quảng Nam chậm tiến độ, thi công dang dở. Có dự án bỏ hoang, bị tỉnh chấm dứt hoạt động.
-- Đại diện Cục Cảnh sát giao thông cho biết việc sử dụng rượu bia khi lái xe gây ra nhiều hậu quả nghiêm trọng và liên quan đến các hành vi khác như giết người, gây rối... Vì vậy cần cấm tuyệt đối nồng độ cồn với tài xế.
-- Liên quan đến vụ nhà xe Đại Ngân lập một số “bến cóc” tại quận 5 tiềm ẩn nguy cơ mất an toàn giao thông, ùn ứ xe cộ, cơ quan chức năng vừa có thông tin cụ thể.
-- Chiều 17-5, nhiều cựu chiến binh ở các huyện vùng cao Quảng Nam có mặt tại gian trưng bày kỷ vật Huyền thoại Trường Sơn đã nghẹn ngào xúc động, khi thấy một phần hình ảnh của mình trong những ngày đỏ lửa.
-- Cựu bộ trưởng Nguyễn Thanh Long được tòa phúc thẩm chấp nhận kháng cáo giảm nhẹ hình phạt, do nộp thêm 1 tỉ giúp tổng giám đốc Công ty Việt Á khắc phục hậu quả.
-- Công an quận Tây Hồ (Hà Nội) xác định thi thể nam giới được tìm thấy ở phường Nhật Tân có liên quan đến vụ án mạng xảy ra tại huyện Sóc Sơn hôm 13-5.
-- Liên quan đến vụ việc người nhà tố Bệnh viện Thu Cúc tắc trách khiến thai nhi tử vong trong bụng mẹ, hội đồng chuyên môn của Sở Y tế Hà Nội đã có thông tin kết luận.
-- Việc nước sạch chảy yếu vào cuối tuần này ở một số quận tại TP.HCM vì liên quan đến hoạt động khảo sát, sửa chữa sự cố xì bể tuyến ống thép DN1000 và lắp đặt thêm 1 bơm nước sạch.
-- Sau 5 năm không nhìn thấy, mới đây một đàn voọc bạc gồm 7 con đã xuất hiện trở lại tại Vườn quốc gia Chư Mom Ray (Kon Tum).
-- UBND TP.HCM vừa có quyết định về giao biên chế công chức hành chính làm việc tại UBND phường thực hiện chính quyền đô thị giai đoạn 2024-2026.
-- Nguyên nhân nào khiến suối Lương - dòng suối duy nhất chảy từ rừng Hải Vân về Đà Nẵng - đang trong tình trạng khô cạn, trơ trọi toàn sỏi, đá?
-- Đoàn cựu chiến binh vì hòa bình - chi hội 160 đã trao tặng 60 chiếc xe đạp hỗ trợ giáo dục cho trẻ em của 3 huyện tại Quảng Trị.
 ![New](News.png)
 ## Nhịp sống số 
 - Nhiều người thường ngại ngùng khi bắt chuyện lại với người bạn đã lâu không liên lạc. Các nhà khoa học đã có cách giúp họ.
