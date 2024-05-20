@@ -1,6 +1,10 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Khoảng 3h30 sáng nay 20-5, lực lượng tìm kiếm đã tìm thấy thi thể một nam sinh bị mất tích trên biển, cách hiện trường khoảng 5km.
+- Trường Đại học Quốc tế Sài Gòn (SIU) là cơ sở giáo dục đầu tiên của phía Nam đào tạo ngành Công nghệ giáo dục.
+- Mấy hôm nay vào lớp, học sinh dường như ngoan hơn hẳn, lớp học trang trí xinh xắn hơn, cô giáo cũng hạnh phúc hơn.
+- 5 học sinh lớp 9 ở Hà Tĩnh rủ nhau đi tắm biển thì 2 em bị sóng đánh cuốn trôi, sau nhiều giờ tìm kiếm vẫn chưa thấy hai em học sinh mất tích.
 - Học sinh tiểu học, THCS ở quận 8, TP.HCM thích thú tham gia loạt hoạt động trong ngày hội 'Em là công dân số'.
 - 'Không có gì quá đặc biệt khi nói thế hệ Gen Z hay nhảy việc. Ở đâu các bạn cảm thấy công việc phù hợp thì các bạn sẽ dừng lại đó'.
 - Nhiều học sinh ở quận Phú Nhuận, TP.HCM cho biết đã rất bất ngờ khi nhận được thư khen của cô trưởng Phòng Giáo dục và Đào tạo.
@@ -27,12 +31,38 @@
 - Thanh tra Bộ Xây dựng kết luận Trường đại học Kiến trúc TP.HCM có nhiều vi phạm trong tổ chức cán bộ, thực hiện nhiệm vụ khoa học công nghệ.
 - Chiều 16-5, gần 500 sinh viên đã tham gia hội thảo “Thị trường chứng khoán Việt Nam - Hành lang pháp lý và kiến thức cơ bản cho sinh viên”, diễn ra tại Trường đại học Công nghệ TP.HCM.
 - Ngày 16-5, ban tổ chức Tien Phong Stem Robotics, một sân chơi trí tuệ cho những học sinh yêu thích khoa học, tổ chức họp báo về cuộc thi này.
-- Chiều nay 16-5, UBND TP.HCM đã công bố quyết định thành lập Trường THCS và THPT Trần Đại Nghĩa, trên cơ sở tổ chức lại Trường THPT chuyên Trần Đại Nghĩa.
-- Việc xét công nhận đạt tiêu chuẩn chức danh giáo sư, phó giáo sư năm 2024 sẽ thẩm định kỹ chất lượng các công trình khoa học và các tạp chí đăng tải, bảo đảm tính liêm chính khoa học đối với từng hồ sơ.
-- Chuyện trưởng khoa một trường đại học làm giám đốc doanh nghiệp ngoài trường tạo dư luận trái chiều.
-- Sở Giáo dục và Đào tạo TP.HCM vừa có quyết định tăng hơn 5.500 chỉ tiêu tuyển sinh lớp 10 năm học 2024-2025.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Khoảng 3h30 sáng nay 20-5, lực lượng tìm kiếm đã tìm thấy thi thể một nam sinh bị mất tích trên biển, cách hiện trường khoảng 5km.
+- Sáng 20-5, cơn mưa trút xuống nhiều nơi ở TP.HCM vào đúng giờ cao điểm khiến xe cộ ùn ứ, đi lại khó khăn.
+- Ngày 19-5, HĐND TP.HCM khóa X tổ chức kỳ họp thứ 15 thông qua báo cáo đồ án điều chỉnh Quy hoạch chung TP.HCM đến năm 2040, tầm nhìn đến năm 2060; quyết nghị các chính sách quan trọng phát triển kinh tế - xã hội và bầu phó chủ tịch UBND TP.
+- Sáng nay 20-5, kỳ họp thứ 7 Quốc hội khóa XV khai mạc. Đáng chú ý, tại kỳ họp sẽ tiến hành việc bầu chức danh Chủ tịch Quốc hội, Chủ tịch nước và thông qua nhiều dự luật, quyết định các vấn đề quan trọng.
+- Quốc hội khóa XV khai mạc kỳ họp thứ 7 trong bối cảnh tình hình nhân sự vừa qua có nhiều thay đổi. Dự thảo báo cáo kiến nghị cử tri gửi đến kỳ họp có nêu vấn đề nhiều cán bộ cấp cao bị xử lý do vi phạm kỷ luật Đảng.
+- Tôm hùm xanh nuôi của 95 hộ nuôi ở xã Xuân Thịnh (thị xã Sông Cầu, tỉnh Phú Yên) chết hàng loạt, nhận định ban đầu do thời tiết nắng nóng, kết hợp mưa dông.
+- Ngoài mặt tiền đường Lê lợi, hàng loạt nhà ở, cửa hàng, công trình công cộng tại quận 1, TP.HCM đang bị hình vẽ bậy tấn công, mất mỹ quan.
+- Sáng 20-5, kỳ họp thứ 7 của Quốc hội khai mạc. Kỳ họp chia làm hai đợt và sẽ bắt đầu quy trình bầu Chủ tịch Quốc hội ngay trong ngày làm việc đầu tiên.
+- Hiện tại mây phát triển mạnh, mưa dông xảy ra từ sớm tại TP.HCM và các tỉnh Nam Bộ. Trong sáng nay mưa tiếp tục diễn ra và gây khó khăn cho đi lại sáng đầu tuần.
+- Một số tin tức đáng chú ý: Gói tín dụng 120.000 tỉ đồng nhà ở xã hội sau 1 năm giải ngân chưa tới 1%; Nhiều đại gia bất động sản chậm trả nợ trái phiếu; Giá muối chỉ còn 900-1.200 đồng/kg...
+- Hôm nay 20-5, mưa là thời tiết chủ đạo trên cả nước, nhiều nơi mưa rất to, đề phòng dông gió, lũ quét, sạt lở đất.
+- Tại các TP như Hà Nội và TP.HCM, giá nhà đất đã tăng khoảng 400 lần tính từ năm 1990. Những tỉnh miền núi hay xa trung tâm cũng tăng khoảng 100 lần.
+- Theo Cục CSGT, Phạm Đức Hải (Hải 'idol') và các đồng phạm dàn 4 xe sang đón dâu giữa đường nhằm đánh bóng tên tuổi, tăng lượng người theo dõi và tương tác trên các kênh bán hàng.
+- Người đàn ông đi xe máy trong cơn mưa dông bị sét đánh chết ở khu vực xã Giao Hải, huyện Giao Thủy, tỉnh Nam Định.
+- Phó thủ tướng Trần Lưu Quang dẫn đầu đoàn đại biểu Đảng, Nhà nước đến thăm, chúc mừng đại lão Hòa thượng Thích Trí Quảng, Đức Pháp chủ Giáo hội Phật giáo Việt Nam.
+- Chương trình nghệ thuật đặc biệt kéo dài gần 2 tiếng ở Nghĩa trang liệt sĩ quốc gia Trường Sơn đã lột tả đầy đủ, hùng tráng về chiều dài lịch sử 65 năm đường Trường Sơn.
+- Một cháu bé bị trượt chân xuống hồ tích nước tưới rau củ, ba cháu xuống cứu rồi cùng chết đuối.
+- Vinh quang Việt Nam năm 2024 vinh danh các cá nhân thầm lặng như trung tá Nguyễn Chí Thành - chỉ huy 'đội quân người nhái', cô Sáu Thia dạy bơi cho trẻ em...
+- Đại tướng Phan Văn Giang, bộ trưởng Bộ Quốc phòng, thăm, tặng quà các gia đình chính sách và tặng 20 nhà tình nghĩa tại Quảng Trị.
+- Cơ quan chức năng tỉnh Quảng Trị đề nghị thu hồi sổ đỏ có tài sản gắn liền với đất của dự án Nhà máy điện gió Hướng Linh 2 vì sai Luật Đất đai. Đây là dự án có trụ điện gió trồng ngoài đất được cấp mà Tuổi Trẻ Online đã phản ánh.
+- Chiều 19-5, Thủ tướng đã phát lệnh khởi công dự án mở rộng nhà ga hành khách T2 sân bay Nội Bài, nâng công suất sân bay này từ 25 triệu lên 30 triệu khách/năm.
+- Dự báo chiều tối và đêm nay ở miền Bắc sẽ có mưa vừa đến mưa to. Khu vực Trung và Nam Trung Bộ, Tây Nguyên và Nam Bộ có mưa rào và dông.
+- Những ngày này các thương lái đã đến tỉnh Bắc Giang để thu mua vải thiều, phần nhiều là xuất khẩu đi Trung Quốc, Nhật Bản, Mỹ, EU với giá cao.
+- Tại tỉnh Tây Ninh đã diễn ra chuỗi sự kiện liên quan ngành nông nghiệp có quy mô quốc tế lớn nhất từ trước đến nay tại Tây Ninh và Đông Nam Bộ.
+- Giải pháp gỡ vướng mắc xác định giá đất được Sở Tài nguyên - Môi trường trình cho UBND TP.HCM sẽ gỡ cho hơn 100 dự án.
+- Với vốn đầu tư nghìn tỉ đồng, công cuộc nạo vét, khơi thông 19km sông Cổ Cò đoạn qua Quảng Nam hiện nay đang bị ách tắc, vì sao?
+- TP.HCM sẽ cải tạo, nâng cấp một số tuyến đường, xây cầu bộ hành và lắp đèn tín hiệu giao thông tại 76 giao lộ để đảm bảo an toàn giao thông.
+- Ngọn lửa bất ngờ bùng lên tại công ty sản xuất giày dép ở Đồng Nai, cột khói bốc cao hàng chục mét khiến nhiều người khiếp sợ.
+- Đây gần như là lần đầu tiên xây dựng tình huống tai nạn đuối nước và có người bị nạn bị mắc kẹt ở khu vực suối cụ thể.
+- Mưa lớn trên diện rộng tại nhiều tỉnh Tây Nguyên 2 ngày qua đã giúp cứu hạn cho rất nhiều vùng trồng cà phê, chanh dây, sầu riêng.
 ![New](News.png)
 ## Nhịp sống số 
 - Nhiều người thường ngại ngùng khi bắt chuyện lại với người bạn đã lâu không liên lạc. Các nhà khoa học đã có cách giúp họ.
