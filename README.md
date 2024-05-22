@@ -1,9 +1,21 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Phụ huynh sẽ đăng ký tuyển sinh lớp 6 vào Trường THCS-THPT Trần Đại Nghĩa từ ngày 7 đến 11-6-2024.
+- Cuộc thi là cơ hội để học sinh thử thách bản thân trong việc quan sát, nghiên cứu, ứng dụng robotics và công nghệ.
+- Sau khi Tuổi Trẻ Online phản ánh vụ việc học sinh lớp 1, lớp 2 bị bắt làm bài luận để tham gia cuộc thi Đại sứ văn hóa đọc, Sở Văn hóa và Thể thao Quảng Bình đã có những động thái điều chỉnh.
+- Chiều 21-5, hai học sinh Trường THPT chuyên Lê Hồng Phong đạt giải nhì Cuộc thi khoa học kỹ thuật quốc tế năm 2024 (ISEF) tại Mỹ đã được UBND TP.HCM tặng bằng khen và trao thưởng 50 triệu đồng.
+- Hiệu trưởng Trường phổ thông dân tộc nội trú THCS Mường Lát lên tiếng sau khi bị phụ huynh tố có nhiều sai phạm.
+- Theo chủ tịch Hiệp hội Logistics TP.HCM, sinh viên là những người giàu có về thời gian, do vậy nên biết tận dụng sự "giàu có" này.
+- UBND quận 1, TP.HCM vừa ban hành kế hoạch tuyển sinh đầu cấp năm học 2024-2025. Theo đó, công tác tuyển sinh vào lớp 1 và lớp 6 năm nay sẽ được chia làm 2 đợt.
+- Cô Phạm Thị Bé Hiền, hiệu trưởng Trường THPT chuyên Lê Hồng Phong, TP.HCM, cho biết như vậy trước giờ ra sân bay đón 2 học sinh của trường vừa đoạt giải nhì Cuộc thi khoa học kỹ thuật quốc tế (ISEF) 2024.
+- Trường đại học Kiên Giang tiên phong xây dựng, ứng dụng chương trình và mô hình mới, nâng cao chất lượng nguồn nhân lực cho địa phương.
+- Theo quy chế tuyển sinh của Bộ Giáo dục và Đào tạo, khi áp dụng thang điểm 30 thì phải giảm điểm cộng ưu tiên để điểm xét tuyển của thí sinh không vượt 30 điểm.
+- Thế hệ Alpha sở hữu đặc trưng của những đứa trẻ sinh ra trong kỷ nguyên số.
+- Bộ GD-ĐT vừa tiếp tục cấp phép cho một số đơn vị trong việc liên kết tổ chức thi chứng chỉ ngoại ngữ quốc tế tại Việt Nam.
 - Summer Camp 2024 tại Trường Quốc tế Á Châu (Asian School) sẽ mang đến cho học sinh cơ hội trải nghiệm và trưởng thành.
 - Tính đến ngày 20-5, đã có hơn 20 trường đại học, học viện công bố điểm chuẩn xét tuyển sớm theo phương thức xét học bạ.
-- Kỳ thi vào lớp 10 công lập tại Hà Nội sắp đến gần, nhiều học sinh lớp 9 đang dành 17 giờ mỗi ngày để học bài, mỗi ngày học tới 4-5 ca.
+- Kỳ thi vào lớp 10 công lập ở Hà Nội sắp đến gần, nhiều học sinh lớp 9 đang ra sức ôn thi, không ít em học tới 4-5 ca mỗi ngày.
 - Giảng viên cho rằng tư vấn tuyển sinh là việc của bộ phận tuyển sinh, không thể buộc giảng viên, nghiên cứu viên phải học quy chế.
 - Nhiều trung tâm dạy toán, tiếng Anh, kỹ năng sống tại Đà Nẵng đang rầm rộ tuyển sinh các lớp bán trú hè cho trẻ.
 - Trường đại học Luật Hà Nội vừa công bố điểm chuẩn xét học bạ THPT, trong đó ngành luật kinh tế tổ hợp A00 và A01 lấy điểm chuẩn cao nhất 30/30 điểm. Thế nhưng vẫn có thí sinh đạt hơn 31 điểm.
@@ -19,50 +31,38 @@
 - Trường Đại học Quốc tế Sài Gòn (SIU) là cơ sở giáo dục đầu tiên của phía Nam đào tạo ngành Công nghệ giáo dục.
 - Mấy hôm nay vào lớp, học sinh dường như ngoan hơn hẳn, lớp học trang trí xinh xắn hơn, cô giáo cũng hạnh phúc hơn.
 - 5 học sinh lớp 9 ở Hà Tĩnh rủ nhau đi tắm biển thì 2 em bị sóng đánh cuốn trôi, sau nhiều giờ tìm kiếm vẫn chưa thấy hai em học sinh mất tích.
-- Học sinh tiểu học, THCS ở quận 8, TP.HCM thích thú tham gia loạt hoạt động trong ngày hội 'Em là công dân số'.
-- 'Không có gì quá đặc biệt khi nói thế hệ Gen Z hay nhảy việc. Ở đâu các bạn cảm thấy công việc phù hợp thì các bạn sẽ dừng lại đó'.
-- Nhiều học sinh ở quận Phú Nhuận, TP.HCM cho biết đã rất bất ngờ khi nhận được thư khen của cô trưởng Phòng Giáo dục và Đào tạo.
-- Dù được khởi công xây dựng từ năm 2009, tuy nhiên đến nay chỉ một phần dự án khu nhà ở được đưa vào hoạt động, nhiều hạng mục xây dở dang và bỏ hoang phế.
-- Đại học Quốc gia TP.HCM kéo dài thời gian đăng ký nguyện vọng xét tuyển trực tuyến của phương thức xét điểm thi đánh giá năng lực, do số thí sinh đăng ký xét tuyển còn thấp so với năm 2023.
-- Sau ba ngày, số lượng học sinh đăng ký thay đổi nguyện vọng vào lớp 10 ở TP.HCM không nhiều.
-- Đoàn Việt Nam đoạt giải nhì chính thức và giải tư của Hiệp hội Máy tính Mỹ tại Hội thi khoa học kỹ thuật quốc tế 2024. Cả 2 giải đều thuộc về học sinh Trường chuyên Lê Hồng Phong, TP.HCM.
-- Bạo lực, kể cả về thể xác lẫn tinh thần, đều là phản giáo dục, không thể chấp nhận được trong môi trường giáo dục, thể hiện sự bất lực của người lớn khi không thể tìm được một cách nào tốt hơn.
-- Kết hợp khoa học, công nghiệp và đổi mới sáng tạo sẽ tạo ra môi trường phát triển động lực, tăng cường sức mạnh cạnh tranh của doanh nghiệp
-- Thành viên nhóm chuyên gia của dự thảo Luật Nhà giáo, khẳng định về chứng chỉ hành nghề đối với nhà giáo bên lề tọa đàm về dự án Luật Nhà giáo.
-- Trường đại học Đà Lạt đã hợp tác với hơn 100 doanh nghiệp mở cổng thông tin việc làm để hỗ trợ sinh viên tìm việc.
-- Nhiều ý kiến bạn đọc về vụ việc giáo viên chủ nhiệm ở TP.HCM cho 6 học sinh đánh bạn ngay trong lớp vì đi học muộn.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Cơn mưa lớn rạng sáng 21-5 khiến cát đỏ từ trên đồi cao lại trôi xuống đường như “lũ” khiến đường bị chia cắt, cuốn trôi xe cộ và ngập ở hai phường Mũi Né và Hàm Tiến, TP Phan Thiết, Bình Thuận.
-- Quy định chỉ yêu cầu người dân cung cấp bản sao giấy tờ khi làm các thủ tục, nhưng vì sao cán bộ tiếp nhận và cơ quan giải quyết thủ tục nhất quyết yêu cầu phải là bản sao có công chứng, chứng thực không quá 6 tháng?
-- Một số tin tức đáng chú ý: Lãi doanh nghiệp bất động sản giảm mạnh, hàng tồn kho tăng tiếp; Truy trách nhiệm các sự cố, tai nạn lao động trong ngành than; TP.HCM nỗ lực xóa 8 điểm đen tai nạn giao thông trong năm 2024...
-- Theo chương trình kỳ họp thứ 7, từ cuối giờ chiều nay 21-5, Quốc hội sẽ bắt đầu tiến hành quy trình bầu Chủ tịch nước nhiệm kỳ 2021 - 2025.
-- Hôm nay 21-5, mưa dông tăng trên cả nước, nhiều nơi chiều tối có mưa to đến rất to.
-- 20 phút sau khi cất cánh, máy bay Airbus A321 đang trong chuyến bay đi Cần Thơ đã phải quay trở lại sân bay Nội Bài hạ cánh do tổ lái phát hiện có vết nứt trên kính buồng lái.
-- Sở Xây dựng sẽ chủ trì cung cấp hồ sơ, chứng cứ, tài liệu liên quan các dự án trồng, chăm sóc cây xanh/chỉnh trang đô thị ở TP.
-- Trong văn bản chính thức gửi đến lãnh đạo TP.HCM mới đây, nhà đầu tư kiến nghị thành phố tiếp tục các bước triển khai dự án BT nhà thi đấu Phan Đình Phùng.
-- Đến 19h tối 20-5, tình hình giao thông trên đường Phạm Văn Đồng đoạn qua TP Thủ Đức vẫn hết sức căng thẳng vì một đoạn bị ngập.
-- Việt Nam kiên định thực hiện chính sách 'Một Trung Quốc', công nhận Đài Loan là một phần không thể tách rời của lãnh thổ Trung Quốc, chỉ duy trì quan hệ dân gian với Đài Loan.
-- Sở Thông tin và Truyền thông TP.HCM vừa phạt tiền và tước giấy phép trang thông tin điện tử tổng hợp cafeland.vn.
-- Quyền Chủ tịch nước, Thủ tướng, Chủ tịch Quốc hội và Bộ trưởng Ngoại giao Việt Nam đã gửi điện chia buồn tới những người đồng cấp Iran sau tai nạn thảm khốc với Tổng thống Iran Ebrahim Raisi.
-- Một đơn vị tư vấn giám sát đã gửi báo cáo đến nhiều cơ quan chức năng tỉnh Đắk Nông vì nghi giá thiết bị cao bất thường, có dấu hiệu sai phạm.
-- Các dự án xã hội hóa lĩnh vực giáo dục, dạy nghề, y tế, văn hóa, thể thao, môi trường... được Đà Nẵng miễn giảm 30-100% tiền thuê đất.
-- Học sinh tiểu học ở tỉnh Quảng Bình đang được yêu cầu tham gia cuộc thi Đại sứ văn hóa đọc với những câu hỏi quá khó so với lứa tuổi của các em.
-- Chiều 20-5, mưa lớn như trút xuống khu vực chợ Thủ Đức, TP.HCM khiến đường sá ngập lênh láng, cống thoát nước lại bung lên.
-- Người dân có nhu cầu cấp đổi giấy phép lái xe chỉ cần đến khám sức khỏe tại một trong số 9 cơ sở y tế tại Đà Nẵng, sau đó nhận giấy phép mới tại nhà.
-- Đề xuất có cảnh vệ cho Thường trực Ban Bí thư, Chánh án Tòa án nhân dân tối cao, Viện trưởng Viện kiểm sát nhân dân tối cao. Chiều nay Bộ trưởng Bộ Công an Tô Lâm đã đề xuất như trên.
-- Chủ tịch UBND TP Đà Nẵng vừa có chỉ đạo liên quan đến việc hủy bỏ tạm dừng giao dịch tài sản của vợ Phan Văn Anh Vũ (tức Vũ 'nhôm') và các công ty liên quan.
-- Dự thảo Luật Quản lý, sử dụng vũ khí, vật liệu nổ và công cụ hỗ trợ (sửa đổi) bổ sung dao có tính sát thương cao vào nhóm vũ khí thô sơ.
-- Còn 404/908 dự án, công trình không đưa hoặc chậm đưa đất vào sử dụng, với diện tích 18.308/28.155ha chưa được xử lý.
-- Việc sớm mở rộng cao tốc TP.HCM - Long Thành - Dầu Giây được người dân hoan ngênh, vì sẽ tháo gỡ được các “nút thắt cổ chai” đã tồn tại lâu nay. Đặc biệt, đây là tuyến đường kết nối với sân bay Long Thành.
-- Lực lượng tìm kiếm đã tìm thấy thi thể nam sinh lớp 9 còn lại trên biển, cách hiện trường gặp nạn hàng chục km.
-- UBND tỉnh Phú Yên báo cáo từ năm 2019 đến 2023 trên địa bàn tỉnh thực hiện 55 dự án trồng, chăm sóc cây xanh… có tổng giá trị hơn 307 tỉ đồng.
-- Với 475/475 đại biểu có mặt tán thành, Quốc hội đã thông qua nghị quyết bầu ông Trần Thanh Mẫn giữ chức vụ Chủ tịch Quốc hội khóa XV nhiệm kỳ 2021-2026.
-- Liên quan tới sự việc hút cát thuộc địa phận tỉnh Phú Thọ khu vực giáp ranh huyện Ba Vì (Hà Nội) làm nứt tường nhà dân, Phó chủ tịch UBND TP Hà Nội Dương Đức Tuấn vừa có văn bản chỉ đạo.
-- Ở TP.HCM có những 'ma trận' số nhà không chỉ bởi những dãy số siêu xuyệt rối ren mà còn vô vàn con đường, con hẻm, dãy nhà đặt số một cách vô lý, không thống nhất.
-- Đại diện chuỗi cà phê và người nhà chị H.M.L. xác nhận với Tuổi Trẻ Online rằng hai bên đã thống nhất được phương án xử lý sau sự cố kính rơi trúng người. Tuy nhiên, họ không công bố cụ thể mức hỗ trợ.
-- Nhóm thanh niên tại Thái Bình đi xe máy kẹp 3, vác theo giáo mác tự chế thị uy trên đường, không may đấu đầu xe tải khiến hai người chết tại chỗ.
-- Sáng 20-5, Ban Quản lý dự án metro số 2 (thuộc Ban Quản lý đường sắt đô thị TP.HCM) thông tin đã hoàn thành khắc phục, tái lập mặt bằng ở khu vực sụt lún đường Võ Thị Sáu (quận 3).
+- Lương tối thiểu vùng I hiện là 4,68 triệu đồng/tháng, vùng II là 4,16 triệu, vùng III là 3,64 triệu, vùng IV đạt 3,25 triệu. Dự kiến từ 1-7 tới, mức lương này tăng 6%.
+- Dự án cao tốc Bắc - Nam qua huyện Cẩm Xuyên, Hà Tĩnh cơ bản đã giải phóng xong mặt bằng, song vẫn còn loạt cột điện án ngữ nên nhà thầu phải thi công 'nhảy cóc'.
+- Chủ tịch UBND TP.HCM Phan Văn Mãi vừa chỉ đạo các đơn vị liên quan phấn đấu khởi công xây dựng nhà ở xã hội và bàn giao vào tháng 4-2025 (thuộc dự án rạch Xuyên Tâm).
+- Ủy ban Thường vụ Quốc hội đề nghị Quốc hội cho giữ quy định cấm tuyệt đối nồng độ cồn với tài xế khi tham gia giao thông.
+- Công an huyện Cư Kuin (tỉnh Đắk Lắk) cho biết đang điều tra vụ kẻ xấu chặt phá 1.600 trái sầu riêng non của một nhà vườn, gây thiệt hại ước tính hàng trăm triệu đồng.
+- Ủy ban Thường vụ Quốc hội đề xuất bổ sung vào dự Luật Trật tự, an toàn giao thông đường bộ quy định trích lại một phần tiền xử phạt vi phạm cho cảnh sát giao thông.
+- Tin tức đáng chú ý: Sẽ công khai danh sách người bán hàng online vi phạm quyền lợi người tiêu dùng; Giá hồ tiêu bật tăng mạnh; Tiếp tục giảm 2% thuế suất thuế giá trị gia tăng...
+- Hôm nay 22-5, khu vực Bắc Bộ ban ngày thời tiết nắng, trong khi đó Thanh Hóa trở vào Nam Bộ có mưa vừa, mưa to.
+- Sáng nay 22-5, kỳ họp thứ 7 của Quốc hội tiếp tục thực hiện quy trình bầu Chủ tịch nước nhiệm kỳ 2021 - 2026. Sau đó, tân Chủ tịch nước sẽ tuyên thệ nhậm chức.
+- Tối 21-5, cơn mưa dông lớn trút xuống nhiều nơi trên địa bàn TP Tuy Hòa (tỉnh Phú Yên). Tại tuyến đường Lê Thành Phương (phường 8), nhiều người phải dùng tay hốt rác để khơi thông miệng cống giúp bớt ngập.
+- 2 cán bộ ở Huyện ủy Vĩnh Thạnh, Bình Định bị giáng chức liên quan các vụ giao đất, cho thuê đất cho người nhà cựu lãnh đạo huyện trái quy định.
+- Chiều 21-5, Sở Giao thông vận tải TP.HCM vừa đưa ra một số thông tin người dân cần biết để đi tuyến tàu cao tốc TP.HCM - Côn Đảo thuận tiện.
+- Nội dung nhà đất công sẽ được đưa vào chương trình kiểm tra, giám sát của Ban Chỉ đạo phòng, chống tham nhũng, tiêu cực TP.HCM.
+- Tỉnh Quảng Trị cho hay nguồn tiền bắn pháo hoa Tết Nguyên đán 2024 từ nguồn xã hội hóa và có đủ, tỉnh sẽ chi trả trong thời gian sớm nhất.
+- Sau khi Tuổi Trẻ Online phản ánh vụ việc học sinh lớp 1, lớp 2 bị bắt làm bài luận để tham gia cuộc thi Đại sứ văn hóa đọc, Sở Văn hóa và Thể thao Quảng Bình đã có những động thái điều chỉnh.
+- Ban Thường vụ Thành ủy TP.HCM vừa có quyết định kiện toàn nhân sự Ban Chỉ đạo phòng, chống tham nhũng, tiêu cực TP.HCM.
+- Sự cố sạt lở hầm Chí Thạnh làm gián đoạn chạy tàu nên Tổng công ty Đường sắt Việt Nam thực hiện chuyển tải hành khách của 12 đoàn tàu bằng ô tô giữa hai ga La Hai và Tuy Hòa.
+- Chiều 21-5, cơn mưa trút xuống tại TP.HCM gây ngập một số nơi. Trong đó tại hẻm đường Chu Văn An ở quận Bình Thạnh bị ngập cả mét, rác bao vây, nổi lềnh bềnh.
+- Sau gần một năm khởi công, dự án đường vành đai 4 - vùng thủ đô đoạn qua Hà Nội đang dần thành hình. Ghi nhận thực địa dự án trên của Tuổi Trẻ Online tại các quận huyện có chỉ giới đi qua, máy móc, công nhân làm việc ngày đêm để đưa dự án về đích.
+- UBND cấp tỉnh được quyền quyết định việc khai thác, sử dụng gầm cầu đường bộ làm bãi đỗ xe, đường giao thông, kho chứa vật tư... phù hợp điều kiện địa phương.
+- Liên quan đến vụ nhảy nhót trước đầu ô tô ở Đà Lạt, công an đã mời 5 phụ nữ trong nhóm nhảy này làm việc.
+- Chỉ vì bị chỉ trích đậu xe giữa đường mà Huỳnh Văn Nhã đã lao vào đánh nhau với hai người đi đường. Nhã đã dùng chìa khóa xe mô tô làm chết người.
+- UBND thành phố Thái Bình, tỉnh Thái Bình quyết định xử phạt hành chính 21 triệu đồng đối với cơ sở bánh mì chảo đưa pate lúc nhúc giòi cho thực khách.
+- Đến chiều 21-5, ngành đường sắt vẫn đang huy động nhân lực, máy móc tập trung toàn bộ công suất khắc phục sự cố sạt lở tại hầm đường sắt Chí Thạnh. Hiện vẫn chưa xác định được thời gian thông tuyến.
+- Công trình nhà ở thuộc phường An Phú, TP Thủ Đức (TP.HCM) xây tăng tầng, sai phép gây bức xúc cho cư dân, khi công trình vẫn xây dựng dù bị chính quyền xử lý.
+- Theo báo cáo nhanh của UBND TP Phan Thiết, Bình Thuận, mưa lớn kéo dài nên rạng sáng 21-5 đã xảy ra vụ tràn cát đỏ tại phường Hàm Tiến và Mũi Né.
+- Sở Giao thông vận tải TP.HCM vừa ra thông báo điều chỉnh tổ chức giao thông phục vụ xây dựng nút giao An Phú, TP Thủ Đức.
+- Ngày 21-5, hàng nghìn công nhân tại Khu công nghiệp Giao Long (huyện Châu Thành,  Bến Tre) phải lội nước trên các tuyến đường nội bộ khu công nghiệp.
+- Các cán bộ, chiến sĩ Đội K92 thời gian qua tìm kiếm, cất bốc được 22 hài cốt liệt sĩ hy sinh ở đất bạn Campuchia.
+- Cặp linh vật rồng Lưỡng long triều liên là biểu tượng của đường hoa Nguyễn Huệ dịp Tết năm 2024, bị buộc tháo dỡ khi lắp ở Đà Lạt đã gây xôn xao dư luận.
 ![New](News.png)
 ## Nhịp sống số 
 - Nhiều người thường ngại ngùng khi bắt chuyện lại với người bạn đã lâu không liên lạc. Các nhà khoa học đã có cách giúp họ.
