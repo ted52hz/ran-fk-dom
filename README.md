@@ -1,6 +1,20 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Thời điểm này, khi hầu hết các trường phổ thông làm lễ tổng kết năm học, đó cũng là lúc trên mạng xã hội tràn ngập những "tút" của phụ huynh khoe con.
+- Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) và Trường đại học Công nghiệp TP.HCM đạt doanh thu nghìn tỉ đồng năm 2023.
+- Ngày hội giáo dục STEAM ở quận Phú Nhuận, TP.HCM có nhiều hoạt động đa dạng cho cả học sinh và giáo viên.
+- Trường đại học Công nghệ thông tin (Đại học Quốc gia TP.HCM) sẽ dành khoảng 1 tỉ đổng mỗi năm để trao học bổng sinh viên ngành thiết kế vi mạch của trường.
+- Bộ trưởng Giáo dục và Đào tạo nhìn nhận lương và thu nhập cho giáo viên ký hợp đồng còn thấp, chưa động viên được người lao động.
+- Trong các trường đại học thành viên Đại học Quốc gia TP.HCM, trường có doanh thu cao nhất lên đến gần ngàn tỉ đồng và thấp nhất hơn 236,1 tỉ đồng/năm.
+- Năm nay, có 5.744 thí sinh đăng ký theo phương thức xét tuyển tài năng vào Đại học Bách khoa Hà Nội, tăng 1,9 lần so với năm 2023.
+- Các bài toán được 'đặt hàng' công nghệ cũng là những thách thức trong quản lý dạy và học trên địa bàn TP.HCM.
+- Nhiều thí sinh được miễn thi ngoại ngữ trong xét tốt nghiệp THPT đều được tính 10 điểm môn này hiện vẫn còn lăn tăn việc có nên thi ngoại ngữ hay không.
+- Nhiều người nói vui rằng mùa hè đến và mùa khoe con cũng bắt đầu sôi động. Và có muôn vàn hệ lụy "ăn theo" mùa khoe con này.
+- Nhiều sinh viên chỉ vừa nhập học đã muốn chuyển ngành vì cảm giác không hợp. Không ít sinh viên đã bỏ học, kết quả lẹt đẹt.
+- Phụ huynh học sinh ở huyện Mường Lát vừa tố hội đồng tuyển sinh của huyện xét tuyển không đúng đối tượng vào học tại Trường Phổ thông dân tộc nội trú THCS Mường Lát. Trong đó có con, cháu lãnh đạo cấp phòng, hiệu trưởng, giáo viên.
+- Bộ Giáo dục và Đào tạo vừa công bố danh sách 139 học sinh được miễn thi tốt nghiệp THPT xét tuyển thẳng vào đại học, cao đẳng năm 2024.
+- Sáng 23-5, Sở Giáo dục và Đào tạo TP.HCM đã công bố danh sách 158 điểm thi tuyển sinh lớp 10 năm học 2024-2025.
 - Viện Pháp tại Việt Nam, Lào và Campuchia phát động chương trình Tái tạo thế giới cùng tiếng Pháp, hướng đến chủ đề phát triển bền vững.
 - Tối 22-5, UBND quận 7, TP.HCM công bố kế hoạch khảo sát vào lớp 6 Trường THCS Nguyễn Hữu Thọ. Đây là ngôi trường "hot" trên địa bàn quận.
 - Chiều 22-5, Văn phòng UBND tỉnh Thanh Hóa có công văn giao kiểm tra, làm rõ nội dung bài viết “Trường phổ thông dân tộc nội trú lấy phòng của học sinh cho người ngoài ở, hiệu trưởng nói gì?" trên Tuổi Trẻ Online ngày 21-5.
@@ -17,52 +31,38 @@
 - Cuộc thi là cơ hội để học sinh thử thách bản thân trong việc quan sát, nghiên cứu, ứng dụng robotics và công nghệ.
 - Sau khi Tuổi Trẻ Online phản ánh vụ việc học sinh lớp 1, lớp 2 bị bắt làm bài luận để tham gia cuộc thi Đại sứ văn hóa đọc, Sở Văn hóa và Thể thao Quảng Bình đã có những động thái điều chỉnh.
 - Chiều 21-5, hai học sinh Trường THPT chuyên Lê Hồng Phong đạt giải nhì Cuộc thi khoa học kỹ thuật quốc tế năm 2024 (ISEF) tại Mỹ đã được UBND TP.HCM tặng bằng khen và trao thưởng 50 triệu đồng.
-- Hiệu trưởng Trường phổ thông dân tộc nội trú THCS Mường Lát lên tiếng sau khi bị phụ huynh tố có nhiều sai phạm.
-- Theo chủ tịch Hiệp hội Logistics TP.HCM, sinh viên là những người giàu có về thời gian, do vậy nên biết tận dụng sự "giàu có" này.
-- UBND quận 1, TP.HCM vừa ban hành kế hoạch tuyển sinh đầu cấp năm học 2024-2025. Theo đó, công tác tuyển sinh vào lớp 1 và lớp 6 năm nay sẽ được chia làm 2 đợt.
-- Cô Phạm Thị Bé Hiền, hiệu trưởng Trường THPT chuyên Lê Hồng Phong, TP.HCM, cho biết như vậy trước giờ ra sân bay đón 2 học sinh của trường vừa đoạt giải nhì Cuộc thi khoa học kỹ thuật quốc tế (ISEF) 2024.
-- Trường đại học Kiên Giang tiên phong xây dựng, ứng dụng chương trình và mô hình mới, nâng cao chất lượng nguồn nhân lực cho địa phương.
-- Theo quy chế tuyển sinh của Bộ Giáo dục và Đào tạo, khi áp dụng thang điểm 30 thì phải giảm điểm cộng ưu tiên để điểm xét tuyển của thí sinh không vượt 30 điểm.
-- Thế hệ Alpha sở hữu đặc trưng của những đứa trẻ sinh ra trong kỷ nguyên số.
-- Bộ GD-ĐT vừa tiếp tục cấp phép cho một số đơn vị trong việc liên kết tổ chức thi chứng chỉ ngoại ngữ quốc tế tại Việt Nam.
-- Summer Camp 2024 tại Trường Quốc tế Á Châu (Asian School) sẽ mang đến cho học sinh cơ hội trải nghiệm và trưởng thành.
-- Tính đến ngày 20-5, đã có hơn 20 trường đại học, học viện công bố điểm chuẩn xét tuyển sớm theo phương thức xét học bạ.
-- Kỳ thi vào lớp 10 công lập ở Hà Nội sắp đến gần, nhiều học sinh lớp 9 đang ra sức ôn thi, không ít em học tới 4-5 ca mỗi ngày.
-- Giảng viên cho rằng tư vấn tuyển sinh là việc của bộ phận tuyển sinh, không thể buộc giảng viên, nghiên cứu viên phải học quy chế.
-- Nhiều trung tâm dạy toán, tiếng Anh, kỹ năng sống tại Đà Nẵng đang rầm rộ tuyển sinh các lớp bán trú hè cho trẻ.
-- Trường đại học Luật Hà Nội vừa công bố điểm chuẩn xét học bạ THPT, trong đó ngành luật kinh tế tổ hợp A00 và A01 lấy điểm chuẩn cao nhất 30/30 điểm. Thế nhưng vẫn có thí sinh đạt hơn 31 điểm.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Kịch bản "vỡ trận" kiểm định xe khi có 91 trung tâm đăng kiểm đóng cửa nếu các vụ án tiêu cực về đăng kiểm được xét xử đồng loạt trong tháng 7-2024 đang làm nhiều người dân, doanh nghiệp vận tải lo lắng.
-- Nhà 41 - 49 An Phú, phường An Phú (TP Thủ Đức) xây vượt tầng, sai phép hơn 1.000m² . Giấy phép cho xây nhà ở, nhưng trong đơn khiếu nại lên chính quyền, cư dân xung quanh lại cho rằng đây là phim trường?
-- Sau mưa lại thấy cảnh nước ngập lênh láng khắp nơi, cống bung, đường nứt. Đây không phải câu chuyện mới ở khu Đông TP.HCM. Với địa hình cao nhưng ngập vẫn xảy ra, do đâu?
-- Một số tin tức đáng chú ý: Ban hành danh mục bí mật nhà nước lĩnh vực y tế; Đề xuất phương án góp vốn cho sàn giao dịch thịt heo TP.HCM; Công bố 139 học sinh được miễn thi tốt nghiệp THPT...
-- Hôm nay 23-5, thời tiết từ Trung Trung Bộ trở vào Nam Bộ mưa nhiều, có nơi mưa to đến rất to.
-- Vòi rồng xuất hiện trước cơn mưa dông, kéo theo cột nước hàng chục mét, làm lật tàu cá.
-- Tổng bí thư, Chủ tịch nước Lào và Trung Quốc, Quốc vương Campuchia nhấn mạnh sẽ cùng Chủ tịch nước Tô Lâm thúc đẩy quan hệ song phương tốt đẹp hơn nữa.
-- Nhiều đại biểu Quốc hội đề nghị cần có quy định cụ thể đối với trường hợp phát hiện cồn nội sinh, cũng như cân nhắc quy định cấm tuyệt đối mà cần có ngưỡng nhất định.
-- Thông tin từ Thành ủy Phú Quốc cho biết đã có văn bản về việc tạm dừng giải quyết cho cán bộ, đảng viên là lãnh đạo các cấp đi nước ngoài.
-- Điện đàm với Thủ tướng Hà Lan Mark Rutte, Thủ tướng Phạm Minh Chính nhất trí phối hợp thúc đẩy chuyến thăm của Nhà vua và Hoàng hậu Hà Lan thời gian tới.
-- Tối 22-5, Công ty CP Tàu cao tốc Phú Quốc thông tin tạm ngưng trung chuyển hành khách từ trung tâm TP.HCM ra cảng Sài Gòn - Hiệp Phước (huyện Nhà Bè) phục vụ tuyến TP.HCM - Côn Đảo.
-- Chiều 22-5, một xe đầu kéo chở nước mắm làm rò rỉ xuống mặt đường trên quốc lộ 1, đoạn qua TP Thủ Đức.
-- So với năm 2022, số vụ và số nạn nhân của bạo lực gia đình năm 2023 đều giảm, song tỉ lệ nạn nhân là nam giới có dấu hiệu tăng.
-- Đường bay thẳng từ Ấn Độ đến Phú Quốc hiện đã tạm ngừng, do đó Phú Quốc mong muốn kết nối lại đường bay trên để phát triển du lịch biển đảo địa phương.
-- Chiều 22-5, phường An Phú và lực lượng chức năng đã yêu cầu đơn vị thi công nhà số 41-49 An Phú (phường An Phú, TP Thủ Đức) tháo dỡ diện tích xây sai phép.
-- Ngày 22-5, Bệnh viện Phục hồi chức năng và Điều trị bệnh nghề nghiệp (TP.HCM) tổ chức lễ khai trương Phòng chăm sóc tâm thể, nhằm hỗ trợ phục hồi sức khỏe tinh thần cho đội ngũ y tế trên địa bàn TP.
-- Thi thể nghi của bé trai 6 tuổi mất tích ở biển Lăng Cô hôm 12-5 được tìm thấy cách vị trí bị nạn hơn 20km, và đã được đưa về gia đình an táng.
-- 5 ngày qua, bộ đội thuộc Trung đoàn 9 (Sư đoàn 968) có mặt ở xã Gio An giúp bà con tháo dỡ nhà cửa, di dời tài sản để sớm bàn giao mặt bằng cho cao tốc Cam Lộ - Vạn Ninh.
-- Ngành chức năng cảnh báo người dân không được đưa nước kênh giáp ranh Long An - Tiền Giang vào đồng ruộng, tưới tiêu và sử dụng trực tiếp do ô nhiễm.
-- Từng nêu không nên quy định cứng nồng độ cồn bằng 0 khi lái xe, nhưng sau khi dự một đám cưới, đại biểu lại thấy việc cấm tuyệt đối 'có khi lại đúng'.
-- Cơ trưởng Boeing 787 Phan Xuân Đức nhận định nhiễu động mà máy bay Singapore Airlines gặp phải rất khó phát hiện.
-- Ngày 22-5, khách sạn The Shine ở Hải Phòng tổ chức phá tổ ong khiến nhiều người đi đường bị ong đốt, trong đó hai người bị đốt gần 100 vết.
-- Nguyên nhân sạt lở cát đỏ là do quá trình xây dựng dự án, chủ đầu tư Sentosa Villa Mũi Né chưa tuân thủ các quy định về phòng chống thiên tai.
-- UBND quận Hoàn Kiếm (Hà Nội) đã cưỡng chế thu hồi 1.200m² đất tại góc phố giao giữa Ngô Quyền và Trần Hưng Đạo để xây dựng trường học.
-- Theo bác sĩ điều trị của chị Hoàng Minh Lý (bác sĩ Bệnh viện K bị tấm kính rơi trúng tại Hà Nội), nữ bác sĩ có thể được ra viện trong 1 - 2 ngày tới, chuyển sang cơ sở khác để điều trị phục hồi chức năng.
-- Tuổi Trẻ Online đăng lại danh sách 16 ủy viên Bộ Chính trị khóa XIII (tính đến ngày 22-5-2024).
-- Phòng Cảnh sát hình sự Công an Đà Nẵng vừa triệt phá đường dây cá độ bóng đá qua mạng với quy mô gần 200 tỉ đồng.
-- Ngày 22-5, UBND tỉnh Đồng Nai vừa ban hành quyết định kỷ luật cảnh cáo đối với bà Vũ Thị Minh Châu - chủ tịch UBND huyện Trảng Bom.
-- Tài khoản ngân hàng không giao dịch được, nợ thuế, hết tiền trả lương nhân viên..., Công ty Cây trồng TP.HCM 'cầu cứu'.
-- Dự án BOT đường nối Võ Văn Kiệt chưa thể chấm dứt hợp đồng dù nhà đầu tư vi phạm hợp đồng nhiều năm qua.
+- Quốc hội, Ủy ban Thường vụ Quốc hội xin gửi lời chia buồn sâu sắc tới gia đình các nạn nhân vụ cháy nhà trọ khiến 14 người chết ở Hà Nội.
+- Tổng thư ký Liên Hiệp Quốc Antonio Guterres nồng nhiệt chúc mừng và bày tỏ mong muốn sớm gặp Chủ tịch nước Tô Lâm, thúc đẩy quan hệ hợp tác tốt đẹp giữa hai bên.
+- Ít ngày trước, trên một trang mạng cộng đồng trực tuyến bằng tiếng Anh có người đặt câu hỏi: 'Vì sao Sài Gòn có nhiều hình vẽ bậy graffiti?'.
+- Cơ quan bảo hiểm xã hội (BHXH) TP.HCM vừa lên tiếng khẳng định không có chủ trương yêu cầu người lao động cập nhật thông tin trên ứng dụng VssID.
+- Anh H. (sinh năm 1989, người sống sót trong vụ cháy ở ngõ 119 Trung Kính) nói có 2-3 tiếng nổ lớn. Sau đó, ngọn lửa lan rất nhanh khiến hai vợ chồng họ phải trú ẩn trong phòng.
+- Mối quan hệ hữu nghị đặc biệt giữa Việt Nam - Lào, TP.HCM - tỉnh Hủa Phăn thời gian gần đây tiếp tục được củng cố, tăng cường, phát triển lên một tầm cao mới.
+- Một số tin tức đáng chú ý: Khuyến khích người dân và doanh nghiệp dùng tên miền '.vn'; Chủ tịch một công ty vốn nghìn tỉ ở Đồng Nai xin từ chức; Bán 3 khoản nợ ở Hội An giá gần 550 tỉ đồng.
+- Nhiều ngày qua mưa dông kéo dài trên cả nước, hôm nay thời tiết tiếp tục mưa, đất bão hòa nước nên cần đề phòng sạt lở.
+- Chỉ cần cú nhấp chuột tham gia vào một vài hội, nhóm "việc nhẹ lương cao" trên mạng xã hội, lập tức xuất hiện vô số lời mời chào kèm những hứa hẹn hấp dẫn từ phía những kẻ lừa đảo.
+- Trong khi bộ trưởng Bộ Tài chính nói "thuế phí trong vé máy bay được mấy xu", các hãng bay cho biết ngoài hơn 20 loại phí dịch vụ, giá vé máy bay còn "cõng" thuế VAT, thuế thu nhập doanh nghiệp, thuế nhập khẩu nhiên liệu, thuế bảo vệ môi trường...
+- Lãnh đạo Công an quận Cầu Giấy (Hà Nội) xác nhận đã có 14 người tử vong, 3 nạn nhân bị thương đang được cấp cứu ở bệnh viện sau vụ cháy ngôi nhà ở ngõ 119 Trung Kính trong đêm.
+- Tối 23-5, tỉnh Quảng Nam và thành phố Hội An đã tổ chức lễ kỷ niệm 15 năm ngày Cù Lao Chàm được UNESCO ghi danh là Khu dự trữ sinh quyển thế giới.
+- Bốn bộ trưởng, trưởng ngành sẽ trả lời chất vấn chính ở kỳ họp thứ 7 Quốc hội là Tài nguyên và Môi trường, Kiểm toán, Công Thương, Văn hóa, Thể thao và Du lịch.
+- Liên quan đến vụ tạt axit vào bàn nhậu ở quận 7, có 5 người được chuyển đến Bệnh viện Chợ Rẫy. Một người trong số này bị suy hô hấp, bỏng kết giác mạc hai mắt độ 3 và 4, bỏng da diện tích 15%.
+- Cơ quan an ninh điều tra bắt tạm giam ông Phương Hoàng Kim - cựu cục trưởng Cục Điện lực và năng lượng tái tạo Bộ Công Thương, để điều tra tội lợi dụng chức vụ, quyền hạn trong khi thi hành công vụ.
+- Từ 0h ngày 28-5, cao tốc Cam Lâm - Vĩnh Hảo sẽ thu phí sử dụng dịch vụ. Các mức cụ thể ra sao?
+- Dự án BOT đường nối Võ Văn Kiệt nối cao tốc TP.HCM - Trung Lương có nhiều hồ sơ bị mất, thất lạc.
+- Thấy nam thanh niên cầm sợi dây chuyền vàng rồi bất ngờ bỏ chạy, chủ tiệm vàng đuổi theo nắm tóc, quật ngã xuống đất.
+- Lên Facebook đăng ký cho con tham gia giải chạy marathon, chị H. bị dụ dỗ vào một nhóm Telegram, sau đó bị lừa mất hơn 30 tỉ đồng là tiền của chị và tiền vay mượn.
+- Tại các đô thị lớn như TP.HCM, nhiều người cho rằng để có thành phố xanh sạch, phải làm từ hành động nhỏ nhất là bỏ rác đúng quy định.
+- Sở Giao thông vận tải đang hoàn chỉnh báo cáo trình UBND TP.HCM chấp thuận chủ trương cho phép xây dựng đề án thu phí ô tô lưu thông vào trong khu vực trung tâm trong tháng 6-2024.
+- Nguyên nhân hẻm 366 và 334 Chu Văn An bị ngập nặng sau mưa được xác định do rác ở các khu vực lân cận trôi đến chặn miệng cống.
+- UBND TP Thủ Đức đã ra quyết định xử phạt, tước giấy phép xây dựng, buộc tháo dỡ diện tích vi phạm vượt tầng, sai phép hơn 1.000m² ở phường An Phú.
+- Tại họp báo định kỳ về tình hình kinh tế - xã hội TP.HCM chiều 23-5, Sở Du lịch TP.HCM khẳng định lượng khách đến các phố ẩm thực Hồ Thị Kỷ, Nguyễn Thượng Hiền... ngày càng nhiều.
+- TP Đà Lạt đã ra thông báo bắt buộc tháo dỡ toàn bộ công trình trái phép trong Đồi Cù trong thời hạn 15 ngày.
+- Thông tin được Chánh văn phòng Sở Y tế TP.HCM Lê Thiện Quỳnh Như nói tại họp báo kinh tế - xã hội ngày 23-5.
+- Đại biểu Trần Hữu Hậu nêu ý kiến từ Tây Ninh, theo đó, các doanh nghiệp kinh doanh vàng đề xuất cho phép tự kê khai lại hàng hóa tồn kho theo một thời điểm Nhà nước quy định.
+- Sạt lở, sụt lún đất, làm đứt gãy đường 965 ở vùng đệm U Minh Thượng (tỉnh Kiên Giang) bất thường nên Sở Giao thông vận tải tỉnh đã có văn bản phân luồng giao thông và cấm ô tô lưu thông để khắc phục thiên tai.
+- Bộ trưởng Giáo dục và Đào tạo nhìn nhận lương và thu nhập cho giáo viên ký hợp đồng còn thấp, chưa động viên được người lao động.
+- Những ý kiến được cho là từ Việt Nam trên kênh TikTok ông Hun Sen không đại diện cho quan điểm của Chính phủ và nhân dân Việt Nam.
 ![New](News.png)
 ## Nhịp sống số 
 - Ngày 22-5, Cục An toàn thông tin (Bộ Thông tin và Truyền thông) phối hợp với báo VietNamNet tổ chức tọa đàm "Tiêu chuẩn an toàn thông tin mạng cơ bản cho camera giám sát".
