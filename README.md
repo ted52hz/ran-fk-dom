@@ -1,6 +1,23 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Sáng nay 25-5, gần 4.000 học sinh lớp 9 bước vào kỳ thi tuyển sinh lớp 10 đầu tiên ở TP.HCM tại 3 điểm thi.
+- Bảng điểm khá đẹp nhưng chỉ vì có một chữ H mà học sinh không được khen thưởng danh hiệu xuất sắc.
+- Đại diện Trường đại học quốc tế Hồng Bàng cho biết chưa nghe thông tin gì về việc tập đoàn rao bán trường.
+- Vận dụng bộ môn tự động hóa và AI, các bạn sinh viên năm nhất của Viện Công nghệ thông minh và tương tác (Đại học Kinh tế TP.HCM) đã tạo ra máy bán nước tự động theo cảm xúc người mua, máy bán mì tự động, máy bán trà trái cây tự động…
+- Phòng Giáo dục và Đào tạo huyện Lục Nam chỉ đạo hiệu trưởng, giáo viên có liên quan kiểm điểm trách nhiệm trong vụ học sinh xô xát tại Trường THCS Bắc Lũng. Công an xã cũng vào cuộc, thu thập hồ sơ, trước khi xử lý theo quy định.
+- Ngày 24-5, bà Trần Tường Vân, phó chủ tịch UBND quận Thanh Khê, Đà Nẵng, thông tin trên địa bàn quận vừa xảy ra vụ việc bé trai 7 tháng tuổi tử vong tại hộ gia đình giữ trẻ tự phát.
+- Lộ trình học bao gồm 3,5 năm cao đẳng tại Việt Nam và 2 năm đại học tại Đài Loan.
+- Trong khi hầu hết các trường đại học trên cả nước hiện đã công bố đề án tuyển sinh đại học chính quy 2024, nhưng đến nay Trường đại học Y khoa Phạm Ngọc Thạch (TP.HCM) vẫn chưa công bố thông tin này.
+- Sở Giáo dục và Đào tạo TP.HCM vừa hướng dẫn 8 bước đăng ký trực tuyến tuyển sinh đầu cấp năm học 2024-2025. Công tác tuyển sinh bắt đầu từ ngày 25-5.
+- Hào hứng trong màn nhảy flashmob, rồi ôm nhau nước mắt nghẹn ngào vì còn ngày mai nữa đã chia xa. Đó là khoảnh khắc xúc động của học sinh Trường THPT chuyên Lê Hồng Phong sáng 24-5.
+- Trường đại học Công Thương TP.HCM vừa phát cảnh báo trong toàn trường sau khi phát hiện nhiều trường hợp sinh viên học hộ, thi hộ.
+- Cổng thông tin điện tử Research.com vừa công bố danh sách các nhà khoa học có chỉ số trích dẫn khoa học hàng đầu trên thế giới năm 2024, trong đó có rất nhiều người Việt Nam.
+- Trong đợt lễ tốt nghiệp của Đại học Harvard mới đây, 22-5 và 23-5 (giờ Mỹ), một cặp vợ chồng trẻ Việt Nam tốt nghiệp tiến sĩ cùng lúc.
+- AI đa lĩnh vực đã được Trường đại học Ngoại ngữ - Tin học TP. Hồ Chí Minh (HUFLIT) sử dụng tư vấn hỗ trợ học tập cho sinh viên.
+- Để giảm thiểu tình trạng sinh viên chán học trong năm đầu tiên vì chủ yếu học đại cương, các trường đại học đã sắp xếp lại chương trình đào tạo.
+- Các nền tảng mạng xã hội liên tục có trào lưu mới, xu hướng mới nổi lên được học theo nhanh chóng. Nên dạy con trẻ ứng xử ra sao trước 'biển trend'?
+- Phó thủ tướng Chính phủ Trần Hồng Hà vừa ký quyết định chuyển đổi Trường đại học Công nghệ Sài Gòn từ loại hình dân lập sang tư thục.
 - Thời điểm này, khi hầu hết các trường phổ thông làm lễ tổng kết năm học, đó cũng là lúc trên mạng xã hội tràn ngập những "tút" của phụ huynh khoe con.
 - Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) và Trường đại học Công nghiệp TP.HCM đạt doanh thu nghìn tỉ đồng năm 2023.
 - Ngày hội giáo dục STEAM ở quận Phú Nhuận, TP.HCM có nhiều hoạt động đa dạng cho cả học sinh và giáo viên.
@@ -14,57 +31,41 @@
 - Nhiều sinh viên chỉ vừa nhập học đã muốn chuyển ngành vì cảm giác không hợp. Không ít sinh viên đã bỏ học, kết quả lẹt đẹt.
 - Phụ huynh học sinh ở huyện Mường Lát vừa tố hội đồng tuyển sinh của huyện xét tuyển không đúng đối tượng vào học tại Trường Phổ thông dân tộc nội trú THCS Mường Lát. Trong đó có con, cháu lãnh đạo cấp phòng, hiệu trưởng, giáo viên.
 - Bộ Giáo dục và Đào tạo vừa công bố danh sách 139 học sinh được miễn thi tốt nghiệp THPT xét tuyển thẳng vào đại học, cao đẳng năm 2024.
-- Sáng 23-5, Sở Giáo dục và Đào tạo TP.HCM đã công bố danh sách 158 điểm thi tuyển sinh lớp 10 năm học 2024-2025.
-- Viện Pháp tại Việt Nam, Lào và Campuchia phát động chương trình Tái tạo thế giới cùng tiếng Pháp, hướng đến chủ đề phát triển bền vững.
-- Tối 22-5, UBND quận 7, TP.HCM công bố kế hoạch khảo sát vào lớp 6 Trường THCS Nguyễn Hữu Thọ. Đây là ngôi trường "hot" trên địa bàn quận.
-- Chiều 22-5, Văn phòng UBND tỉnh Thanh Hóa có công văn giao kiểm tra, làm rõ nội dung bài viết “Trường phổ thông dân tộc nội trú lấy phòng của học sinh cho người ngoài ở, hiệu trưởng nói gì?" trên Tuổi Trẻ Online ngày 21-5.
-- Ngày 22-5, tại Trường đại học Nam Cần Thơ đã diễn ra lễ ký kết và ra mắt mô hình “Tuyên truyền, phổ biến, giáo dục pháp luật trên không gian mạng trong sinh viên Trường đại học Nam Cần Thơ”.
-- Hãng Apple tài trợ cho tổ chức nước sạch toàn cầu Gravity Water mang nước sạch, an toàn đến 131 trường học ở miền Bắc Việt Nam trong năm 2023.
-- Năm học 2024-2025, mức học phí ngành y khoa tại nhiều trường đại học dao động 80 - 150 triệu đồng/năm học.
-- Đề khảo sát vào lớp 6 Trường Trần Đại Nghĩa gồm cả tiếng Anh và tiếng Việt. Trong đó, đề thi sẽ có hai phần: trắc nghiệm và tự luận.
-- Trường đại học Công nghệ thông tin (Đại học Quốc gia TP.HCM) sẽ tổ chức khóa học nhập môn lập trình cho học sinh THPT năm 2024.
-- Tiềm năng phát triển của công nghệ thông tin vẫn còn tiếp diễn, và triển vọng nghề nghiệp theo đó cũng là vô hạn.
-- Sinh viên thực tập yêu cầu công ty cung cấp mô tả công việc để chọn vị trí thực tập, đề nghị mức lương cao, hẹn phỏng vấn nhưng không đến, chỉ làm công việc mình thích...
-- Nhiều phụ huynh cảm thấy "rối mắt" khi mùa hè 2024 này nở rộ các chương trình, hoạt động với số lượng lớn bậc nhất từ sau dịch COVID-19.
-- Ở nơi những đứa trẻ gần với mây, với gió hơn là đường quốc lộ, một điểm trường mới được dựng lên hệt như cây nấm khổng lồ bung ra từ đỉnh núi - đó chính là điểm trường Lùng Vài (huyện Vị Xuyên, Hà Giang).
-- Phụ huynh sẽ đăng ký tuyển sinh lớp 6 vào Trường THCS-THPT Trần Đại Nghĩa từ ngày 7 đến 11-6-2024.
-- Cuộc thi là cơ hội để học sinh thử thách bản thân trong việc quan sát, nghiên cứu, ứng dụng robotics và công nghệ.
-- Sau khi Tuổi Trẻ Online phản ánh vụ việc học sinh lớp 1, lớp 2 bị bắt làm bài luận để tham gia cuộc thi Đại sứ văn hóa đọc, Sở Văn hóa và Thể thao Quảng Bình đã có những động thái điều chỉnh.
-- Chiều 21-5, hai học sinh Trường THPT chuyên Lê Hồng Phong đạt giải nhì Cuộc thi khoa học kỹ thuật quốc tế năm 2024 (ISEF) tại Mỹ đã được UBND TP.HCM tặng bằng khen và trao thưởng 50 triệu đồng.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Quốc hội, Ủy ban Thường vụ Quốc hội xin gửi lời chia buồn sâu sắc tới gia đình các nạn nhân vụ cháy nhà trọ khiến 14 người chết ở Hà Nội.
-- Tổng thư ký Liên Hiệp Quốc Antonio Guterres nồng nhiệt chúc mừng và bày tỏ mong muốn sớm gặp Chủ tịch nước Tô Lâm, thúc đẩy quan hệ hợp tác tốt đẹp giữa hai bên.
-- Ít ngày trước, trên một trang mạng cộng đồng trực tuyến bằng tiếng Anh có người đặt câu hỏi: 'Vì sao Sài Gòn có nhiều hình vẽ bậy graffiti?'.
-- Cơ quan bảo hiểm xã hội (BHXH) TP.HCM vừa lên tiếng khẳng định không có chủ trương yêu cầu người lao động cập nhật thông tin trên ứng dụng VssID.
-- Anh H. (sinh năm 1989, người sống sót trong vụ cháy ở ngõ 119 Trung Kính) nói có 2-3 tiếng nổ lớn. Sau đó, ngọn lửa lan rất nhanh khiến hai vợ chồng họ phải trú ẩn trong phòng.
-- Mối quan hệ hữu nghị đặc biệt giữa Việt Nam - Lào, TP.HCM - tỉnh Hủa Phăn thời gian gần đây tiếp tục được củng cố, tăng cường, phát triển lên một tầm cao mới.
-- Một số tin tức đáng chú ý: Khuyến khích người dân và doanh nghiệp dùng tên miền '.vn'; Chủ tịch một công ty vốn nghìn tỉ ở Đồng Nai xin từ chức; Bán 3 khoản nợ ở Hội An giá gần 550 tỉ đồng.
-- Nhiều ngày qua mưa dông kéo dài trên cả nước, hôm nay thời tiết tiếp tục mưa, đất bão hòa nước nên cần đề phòng sạt lở.
-- Chỉ cần cú nhấp chuột tham gia vào một vài hội, nhóm "việc nhẹ lương cao" trên mạng xã hội, lập tức xuất hiện vô số lời mời chào kèm những hứa hẹn hấp dẫn từ phía những kẻ lừa đảo.
-- Trong khi bộ trưởng Bộ Tài chính nói "thuế phí trong vé máy bay được mấy xu", các hãng bay cho biết ngoài hơn 20 loại phí dịch vụ, giá vé máy bay còn "cõng" thuế VAT, thuế thu nhập doanh nghiệp, thuế nhập khẩu nhiên liệu, thuế bảo vệ môi trường...
-- Lãnh đạo Công an quận Cầu Giấy (Hà Nội) xác nhận đã có 14 người tử vong, 3 nạn nhân bị thương đang được cấp cứu ở bệnh viện sau vụ cháy ngôi nhà ở ngõ 119 Trung Kính trong đêm.
-- Tối 23-5, tỉnh Quảng Nam và thành phố Hội An đã tổ chức lễ kỷ niệm 15 năm ngày Cù Lao Chàm được UNESCO ghi danh là Khu dự trữ sinh quyển thế giới.
-- Bốn bộ trưởng, trưởng ngành sẽ trả lời chất vấn chính ở kỳ họp thứ 7 Quốc hội là Tài nguyên và Môi trường, Kiểm toán, Công Thương, Văn hóa, Thể thao và Du lịch.
-- Liên quan đến vụ tạt axit vào bàn nhậu ở quận 7, có 5 người được chuyển đến Bệnh viện Chợ Rẫy. Một người trong số này bị suy hô hấp, bỏng kết giác mạc hai mắt độ 3 và 4, bỏng da diện tích 15%.
-- Cơ quan an ninh điều tra bắt tạm giam ông Phương Hoàng Kim - cựu cục trưởng Cục Điện lực và năng lượng tái tạo Bộ Công Thương, để điều tra tội lợi dụng chức vụ, quyền hạn trong khi thi hành công vụ.
-- Từ 0h ngày 28-5, cao tốc Cam Lâm - Vĩnh Hảo sẽ thu phí sử dụng dịch vụ. Các mức cụ thể ra sao?
-- Dự án BOT đường nối Võ Văn Kiệt nối cao tốc TP.HCM - Trung Lương có nhiều hồ sơ bị mất, thất lạc.
-- Thấy nam thanh niên cầm sợi dây chuyền vàng rồi bất ngờ bỏ chạy, chủ tiệm vàng đuổi theo nắm tóc, quật ngã xuống đất.
-- Lên Facebook đăng ký cho con tham gia giải chạy marathon, chị H. bị dụ dỗ vào một nhóm Telegram, sau đó bị lừa mất hơn 30 tỉ đồng là tiền của chị và tiền vay mượn.
-- Tại các đô thị lớn như TP.HCM, nhiều người cho rằng để có thành phố xanh sạch, phải làm từ hành động nhỏ nhất là bỏ rác đúng quy định.
-- Sở Giao thông vận tải đang hoàn chỉnh báo cáo trình UBND TP.HCM chấp thuận chủ trương cho phép xây dựng đề án thu phí ô tô lưu thông vào trong khu vực trung tâm trong tháng 6-2024.
-- Nguyên nhân hẻm 366 và 334 Chu Văn An bị ngập nặng sau mưa được xác định do rác ở các khu vực lân cận trôi đến chặn miệng cống.
-- UBND TP Thủ Đức đã ra quyết định xử phạt, tước giấy phép xây dựng, buộc tháo dỡ diện tích vi phạm vượt tầng, sai phép hơn 1.000m² ở phường An Phú.
-- Tại họp báo định kỳ về tình hình kinh tế - xã hội TP.HCM chiều 23-5, Sở Du lịch TP.HCM khẳng định lượng khách đến các phố ẩm thực Hồ Thị Kỷ, Nguyễn Thượng Hiền... ngày càng nhiều.
-- TP Đà Lạt đã ra thông báo bắt buộc tháo dỡ toàn bộ công trình trái phép trong Đồi Cù trong thời hạn 15 ngày.
-- Thông tin được Chánh văn phòng Sở Y tế TP.HCM Lê Thiện Quỳnh Như nói tại họp báo kinh tế - xã hội ngày 23-5.
-- Đại biểu Trần Hữu Hậu nêu ý kiến từ Tây Ninh, theo đó, các doanh nghiệp kinh doanh vàng đề xuất cho phép tự kê khai lại hàng hóa tồn kho theo một thời điểm Nhà nước quy định.
-- Sạt lở, sụt lún đất, làm đứt gãy đường 965 ở vùng đệm U Minh Thượng (tỉnh Kiên Giang) bất thường nên Sở Giao thông vận tải tỉnh đã có văn bản phân luồng giao thông và cấm ô tô lưu thông để khắc phục thiên tai.
-- Bộ trưởng Giáo dục và Đào tạo nhìn nhận lương và thu nhập cho giáo viên ký hợp đồng còn thấp, chưa động viên được người lao động.
-- Những ý kiến được cho là từ Việt Nam trên kênh TikTok ông Hun Sen không đại diện cho quan điểm của Chính phủ và nhân dân Việt Nam.
+- Nguồn tin riêng xác nhận với Tuổi Trẻ Online ông Doãn Tiến Dũng, chủ tịch UBND thị xã Cửa Lò, bị bắt tạm giam để điều tra về hành vi nhận hối lộ.
+- Tin tức đáng chú ý: Sớm ban hành quy định giá đất mới; Đến cuối giờ chiều 24-5 cơ quan chức năng mới xác định được danh tính 11/14 người tử vong trong vụ cháy ở Trung Kính, Hà Nội, hôm nay sẽ hoàn tất xác định danh tính 3 người còn lại...
+- Hôm nay 25-5, thời tiết Nam Bộ giảm mưa so với những ngày trước. Bắc Bộ, Tây Nguyên vài nơi còn mưa to.
+- Chiều 24-5, Bộ trưởng Công Thương Nguyễn Hồng Diên đã có buổi làm việc với các địa phương, chủ đầu tư về các dự án nhiệt điện sử dụng khí thiên nhiên trong nước và khí LNG.
+- Trung tướng Nguyễn Hải Trung cho hay việc bổ sung quy định dao có tính sát thương cao là vũ khí giúp xử lý các hành vi, đồng thời tạo răn đe, phòng ngừa rất lớn.
+- Ban Thường vụ Tỉnh ủy An Giang thi hành kỷ luật nhiều lãnh đạo, nguyên lãnh đạo huyện Chợ Mới do vi phạm về tài chính, tài sản, đấu thầu, đầu tư xây dựng.
+- Lãnh đạo Tổng liên đoàn Lao động Việt Nam thăm hỏi, động viên, tặng quà công nhân, người lao động, thân nhân trong vụ cháy khiến 14 người tử vong ở Hà Nội.
+- Trong những nạn nhân xấu số ở vụ cháy nhà trọ làm 14 người chết tại Hà Nội, có một cặp đôi trẻ quê Hà Tĩnh sắp kết hôn. Sau vụ cháy đêm qua, ước mơ thành vợ thành chồng của cả hai mãi dở dang...
+- Chiều 24-5, ông Bùi Sỹ Tuấn Anh, giám đốc Bệnh viện Giao thông vận tải, cho biết đến 17h chiều nay đã có ba nạn nhân của vụ cháy nhà trọ ở Trung Kính chuyển sang Bệnh viện Bạch Mai để tiếp tục điều trị.
+- Ban An toàn giao thông tỉnh Bình Định kiểm tra việc thi công nâng cấp quốc lộ 19 đoạn qua đèo An Khê, yêu cầu chủ đầu tư và các nhà thầu khẩn trương khắc phục các tồn tại trước ngày 26-5.
+- Chiều 24-5, chủ tịch UBND tỉnh Kiên Giang tổ chức đối thoại (trực tiếp và trực tuyến với 8 huyện, thành phố) với doanh nghiệp lần 1-2024. Người đứng đầu tỉnh khẳng định luôn luôn đồng hành, lắng nghe ý kiến doanh nghiệp.
+- Công an tỉnh Nghệ An đã khởi tố bị can, bắt tạm giam ông Doãn Tiến Dũng - chủ tịch UBND thị xã Cửa Lò.
+- Chủ tịch nước Tô Lâm nhấn mạnh đến việc cần thiết phải hoàn thiện các quy định pháp luật trong công tác cảnh vệ để đáp ứng yêu cầu ngày càng cao trong công tác bảo vệ lãnh đạo, đối ngoại quốc gia.
+- Trở về từ hiện trường, Phó chủ tịch Quốc hội Trần Quang Phương cho hay trong vụ này, chết cháy nhiều hơn chết ngạt, vì cháy xộc thẳng vào từng phòng trọ.
+- Cảng Tân Cảng và Cái Mép - Thị Vải và cảng quốc tế Cái Mép chính thức mở hàng rào, kết nối với nhau. Việc này tạo ra bến cảng dài 1,2km nhằm tăng cường khả năng tiếp nhận tàu.
+- Bộ Công an cho biết qua kiểm tra 3.956 nhà chung cư trên cả nước, lực lượng công an đã phát hiện hàng ngàn chung cư vi phạm ở khắp các tỉnh, thành phố.
+- Ban Thường vụ Thành ủy Phú Quốc khẳng định nội dung về việc tạm ngừng giải quyết cho cán bộ, đảng viên là lãnh đạo các cấp đi nước ngoài không liên quan đến cán bộ vi phạm đất đai ở đảo. Thông tin mạng xã hội lan truyền mấy ngày qua là sai.
+- Sau hai năm, các chỉ số về phát triển du lịch của Việt Nam đều giảm và bị một số nước trong khu vực như Thái Lan, Indonesia, Malaysia... bỏ xa. Vì sao?
+- Liên quan vụ 51 du khách nhập viện nghi ngộ độc ở Bình Thuận, ngành y tế tỉnh báo cáo không thể tìm được nguyên nhân.
+- Qua nhiều ngày theo dõi và tìm hiểu, nhóm phóng viên báo Tuổi Trẻ xác định một khu đất ven kênh ở xã Vĩnh Lộc A (huyện Bình Chánh, TP.HCM) là điểm tập kết và đốt đủ loại rác thải trái phép.
+- Người đàn ông sinh năm 1986, quê ở Long An trong vụ tạt axit vào bàn nhậu đã tử vong tại Bệnh viện Chợ Rẫy dù được các bác sĩ nỗ lực cứu chữa.
+- Cục Đường bộ Việt Nam có văn bản đề nghị Quảng Trị kiểm soát tải trọng xe qua cầu treo Đakrông. Ngược lại, Quảng Trị lại đề nghị cục thực hiện việc này.
+- 0h50 ngày 24-5, bác sĩ Hoàng Phúc (Trung tâm cấp cứu 115, trạm cấp cứu khu vực Từ Liêm) nhận được cuộc gọi báo vụ cháy ở ngõ 119 Trung Kính. Ngay lập tức, một kíp trực đã chạy đến hiện trường.
+- Anh Tuấn xác nhận mình là người cởi trần, đập cửa cố gắng cứu các nạn nhân như trong đoạn clip lan truyền trên mạng xã hội.
+- Bao giờ và làm sao để không còn những vụ cháy thương tâm như vậy? Nhiều bạn đọc đặt câu hỏi và tìm câu trả lời sau vụ cháy khiến 14 người tử vong tại quận Cầu Giấy, Hà Nội.
+- Trong quá trình triển khai các chương trình, dự án phải công khai, minh bạch; tạo điều kiện thuận lợi cho tầng lớp nhân dân tham gia giám sát cộng đồng.
+- Chiếc xe khách bốc cháy ngùn ngụt trên đường cao tốc Pháp Vân - Cao Bồ - Mai Sơn trưa 24-5. Nam tài xế kịp thời đánh lái ô tô vào làn dừng khẩn cấp rồi thoát ra ngoài.
+- Nguyên nhân vụ nổ lớn ở hầm chung cư Bình Dương được nhận định nghi do nổ cục nóng máy lạnh khi những người thợ đang thực hiện công tác bảo trì.
+- Sau gần một năm khuyết vị trí giám đốc, UBND tỉnh Bình Phước đã bổ nhiệm bác sĩ Đỗ Thị Nguyên làm tân giám đốc Sở Y tế.
+- Hơn một tháng từ khi ông Trần Nam Hưng được bầu giữ chức danh phó chủ tịch UBND tỉnh Quảng Nam nhiệm kỳ 2021-2026, đến nay Thủ tướng Chính phủ vẫn chưa phê chuẩn kết quả, lãnh đạo Thường trực Tỉnh ủy Quảng Nam nói gì?
 ![New](News.png)
 ## Nhịp sống số 
+- Đừng để mình 'lấm lem' trên mạng chỉ vì một phút ham vui theo trào lưu hoặc mắc vạ miệng chỉ vì những bức xúc cá nhân.
 - Ngày 22-5, Cục An toàn thông tin (Bộ Thông tin và Truyền thông) phối hợp với báo VietNamNet tổ chức tọa đàm "Tiêu chuẩn an toàn thông tin mạng cơ bản cho camera giám sát".
 - Nhiều người thường ngại ngùng khi bắt chuyện lại với người bạn đã lâu không liên lạc. Các nhà khoa học đã có cách giúp họ.
 - Nghiên cứu mới của ĐH Michigan (Mỹ) chỉ ra rằng cách tốt nhất để quản lý thời gian dùng điện thoại là... làm cho nó đơ ra mỗi khi xài lâu.
@@ -94,5 +95,4 @@
 - OpenAI giới thiệu công cụ có thể nhại giọng con người chỉ với một mẫu âm thanh 15 giây, nhưng chưa tung ra công cụ này do các lo ngại về an ninh.
 - Vinh danh những cá nhân, tập thể đóng góp lớn cho hoạt động sản xuất kinh doanh năm 2023, Tập đoàn Công nghiệp - Viễn thông Quân đội (Viettel) cũng hé lộ những đột phá lớn sau năm năm tuyên bố trở thành tập đoàn công nghệ.
 - Ngoài việc đánh cắp thông tin cá nhân, tin tặc có thể lợi dụng lỗ hổng để chèn một 'lớp' mới vào giữa người dùng và nguồn ảnh thông thường của thiết bị.
-- Giành ngôi vô địch ở giải đấu của những hacker hàng đầu thế giới ở tuổi 20, nghiên cứu công nghệ 5G từ khi còn ngồi trên ghế nhà trường…
 ![life](Life.png)
