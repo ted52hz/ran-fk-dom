@@ -1,6 +1,16 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- "Hệ thống cảnh báo và dò tìm người mắc kẹt trong các vụ cháy chung cư" là đề tài của học sinh Lâm Bảo Trân và Lâm Hùng Vĩ (Trường THPT chuyên Nguyễn Thị Minh Khai, TP Sóc Trăng, tỉnh Sóc Trăng).
+- Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) vừa chính thức đi vào hoạt động phòng hỗ trợ chăm sóc sức khỏe tinh thần phục vụ miễn phí cho sinh viên.
+- Việc các trường đại học bắt tay hợp tác với các trường cấp THPT được đánh giá là các phát kiến hợp tác “đa lợi ích”.
+- Đại học Quốc gia TP.HCM sẽ đăng cai tổ chức trại hè sinh viên mạng lưới các đại học Đông Nam Á  năm 2024 (AUN - VUNHCM Summer Program 2024) vào tháng 7-2024.
+- Nhiều thí sinh cho biết cảm thấy hứng thú vì 'gặp' Đen Vâu trong đề thi văn tuyển sinh lớp 10 Trường phổ thông Năng khiếu.
+- Trường Quốc tế Nam Sài Gòn (SSIS) đầu tư 30 triệu USD, xây dựng trường THCS và trung tâm thiết kế STEAM nhằm nâng cao chất lượng đào tạo khoa học công nghệ.
+- Chỉ vì 1 chữ H do giáo viên môn âm nhạc đánh giá, một phụ huynh bức xúc lên tiếng. Làm sao mới công bằng?
+- Tính đến ngày 25-5, đã có hơn 20 trường đại học công bố điểm chuẩn xét tuyển sớm bằng học bạ.
+- Thay vì dành thời gian và công sức luyện thi các chứng chỉ tiếng Anh phổ biến như IELTS, TOEIC để xét tuyển đầu vào và xét tốt nghiệp ĐH, nhiều bạn trẻ chuyển sang dùng "hàng nội địa" VSTEP.
+- Chuyện sinh viên học đại học (ĐH) bị "đứt gánh giữa đường" như phản ánh của báo Tuổi Trẻ có lẽ không mới trong đào tạo ĐH. Đây là điều bình thường. Vì sao?
 - Sáng nay 25-5, gần 4.000 học sinh lớp 9 bước vào kỳ thi tuyển sinh lớp 10 đầu tiên ở TP.HCM tại 3 điểm thi.
 - Bảng điểm khá đẹp nhưng chỉ vì có một chữ H mà học sinh không được khen thưởng danh hiệu xuất sắc.
 - Đại diện Trường đại học quốc tế Hồng Bàng cho biết chưa nghe thông tin gì về việc tập đoàn rao bán trường.
@@ -21,48 +31,38 @@
 - Thời điểm này, khi hầu hết các trường phổ thông làm lễ tổng kết năm học, đó cũng là lúc trên mạng xã hội tràn ngập những "tút" của phụ huynh khoe con.
 - Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) và Trường đại học Công nghiệp TP.HCM đạt doanh thu nghìn tỉ đồng năm 2023.
 - Ngày hội giáo dục STEAM ở quận Phú Nhuận, TP.HCM có nhiều hoạt động đa dạng cho cả học sinh và giáo viên.
-- Trường đại học Công nghệ thông tin (Đại học Quốc gia TP.HCM) sẽ dành khoảng 1 tỉ đổng mỗi năm để trao học bổng sinh viên ngành thiết kế vi mạch của trường.
-- Bộ trưởng Giáo dục và Đào tạo nhìn nhận lương và thu nhập cho giáo viên ký hợp đồng còn thấp, chưa động viên được người lao động.
-- Trong các trường đại học thành viên Đại học Quốc gia TP.HCM, trường có doanh thu cao nhất lên đến gần ngàn tỉ đồng và thấp nhất hơn 236,1 tỉ đồng/năm.
-- Năm nay, có 5.744 thí sinh đăng ký theo phương thức xét tuyển tài năng vào Đại học Bách khoa Hà Nội, tăng 1,9 lần so với năm 2023.
-- Các bài toán được 'đặt hàng' công nghệ cũng là những thách thức trong quản lý dạy và học trên địa bàn TP.HCM.
-- Nhiều thí sinh được miễn thi ngoại ngữ trong xét tốt nghiệp THPT đều được tính 10 điểm môn này hiện vẫn còn lăn tăn việc có nên thi ngoại ngữ hay không.
-- Nhiều người nói vui rằng mùa hè đến và mùa khoe con cũng bắt đầu sôi động. Và có muôn vàn hệ lụy "ăn theo" mùa khoe con này.
-- Nhiều sinh viên chỉ vừa nhập học đã muốn chuyển ngành vì cảm giác không hợp. Không ít sinh viên đã bỏ học, kết quả lẹt đẹt.
-- Phụ huynh học sinh ở huyện Mường Lát vừa tố hội đồng tuyển sinh của huyện xét tuyển không đúng đối tượng vào học tại Trường Phổ thông dân tộc nội trú THCS Mường Lát. Trong đó có con, cháu lãnh đạo cấp phòng, hiệu trưởng, giáo viên.
-- Bộ Giáo dục và Đào tạo vừa công bố danh sách 139 học sinh được miễn thi tốt nghiệp THPT xét tuyển thẳng vào đại học, cao đẳng năm 2024.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Nguồn tin riêng xác nhận với Tuổi Trẻ Online ông Doãn Tiến Dũng, chủ tịch UBND thị xã Cửa Lò, bị bắt tạm giam để điều tra về hành vi nhận hối lộ.
-- Tin tức đáng chú ý: Sớm ban hành quy định giá đất mới; Đến cuối giờ chiều 24-5 cơ quan chức năng mới xác định được danh tính 11/14 người tử vong trong vụ cháy ở Trung Kính, Hà Nội, hôm nay sẽ hoàn tất xác định danh tính 3 người còn lại...
-- Hôm nay 25-5, thời tiết Nam Bộ giảm mưa so với những ngày trước. Bắc Bộ, Tây Nguyên vài nơi còn mưa to.
-- Chiều 24-5, Bộ trưởng Công Thương Nguyễn Hồng Diên đã có buổi làm việc với các địa phương, chủ đầu tư về các dự án nhiệt điện sử dụng khí thiên nhiên trong nước và khí LNG.
-- Trung tướng Nguyễn Hải Trung cho hay việc bổ sung quy định dao có tính sát thương cao là vũ khí giúp xử lý các hành vi, đồng thời tạo răn đe, phòng ngừa rất lớn.
-- Ban Thường vụ Tỉnh ủy An Giang thi hành kỷ luật nhiều lãnh đạo, nguyên lãnh đạo huyện Chợ Mới do vi phạm về tài chính, tài sản, đấu thầu, đầu tư xây dựng.
-- Lãnh đạo Tổng liên đoàn Lao động Việt Nam thăm hỏi, động viên, tặng quà công nhân, người lao động, thân nhân trong vụ cháy khiến 14 người tử vong ở Hà Nội.
-- Trong những nạn nhân xấu số ở vụ cháy nhà trọ làm 14 người chết tại Hà Nội, có một cặp đôi trẻ quê Hà Tĩnh sắp kết hôn. Sau vụ cháy đêm qua, ước mơ thành vợ thành chồng của cả hai mãi dở dang...
-- Chiều 24-5, ông Bùi Sỹ Tuấn Anh, giám đốc Bệnh viện Giao thông vận tải, cho biết đến 17h chiều nay đã có ba nạn nhân của vụ cháy nhà trọ ở Trung Kính chuyển sang Bệnh viện Bạch Mai để tiếp tục điều trị.
-- Ban An toàn giao thông tỉnh Bình Định kiểm tra việc thi công nâng cấp quốc lộ 19 đoạn qua đèo An Khê, yêu cầu chủ đầu tư và các nhà thầu khẩn trương khắc phục các tồn tại trước ngày 26-5.
-- Chiều 24-5, chủ tịch UBND tỉnh Kiên Giang tổ chức đối thoại (trực tiếp và trực tuyến với 8 huyện, thành phố) với doanh nghiệp lần 1-2024. Người đứng đầu tỉnh khẳng định luôn luôn đồng hành, lắng nghe ý kiến doanh nghiệp.
-- Công an tỉnh Nghệ An đã khởi tố bị can, bắt tạm giam ông Doãn Tiến Dũng - chủ tịch UBND thị xã Cửa Lò.
-- Chủ tịch nước Tô Lâm nhấn mạnh đến việc cần thiết phải hoàn thiện các quy định pháp luật trong công tác cảnh vệ để đáp ứng yêu cầu ngày càng cao trong công tác bảo vệ lãnh đạo, đối ngoại quốc gia.
-- Trở về từ hiện trường, Phó chủ tịch Quốc hội Trần Quang Phương cho hay trong vụ này, chết cháy nhiều hơn chết ngạt, vì cháy xộc thẳng vào từng phòng trọ.
-- Cảng Tân Cảng và Cái Mép - Thị Vải và cảng quốc tế Cái Mép chính thức mở hàng rào, kết nối với nhau. Việc này tạo ra bến cảng dài 1,2km nhằm tăng cường khả năng tiếp nhận tàu.
-- Bộ Công an cho biết qua kiểm tra 3.956 nhà chung cư trên cả nước, lực lượng công an đã phát hiện hàng ngàn chung cư vi phạm ở khắp các tỉnh, thành phố.
-- Ban Thường vụ Thành ủy Phú Quốc khẳng định nội dung về việc tạm ngừng giải quyết cho cán bộ, đảng viên là lãnh đạo các cấp đi nước ngoài không liên quan đến cán bộ vi phạm đất đai ở đảo. Thông tin mạng xã hội lan truyền mấy ngày qua là sai.
-- Sau hai năm, các chỉ số về phát triển du lịch của Việt Nam đều giảm và bị một số nước trong khu vực như Thái Lan, Indonesia, Malaysia... bỏ xa. Vì sao?
-- Liên quan vụ 51 du khách nhập viện nghi ngộ độc ở Bình Thuận, ngành y tế tỉnh báo cáo không thể tìm được nguyên nhân.
-- Qua nhiều ngày theo dõi và tìm hiểu, nhóm phóng viên báo Tuổi Trẻ xác định một khu đất ven kênh ở xã Vĩnh Lộc A (huyện Bình Chánh, TP.HCM) là điểm tập kết và đốt đủ loại rác thải trái phép.
-- Người đàn ông sinh năm 1986, quê ở Long An trong vụ tạt axit vào bàn nhậu đã tử vong tại Bệnh viện Chợ Rẫy dù được các bác sĩ nỗ lực cứu chữa.
-- Cục Đường bộ Việt Nam có văn bản đề nghị Quảng Trị kiểm soát tải trọng xe qua cầu treo Đakrông. Ngược lại, Quảng Trị lại đề nghị cục thực hiện việc này.
-- 0h50 ngày 24-5, bác sĩ Hoàng Phúc (Trung tâm cấp cứu 115, trạm cấp cứu khu vực Từ Liêm) nhận được cuộc gọi báo vụ cháy ở ngõ 119 Trung Kính. Ngay lập tức, một kíp trực đã chạy đến hiện trường.
-- Anh Tuấn xác nhận mình là người cởi trần, đập cửa cố gắng cứu các nạn nhân như trong đoạn clip lan truyền trên mạng xã hội.
-- Bao giờ và làm sao để không còn những vụ cháy thương tâm như vậy? Nhiều bạn đọc đặt câu hỏi và tìm câu trả lời sau vụ cháy khiến 14 người tử vong tại quận Cầu Giấy, Hà Nội.
-- Trong quá trình triển khai các chương trình, dự án phải công khai, minh bạch; tạo điều kiện thuận lợi cho tầng lớp nhân dân tham gia giám sát cộng đồng.
-- Chiếc xe khách bốc cháy ngùn ngụt trên đường cao tốc Pháp Vân - Cao Bồ - Mai Sơn trưa 24-5. Nam tài xế kịp thời đánh lái ô tô vào làn dừng khẩn cấp rồi thoát ra ngoài.
-- Nguyên nhân vụ nổ lớn ở hầm chung cư Bình Dương được nhận định nghi do nổ cục nóng máy lạnh khi những người thợ đang thực hiện công tác bảo trì.
-- Sau gần một năm khuyết vị trí giám đốc, UBND tỉnh Bình Phước đã bổ nhiệm bác sĩ Đỗ Thị Nguyên làm tân giám đốc Sở Y tế.
-- Hơn một tháng từ khi ông Trần Nam Hưng được bầu giữ chức danh phó chủ tịch UBND tỉnh Quảng Nam nhiệm kỳ 2021-2026, đến nay Thủ tướng Chính phủ vẫn chưa phê chuẩn kết quả, lãnh đạo Thường trực Tỉnh ủy Quảng Nam nói gì?
+- Sau vụ cháy nhà trọ ở phố Trung Kính (Hà Nội), nhiều ý kiến cho rằng cần quản lý chặt loại hình nhà ở kết hợp kinh doanh và cho thuê trong những ngõ, hẻm nhỏ, nhất là với các loại hình kinh doanh nguy cơ cháy nổ cao.
+- Giữa cái nắng hè tháng 5 tại vùng biển Nha Trang (Khánh Hòa), 26 thành viên thuộc Cơ quan Kiểm kê tù binh và người mất tích Bộ Quốc phòng Mỹ (DPAA) tìm kiếm hài cốt của quân nhân Mỹ thiệt mạng trong vụ rơi máy bay vào năm 1971.
+- Một số tin tức đáng chú ý: Hơn 1.800 tỉ đồng nạo vét 3 tuyến đường thủy quan trọng ở TP.HCM; Ngân hàng sẽ tiếp tục lãi cao năm 2024; Sẽ cải tạo, phục hồi bãi rác Gò Cát và Đông Thạnh...
+- Hôm nay 26-5, Bắc Bộ thời tiết mưa rào đến mưa to. Nam Bộ và vùng núi Trung Bộ nắng nóng, vài nơi nắng nóng gay gắt.
+- UBND quận Cầu Giấy đã khen thưởng bốn "người hùng" cùng nhau hỗ trợ để cứu người trong vụ cháy làm 14 người chết tại đường Trung Kính, Cầu Giấy (Hà Nội) rạng sáng 24-5.
+- Ảnh vệ tinh lúc 21h15 đêm nay cho thấy mây dông đang phát triển mạnh, kéo về Bình Dương, Đồng Nai, TP.HCM... Đài khí tượng thủy văn khu vực Nam Bộ đã phát bản tin cảnh báo dông tố, lốc sét, mưa đá cục bộ.
+- Tuyến đường 965 ở U Minh Thượng đang diễn ra sụt lún bất thường. Việc sụt mặt đường đã khiến lưu thông không chỉ gặp khó mà còn ảnh hưởng đến việc mua bán nông sản của người dân.
+- Đánh đổi tiện nghi và an toàn để có mức giá rẻ, người lao động chấp nhận sống trong các khu trọ nằm sâu trong ngõ. Chuyên gia cho rằng cần có chính sách phát triển nhà ở xã hội cho thuê với giá phải chăng.
+- Thường trực Ban Bí thư Lương Cường ký ban hành kết luận của Bộ Chính trị về quy hoạch Hà Nội thời kỳ 2021-2030, tầm nhìn đến 2050 và đồ án điều chỉnh quy hoạch chung thủ đô đến năm 2045, tầm nhìn 2065.
+- Trong lúc làm việc, một công nhân bị máy trộn keo cuốn vào trong xoay nhiều vòng làm đứt lìa tay trái và hai chân.
+- Một đoạn dài 50m mặt đường quốc lộ 19 đoạn tránh thị xã An Khê (tỉnh Gia Lai) vừa thi công xong phải bóc lên sửa chữa vì ngấm nước.
+- Thủ tướng nhấn mạnh đến yếu tố con người đóng vai trò quan trọng trong triển khai các công việc nói chung và các dự án giao thông nói riêng.
+- Sau khi các bên ngồi lại với nhau, hàng rào bê tông chặn đường vào Bệnh viện TTH Quảng Bình đã được tháo dỡ.
+- Cục trưởng Cục Đường sắt Trần Thiện Cảnh cho biết đến thời điểm hiện tại vẫn chưa xác định chính xác thời điểm thông hầm đường sắt Chí Thạnh do miệng hố sụt lớn hơn rất nhiều so với nhận định ban đầu.
+- Sau khi vào cửa hàng điện thoại khống chế, cướp hai chiếc iPhone 14 Promax, nghi phạm bỏ trốn từ Nghệ An ra Hà Nội.
+- Bộ trưởng Nguyễn Văn Thắng nêu rõ đã quy hoạch mạng lưới trạm dừng nghỉ, ban hành quy chuẩn quốc gia về đường cao tốc, trong đó có trạm dừng nghỉ.
+- Lotte đang tháo dỡ 491m2 xây không phép tại siêu thị Lotte Mart quận 7 (TP.HCM) và hứa sẽ hoàn thành muộn nhất vào ngày 31-5.
+- Hơn 500 triệu đồng vừa được các đơn vị tổ chức trao tặng cho người dân xã Khánh Tiến, huyện U Minh, tỉnh Cà Mau trong chương trình Nghĩa tình biên giới.
+- Nhận xét hiện nay có một bộ phận người trẻ không có nhu cầu kết hôn mà chọn nuôi thú cưng làm niềm vui khơi lên nhiều ý kiến tranh luận.
+- Thi hành án liên quan 3 dự án khiến ngàn người vạ lây vẫn chậm trễ. Đơn vị môi giới vừa đề nghị được nộp tiền, thực hiện thay nghĩa vụ của chủ đầu tư để thúc đẩy việc thi hành án.
+- Tại TP Nha Trang (Khánh Hòa), Bộ Văn hóa, Thể thao và Du lịch tổ chức Trại sáng tác cho các tác giả nghiên cứu lý luận, phê bình văn học năm 2024.
+- Sáng 25-5, trở lại ‘đại công trường’ đốt rác trái phép ở huyện Bình Chánh, TP.HCM, chúng tôi ghi nhận nơi đây đã được dọn dẹp, lối vào bị rào chắn kèm bảng cảnh báo.
+- Dù từng tổng rà soát toàn thành phố sau vụ cháy chung cư mini làm 56 người chết vào năm ngoái, tại Hà Nội vẫn còn nhiều nhà trọ không đảm bảo an toàn.
+- Trong 6 nạn nhân vụ cháy nhà trọ ở Hà Nội được đưa đến bệnh viện cấp cứu, dự kiến trong chiều nay 25-5 sẽ có 3 bệnh nhân được xuất viện.
+- Để giảm thiểu nguy cơ về cháy nổ, đảm bảo an toàn tại khu dân cư, những nơi tập trung nhiều nhà trọ, Công an Hà Nội cảnh báo, khuyến cáo nhiều giải pháp về phòng cháy chữa cháy.
+- Vì sao Ban Thường vụ Tỉnh ủy An Giang thi hành kỷ luật bằng hình thức cảnh cáo, khiển trách Ban Thường vụ Huyện ủy Chợ Mới cả 2 nhiệm kỳ 2015-2020 và 2020-2025?
+- Các loại đất khác gồm cả đất xây dựng mới sẽ được chuyển mục đích sử dụng sang đất ở, nếu phù hợp quy hoạch và tiếp giáp đường giao thông.
+- Sở Giao thông vận tải TP.HCM vừa có văn bản đề nghị các đơn vị liên quan đảm bảo trật tự an toàn giao thông, vệ sinh môi trường và mỹ quan đô thị trong quá trình thi công nút giao An Phú, TP Thủ Đức.
+- Dự án cao tốc Biên Hòa - Vũng Tàu khởi công từ tháng 6-2023, nhưng đến nay tiến độ của mỗi nơi một khác, không đồng bộ. Vì sao xảy ra chuyện này?
+- Theo tìm hiểu của Tuổi Trẻ Online, hiện nay dự án ngăn triều 10.000 tỉ tại TP.HCM đã đội vốn thêm khoảng 4.000 tỉ đồng.
 ![New](News.png)
 ## Nhịp sống số 
 - Đừng để mình 'lấm lem' trên mạng chỉ vì một phút ham vui theo trào lưu hoặc mắc vạ miệng chỉ vì những bức xúc cá nhân.
