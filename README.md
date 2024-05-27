@@ -1,6 +1,15 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Nguyễn Bảo Phúc hàng tháng đi từ nhà ở TP Hải Dương lên Hà Nội, còn Nguyễn Bình hàng tuần từ Bình Dương lên TP.HCM để tìm ‘Tây’ bắt chuyện rèn tiếng Anh.
+- Từ các bài thơ trên trang mạng xã hội, Hồ Dương Mộng Tuyền trở thành tác giả của những trang sách nhẹ nhàng, gần gũi, hút độc giả trẻ.
+- Sinh viên Đại học Quốc gia TP.HCM cho biết tình trạng chen lấn khi lên xuống xe buýt diễn ra thường xuyên; tình trạng bị trộm cắp, quấy rối vẫn còn.
+- Một trưởng khoa của Trường đại học Khoa học xã hội và Nhân văn (Đại học Quốc gia TP.HCM) vừa nộp đơn xin nghỉ việc sau khi bị tố làm giám đốc nhiều doanh nghiệp ngoài trường.
+- Với ông Nguyễn Tấn Thành, tuổi tác không thể ngăn cản ông chinh phục sự học mà ông chỉ sợ không có nhiều thời gian để học. Và nay ông đi thi cao học.
+- Nhiều phụ huynh chia sẻ hình ảnh cùng con dự lễ tri ân trưởng thành do trường mầm non tổ chức đã nhận về ý kiến cho rằng bày vẽ, không phù hợp.
+- Hiệu trưởng Trường THPT Tháp Chàm được xác định đã chỉ đạo lạm thu rất nhiều khoản, có dấu hiệu trục lợi với tổng số tiền hơn 800 triệu đồng.
+- Sức hút của tấm bằng khen học sinh giỏi quả thực khiến bao người quay cuồng ép trẻ vào khuôn "học, học và học".
+- Việc khoe điểm, khen ngợi con trên mạng là nhu cầu có thật và không có gì quá đáng, nếu biết khoe con đúng cách.
 - "Hệ thống cảnh báo và dò tìm người mắc kẹt trong các vụ cháy chung cư" là đề tài của học sinh Lâm Bảo Trân và Lâm Hùng Vĩ (Trường THPT chuyên Nguyễn Thị Minh Khai, TP Sóc Trăng, tỉnh Sóc Trăng).
 - Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) vừa chính thức đi vào hoạt động phòng hỗ trợ chăm sóc sức khỏe tinh thần phục vụ miễn phí cho sinh viên.
 - Việc các trường đại học bắt tay hợp tác với các trường cấp THPT được đánh giá là các phát kiến hợp tác “đa lợi ích”.
@@ -22,49 +31,41 @@
 - Sở Giáo dục và Đào tạo TP.HCM vừa hướng dẫn 8 bước đăng ký trực tuyến tuyển sinh đầu cấp năm học 2024-2025. Công tác tuyển sinh bắt đầu từ ngày 25-5.
 - Hào hứng trong màn nhảy flashmob, rồi ôm nhau nước mắt nghẹn ngào vì còn ngày mai nữa đã chia xa. Đó là khoảnh khắc xúc động của học sinh Trường THPT chuyên Lê Hồng Phong sáng 24-5.
 - Trường đại học Công Thương TP.HCM vừa phát cảnh báo trong toàn trường sau khi phát hiện nhiều trường hợp sinh viên học hộ, thi hộ.
-- Cổng thông tin điện tử Research.com vừa công bố danh sách các nhà khoa học có chỉ số trích dẫn khoa học hàng đầu trên thế giới năm 2024, trong đó có rất nhiều người Việt Nam.
-- Trong đợt lễ tốt nghiệp của Đại học Harvard mới đây, 22-5 và 23-5 (giờ Mỹ), một cặp vợ chồng trẻ Việt Nam tốt nghiệp tiến sĩ cùng lúc.
-- AI đa lĩnh vực đã được Trường đại học Ngoại ngữ - Tin học TP. Hồ Chí Minh (HUFLIT) sử dụng tư vấn hỗ trợ học tập cho sinh viên.
-- Để giảm thiểu tình trạng sinh viên chán học trong năm đầu tiên vì chủ yếu học đại cương, các trường đại học đã sắp xếp lại chương trình đào tạo.
-- Các nền tảng mạng xã hội liên tục có trào lưu mới, xu hướng mới nổi lên được học theo nhanh chóng. Nên dạy con trẻ ứng xử ra sao trước 'biển trend'?
-- Phó thủ tướng Chính phủ Trần Hồng Hà vừa ký quyết định chuyển đổi Trường đại học Công nghệ Sài Gòn từ loại hình dân lập sang tư thục.
-- Thời điểm này, khi hầu hết các trường phổ thông làm lễ tổng kết năm học, đó cũng là lúc trên mạng xã hội tràn ngập những "tút" của phụ huynh khoe con.
-- Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) và Trường đại học Công nghiệp TP.HCM đạt doanh thu nghìn tỉ đồng năm 2023.
-- Ngày hội giáo dục STEAM ở quận Phú Nhuận, TP.HCM có nhiều hoạt động đa dạng cho cả học sinh và giáo viên.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Sau vụ cháy nhà trọ ở phố Trung Kính (Hà Nội), nhiều ý kiến cho rằng cần quản lý chặt loại hình nhà ở kết hợp kinh doanh và cho thuê trong những ngõ, hẻm nhỏ, nhất là với các loại hình kinh doanh nguy cơ cháy nổ cao.
-- Giữa cái nắng hè tháng 5 tại vùng biển Nha Trang (Khánh Hòa), 26 thành viên thuộc Cơ quan Kiểm kê tù binh và người mất tích Bộ Quốc phòng Mỹ (DPAA) tìm kiếm hài cốt của quân nhân Mỹ thiệt mạng trong vụ rơi máy bay vào năm 1971.
-- Một số tin tức đáng chú ý: Hơn 1.800 tỉ đồng nạo vét 3 tuyến đường thủy quan trọng ở TP.HCM; Ngân hàng sẽ tiếp tục lãi cao năm 2024; Sẽ cải tạo, phục hồi bãi rác Gò Cát và Đông Thạnh...
-- Hôm nay 26-5, Bắc Bộ thời tiết mưa rào đến mưa to. Nam Bộ và vùng núi Trung Bộ nắng nóng, vài nơi nắng nóng gay gắt.
-- UBND quận Cầu Giấy đã khen thưởng bốn "người hùng" cùng nhau hỗ trợ để cứu người trong vụ cháy làm 14 người chết tại đường Trung Kính, Cầu Giấy (Hà Nội) rạng sáng 24-5.
-- Ảnh vệ tinh lúc 21h15 đêm nay cho thấy mây dông đang phát triển mạnh, kéo về Bình Dương, Đồng Nai, TP.HCM... Đài khí tượng thủy văn khu vực Nam Bộ đã phát bản tin cảnh báo dông tố, lốc sét, mưa đá cục bộ.
-- Tuyến đường 965 ở U Minh Thượng đang diễn ra sụt lún bất thường. Việc sụt mặt đường đã khiến lưu thông không chỉ gặp khó mà còn ảnh hưởng đến việc mua bán nông sản của người dân.
-- Đánh đổi tiện nghi và an toàn để có mức giá rẻ, người lao động chấp nhận sống trong các khu trọ nằm sâu trong ngõ. Chuyên gia cho rằng cần có chính sách phát triển nhà ở xã hội cho thuê với giá phải chăng.
-- Thường trực Ban Bí thư Lương Cường ký ban hành kết luận của Bộ Chính trị về quy hoạch Hà Nội thời kỳ 2021-2030, tầm nhìn đến 2050 và đồ án điều chỉnh quy hoạch chung thủ đô đến năm 2045, tầm nhìn 2065.
-- Trong lúc làm việc, một công nhân bị máy trộn keo cuốn vào trong xoay nhiều vòng làm đứt lìa tay trái và hai chân.
-- Một đoạn dài 50m mặt đường quốc lộ 19 đoạn tránh thị xã An Khê (tỉnh Gia Lai) vừa thi công xong phải bóc lên sửa chữa vì ngấm nước.
-- Thủ tướng nhấn mạnh đến yếu tố con người đóng vai trò quan trọng trong triển khai các công việc nói chung và các dự án giao thông nói riêng.
-- Sau khi các bên ngồi lại với nhau, hàng rào bê tông chặn đường vào Bệnh viện TTH Quảng Bình đã được tháo dỡ.
-- Cục trưởng Cục Đường sắt Trần Thiện Cảnh cho biết đến thời điểm hiện tại vẫn chưa xác định chính xác thời điểm thông hầm đường sắt Chí Thạnh do miệng hố sụt lớn hơn rất nhiều so với nhận định ban đầu.
-- Sau khi vào cửa hàng điện thoại khống chế, cướp hai chiếc iPhone 14 Promax, nghi phạm bỏ trốn từ Nghệ An ra Hà Nội.
-- Bộ trưởng Nguyễn Văn Thắng nêu rõ đã quy hoạch mạng lưới trạm dừng nghỉ, ban hành quy chuẩn quốc gia về đường cao tốc, trong đó có trạm dừng nghỉ.
-- Lotte đang tháo dỡ 491m2 xây không phép tại siêu thị Lotte Mart quận 7 (TP.HCM) và hứa sẽ hoàn thành muộn nhất vào ngày 31-5.
-- Hơn 500 triệu đồng vừa được các đơn vị tổ chức trao tặng cho người dân xã Khánh Tiến, huyện U Minh, tỉnh Cà Mau trong chương trình Nghĩa tình biên giới.
-- Nhận xét hiện nay có một bộ phận người trẻ không có nhu cầu kết hôn mà chọn nuôi thú cưng làm niềm vui khơi lên nhiều ý kiến tranh luận.
-- Thi hành án liên quan 3 dự án khiến ngàn người vạ lây vẫn chậm trễ. Đơn vị môi giới vừa đề nghị được nộp tiền, thực hiện thay nghĩa vụ của chủ đầu tư để thúc đẩy việc thi hành án.
-- Tại TP Nha Trang (Khánh Hòa), Bộ Văn hóa, Thể thao và Du lịch tổ chức Trại sáng tác cho các tác giả nghiên cứu lý luận, phê bình văn học năm 2024.
-- Sáng 25-5, trở lại ‘đại công trường’ đốt rác trái phép ở huyện Bình Chánh, TP.HCM, chúng tôi ghi nhận nơi đây đã được dọn dẹp, lối vào bị rào chắn kèm bảng cảnh báo.
-- Dù từng tổng rà soát toàn thành phố sau vụ cháy chung cư mini làm 56 người chết vào năm ngoái, tại Hà Nội vẫn còn nhiều nhà trọ không đảm bảo an toàn.
-- Trong 6 nạn nhân vụ cháy nhà trọ ở Hà Nội được đưa đến bệnh viện cấp cứu, dự kiến trong chiều nay 25-5 sẽ có 3 bệnh nhân được xuất viện.
-- Để giảm thiểu nguy cơ về cháy nổ, đảm bảo an toàn tại khu dân cư, những nơi tập trung nhiều nhà trọ, Công an Hà Nội cảnh báo, khuyến cáo nhiều giải pháp về phòng cháy chữa cháy.
-- Vì sao Ban Thường vụ Tỉnh ủy An Giang thi hành kỷ luật bằng hình thức cảnh cáo, khiển trách Ban Thường vụ Huyện ủy Chợ Mới cả 2 nhiệm kỳ 2015-2020 và 2020-2025?
-- Các loại đất khác gồm cả đất xây dựng mới sẽ được chuyển mục đích sử dụng sang đất ở, nếu phù hợp quy hoạch và tiếp giáp đường giao thông.
-- Sở Giao thông vận tải TP.HCM vừa có văn bản đề nghị các đơn vị liên quan đảm bảo trật tự an toàn giao thông, vệ sinh môi trường và mỹ quan đô thị trong quá trình thi công nút giao An Phú, TP Thủ Đức.
-- Dự án cao tốc Biên Hòa - Vũng Tàu khởi công từ tháng 6-2023, nhưng đến nay tiến độ của mỗi nơi một khác, không đồng bộ. Vì sao xảy ra chuyện này?
-- Theo tìm hiểu của Tuổi Trẻ Online, hiện nay dự án ngăn triều 10.000 tỉ tại TP.HCM đã đội vốn thêm khoảng 4.000 tỉ đồng.
+- Cụ thể: Bình Dương thì phòng trọ, nhà ở xã hội liền kề khu công nghiệp luôn có lối thoát hiểm; TP.HCM, nhiều khu nhà trọ 'một cửa'; Cần Thơ, hầu hết nhà trọ đều thấp tầng.
+- Dịch vụ thuê trọ chủ yếu vẫn do người thuê tự thỏa thuận với chủ nhà mà không qua trung gian.
+- Trong một thập kỷ, hơn 800 lượt cán bộ, sĩ quan 'mũ nồi xanh' của Việt Nam đã đặt chân đến những vùng đất xa xôi, thực thi sứ mệnh gìn giữ hòa bình Liên Hiệp Quốc.
+- Hôm nay 27-5, thời tiết cả nước phổ biến nắng đến nắng nóng, chiều tối nhiều nơi mưa dông, có nơi mưa to.
+- Theo Công an TP.HCM, trong các năm 2022, 2023 và quý 1-2024, các loại tội phạm xâm phạm sở hữu (cướp, cướp giật) trên địa bàn TP liên tiếp giảm.
+- Một số tin tức đáng chú ý: Thêm hãng bay lên lịch bay Côn Đảo; Tour miễn phí tặng các bé bị ảnh hưởng COVID-19; Gia hạn thời gian thanh tra đất đai tại Hà Nội đến hết tháng 7-2024...
+- Hành động cứu người của 4 công dân thể hiện nghĩa cử cao đẹp, truyền thống nhân ái của dân tộc, như thư khen của Thủ tướng.
+- Các hộ kinh doanh đặt bảng hiệu có ‘logo lạ’ bỗng ngơ ngác khi biết mình đang quảng cáo cho web cờ bạc trực tuyến.
+- Ngày 26-5, Công an huyện Bảo Lâm, tỉnh Lâm Đồng, đã khởi tố, tạm giam 4 thanh niên tổ chức chặn cướp tài sản của du khách đi 'săn mây'
+- Ủy ban MTTQ phường Trung Hoà (Cầu Giấy, Hà Nội) vừa ban hành kế hoạch việc tiếp nhận hỗ trợ các nạn nhân trong vụ cháy nhà trọ làm 14 người chết.
+- Một nguyên hiệu trưởng ở Nghệ An đổ gục khi được mời lên phát biểu nhân dịp gặp mặt kỷ niệm 45 năm thành lập trường.
+- Bộ trưởng Bộ Lao động - Thương binh và Xã hội đề xuất giải pháp hỗ trợ hơn 200.000 người bị nợ bảo hiểm xã hội do doanh nghiệp phá sản, giải thể…
+- 2 tàu cá vận chuyển khoảng 30.000 lít dầu DO không rõ nguồn gốc trên vùng biển Tây Nam vừa bị phát hiện.
+- Từ vụ án đánh bạc tại câu lạc bộ poker Joker Club, Cơ quan điều tra Công an tỉnh Khánh Hòa đã khui ra thêm các sòng bạc do người nước ngoài điều hành.
+- Nam thanh niên chạy xe máy chở hai bà cháu chạy vào làn ô tô trên quốc lộ 51 thì xảy ra va chạm với xe đầu kéo, khiến hai bà cháu chết tại chỗ.
+- Đài khí tượng thủy văn khu vực Nam Bộ có bản tin cảnh báo mưa dông cục bộ ở một số địa phương trong đó có TP.HCM.
+- Một khu đất ven đầm lầy ở phường Tân Tạo (quận Bình Tân, TP.HCM) ngập rác thải y tế, cùng hàng ngàn chai lọ thủy tinh. Trong đó, có chai còn chữ 'ăn mòn', bên trong chứa chất lỏng.
+- Giá hoa cúc Đà Lạt vẫn tiếp tục giữ ở mức cao, gấp 10 lần giá hoa hồng, dù đại lễ Phật đản đã qua.
+- Mong muốn cải thiện cằm đôi nhiều mỡ, nhiều phụ nữ gặp biến chứng khi tiêm tan mỡ, chất làm đầy không rõ loại tại nhà hay cơ sở y tế không phép.
+- Ba nạn nhân trong vụ cháy nhà trọ Trung Kính chưa thể xác định danh tính đã được gia đình đưa về quê nhà mai táng sau khi có kết quả xét nghiệm ADN.
+- Áp thấp nhiệt đới ở khu vực miền Trung của Philippines đã mạnh lên thành bão Ewiniar.
+- Ngày 26-5, một người phụ nữ đang trú tại Bình Dương nghi lấy xăng tự thiêu ngay ngày phải chuyển phòng trọ.
+- Đại diện công đoàn có 38.500 lao động đề nghị Chính phủ xây dựng lộ trình giảm giờ làm việc từ 48 giờ/tuần xuống còn 44 và 40 giờ/tuần.
+- Ngày 25-5, Quốc hội thảo luận ở hội trường, đã dành phần lớn thời gian thảo luận về việc thực hiện nghị quyết 43 về chương trình phục hồi và phát triển kinh tế sau đại dịch COVID-19.
+- Xây đập tạm chia nước Vu Gia - Thu Bồn, người dân địa phương tỉnh Quảng Nam còn lo lắng công trình gây xói lở, trong khi Đà Nẵng xâm nhập mặn liên tục, ảnh hưởng nguồn nước thô.
+- Sở Văn hóa - Thể thao tỉnh Quảng Bình gửi nhầm tác phẩm đoạt giải nhất sáng tác logo biểu trưng của tỉnh cho các cơ quan truyền thông. Sau đó, sở này đã phải gửi lại. Tuy nhiên, cộng đồng mạng vẫn "lắc đầu" về chất lượng.
+- Dùng bảng hiệu, dù che, đồ dùng trong quán in “logo lạ”, khi được hỏi, các chủ kinh doanh đều ngớ người không biết mình đang quảng cáo cho web cờ bạc.
+- Hiệu trưởng Trường THPT Tháp Chàm được xác định đã chỉ đạo lạm thu rất nhiều khoản, có dấu hiệu trục lợi với tổng số tiền hơn 800 triệu đồng.
+- Thủ tướng nhiều lần nhắc tới 6 bài học thu được từ các tham luận, phát biểu, chia sẻ của các chuyên gia, đại biểu, đại diện doanh nghiệp, nhà nghiên cứu về tăng năng suất lao động.
+- Ông T.T.L. đến ngân hàng rút tiền với thái độ vô cùng lo lắng, liên tục nghe điện thoại từ người lạ. Giao dịch viên phát hiện có sự bất thường nên đề nghị cụ ông tạm dừng giao dịch, đồng thời gọi điện trình báo công an.
 ![New](News.png)
 ## Nhịp sống số 
+- Đó là khẳng định của bà Loredana Crisan, phó chủ tịch phụ trách Messenger toàn cầu của Hãng Meta, trong cuộc phỏng vấn độc quyền với báo Tuổi Trẻ. Bà khẳng định Việt Nam là một trong những thị trường lớn nhất - nơi hãng không ngừng đầu tư.
 - Đừng để mình 'lấm lem' trên mạng chỉ vì một phút ham vui theo trào lưu hoặc mắc vạ miệng chỉ vì những bức xúc cá nhân.
 - Ngày 22-5, Cục An toàn thông tin (Bộ Thông tin và Truyền thông) phối hợp với báo VietNamNet tổ chức tọa đàm "Tiêu chuẩn an toàn thông tin mạng cơ bản cho camera giám sát".
 - Nhiều người thường ngại ngùng khi bắt chuyện lại với người bạn đã lâu không liên lạc. Các nhà khoa học đã có cách giúp họ.
@@ -94,5 +95,4 @@
 - Sự phát triển của nhiều hình thức kinh doanh mới, nhu cầu làm việc từ xa tăng mạnh v.v. khiến doanh nghiệp phải tìm giải pháp mở rộng đường truyền.
 - OpenAI giới thiệu công cụ có thể nhại giọng con người chỉ với một mẫu âm thanh 15 giây, nhưng chưa tung ra công cụ này do các lo ngại về an ninh.
 - Vinh danh những cá nhân, tập thể đóng góp lớn cho hoạt động sản xuất kinh doanh năm 2023, Tập đoàn Công nghiệp - Viễn thông Quân đội (Viettel) cũng hé lộ những đột phá lớn sau năm năm tuyên bố trở thành tập đoàn công nghệ.
-- Ngoài việc đánh cắp thông tin cá nhân, tin tặc có thể lợi dụng lỗ hổng để chèn một 'lớp' mới vào giữa người dùng và nguồn ảnh thông thường của thiết bị.
 ![life](Life.png)
