@@ -1,6 +1,23 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Những buổi lễ tốt nghiệp đánh dấu các cột mốc quan trọng trong đời mỗi người. Khi rời mỗi cấp học, đi kèm với niềm hân hoan vui sướng của người đi học là nỗi lo của phụ huynh ở nhà, vì cái gì cũng quy thành tiền.
+- Chuyện bi hài này xảy ra tại một trường tiểu học ở TP.HCM khi phụ huynh "cự nự" vì môn nghệ thuật (âm nhạc) của con anh bị xếp loại H (Hoàn thành).
+- Điểm trường cho học sinh và cây cầu treo dân sinh được tài trợ xây mới ở tỉnh Quảng Nam, nhưng phía Kon Tum lập biên bản buộc tạm dừng thi công do chồng lấn địa giới hành chính.
+- 'Cảm giác được dắt tay con lên nhận thưởng trên sân khấu ở trường con học là một cảm giác rất ấm áp, lâng lâng khó tả'.
+- Một số ngành hot chỉ tuyển 5-15% chỉ tiêu cho phương thức điểm thi tốt nghiệp THPT.
+- Sở GD-ĐT Hải Dương có báo cáo gửi bộ về việc một học sinh lớp 1 phải 'ngồi nhìn lớp ăn liên hoan' vì phụ huynh không đóng quỹ lớp.
+- Nhiều giáo viên và phụ huynh chia sẻ rằng họ sợ nhất là 'phụ huynh cá biệt' đưa ra ý kiến phản đối số đông, bởi rất khó để xử lý hài hòa.
+- Trước khi gục trên bục phát biểu kỷ niệm thành lập trường, thầy giáo nguyên hiệu trưởng ở tỉnh Nghệ An có những chia sẻ khiến nhiều thế hệ học trò rưng rưng nước mắt.
+- Theo thống kê, kỳ thi tốt nghiệp THPT 2024 sắp tới Trường quốc tế Á Châu (Asian School) có 97,26% học sinh đạt chứng chỉ tiếng Anh quốc tế, được miễn thi.
+- Liên quan thông tin một học sinh lớp 1 phải 'ngồi nhìn lớp ăn liên hoan' vì mẹ không đóng quỹ, hiệu trưởng nhà trường đã chia sẻ về vụ việc.
+- Những buổi lễ ra trường dành cho học sinh cuối cấp có nhiều ý nghĩa mang tính giáo dục, để lại những kỷ niệm đẹp cho các em.
+- Các giáo viên âm nhạc nói gì về chữ H trong phiếu liên lạc của học sinh?
+- Chiều 27-5, Sở Giáo dục và Đào tạo TP.HCM trao quyết định bổ nhiệm hiệu trưởng Trường THPT chuyên Trần Đại Nghĩa và Trường THCS - THPT Trần Đại Nghĩa.
+- Thêm một trưởng khoa của trường đại học lớn ở TP.HCM bị tố làm giám đốc nhiều doanh nghiệp ngoài trường, đang thu hút sự quan tâm của dư luận với nhiều ý kiến trái chiều.
+- Năm 2024, học phí Đại học Bách khoa Hà Nội khoảng 24-87 triệu đồng/năm, nhiều ngành học phí tăng nhẹ từ 1 triệu đồng/năm so với năm ngoái.
+- Giản dị, hiền từ và ít nói nhưng khi được hỏi về những học sinh của mình, về giải nhì tại cuộc thi khoa học kỹ thuật quốc tế vừa qua, thầy Đỗ Quốc Anh Triết hào hứng, sôi nổi hẳn lên.
+- Nhiều doanh nghiệp "than trời" với thái độ làm việc của nhiều thực tập sinh gen Z từ các trường đại học hiện nay.
 - Nguyễn Bảo Phúc hàng tháng đi từ nhà ở TP Hải Dương lên Hà Nội, còn Nguyễn Bình hàng tuần từ Bình Dương lên TP.HCM để tìm ‘Tây’ bắt chuyện rèn tiếng Anh.
 - Từ các bài thơ trên trang mạng xã hội, Hồ Dương Mộng Tuyền trở thành tác giả của những trang sách nhẹ nhàng, gần gũi, hút độc giả trẻ.
 - Sinh viên Đại học Quốc gia TP.HCM cho biết tình trạng chen lấn khi lên xuống xe buýt diễn ra thường xuyên; tình trạng bị trộm cắp, quấy rối vẫn còn.
@@ -14,57 +31,41 @@
 - Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) vừa chính thức đi vào hoạt động phòng hỗ trợ chăm sóc sức khỏe tinh thần phục vụ miễn phí cho sinh viên.
 - Việc các trường đại học bắt tay hợp tác với các trường cấp THPT được đánh giá là các phát kiến hợp tác “đa lợi ích”.
 - Đại học Quốc gia TP.HCM sẽ đăng cai tổ chức trại hè sinh viên mạng lưới các đại học Đông Nam Á  năm 2024 (AUN - VUNHCM Summer Program 2024) vào tháng 7-2024.
-- Nhiều thí sinh cho biết cảm thấy hứng thú vì 'gặp' Đen Vâu trong đề thi văn tuyển sinh lớp 10 Trường phổ thông Năng khiếu.
-- Trường Quốc tế Nam Sài Gòn (SSIS) đầu tư 30 triệu USD, xây dựng trường THCS và trung tâm thiết kế STEAM nhằm nâng cao chất lượng đào tạo khoa học công nghệ.
-- Chỉ vì 1 chữ H do giáo viên môn âm nhạc đánh giá, một phụ huynh bức xúc lên tiếng. Làm sao mới công bằng?
-- Tính đến ngày 25-5, đã có hơn 20 trường đại học công bố điểm chuẩn xét tuyển sớm bằng học bạ.
-- Thay vì dành thời gian và công sức luyện thi các chứng chỉ tiếng Anh phổ biến như IELTS, TOEIC để xét tuyển đầu vào và xét tốt nghiệp ĐH, nhiều bạn trẻ chuyển sang dùng "hàng nội địa" VSTEP.
-- Chuyện sinh viên học đại học (ĐH) bị "đứt gánh giữa đường" như phản ánh của báo Tuổi Trẻ có lẽ không mới trong đào tạo ĐH. Đây là điều bình thường. Vì sao?
-- Sáng nay 25-5, gần 4.000 học sinh lớp 9 bước vào kỳ thi tuyển sinh lớp 10 đầu tiên ở TP.HCM tại 3 điểm thi.
-- Bảng điểm khá đẹp nhưng chỉ vì có một chữ H mà học sinh không được khen thưởng danh hiệu xuất sắc.
-- Đại diện Trường đại học quốc tế Hồng Bàng cho biết chưa nghe thông tin gì về việc tập đoàn rao bán trường.
-- Vận dụng bộ môn tự động hóa và AI, các bạn sinh viên năm nhất của Viện Công nghệ thông minh và tương tác (Đại học Kinh tế TP.HCM) đã tạo ra máy bán nước tự động theo cảm xúc người mua, máy bán mì tự động, máy bán trà trái cây tự động…
-- Phòng Giáo dục và Đào tạo huyện Lục Nam chỉ đạo hiệu trưởng, giáo viên có liên quan kiểm điểm trách nhiệm trong vụ học sinh xô xát tại Trường THCS Bắc Lũng. Công an xã cũng vào cuộc, thu thập hồ sơ, trước khi xử lý theo quy định.
-- Ngày 24-5, bà Trần Tường Vân, phó chủ tịch UBND quận Thanh Khê, Đà Nẵng, thông tin trên địa bàn quận vừa xảy ra vụ việc bé trai 7 tháng tuổi tử vong tại hộ gia đình giữ trẻ tự phát.
-- Lộ trình học bao gồm 3,5 năm cao đẳng tại Việt Nam và 2 năm đại học tại Đài Loan.
-- Trong khi hầu hết các trường đại học trên cả nước hiện đã công bố đề án tuyển sinh đại học chính quy 2024, nhưng đến nay Trường đại học Y khoa Phạm Ngọc Thạch (TP.HCM) vẫn chưa công bố thông tin này.
-- Sở Giáo dục và Đào tạo TP.HCM vừa hướng dẫn 8 bước đăng ký trực tuyến tuyển sinh đầu cấp năm học 2024-2025. Công tác tuyển sinh bắt đầu từ ngày 25-5.
-- Hào hứng trong màn nhảy flashmob, rồi ôm nhau nước mắt nghẹn ngào vì còn ngày mai nữa đã chia xa. Đó là khoảnh khắc xúc động của học sinh Trường THPT chuyên Lê Hồng Phong sáng 24-5.
-- Trường đại học Công Thương TP.HCM vừa phát cảnh báo trong toàn trường sau khi phát hiện nhiều trường hợp sinh viên học hộ, thi hộ.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Cụ thể: Bình Dương thì phòng trọ, nhà ở xã hội liền kề khu công nghiệp luôn có lối thoát hiểm; TP.HCM, nhiều khu nhà trọ 'một cửa'; Cần Thơ, hầu hết nhà trọ đều thấp tầng.
-- Dịch vụ thuê trọ chủ yếu vẫn do người thuê tự thỏa thuận với chủ nhà mà không qua trung gian.
-- Trong một thập kỷ, hơn 800 lượt cán bộ, sĩ quan 'mũ nồi xanh' của Việt Nam đã đặt chân đến những vùng đất xa xôi, thực thi sứ mệnh gìn giữ hòa bình Liên Hiệp Quốc.
-- Hôm nay 27-5, thời tiết cả nước phổ biến nắng đến nắng nóng, chiều tối nhiều nơi mưa dông, có nơi mưa to.
-- Theo Công an TP.HCM, trong các năm 2022, 2023 và quý 1-2024, các loại tội phạm xâm phạm sở hữu (cướp, cướp giật) trên địa bàn TP liên tiếp giảm.
-- Một số tin tức đáng chú ý: Thêm hãng bay lên lịch bay Côn Đảo; Tour miễn phí tặng các bé bị ảnh hưởng COVID-19; Gia hạn thời gian thanh tra đất đai tại Hà Nội đến hết tháng 7-2024...
-- Hành động cứu người của 4 công dân thể hiện nghĩa cử cao đẹp, truyền thống nhân ái của dân tộc, như thư khen của Thủ tướng.
-- Các hộ kinh doanh đặt bảng hiệu có ‘logo lạ’ bỗng ngơ ngác khi biết mình đang quảng cáo cho web cờ bạc trực tuyến.
-- Ngày 26-5, Công an huyện Bảo Lâm, tỉnh Lâm Đồng, đã khởi tố, tạm giam 4 thanh niên tổ chức chặn cướp tài sản của du khách đi 'săn mây'
-- Ủy ban MTTQ phường Trung Hoà (Cầu Giấy, Hà Nội) vừa ban hành kế hoạch việc tiếp nhận hỗ trợ các nạn nhân trong vụ cháy nhà trọ làm 14 người chết.
-- Một nguyên hiệu trưởng ở Nghệ An đổ gục khi được mời lên phát biểu nhân dịp gặp mặt kỷ niệm 45 năm thành lập trường.
-- Bộ trưởng Bộ Lao động - Thương binh và Xã hội đề xuất giải pháp hỗ trợ hơn 200.000 người bị nợ bảo hiểm xã hội do doanh nghiệp phá sản, giải thể…
-- 2 tàu cá vận chuyển khoảng 30.000 lít dầu DO không rõ nguồn gốc trên vùng biển Tây Nam vừa bị phát hiện.
-- Từ vụ án đánh bạc tại câu lạc bộ poker Joker Club, Cơ quan điều tra Công an tỉnh Khánh Hòa đã khui ra thêm các sòng bạc do người nước ngoài điều hành.
-- Nam thanh niên chạy xe máy chở hai bà cháu chạy vào làn ô tô trên quốc lộ 51 thì xảy ra va chạm với xe đầu kéo, khiến hai bà cháu chết tại chỗ.
-- Đài khí tượng thủy văn khu vực Nam Bộ có bản tin cảnh báo mưa dông cục bộ ở một số địa phương trong đó có TP.HCM.
-- Một khu đất ven đầm lầy ở phường Tân Tạo (quận Bình Tân, TP.HCM) ngập rác thải y tế, cùng hàng ngàn chai lọ thủy tinh. Trong đó, có chai còn chữ 'ăn mòn', bên trong chứa chất lỏng.
-- Giá hoa cúc Đà Lạt vẫn tiếp tục giữ ở mức cao, gấp 10 lần giá hoa hồng, dù đại lễ Phật đản đã qua.
-- Mong muốn cải thiện cằm đôi nhiều mỡ, nhiều phụ nữ gặp biến chứng khi tiêm tan mỡ, chất làm đầy không rõ loại tại nhà hay cơ sở y tế không phép.
-- Ba nạn nhân trong vụ cháy nhà trọ Trung Kính chưa thể xác định danh tính đã được gia đình đưa về quê nhà mai táng sau khi có kết quả xét nghiệm ADN.
-- Áp thấp nhiệt đới ở khu vực miền Trung của Philippines đã mạnh lên thành bão Ewiniar.
-- Ngày 26-5, một người phụ nữ đang trú tại Bình Dương nghi lấy xăng tự thiêu ngay ngày phải chuyển phòng trọ.
-- Đại diện công đoàn có 38.500 lao động đề nghị Chính phủ xây dựng lộ trình giảm giờ làm việc từ 48 giờ/tuần xuống còn 44 và 40 giờ/tuần.
-- Ngày 25-5, Quốc hội thảo luận ở hội trường, đã dành phần lớn thời gian thảo luận về việc thực hiện nghị quyết 43 về chương trình phục hồi và phát triển kinh tế sau đại dịch COVID-19.
-- Xây đập tạm chia nước Vu Gia - Thu Bồn, người dân địa phương tỉnh Quảng Nam còn lo lắng công trình gây xói lở, trong khi Đà Nẵng xâm nhập mặn liên tục, ảnh hưởng nguồn nước thô.
-- Sở Văn hóa - Thể thao tỉnh Quảng Bình gửi nhầm tác phẩm đoạt giải nhất sáng tác logo biểu trưng của tỉnh cho các cơ quan truyền thông. Sau đó, sở này đã phải gửi lại. Tuy nhiên, cộng đồng mạng vẫn "lắc đầu" về chất lượng.
-- Dùng bảng hiệu, dù che, đồ dùng trong quán in “logo lạ”, khi được hỏi, các chủ kinh doanh đều ngớ người không biết mình đang quảng cáo cho web cờ bạc.
-- Hiệu trưởng Trường THPT Tháp Chàm được xác định đã chỉ đạo lạm thu rất nhiều khoản, có dấu hiệu trục lợi với tổng số tiền hơn 800 triệu đồng.
-- Thủ tướng nhiều lần nhắc tới 6 bài học thu được từ các tham luận, phát biểu, chia sẻ của các chuyên gia, đại biểu, đại diện doanh nghiệp, nhà nghiên cứu về tăng năng suất lao động.
-- Ông T.T.L. đến ngân hàng rút tiền với thái độ vô cùng lo lắng, liên tục nghe điện thoại từ người lạ. Giao dịch viên phát hiện có sự bất thường nên đề nghị cụ ông tạm dừng giao dịch, đồng thời gọi điện trình báo công an.
+- Ngày 26-6 tới đây Quốc hội sẽ biểu quyết thông qua Luật Trật tự, an toàn giao thông đường bộ trong đó quy định cảnh sát giao thông được truy đuổi người vi phạm.
+- Công an TP Đà Nẵng vừa có văn bản đề nghị UBND TP Đà Nẵng cung cấp tài liệu phục vụ điều tra việc quản lý, sử dụng bảy lô "đất vàng" tại Công ty cổ phần Lương thực Đà Nẵng.
+- Ngay từ sáng 28-5, mây đã phát triển mạnh gây mưa dông cho nhiều địa phương ở Đông Nam Bộ, mây tiếp tục được đẩy từ biển vào, dự báo hôm nay nhiều nơi mưa từ sớm.
+- Tin tức đáng chú ý: Sân bay Long Thành sắp cần 14.000 lao động cho giai đoạn 1; TP.HCM cứu sống bệnh nhi cúm A/H1 nguy kịch; Giá mua điện khí tối đa gần 2.600 đồng/kWh...
+- Hôm nay thời tiết Bắc Bộ đến Trung Bộ ban ngày nắng nóng, có nơi gay gắt. Nam Bộ ngày nắng, chiều tối mưa rào.
+- Khoảng 21h30, xảy ra vụ cháy xưởng gỗ đường Tôn Đức Thắng, phường 1, TP Cao Lãnh, tỉnh Đồng Tháp. Lực lượng chức năng đang tích cực chữa cháy.
+- Ban Bí thư chỉ thị có cơ chế, chính sách ưu đãi thực chất, đủ hấp dẫn để thu hút, khuyến khích các thành phần kinh tế trong nước và nước ngoài tham gia đầu tư, phát triển nhà ở xã hội.
+- Cầu Kênh 9 bắc qua kênh xáng Chưng Bầu (xã Thạnh Đông, huyện Tân Hiệp, tỉnh Kiên Giang) bị lún nhịp, địa phương đang khắc phục sự cố, tháo dỡ dầm cầu và phân luồng tàu, ghe đi lại.
+- Toàn bộ diện tích đất rừng phòng hộ đã bị công trình câu lạc bộ golf Đồi Cù Đà Lạt sử dụng trái phép không đủ cơ sở chuyển đổi mục đích sử dụng.
+- Tối 27-5, bầu trời TP.HCM sấm chớp liên tục kèm theo tiếng rền khiến nhiều người dân bất ngờ.
+- Dù đã được người dân và cử tri phản ánh từ lâu, nhưng đến nay các logo quảng cáo web cờ bạc vẫn xuất hiện tràn lan trên các tuyến phố Đà Nẵng.
+- Cao tốc Biên Hòa - Vũng Tàu đoạn qua phường Phước Tân (TP Biên Hòa, tỉnh Đồng Nai) mới bàn giao được 12% mặt bằng, nguy cơ khó về đích trước ngày 30-6 theo cam kết với Thủ tướng Chính phủ.
+- Sản lượng vải thiều tại huyện Tân Yên, tỉnh Bắc Giang đạt tiêu chuẩn VietGAP, GlobalGAP dự kiến khoảng 5.550 tấn, sẵn sàng xuất khẩu đi Nhật Bản, Mỹ, EU.
+- Một cảnh sát giao thông (ở Khánh Hòa) bị xe máy tông bị thương nặng, sau đó tử vong.
+- Cùng sự hỗ trợ nhân lực và thiết bị từ Tập đoàn Đèo Cả, các đơn vị liên quan đặt mục tiêu hoàn thành khắc phục sạt lở hầm Chí Thạnh trong ngày 30-5 để giải phóng ách tắc đường sắt Bắc - Nam qua tỉnh Phú Yên.
+- Trưa 27-5, tại Công an huyện Cần Giờ, Công an TP.HCM tổ chức trao khen thưởng các tập thể phá nhanh vụ giết người giấu xác trong vali rồi phi tang trên núi Nhỏ (TP Vũng Tàu).
+- Chiều 27-5, Bộ trưởng Đào Ngọc Dung đã giải trình về vấn đề rút tiền bảo hiểm xã hội một lần đang được sự quan tâm lớn của đại biểu, người lao động.
+- Nhiều mỏ đất ở xã Duy Trung, huyện Duy Xuyên, tỉnh Quảng Nam được cấp phép cho doanh nghiệp khai thác đất san lấp.
+- Đài khí tượng thủy văn khu vực Nam Bộ dự báo từ chiều tới tối nay một số khu vực có mưa dông, đề phòng lốc sét, gió giật.
+- Một nữ du khách cùng người thân trong gia đình bị nhóm 4-5 đối tượng dàn cảnh giật đồ khi đến viếng lễ Vía Bà Chúa Xứ 2024.
+- Trước việc cầu Đakrông hư hỏng nghiêm trọng, Quảng Trị vừa đề nghị xây dựng mới cầu bê tông cốt thép để đáp ứng nhu cầu nhập khẩu than từ Lào, ước tính lên đến 30 triệu tấn/năm.
+- Trước khi gục trên bục phát biểu kỷ niệm thành lập trường, thầy giáo nguyên hiệu trưởng ở tỉnh Nghệ An có những chia sẻ khiến nhiều thế hệ học trò rưng rưng nước mắt.
+- Dù thiếu hụt tàu bay, Vietjet vẫn tăng thêm 1,4 triệu vé phục vụ cao điểm hè. Hãng tập trung bay đêm từ TP.HCM, Hà Nội, Đà Nẵng, Nha Trang đến các tỉnh.
+- Về đề xuất xây đảo nổi trên sông Sài Gòn đoạn qua khu vực trung tâm TP.HCM, các chuyên gia cho rằng chúng ta không thể ngăn cản và phá vỡ quy luật tự nhiên của dòng sông.
+- Đường chuyên dụng cặp cửa khẩu Hữu Nghị - Hữu Nghị Quan nhằm đáp ứng nhu cầu giao thương ngày càng cao giữa Việt Nam và Trung Quốc.
+- UBND TP.HCM vừa có quyết định nghỉ hưu với ông Đặng Minh Đạt - chánh Thanh tra TP.HCM, và tiếp nhận, bổ nhiệm ông Quách Ngọc Tuấn giữ chức phó giám đốc Sở Kế hoạch và Đầu tư TP.
+- Đại biểu Quốc hội đề nghị sửa điều kiện hưởng trợ cấp hưu trí xã hội theo hướng hạ điều kiện về độ tuổi bằng hoặc thấp hơn độ tuổi trung bình Việt Nam hiện nay.
+- Chiếc xe đầu kéo đỗ nhiều giờ bên quốc lộ 1, người dân nghi ngờ bất thường nên trình báo cơ quan chức năng đến kiểm tra thì phát hiện tài xế đã tử vong trong cabin.
+- Sở Giao thông vận tải TP.HCM vừa gửi UBND TP.HCM kế hoạch vận chuyển hành khách trên tuyến metro số 1 (Bến Thành - Suối Tiên).
+- Lực lượng chức năng phát hiện một thi thể ở vùng rừng giáp biên giới Việt - Lào. Thi thể này nghi là người chồng từng là nghi phạm giết vợ 'hờ' của mình rồi bỏ trốn cách đây hơn 20 ngày trước.
 ![New](News.png)
 ## Nhịp sống số 
+- Số người thừa nhận lạm dụng tình dục trực tuyến trẻ em ở Anh cho thấy mức độ đáng báo động của vấn nạn này.
 - Đó là khẳng định của bà Loredana Crisan, phó chủ tịch phụ trách Messenger toàn cầu của Hãng Meta, trong cuộc phỏng vấn độc quyền với báo Tuổi Trẻ. Bà khẳng định Việt Nam là một trong những thị trường lớn nhất - nơi hãng không ngừng đầu tư.
 - Đừng để mình 'lấm lem' trên mạng chỉ vì một phút ham vui theo trào lưu hoặc mắc vạ miệng chỉ vì những bức xúc cá nhân.
 - Ngày 22-5, Cục An toàn thông tin (Bộ Thông tin và Truyền thông) phối hợp với báo VietNamNet tổ chức tọa đàm "Tiêu chuẩn an toàn thông tin mạng cơ bản cho camera giám sát".
@@ -94,5 +95,4 @@
 - Hầu hết trình duyệt web hiện nay cho phép người dùng sử dụng chế độ ẩn danh như một cách để bảo vệ quyền riêng tư.
 - Sự phát triển của nhiều hình thức kinh doanh mới, nhu cầu làm việc từ xa tăng mạnh v.v. khiến doanh nghiệp phải tìm giải pháp mở rộng đường truyền.
 - OpenAI giới thiệu công cụ có thể nhại giọng con người chỉ với một mẫu âm thanh 15 giây, nhưng chưa tung ra công cụ này do các lo ngại về an ninh.
-- Vinh danh những cá nhân, tập thể đóng góp lớn cho hoạt động sản xuất kinh doanh năm 2023, Tập đoàn Công nghiệp - Viễn thông Quân đội (Viettel) cũng hé lộ những đột phá lớn sau năm năm tuyên bố trở thành tập đoàn công nghệ.
 ![life](Life.png)
