@@ -1,7 +1,21 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
-- Thông tin PGS.TS Đào Nguyên Khôi - Công dân trẻ tiêu biểu TP.HCM, một nhà khoa học trẻ tài năng - qua đời ở tuổi 38 khiến hàng ngàn sinh viên, đồng nghiệp tiếc thương.
+- Cháu bé bị bỏ quên trên xe đưa đón cả chục giờ đồng hồ dưới cái nóng gần 40 độ, và người phát hiện ra vẫn không phải lái xe, cô giáo...
+- Ngay tối 29-5, Công an TP Thái Bình (tỉnh Thái Bình) đã ra quyết định khởi tố vụ án liên quan vụ cháu bé 5 tuổi chết trong ô tô đưa đón học sinh của Trường mầm non Hồng Nhung.
+- Tối 29-5, ông Nguyễn Khắc Thận - chủ tịch UBND tỉnh Thái Bình - chủ trì cuộc họp khẩn, chỉ đạo điều tra vụ trẻ mầm non chết trong xe ô tô đưa đón do bị bỏ quên.
+- Đến 20h30 ngày 29-5, cơ quan chức năng của Thái Bình vẫn đang khoanh vùng hiện trường chiếc xe đưa đón trẻ thuộc Trường mầm non Hồng Nhung cơ sở 2 ở TP Thái Bình có trẻ tử vong, nghi do bị bỏ quên trên xe.
+- Trường đại học Y khoa Phạm Ngọc Thạch vừa công bố đề án tuyển sinh đại học chính quy năm 2024, và mức học phí dự kiến với sinh viên đại học chính quy năm học tới.
+- Theo phản ánh, học sinh chỉ được ký nhận tiền thưởng danh hiệu học sinh giỏi, nhưng thực chất các em không được nhận số tiền này, giáo viên chủ nhiệm thông báo nhà trường dùng cho mục đích khác.
+- UBND huyện Minh Hóa đã thành lập đoàn thanh tra đột xuất Trường mầm non số 1 thị trấn Quy Đạt, để làm rõ những vấn đề khuất tất liên quan đến phản ứng của hội phụ huynh về việc xã hội hóa mua tủ đồ cho học sinh.
+- Gia đình thường trú ở quận 3, TP.HCM nhưng trang web tuyển sinh lại 'đẩy về' quận 10, phải làm sao để con vào lớp 6 ở quận 3?
+- Sinh viên Trường đại học Tài chính - Marketing lo có thể bị trễ tiến độ tốt nghiệp do nhà trường thay đổi chuẩn đầu ra ngoại ngữ.
+- Trong lễ tổng kết, hội trưởng hội phụ huynh trường lên giãi bày về những bất thường trong việc nhà trường xã hội hóa mua tủ bỏ đồ cho các lớp thì bị hiệu trưởng lên chỉ mặt ngăn cản.
+- Sinh viên cho rằng vì trường vào sót điểm, thông báo xác nhận bằng tốt nghiệp THPT nước ngoài trễ nên sinh viên không kịp hoàn tất thủ tục tốt nghiệp.
+- Học sinh muốn xét tuyển vào lớp 6 Trường THCS Nguyễn Văn Tố phải có tối thiểu 4 năm học hoàn thành xuất sắc các nội dung học tập và rèn luyện...
+- 27-5 là một ngày khác hẳn những ngày bình thường của chị Nguyễn Thị Anh Dũng - phụ huynh bé Q., học sinh lớp 5 Trường tiểu học Trần Hưng Đạo (quận 1, TP.HCM).
+- Đó là khẳng định của Vụ trưởng Vụ Giáo dục tiểu học (Bộ GD-ĐT) Thái Văn Tài sau những ồn ào về phản ánh của phụ huynh khi con không được học sinh xuất sắc vì có chữ "H" (hoàn thành).
+- Thông tin PGS.TS Đào Nguyên Khôi - Công dân trẻ tiêu biểu TP.HCM, một nhà khoa học trẻ tài năng - qua đời ở tuổi 39 khiến hàng ngàn sinh viên, đồng nghiệp tiếc thương.
 - Trường THCS Trọng Điểm, TP Hạ Long, tỉnh Quảng Ninh dự kiến tự chủ 100% từ năm học tới và dự thu học phí 960.000 đồng/tháng.
 - Học đại học luật với mức học phí trên dưới 200 triệu đồng mỗi năm, sinh viên được học gì, ra trường làm gì?
 - Nhiều ý kiến trái chiều quanh chuyện trưởng khoa một trường đại học lớn bị tố làm giám đốc nhiều doanh nghiệp ngoài trường.
@@ -17,82 +31,38 @@
 - 'Cảm giác được dắt tay con lên nhận thưởng trên sân khấu ở trường con học là một cảm giác rất ấm áp, lâng lâng khó tả'.
 - Một số ngành hot chỉ tuyển 5-15% chỉ tiêu cho phương thức điểm thi tốt nghiệp THPT.
 - Sở GD-ĐT Hải Dương có báo cáo gửi bộ về việc một học sinh lớp 1 phải 'ngồi nhìn lớp ăn liên hoan' vì phụ huynh không đóng quỹ lớp.
-- Nhiều giáo viên và phụ huynh chia sẻ rằng họ sợ nhất là 'phụ huynh cá biệt' đưa ra ý kiến phản đối số đông, bởi rất khó để xử lý hài hòa.
-- Trước khi gục trên bục phát biểu kỷ niệm thành lập trường, thầy giáo nguyên hiệu trưởng ở tỉnh Nghệ An có những chia sẻ khiến nhiều thế hệ học trò rưng rưng nước mắt.
-- Theo thống kê, kỳ thi tốt nghiệp THPT 2024 sắp tới Trường quốc tế Á Châu (Asian School) có 97,26% học sinh đạt chứng chỉ tiếng Anh quốc tế, được miễn thi.
-- Liên quan thông tin một học sinh lớp 1 phải 'ngồi nhìn lớp ăn liên hoan' vì mẹ không đóng quỹ, hiệu trưởng nhà trường đã chia sẻ về vụ việc.
-- Những buổi lễ ra trường dành cho học sinh cuối cấp có nhiều ý nghĩa mang tính giáo dục, để lại những kỷ niệm đẹp cho các em.
-- Các giáo viên âm nhạc nói gì về chữ H trong phiếu liên lạc của học sinh?
-- Chiều 27-5, Sở Giáo dục và Đào tạo TP.HCM trao quyết định bổ nhiệm hiệu trưởng Trường THPT chuyên Trần Đại Nghĩa và Trường THCS - THPT Trần Đại Nghĩa.
-- Thêm một trưởng khoa của trường đại học lớn ở TP.HCM bị tố làm giám đốc nhiều doanh nghiệp ngoài trường, đang thu hút sự quan tâm của dư luận với nhiều ý kiến trái chiều.
-- Năm 2024, học phí Đại học Bách khoa Hà Nội khoảng 24-87 triệu đồng/năm, nhiều ngành học phí tăng nhẹ từ 1 triệu đồng/năm so với năm ngoái.
-- Giản dị, hiền từ và ít nói nhưng khi được hỏi về những học sinh của mình, về giải nhì tại cuộc thi khoa học kỹ thuật quốc tế vừa qua, thầy Đỗ Quốc Anh Triết hào hứng, sôi nổi hẳn lên.
-- Nhiều doanh nghiệp "than trời" với thái độ làm việc của nhiều thực tập sinh gen Z từ các trường đại học hiện nay.
-- Nguyễn Bảo Phúc hàng tháng đi từ nhà ở TP Hải Dương lên Hà Nội, còn Nguyễn Bình hàng tuần từ Bình Dương lên TP.HCM để tìm ‘Tây’ bắt chuyện rèn tiếng Anh.
-- Từ các bài thơ trên trang mạng xã hội, Hồ Dương Mộng Tuyền trở thành tác giả của những trang sách nhẹ nhàng, gần gũi, hút độc giả trẻ.
-- Sinh viên Đại học Quốc gia TP.HCM cho biết tình trạng chen lấn khi lên xuống xe buýt diễn ra thường xuyên; tình trạng bị trộm cắp, quấy rối vẫn còn.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Được báo tin nhận chiếc chân giả mới miễn phí, ông Hữu suốt đêm không ngủ, háo hức chờ đến sáng để nhận "món quà" quý. Còn bà Am thì mãi không thấy cuộc gọi đến nên cứ lo lắng đoàn bỏ quên mình hay sao.
-- Tình trạng các bảng hiệu có logo quảng cáo web cờ bạc trực tuyến tràn lan trên đường phố ở Đà Nẵng giảm hẳn sau khi các tổ trưởng tổ dân phố nhắn tin đến người dân.
-- Cô gái vào nhà hàng của một khách sạn 5 sao ở Hà Nội rồi gọi các món cao cấp như: bò Wagyu A5, tôm hùm nguyên con... Tuy nhiên, quản lý nhà hàng tố cô này sau đó không trả tiền.
-- Ba ngày cuối tháng 5 này, Nam Bộ và TP.HCM có mưa tăng, nhiều nơi mưa to, sang đầu tháng 6 mưa giảm nhưng vẫn duy trì và xuất hiện vào chiều tối.
-- Một số tin tức đáng chú ý: Đề xuất giảm 36 khoản phí, lệ phí; TP.HCM cấm xe một phần đường Lê Lợi; Trẻ em được bổ sung vitamin A từ ngày 1-6...
-- Hôm nay rãnh áp thấp kết hợp gió mùa tiếp tục gây thời tiết xấu cho Nam Bộ, Tây Nguyên. Bắc Bộ và Trung Bộ ngày nắng, chiều tối mưa.
-- Trong phiên làm việc ngày 28-5, kỳ họp thứ 12, HĐND tỉnh Tây Ninh đã miễn nhiệm, bầu bổ sung các chức danh thuộc thẩm quyền HĐND tỉnh.
-- Trường THCS Trọng Điểm, TP Hạ Long, tỉnh Quảng Ninh dự kiến tự chủ 100% từ năm học tới và dự thu học phí 960.000 đồng/tháng.
-- Người công nhân môi trường cảm thấy vui mừng vì nhận quà của công đoàn nhưng nói sẽ vui hơn nếu người dân bớt xả rác bừa bãi.
-- Quy định về bảo tồn nội đô tại 5 quận nội thành Hà Nội đang đặt ra những băn khoăn cho các đại biểu Quốc hội.
-- Sau giờ ăn trưa, hơn 70 công nhân nhà máy may mặc ở huyện Yên Thành, Nghệ An xuất hiện triệu chứng đau bụng, nôn mửa, nghi ngộ độc thực phẩm.
-- Kết quả khảo sát cho thấy chỉ 0,4% doanh nghiệp dịch vụ logistics của Việt Nam chuyển đổi số đạt đến cấp độ cao nhất (cấp độ 6) có khả năng thích ứng.
-- iệt Nam sẽ đi từ hub nhân lực bán rất toàn cầu đến công việc bán dẫn, sẽ là số một trong sự chuyển dịch chuỗi cung ứng bán dẫn toàn cầu.
-- Từ phản ánh của Tuổi Trẻ Online, quyền chủ tịch UBND tỉnh Đồng Nai chỉ đạo xử lý nghiêm vụ 112 hồ sơ ở dự án cao tốc Biên Hòa - Vũng Tàu có dấu hiệu chỉnh sửa.
-- Dự báo hai ngày cuối tháng 5, Bắc Bộ có mưa dông, cục bộ có mưa to. Còn Nam Bộ mưa rào và dông rải rác, cục bộ có mưa to vào chiều tối nhiều ngày tới.
-- Đến nay, TP.HCM chỉ phát triển được 30ha công viên công cộng. TP cần thực hiện thêm 55 dự án với 4.480 tỉ đồng.
-- Nhiều hộ dân lo lắng vì nhà máy cung cấp nước cho họ đang là tài sản đảm bảo của một khoản nợ mà ngân hàng đã có đơn yêu cầu thi hành án.
-- Theo UBND TP.HCM, việc điều chỉnh thời gian hoàn thành thi công metro số 1 không làm phát sinh chi phí, không ảnh hưởng đến các hiệp định vay...
-- Khi tổ công tác ra tín hiệu dừng phương tiện để kiểm tra nồng độ cồn, Hai không chấp hành, tiếp tục điều khiển xe đâm thẳng vào tổ công tác.
-- Dự kiến 10 ngày mới khắc phục xong vị trí hư hỏng dầm cầu Mang Thít trên tuyến quốc lộ 53, đoạn qua tỉnh Vĩnh Long, do bị sà lan va trúng.
-- Vụ cháy khiến một trẻ bị thương nặng, một trẻ chết tại bệnh viện. Cả hai nạn nhân đều là con của chủ quán cơm này.
-- Vụ sạt lở cát đỏ tại dự án Sentosa Mũi Né xảy ra lúc rạng sáng 21-5 chưa được khắc phục xong, thì đến rạng sáng 28-5 tiếp tục sạt lở.
-- Ngày 28-5, cơ quan chức năng huyện Krông Năng (Đắk Lắk) đã bàn giao thi thể hai anh em ngạt khí chết dưới giếng cho gia đình lo hậu sự.
-- UBND TP Thủ Đức tổ chức trao sổ hồng cho 17 hộ dân phường Long Bình (TP Thủ Đức) vướng vào dự án vành đai 3 nhưng chưa hoàn tất tái định cư từ năm 2017 đến nay.
-- Cơ quan chức năng đang tạm giữ hình sự Lưu Văn Mạnh sau khi ném đá vào hàng loạt xe ô tô lưu thông trên quốc lộ 80. Khi bị vây bắt thì Mạnh còn tấn công làm bị thương một công an.
-- Liên quan vụ phát hiện 112 hồ sơ dự án cao tốc Biên Hòa - Vũng Tàu có dấu hiệu chỉnh sửa để trục lợi, lãnh đạo UBND phường Phước Tân đã có thông tin thêm về vụ việc.
-- Sở Giao thông vận tải TP.HCM vừa có văn bản yêu cầu đẩy nhanh tiến độ triển khai danh mục đề xuất sử dụng tạm thời một phần lòng đường, vỉa hè ở TP Thủ Đức, quận 5, quận 8, quận Bình Tân...
-- Nội dung trên nằm trong quy định về phương pháp xác định chỉ tiêu dân số với nhà chung cư, nhà chung cư hỗn hợp và một số công trình có lưu trú khác tại Hà Nội vừa được UBND TP ban hành.
-- Chủ tịch UBND các cấp ở Hà Nội được áp dụng biện pháp yêu cầu cắt điện, nước đối với công trình vi phạm trong trường hợp thật sự cần thiết.
-- Ngày 28-5, các đại biểu HĐND TP Hải Phòng khóa XVI (nhiệm kỳ 2021-2026) đã thông qua đề án sắp xếp đơn vị hành chính cấp xã giai đoạn 2023-2025.
+- Cơ quan khí tượng dự báo rãnh áp thấp ở khu vực phía Bắc của Bắc Biển Đông có khả năng hình thành xoáy thuận nhiệt đới (áp thấp nhiệt đới) trong ngày và đêm nay (30-5).
+- Hôm qua (29-5), Quốc hội đã dành một ngày để thảo luận về tình hình kinh tế - xã hội, ngân sách nhà nước với rất nhiều vấn đề "nóng".
+- Cơ quan chức năng của TP Thanh Hóa đã và đang thực hiện các bước quy trình để tiến hành sáp nhập huyện Đông Sơn vào thành phố này trong thời gian tới.
+- Chủ đầu tư BOT Điện Thắng Trung (thị xã Điện Bàn, tỉnh Quảng Nam) liên tục kêu cứu địa phương, đề xuất cắm biển cấm tất cả các đường để hướng xe vào trạm thu phí. Lãnh đạo thị xã Điện Bàn cho rằng mọi đề xuất đều không hợp lý.
+- Công an quận Hà Đông cho hay có 9 người thoát nạn trong vụ cháy nhà trọ sáng 30-5. Trong đó người dân cứu được 2 người, lực lượng cảnh sát cứu được 3 người. 4 người tự thoát nạn qua lối thoát nạn sang nhà bên cạnh.
+- Liên quan đến vụ 112 hồ sơ bồi thường ở dự án cao tốc Biên Hòa - Vũng Tàu có dấu hiệu chỉnh sửa, Công an Đồng Nai đã vào cuộc thu thập hồ sơ điều tra vụ việc.
+- Đà Nẵng vừa đầu tư cải tạo hàng loạt vỉa hè các tuyến đường đông đúc du khách, tạo nên bộ mặt mới cho đô thị.
+- Một số tin tức đáng chú ý: Hà Nội kỳ vọng 80% người hưởng lương hưu, trợ cấp bảo hiểm xã hội không tiền mặt; Tour nội đô kèm xem chương trình nghệ thuật "'Chuyến tàu huyền thoại' hết chỗ sớm...
+- Hôm nay trong khi thời tiết miền Bắc, miền Nam mưa to đến rất to thì miền Trung lại nắng nóng, nhiệt độ có nơi lên đến 39 độ C.
+- Cử tri Đà Nẵng cho rằng chế độ hỗ trợ cho lực lượng bảo vệ dân phố, dân phòng khiêm tốn, trong khi công việc lại nguy hiểm nên người trẻ không mặn mà.
+- Cơ quan chức năng thông tin nguyên nhân vụ sập hàng rào cạnh công trình mương thoát nước làm cụ bà bị thương nặng ở Đồng Nai.
+- Sở Xây dựng tỉnh Lâm Đồng ra quyết định thu hồi giấy phép xây dựng tầng hầm tòa nhà câu lạc bộ golf trong Đồi Cù Đà Lạt.
+- Sở Tài nguyên và Môi trường TP.HCM đã nghiên cứu xây dựng đề án thí điểm thành lập trung tâm phát triển quỹ đất trực thuộc UBND quận, huyện và đã tham mưu UBND TP trình Thủ tướng cho ý kiến.
+- Từ ngày 27-5 đến 2-6, Hội Bảo trợ bệnh nhân nghèo tỉnh Kiên Giang phối hợp đoàn thiện nguyện Mercer On Mission (Hoa Kỳ) tổ chức khám chữa bệnh xương khớp, lắp đặt tay, chân giả miễn phí cho gần 1.000 bệnh nhân nghèo.
+- Hai Thủ tướng Việt Nam và Singapore nhất trí thúc đẩy các khu VSIP thế hệ mới trong tương lai, khẳng định đây là hải đăng trong hợp tác kinh tế song phương.
+- Chiều 29-5, tại cuộc họp họp tháo gỡ vướng mắc giải phóng mặt bằng cao tốc Quảng Ngãi - Hoài Nhơn, bí thư Tỉnh ủy Quảng Ngãi kịp thời xin ý kiến của Bộ trưởng Bộ GTVT để tháo gỡ vướng mắc cho địa phương.
+- Phó thủ tướng Trần Hồng Hà cho rằng Luật Đất đai năm 2024 được thông qua đã giải quyết nhiều hạn chế về định giá đất.
+- Không chỉ vùng ven, thời gian gần đây, cả những tuyến phố trung tâm Đà Nẵng cũng bị các hình vẽ graffiti bôi bẩn.
+- UBND huyện Minh Hóa đã thành lập đoàn thanh tra đột xuất Trường mầm non số 1 thị trấn Quy Đạt, để làm rõ những vấn đề khuất tất liên quan đến phản ứng của hội phụ huynh về việc xã hội hóa mua tủ đồ cho học sinh.
+- Ngày 29-5, UBND quận 1 thống kê sau gần 3 tuần thí điểm cho sử dụng một phần vỉa hè để kinh doanh, có 193 hộ đăng ký, mức phí dự kiến thu hơn 770 triệu đồng.
+- Thống đốc Nguyễn Thị Hồng cho biết đã dừng việc đấu thầu vàng vì chênh lệch giá vàng không giảm như kỳ vọng, và xây dựng phương án mới thực hiện trong tuần tới.
+- Đại biểu Quốc hội đề nghị đã đến lúc bỏ độc quyền nhập khẩu vàng của Ngân hàng Nhà nước.
+- Sức khỏe em N.T.A.T. - nữ sinh lớp 6 Trường THCS và THPT U Minh Thượng bị tai nạn giao thông vào ngày 27-5 - đã tạm ổn. Lãnh đạo UBND tỉnh Kiên Giang yêu cầu Bệnh viện Đa khoa tỉnh tập trung thuốc, vật tư y tế chăm lo tốt nhất cho em.
+- Bộ trưởng Bộ Tài chính Hồ Đức Phớc cho biết việc chưa trình tăng mức giảm trừ gia cảnh là đúng luật, nếu Thường vụ Quốc hội có chỉ đạo khác sẽ chấp hành.
+- Thành ủy TP.HCM vừa có quyết định thành lập Tiểu ban Văn kiện Đại hội đại biểu Đảng bộ TP.HCM lần thứ XII, nhiệm kỳ 2025-2030.
+- Ngành y tế “khát” nhân lực khi tình trạng nhân viên y tế nghỉ việc vẫn diễn ra, ngành giáo dục thiếu hụt trầm trọng trường lớp so với nhu cầu thực tế.
+- “Chúng ta có thể xếp hạng doanh nghiệp, nhãn hàng thực phẩm chức năng theo chuẩn mực đạo đức trong lĩnh vực quảng cáo. Song song với đó là thống kê, phát hiện xử phạt vi phạm, đưa nhãn hàng vào “danh sách đen” để cảnh báo đến người tiêu dùng”.
+- Hàng vạn con châu chấu bất ngờ xuất hiện ở Lạng Sơn. Địa phương xác định sơ bộ chúng xuất phát từ trên rừng, ảnh hưởng đến hoa màu của bà con.
+- Một bé gái 4 tuổi tại Tây Ninh đã bị rắn lục đuôi đỏ cắn khi đi bộ qua bãi cỏ, phải truyền 6 lọ huyết thanh kháng nọc rắn.
+- Công trình cống thoát nước đang thi công bị sạt lở khiến bức tường nhà dân đổ sập, kéo theo cụ bà hơn 80 tuổi rơi xuống mương, bị đất đá đè lên người.
 ![New](News.png)
 ## Nhịp sống số 
-- Số người thừa nhận lạm dụng tình dục trực tuyến trẻ em ở Anh cho thấy mức độ đáng báo động của vấn nạn này.
-- Đó là khẳng định của bà Loredana Crisan, phó chủ tịch phụ trách Messenger toàn cầu của Hãng Meta, trong cuộc phỏng vấn độc quyền với báo Tuổi Trẻ. Bà khẳng định Việt Nam là một trong những thị trường lớn nhất - nơi hãng không ngừng đầu tư.
-- Đừng để mình 'lấm lem' trên mạng chỉ vì một phút ham vui theo trào lưu hoặc mắc vạ miệng chỉ vì những bức xúc cá nhân.
-- Ngày 22-5, Cục An toàn thông tin (Bộ Thông tin và Truyền thông) phối hợp với báo VietNamNet tổ chức tọa đàm "Tiêu chuẩn an toàn thông tin mạng cơ bản cho camera giám sát".
-- Nhiều người thường ngại ngùng khi bắt chuyện lại với người bạn đã lâu không liên lạc. Các nhà khoa học đã có cách giúp họ.
-- Nghiên cứu mới của ĐH Michigan (Mỹ) chỉ ra rằng cách tốt nhất để quản lý thời gian dùng điện thoại là... làm cho nó đơ ra mỗi khi xài lâu.
-- Doanh nghiệp và người tiêu dùng đều cần công cụ để tự bảo vệ mình trước những hình thức gian lận mới của thanh toán số.
-- Chỉ trong một thời gian ngắn, truyền hình MyTV của VNPT đã đạt được sự tăng trưởng thần tốc, thực sự trở thành người bạn đồng hành thân thiết với các gia đình Việt mỗi ngày.
-- Kết nối Internet quốc tế gặp sự cố, chập chờn thường là cơn đau đầu của các nhà cung cấp dịch vụ trực tuyến.
-- Với sự xuất hiện của 6G, thế hệ băng thông mở rộng tiếp theo sẽ mang đến nhiều công năng và bất ngờ hơn.
-- Con chip này còn có thể dùng trong các hệ thống cảm biến và giám sát như trong xe tự hành hoặc để phát hiện lỗi nhỏ trong dây chuyền lắp ráp robot.
-- Galaxy Z Fold là một biểu tượng của Samsung trong công nghệ mới, khi có khả năng gập đôi và màn hình rộng gần 8 inch.
-- Để các đối tác nhà hàng, quán ăn được tiếp sức trên chặng đường đầy cạnh tranh, Gojek tiếp tục xây dựng kế hoạch hỗ trợ trong năm 2024.
-- Kết hợp lợi ích của public cloud và các máy chủ vật lý trong một mô hình Hybrid tăng mức độ linh hoạt, khả năng mở rộng và hiệu quả chi phí tối ưu.
-- Galaxy AI trên S24 chưa kịp ngưng sốt thì mới đây, người dùng có cơ hội trải nghiệm những tính năng thông minh trên dòng Galaxy Tab S9.
-- Việc đầu tư khoảng 1 tỉ USD để đào tạo 50.000 kỹ sư bán dẫn sẽ gián tiếp tạo nguồn thu 15 - 16 tỉ USD cho nền kinh tế.
-- Đại diện Cục Bản quyền tác giả nói môi trường số là môi trường xuyên biên giới, nên nạn đánh cắp bản quyền càng nghiêm trọng, khó giải quyết.
-- Những thông tin bị đánh cắp có thể bao gồm thông tin đăng nhập vào nền tảng mạng xã hội, dịch vụ ngân hàng trực tuyến, ví điện tử, hệ thống nội bộ và email doanh nghiệp.
-- TP.HCM thí điểm thực hiện học bạ số với toàn bộ học sinh lớp 1 của thành phố năm học 2023-2024 này.
-- Với tốc độ 156.000 tỉ khung hình mỗi giây, máy ảnh mở ra khả năng ghi lại những hiện tượng xảy ra cực nhanh mà trước nay không nhìn thấy được.
-- Các tổ chức bảo vệ quyền trẻ em lên tiếng phản đối sau khi Meta hạ độ tuổi tối thiểu sử dụng ứng dụng nhắn tin WhatsApp tại Liên minh châu Âu (EU) từ 16 xuống 13 tuổi.
-- Ngoài làm mờ tin nhắn có ảnh khỏa thân, Meta cũng đang phát triển công nghệ xác định tài khoản lừa đảo sextort (tin tặc lừa đang giữ ảnh nóng của người dùng).
-- Nhà báo Vũ Kim Hạnh, sẽ xuất hiện trên sóng Shopee Live vào ngày 15-4 trong một sáng kiến mới nhằm hỗ trợ các doanh nghiệp địa phương trong cả nước giới thiệu nông đặc sản chất lượng.
-- Nếu Công ty Netflix không tuân thủ, Bộ Thông tin và Truyền thông sẽ phối hợp các cơ quan quản lý nhà nước liên quan xử lý theo quy định pháp luật Việt Nam.
-- Chìa khóa giải mã cho sự phát triển vượt trội của TV360 và Viettel Money là nền tảng khổng lồ của Tập đoàn công nghệ lớn nhất Việt Nam - Viettel.
-- Những video, âm thanh và hình ảnh do AI tạo ra hoặc do AI thay đổi nội dung sẽ được Meta gắn nhãn 'tạo bởi AI' để phân biệt với những sản phẩm khác.
-- Chuyên gia cảnh báo các cuộc tấn công mạng có xu hướng 'tự động hóa và cá nhân hóa' khi kẻ tấn công sử dụng thư điện tử lừa đảo và cuộc gọi điện thoại giả mạo do AI điều khiển để đánh lừa nạn nhân.
-- Hầu hết trình duyệt web hiện nay cho phép người dùng sử dụng chế độ ẩn danh như một cách để bảo vệ quyền riêng tư.
-- Sự phát triển của nhiều hình thức kinh doanh mới, nhu cầu làm việc từ xa tăng mạnh v.v. khiến doanh nghiệp phải tìm giải pháp mở rộng đường truyền.
-- OpenAI giới thiệu công cụ có thể nhại giọng con người chỉ với một mẫu âm thanh 15 giây, nhưng chưa tung ra công cụ này do các lo ngại về an ninh.
 ![life](Life.png)
