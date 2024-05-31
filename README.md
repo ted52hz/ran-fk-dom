@@ -1,6 +1,26 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Năm đầu tiên toàn TP.HCM thực hiện tuyển sinh đầu cấp theo bản đồ GIS (nơi ở thực tế), tuy nhiên các quận huyện lại làm mỗi nơi một kiểu dù đã có quy định chung của Sở Giáo dục và Đào tạo TP.HCM.
+- Kiểm toán rác là một trong nhiều cách mà các trường học ở Đà Nẵng đang áp dụng nhằm hạn chế rác thải ra môi trường.
+- Sau buổi bế giảng năm học cuối cấp, cả 40 học sinh lớp 12/8 Trường THPT Trần Phú, Đà Nẵng được nhận những món quà bất ngờ từ cô chủ nhiệm.
+- Loại tủ mà trường mầm non số 1 Quy Đạt đặt mua cho các lớp là gì mà sau khi bị hội phụ huynh phản đối thì vị này báo giá giảm từ 6 xuống 4 triệu đồng?
+- Hiệu trưởng Trường THCS Phú Lâm, Tiên Du, Bắc Ninh khẳng định 100.000 đồng tiền thưởng cho học sinh giỏi sẽ được quy ra vở viết, gửi tặng các em trước kỳ thi THPT, không có chuyện tư lợi cá nhân.
+- Nhiều trường vùng sâu của TP Cần Thơ tổ chức nấu ăn miễn phí cho học sinh tại trường.
+- Cục Quản lý thị trường tỉnh Đồng Nai đang xác minh hơn 33.000 cuốn sách giáo khoa ghi chữ Nhà xuất bản Giáo Dục Việt Nam nghi giả.
+- 'Tôi từng cầu mong con biết đọc biết viết là mừng. Vậy mà con đã đứng đây ở lễ tốt nghiệp đại học'.
+- Bài thi đánh giá năng lực (HSA) năm 2025 của Đại học Quốc gia Hà Nội được điều chỉnh chủ yếu ở phần khoa học và cách đặt câu hỏi.
+- Thành phố Đà Nẵng xây dựng đề án trong đó có đề xuất hỗ trợ thu nhập ban đầu tối đa 100 triệu đồng/chuyên gia, nhà khoa học trong lĩnh vực bán dẫn, vi mạch và trí tuệ nhân tạo.
+- Dù kinh tế không dư dả nhưng nhiều phụ huynh đã tình nguyện 'gánh' thêm phần quỹ lớp cho các phụ huynh khác để các con có buổi lễ ra trường trọn vẹn.
+- Vụ việc một trẻ mẫu giáo tử vong do bị bỏ quên trên xe đưa đón một lần nữa cảnh báo về việc đảm bảo an toàn cho học sinh, trẻ em trên xe ô tô.
+- Được cô giáo phát giấy khen với kết quả học tập đạt mức giỏi nhưng bé M. buồn thiu. Gặng hỏi mãi bé mới chỉ cho mẹ dòng chữ 'trẻ béo phì' trên phiếu.
+- Sở Giáo dục và Đào tạo Thái Bình vừa gửi báo cáo bộ về sự việc trẻ mầm non 5 tuổi tử vong do bị bỏ quên trên xe đưa đón, xảy ra tại Trường mầm non Hồng Nhung cơ sở 2 (Thái Bình).
+- Ngày 30-5, UBND tỉnh Thái Bình có công văn chỉ đạo khẩn sau sự việc bé trai 5 tuổi chết vì bị bỏ quên trên ô tô đưa đón của Trường mầm non Hồng Nhung.
+- Đẩy con về quê nghỉ hè với ông bà thì con nhớ cha đòi mẹ nên phải chọn cách: vừa làm việc ở công ty vừa theo dõi con đang ở nhà qua camera.
+- Lúc được tìm thấy trên xe đưa đón, cháu H. đã bất tỉnh, phần ghế ngồi nơi tìm thấy cháu bị cào xước như thể cháu đã cố gắng vùng vẫy để mong được cứu...
+- Ngày 30-5, Sở Giáo dục và Đào tạo Hà Nội cho biết đã bổ sung 3.210 chỉ tiêu tuyển sinh lớp 10 năm học 2024-2025.
+- Gia cảnh khó khăn, Trần Tiến Lợi (lớp 12KC4 Trường phổ thông Năng khiếu - Đại học Quốc gia TP.HCM) đã tự gây quỹ cho chính mình viết tiếp ước mơ đi học.
+- Để đảm bảo an toàn cho học sinh, xe đưa đón ở các nước được gắn cảm biến thông minh, tài xế và người giám sát phải tuân thủ những quy định nghiêm ngặt...
 - Cháu bé bị bỏ quên trên xe đưa đón cả chục giờ đồng hồ dưới cái nóng gần 40 độ, và người phát hiện ra vẫn không phải lái xe, cô giáo...
 - Ngay tối 29-5, Công an TP Thái Bình (tỉnh Thái Bình) đã ra quyết định khởi tố vụ án liên quan vụ cháu bé 5 tuổi chết trong ô tô đưa đón học sinh của Trường mầm non Hồng Nhung.
 - Tối 29-5, ông Nguyễn Khắc Thận - chủ tịch UBND tỉnh Thái Bình - chủ trì cuộc họp khẩn, chỉ đạo điều tra vụ trẻ mầm non chết trong xe ô tô đưa đón do bị bỏ quên.
@@ -11,58 +31,68 @@
 - Gia đình thường trú ở quận 3, TP.HCM nhưng trang web tuyển sinh lại 'đẩy về' quận 10, phải làm sao để con vào lớp 6 ở quận 3?
 - Sinh viên Trường đại học Tài chính - Marketing lo có thể bị trễ tiến độ tốt nghiệp do nhà trường thay đổi chuẩn đầu ra ngoại ngữ.
 - Trong lễ tổng kết, hội trưởng hội phụ huynh trường lên giãi bày về những bất thường trong việc nhà trường xã hội hóa mua tủ bỏ đồ cho các lớp thì bị hiệu trưởng lên chỉ mặt ngăn cản.
-- Sinh viên cho rằng vì trường vào sót điểm, thông báo xác nhận bằng tốt nghiệp THPT nước ngoài trễ nên sinh viên không kịp hoàn tất thủ tục tốt nghiệp.
-- Học sinh muốn xét tuyển vào lớp 6 Trường THCS Nguyễn Văn Tố phải có tối thiểu 4 năm học hoàn thành xuất sắc các nội dung học tập và rèn luyện...
-- 27-5 là một ngày khác hẳn những ngày bình thường của chị Nguyễn Thị Anh Dũng - phụ huynh bé Q., học sinh lớp 5 Trường tiểu học Trần Hưng Đạo (quận 1, TP.HCM).
-- Đó là khẳng định của Vụ trưởng Vụ Giáo dục tiểu học (Bộ GD-ĐT) Thái Văn Tài sau những ồn ào về phản ánh của phụ huynh khi con không được học sinh xuất sắc vì có chữ "H" (hoàn thành).
-- Thông tin PGS.TS Đào Nguyên Khôi - Công dân trẻ tiêu biểu TP.HCM, một nhà khoa học trẻ tài năng - qua đời ở tuổi 39 khiến hàng ngàn sinh viên, đồng nghiệp tiếc thương.
-- Trường THCS Trọng Điểm, TP Hạ Long, tỉnh Quảng Ninh dự kiến tự chủ 100% từ năm học tới và dự thu học phí 960.000 đồng/tháng.
-- Học đại học luật với mức học phí trên dưới 200 triệu đồng mỗi năm, sinh viên được học gì, ra trường làm gì?
-- Nhiều ý kiến trái chiều quanh chuyện trưởng khoa một trường đại học lớn bị tố làm giám đốc nhiều doanh nghiệp ngoài trường.
-- Bà Hồ Thị Tuyết Sương (bà nội của em N.T.A.T. - học sinh lớp 6) chia sẻ với Tuổi Trẻ Online về tình hình của T. sau khi gặp tai nạn giao thông nghiêm trọng.
-- Sở Giáo dục và Đào tạo TP Hải Phòng chỉ đạo không tổ chức dạy hè, dạy trước cho trẻ mầm non 5 tuổi vào lớp 1 dưới mọi hình thức trong thời gian từ 1-6 đến 15-8.
-- Năm học 2024-2025, mức học phí các ngành luật tại nhiều trường đại học ở TP.HCM dao động 15,9 - 181,5 triệu đồng/năm học.
-- Có quốc gia đã 2 lần tăng mức yêu cầu chứng minh tài chính với sinh viên chỉ trong chưa đầy 1 năm.
-- Cũng là chữ H đó thôi nhưng góc tiếp cận khác nhau sẽ mang lại những kết cục khác nhau.
-- Lễ tổng kết năm học 2023-2024 của Trường Quốc tế Song ngữ Victoria Nam Sài Gòn (thuộc Hệ thống Victoria School) vừa diễn ra ngày 26-5, với sự tham dự của hơn 1.000 giáo viên, phụ huynh và học sinh.
-- Những buổi lễ tốt nghiệp đánh dấu các cột mốc quan trọng trong đời mỗi người. Khi rời mỗi cấp học, đi kèm với niềm hân hoan vui sướng của người đi học là nỗi lo của phụ huynh ở nhà, vì cái gì cũng quy thành tiền.
-- Chuyện bi hài này xảy ra tại một trường tiểu học ở TP.HCM khi phụ huynh "cự nự" vì môn nghệ thuật (âm nhạc) của con anh bị xếp loại H (Hoàn thành).
-- Điểm trường cho học sinh và cây cầu treo dân sinh được tài trợ xây mới ở tỉnh Quảng Nam, nhưng phía Kon Tum lập biên bản buộc tạm dừng thi công do chồng lấn địa giới hành chính.
-- 'Cảm giác được dắt tay con lên nhận thưởng trên sân khấu ở trường con học là một cảm giác rất ấm áp, lâng lâng khó tả'.
-- Một số ngành hot chỉ tuyển 5-15% chỉ tiêu cho phương thức điểm thi tốt nghiệp THPT.
-- Sở GD-ĐT Hải Dương có báo cáo gửi bộ về việc một học sinh lớp 1 phải 'ngồi nhìn lớp ăn liên hoan' vì phụ huynh không đóng quỹ lớp.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Cơ quan khí tượng dự báo rãnh áp thấp ở khu vực phía Bắc của Bắc Biển Đông có khả năng hình thành xoáy thuận nhiệt đới (áp thấp nhiệt đới) trong ngày và đêm nay (30-5).
-- Hôm qua (29-5), Quốc hội đã dành một ngày để thảo luận về tình hình kinh tế - xã hội, ngân sách nhà nước với rất nhiều vấn đề "nóng".
-- Cơ quan chức năng của TP Thanh Hóa đã và đang thực hiện các bước quy trình để tiến hành sáp nhập huyện Đông Sơn vào thành phố này trong thời gian tới.
-- Chủ đầu tư BOT Điện Thắng Trung (thị xã Điện Bàn, tỉnh Quảng Nam) liên tục kêu cứu địa phương, đề xuất cắm biển cấm tất cả các đường để hướng xe vào trạm thu phí. Lãnh đạo thị xã Điện Bàn cho rằng mọi đề xuất đều không hợp lý.
-- Công an quận Hà Đông cho hay có 9 người thoát nạn trong vụ cháy nhà trọ sáng 30-5. Trong đó người dân cứu được 2 người, lực lượng cảnh sát cứu được 3 người. 4 người tự thoát nạn qua lối thoát nạn sang nhà bên cạnh.
-- Liên quan đến vụ 112 hồ sơ bồi thường ở dự án cao tốc Biên Hòa - Vũng Tàu có dấu hiệu chỉnh sửa, Công an Đồng Nai đã vào cuộc thu thập hồ sơ điều tra vụ việc.
-- Đà Nẵng vừa đầu tư cải tạo hàng loạt vỉa hè các tuyến đường đông đúc du khách, tạo nên bộ mặt mới cho đô thị.
-- Một số tin tức đáng chú ý: Hà Nội kỳ vọng 80% người hưởng lương hưu, trợ cấp bảo hiểm xã hội không tiền mặt; Tour nội đô kèm xem chương trình nghệ thuật "'Chuyến tàu huyền thoại' hết chỗ sớm...
-- Hôm nay trong khi thời tiết miền Bắc, miền Nam mưa to đến rất to thì miền Trung lại nắng nóng, nhiệt độ có nơi lên đến 39 độ C.
-- Cử tri Đà Nẵng cho rằng chế độ hỗ trợ cho lực lượng bảo vệ dân phố, dân phòng khiêm tốn, trong khi công việc lại nguy hiểm nên người trẻ không mặn mà.
-- Cơ quan chức năng thông tin nguyên nhân vụ sập hàng rào cạnh công trình mương thoát nước làm cụ bà bị thương nặng ở Đồng Nai.
-- Sở Xây dựng tỉnh Lâm Đồng ra quyết định thu hồi giấy phép xây dựng tầng hầm tòa nhà câu lạc bộ golf trong Đồi Cù Đà Lạt.
-- Sở Tài nguyên và Môi trường TP.HCM đã nghiên cứu xây dựng đề án thí điểm thành lập trung tâm phát triển quỹ đất trực thuộc UBND quận, huyện và đã tham mưu UBND TP trình Thủ tướng cho ý kiến.
-- Từ ngày 27-5 đến 2-6, Hội Bảo trợ bệnh nhân nghèo tỉnh Kiên Giang phối hợp đoàn thiện nguyện Mercer On Mission (Hoa Kỳ) tổ chức khám chữa bệnh xương khớp, lắp đặt tay, chân giả miễn phí cho gần 1.000 bệnh nhân nghèo.
-- Hai Thủ tướng Việt Nam và Singapore nhất trí thúc đẩy các khu VSIP thế hệ mới trong tương lai, khẳng định đây là hải đăng trong hợp tác kinh tế song phương.
-- Chiều 29-5, tại cuộc họp họp tháo gỡ vướng mắc giải phóng mặt bằng cao tốc Quảng Ngãi - Hoài Nhơn, bí thư Tỉnh ủy Quảng Ngãi kịp thời xin ý kiến của Bộ trưởng Bộ GTVT để tháo gỡ vướng mắc cho địa phương.
-- Phó thủ tướng Trần Hồng Hà cho rằng Luật Đất đai năm 2024 được thông qua đã giải quyết nhiều hạn chế về định giá đất.
-- Không chỉ vùng ven, thời gian gần đây, cả những tuyến phố trung tâm Đà Nẵng cũng bị các hình vẽ graffiti bôi bẩn.
-- UBND huyện Minh Hóa đã thành lập đoàn thanh tra đột xuất Trường mầm non số 1 thị trấn Quy Đạt, để làm rõ những vấn đề khuất tất liên quan đến phản ứng của hội phụ huynh về việc xã hội hóa mua tủ đồ cho học sinh.
-- Ngày 29-5, UBND quận 1 thống kê sau gần 3 tuần thí điểm cho sử dụng một phần vỉa hè để kinh doanh, có 193 hộ đăng ký, mức phí dự kiến thu hơn 770 triệu đồng.
-- Thống đốc Nguyễn Thị Hồng cho biết đã dừng việc đấu thầu vàng vì chênh lệch giá vàng không giảm như kỳ vọng, và xây dựng phương án mới thực hiện trong tuần tới.
-- Đại biểu Quốc hội đề nghị đã đến lúc bỏ độc quyền nhập khẩu vàng của Ngân hàng Nhà nước.
-- Sức khỏe em N.T.A.T. - nữ sinh lớp 6 Trường THCS và THPT U Minh Thượng bị tai nạn giao thông vào ngày 27-5 - đã tạm ổn. Lãnh đạo UBND tỉnh Kiên Giang yêu cầu Bệnh viện Đa khoa tỉnh tập trung thuốc, vật tư y tế chăm lo tốt nhất cho em.
-- Bộ trưởng Bộ Tài chính Hồ Đức Phớc cho biết việc chưa trình tăng mức giảm trừ gia cảnh là đúng luật, nếu Thường vụ Quốc hội có chỉ đạo khác sẽ chấp hành.
-- Thành ủy TP.HCM vừa có quyết định thành lập Tiểu ban Văn kiện Đại hội đại biểu Đảng bộ TP.HCM lần thứ XII, nhiệm kỳ 2025-2030.
-- Ngành y tế “khát” nhân lực khi tình trạng nhân viên y tế nghỉ việc vẫn diễn ra, ngành giáo dục thiếu hụt trầm trọng trường lớp so với nhu cầu thực tế.
-- “Chúng ta có thể xếp hạng doanh nghiệp, nhãn hàng thực phẩm chức năng theo chuẩn mực đạo đức trong lĩnh vực quảng cáo. Song song với đó là thống kê, phát hiện xử phạt vi phạm, đưa nhãn hàng vào “danh sách đen” để cảnh báo đến người tiêu dùng”.
-- Hàng vạn con châu chấu bất ngờ xuất hiện ở Lạng Sơn. Địa phương xác định sơ bộ chúng xuất phát từ trên rừng, ảnh hưởng đến hoa màu của bà con.
-- Một bé gái 4 tuổi tại Tây Ninh đã bị rắn lục đuôi đỏ cắn khi đi bộ qua bãi cỏ, phải truyền 6 lọ huyết thanh kháng nọc rắn.
-- Công trình cống thoát nước đang thi công bị sạt lở khiến bức tường nhà dân đổ sập, kéo theo cụ bà hơn 80 tuổi rơi xuống mương, bị đất đá đè lên người.
+- Dự báo trong 24 giờ tới, áp thấp nhiệt đới ở khu vực phía bắc quần đảo Hoàng Sa có khả năng mạnh lên thành bão.
+- Trên đường đi làm ruộng về, hai anh em ruột ở Lào Cai đi qua suối thì bị lũ cuốn trôi. Đến sáng 31-5, thi thể người anh được tìm thấy, còn em gái vẫn mất tích.
+- Cảnh sát giao thông đã xử phạt vi phạm hành chính 1 triệu đồng, tước bằng lái xe 2 tháng đối với anh V.V.Q., tài xế xe bán tải để bé trai ngồi trên thùng xe này khi chạy trên cao tốc Mai Sơn - quốc lộ 45.
+- Đà Nẵng sẽ có khoảng 38 dự án bến du thuyền được ưu tiên đầu tư, với tổng mức đầu tư khoảng 7.260 tỉ đồng.
+- Chủ nhân của hai chú chó bị kéo lê trên đường phố Đà Nẵng vừa lên tiếng xin lỗi, do việc anh gây ra chỉ là vô ý.
+- Tin tức đáng chú ý: San hô Côn Đảo chết và bị tẩy trắng vì nước biển nóng; Sẽ giảm nhiều loại phí, lệ phí tháo gỡ khó khăn cho doanh nghiệp và người dân, có phí căn cước; TP.HCM thanh, kiểm tra nhiều công trình giao thông trọng điểm trong năm 2024...
+- Hôm nay 31-5, các tỉnh thành miền Bắc, miền Nam, Tây Nguyên mưa rào đến mưa to, riêng miền Trung nắng nóng, chiều tối mưa dông.
+- Một quán ăn trên phố Dịch Vọng Hậu (quận Cầu Giấy, Hà Nội) bốc cháy ngùn ngụt, nhiều người bên trong hoảng loạn, hô hoán chạy ra ngoài thoát thân.
+- Hàng chục công nhân của các đơn vị tham gia khắc phục sự cố sạt lở hầm đường sắt Chí Thạnh vẫn đang tiếp tục thực hiện những công đoạn cuối cùng để thông hầm sớm nhất có thể.
+- Chiều 30-5 tại Phủ Chủ tịch, Chủ tịch nước Tô Lâm đã tiếp đại sứ, đại biện các nước ASEAN và Timor-Leste tại Hà Nội đến chào, chúc mừng.
+- Loại tủ mà trường mầm non số 1 Quy Đạt đặt mua cho các lớp là gì mà sau khi bị hội phụ huynh phản đối thì vị này báo giá giảm từ 6 xuống 4 triệu đồng?
+- 'Xây dựng không gian văn hóa Hồ Chí Minh phải khơi gợi được truyền thống yêu nước, khát vọng xây dựng TP, quận, phường ấm no, hạnh phúc trong mỗi người dân'.
+- Đại tướng Phan Văn Giang cho biết nước ta đã sản xuất được những loại áo giáp chỉ nặng bằng một nửa các loại áo giáp trước phải nhập của các nước tiên tiến.
+- Các cơ quan tố tụng tại tỉnh Đắk Nông đã đình chỉ điều tra, đình chỉ bị can để thực hiện các thủ tục bồi thường đối với một người dân bị tù oan.
+- Liên quan đến việc mới có chủ trương đã xây khu biệt thự trên đất rẫy trồng cà phê, ngành chức năng bất nhất trong xử lý vi phạm.
+- HĐND tỉnh Lạng Sơn khóa XVII xem xét, quyết định công tác nhân sự, trong đó có bãi nhiệm ủy viên UBND tỉnh với giám đốc Công an tỉnh Lạng Sơn Thái Hồng Công.
+- Ngày 30-5, tại xã Hồng Lý, huyện Vũ Thư, tỉnh Thái Bình xảy ra vụ sập giàn giáo khiến một người chết, hai người bị thương.
+- Vùng mây dông từ phía bắc có xu hướng phát triển, di chuyển nhanh về nội thành Hà Nội và bắt đầu gây mưa rào và dông.
+- Sau phản ảnh về nơi ngập rác y tế cùng hàng ngàn chai lọ không nhãn mác, UBND phường Tân Tạo (quận Bình Tân) đã kiểm tra, cắm bảng 'điểm rác', 'đang xử lý'.
+- Cơ quan khí tượng nhận định áp thấp nhiệt đới đang hoạt động ở khu vực quần đảo Hoàng Sa có khả năng mạnh thêm, nhưng ít có khả năng ảnh hưởng trực tiếp đến đất liền nước ta.
+- Tổng công ty Điện lực TP.HCM đã điều động hơn 150 cán bộ, kỹ sư, công nhân để tiếp sức thi công xây dựng dự án đường dây 500kV mạch 3 Quảng Trạch - Phố Nối.
+- Quảng Ngãi thành lập Ban chỉ đạo các công trình trọng điểm do ông Đặng Ngọc Huy, phó bí thư Tỉnh ủy làm trưởng ban.
+- Bộ trưởng Lê Minh Hoan sẽ trực tiếp kiêm nhiệm vụ trưởng Ban chỉ đạo thực hiện đề án thực hiện 1 triệu hecta lúa chất lượng cao vùng Đồng bằng sông Cửu Long.
+- Trường học và cầu treo dân sinh được xã Trà Vinh (huyện Nam Trà My, tỉnh Quảng Nam) vận động xây dựng giúp dân bị chính quyền tỉnh Kon Tum yêu cầu tạm dừng.
+- Đoàn đại biểu Đảng Cộng sản Việt Nam do ông Nguyễn Trọng Nghĩa - ủy viên Bộ Chính trị, bí thư Trung ương Đảng, trưởng Ban Tuyên giáo Trung ương - dẫn đầu đã có chuyến thăm và làm việc tại Cộng hòa Angola.
+- Các ngân hàng thương mại Nhà nước bán vàng với giá phù hợp, không vì lợi nhuận, đảm bảo giảm chênh lệch giá vàng trong nước và quốc tế.
+- Chiều 30-5, Trung tâm Quản lý giao thông công cộng TP.HCM thông tin vừa đình chỉ một tài xế xe buýt cố ý vượt đèn đỏ, đồng thời chuyển vụ việc qua cảnh sát giao thông xem xét xử lý hành vi vi phạm Luật Giao thông đường bộ.
+- Cho đến nay, Bệnh viện Đa khoa tỉnh Gia Lai chưa được thanh toán 8,3 tỉ đồng tiền khám chữa bệnh bảo hiểm y tế từ năm 2018.
+- Lực lượng cảnh sát giao thông vừa xử lý vụ tài xế xe bán tải để một bé trai ngồi trên thùng xe chạy trên cao tốc Mai Sơn - quốc lộ 45, đoạn qua tỉnh Thanh Hóa.
+- Một doanh nghiệp kinh doanh vàng tại Quảng Bình vừa bị xử phạt hơn 200 triệu đồng vì làm giả nhãn hiệu Chanel.
 ![New](News.png)
 ## Nhịp sống số 
+- Các cuộc tấn công mạng, lừa đảo trực tuyến sẽ ngày càng tăng theo cấp số nhân, và ngày càng tinh vi vì có AI hỗ trợ.
+- Mới đây, Huawei chính thức cho ra mắt đồng hồ thông minh mới HUAWEI WATCH FIT 3.
+- Sau đại dịch, ngành dược đã nhận thấy những cơ hội phát triển mạnh mẽ từ việc thúc đẩy ứng dụng công nghệ nhiều hơn.
+- Số người thừa nhận lạm dụng tình dục trực tuyến trẻ em ở Anh cho thấy mức độ đáng báo động của vấn nạn này.
+- Đó là khẳng định của bà Loredana Crisan, phó chủ tịch phụ trách Messenger toàn cầu của Hãng Meta, trong cuộc phỏng vấn độc quyền với báo Tuổi Trẻ. Bà khẳng định Việt Nam là một trong những thị trường lớn nhất - nơi hãng không ngừng đầu tư.
+- Đừng để mình 'lấm lem' trên mạng chỉ vì một phút ham vui theo trào lưu hoặc mắc vạ miệng chỉ vì những bức xúc cá nhân.
+- Ngày 22-5, Cục An toàn thông tin (Bộ Thông tin và Truyền thông) phối hợp với báo VietNamNet tổ chức tọa đàm "Tiêu chuẩn an toàn thông tin mạng cơ bản cho camera giám sát".
+- Nhiều người thường ngại ngùng khi bắt chuyện lại với người bạn đã lâu không liên lạc. Các nhà khoa học đã có cách giúp họ.
+- Nghiên cứu mới của ĐH Michigan (Mỹ) chỉ ra rằng cách tốt nhất để quản lý thời gian dùng điện thoại là... làm cho nó đơ ra mỗi khi xài lâu.
+- Doanh nghiệp và người tiêu dùng đều cần công cụ để tự bảo vệ mình trước những hình thức gian lận mới của thanh toán số.
+- Chỉ trong một thời gian ngắn, truyền hình MyTV của VNPT đã đạt được sự tăng trưởng thần tốc, thực sự trở thành người bạn đồng hành thân thiết với các gia đình Việt mỗi ngày.
+- Kết nối Internet quốc tế gặp sự cố, chập chờn thường là cơn đau đầu của các nhà cung cấp dịch vụ trực tuyến.
+- Với sự xuất hiện của 6G, thế hệ băng thông mở rộng tiếp theo sẽ mang đến nhiều công năng và bất ngờ hơn.
+- Con chip này còn có thể dùng trong các hệ thống cảm biến và giám sát như trong xe tự hành hoặc để phát hiện lỗi nhỏ trong dây chuyền lắp ráp robot.
+- Galaxy Z Fold là một biểu tượng của Samsung trong công nghệ mới, khi có khả năng gập đôi và màn hình rộng gần 8 inch.
+- Để các đối tác nhà hàng, quán ăn được tiếp sức trên chặng đường đầy cạnh tranh, Gojek tiếp tục xây dựng kế hoạch hỗ trợ trong năm 2024.
+- Kết hợp lợi ích của public cloud và các máy chủ vật lý trong một mô hình Hybrid tăng mức độ linh hoạt, khả năng mở rộng và hiệu quả chi phí tối ưu.
+- Galaxy AI trên S24 chưa kịp ngưng sốt thì mới đây, người dùng có cơ hội trải nghiệm những tính năng thông minh trên dòng Galaxy Tab S9.
+- Việc đầu tư khoảng 1 tỉ USD để đào tạo 50.000 kỹ sư bán dẫn sẽ gián tiếp tạo nguồn thu 15 - 16 tỉ USD cho nền kinh tế.
+- Đại diện Cục Bản quyền tác giả nói môi trường số là môi trường xuyên biên giới, nên nạn đánh cắp bản quyền càng nghiêm trọng, khó giải quyết.
+- Những thông tin bị đánh cắp có thể bao gồm thông tin đăng nhập vào nền tảng mạng xã hội, dịch vụ ngân hàng trực tuyến, ví điện tử, hệ thống nội bộ và email doanh nghiệp.
+- TP.HCM thí điểm thực hiện học bạ số với toàn bộ học sinh lớp 1 của thành phố năm học 2023-2024 này.
+- Với tốc độ 156.000 tỉ khung hình mỗi giây, máy ảnh mở ra khả năng ghi lại những hiện tượng xảy ra cực nhanh mà trước nay không nhìn thấy được.
+- Các tổ chức bảo vệ quyền trẻ em lên tiếng phản đối sau khi Meta hạ độ tuổi tối thiểu sử dụng ứng dụng nhắn tin WhatsApp tại Liên minh châu Âu (EU) từ 16 xuống 13 tuổi.
+- Ngoài làm mờ tin nhắn có ảnh khỏa thân, Meta cũng đang phát triển công nghệ xác định tài khoản lừa đảo sextort (tin tặc lừa đang giữ ảnh nóng của người dùng).
+- Nhà báo Vũ Kim Hạnh, sẽ xuất hiện trên sóng Shopee Live vào ngày 15-4 trong một sáng kiến mới nhằm hỗ trợ các doanh nghiệp địa phương trong cả nước giới thiệu nông đặc sản chất lượng.
+- Nếu Công ty Netflix không tuân thủ, Bộ Thông tin và Truyền thông sẽ phối hợp các cơ quan quản lý nhà nước liên quan xử lý theo quy định pháp luật Việt Nam.
+- Chìa khóa giải mã cho sự phát triển vượt trội của TV360 và Viettel Money là nền tảng khổng lồ của Tập đoàn công nghệ lớn nhất Việt Nam - Viettel.
+- Những video, âm thanh và hình ảnh do AI tạo ra hoặc do AI thay đổi nội dung sẽ được Meta gắn nhãn 'tạo bởi AI' để phân biệt với những sản phẩm khác.
+- Chuyên gia cảnh báo các cuộc tấn công mạng có xu hướng 'tự động hóa và cá nhân hóa' khi kẻ tấn công sử dụng thư điện tử lừa đảo và cuộc gọi điện thoại giả mạo do AI điều khiển để đánh lừa nạn nhân.
 ![life](Life.png)
