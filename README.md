@@ -1,6 +1,23 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Vụ trẻ mầm non tử vong do bị bỏ quên trên xe đưa đón một lần nữa gióng lên hồi chuông về trách nhiệm của các bên liên quan khi để xảy ra chuyện đau lòng.
+- Một số tin tức đáng chú ý: Chính phủ yêu cầu đánh giá tác hại thuốc lá điện tử; TP.HCM đề xuất hỗ trợ giáo viên môn khó tuyển; Thảo cầm viên tặng quà Tết Thiếu nhi...
+- Năm 2024, Đại học Quốc gia Hà Nội tuyển sinh 18.000 chỉ tiêu cho 150 ngành/chương trình đào tạo, tăng hơn 3.000 chỉ tiêu và 7 ngành/chương trình đào tạo so với năm ngoái.
+- Sau 15-6, nếu nhà đầu tư không đáp ứng các điều kiện hoạt động, Sở Giáo dục và Đào tạo TP.HCM sẽ tham mưu UBND TP quyết định đình chỉ hoạt động Trường quốc tế Mỹ.
+- Tổ chức Children of Vietnam sẽ hỗ trợ hơn 17 tỉ đồng cho Huế để xây phòng học vùng cao, cấp học bổng cho học sinh nghèo, mua máy lọc nước…
+- So với năm trước, số thí sinh chọn bài thi khoa học xã hội tăng 7,7%. Kỳ thi tốt nghiệp THPT năm 2024 sẽ diễn ra từ ngày 26 đến 28-6.
+- Trường đại học Quốc tế miền Đông tại Bình Dương tiếp tục có nhiều hoạt động nổi bật với các ngành học mới đạt chất lượng kiểm định và mở rộng hợp tác doanh nghiệp.
+- Chuyên gia cho rằng việc trẻ mầm non bị bỏ quên trên xe đưa đón hoàn toàn lỗi của người lớn.
+- Chương trình diễn ra sáng 31-5 tại Trường đại học Fulbright Việt Nam trong khuôn khổ Dự án tác động xã hội Đông Nam Á (ASIP) do Cơ quan Phát triển quốc tế Mỹ (USAID) tài trợ.
+- Liên quan vụ việc bé trai 5 tuổi chết vì bị bỏ quên trên xe đưa đón, Cơ quan cảnh sát điều tra Công an thành phố Thái Bình khởi tố thêm tài xế và 2 nữ giáo viên.
+- Sau khi đóng tủ xong, hiệu trưởng mới mời hội phụ huynh đến ký hợp đồng, biên bản bàn giao, biên bản thanh lý.
+- Cô giáo trẻ vừa đi làm 4 năm, lương đúng nghĩa ba cọc ba đồng, nhưng cô luôn dành một phần để mua quà khen tặng học sinh.
+- Khai giảng nhiều khóa trước cả thi tốt nghiệp THPT, kết nối mạnh với doanh nghiệp và hiệp hội các nước để cung ứng nguồn lao động 'xuyên biên giới'... nhiều trường nghề cho thấy bức tranh tươi mới trong mùa tuyển sinh 2024.
+- Ở một số nước, dù chưa xảy ra chuyện đau lòng như Việt Nam nhưng việc xử lý rất nghiêm khắc.
+- 7 thí sinh Việt Nam đều đoạt giải Olympic tin học châu Á, trong đó có 1 huy chương vàng, 6 huy chương bạc.
+- Nhiều vấn đề đặt ra từ vụ trẻ mầm non chết do bị bỏ quên trên xe đưa đón học sinh ở Thái Bình mới đây.
+- Sau cái chết của cháu Trần Gia Huy (5 tuổi, trú tại huyện Vũ Thư, tỉnh Thái Bình), nhiều câu hỏi được đặt ra về đảm bảo an toàn trong đưa đón học sinh.
 - Năm đầu tiên toàn TP.HCM thực hiện tuyển sinh đầu cấp theo bản đồ GIS (nơi ở thực tế), tuy nhiên các quận huyện lại làm mỗi nơi một kiểu dù đã có quy định chung của Sở Giáo dục và Đào tạo TP.HCM.
 - Kiểm toán rác là một trong nhiều cách mà các trường học ở Đà Nẵng đang áp dụng nhằm hạn chế rác thải ra môi trường.
 - Sau buổi bế giảng năm học cuối cấp, cả 40 học sinh lớp 12/8 Trường THPT Trần Phú, Đà Nẵng được nhận những món quà bất ngờ từ cô chủ nhiệm.
@@ -14,57 +31,41 @@
 - Dù kinh tế không dư dả nhưng nhiều phụ huynh đã tình nguyện 'gánh' thêm phần quỹ lớp cho các phụ huynh khác để các con có buổi lễ ra trường trọn vẹn.
 - Vụ việc một trẻ mẫu giáo tử vong do bị bỏ quên trên xe đưa đón một lần nữa cảnh báo về việc đảm bảo an toàn cho học sinh, trẻ em trên xe ô tô.
 - Được cô giáo phát giấy khen với kết quả học tập đạt mức giỏi nhưng bé M. buồn thiu. Gặng hỏi mãi bé mới chỉ cho mẹ dòng chữ 'trẻ béo phì' trên phiếu.
-- Sở Giáo dục và Đào tạo Thái Bình vừa gửi báo cáo bộ về sự việc trẻ mầm non 5 tuổi tử vong do bị bỏ quên trên xe đưa đón, xảy ra tại Trường mầm non Hồng Nhung cơ sở 2 (Thái Bình).
-- Ngày 30-5, UBND tỉnh Thái Bình có công văn chỉ đạo khẩn sau sự việc bé trai 5 tuổi chết vì bị bỏ quên trên ô tô đưa đón của Trường mầm non Hồng Nhung.
-- Đẩy con về quê nghỉ hè với ông bà thì con nhớ cha đòi mẹ nên phải chọn cách: vừa làm việc ở công ty vừa theo dõi con đang ở nhà qua camera.
-- Lúc được tìm thấy trên xe đưa đón, cháu H. đã bất tỉnh, phần ghế ngồi nơi tìm thấy cháu bị cào xước như thể cháu đã cố gắng vùng vẫy để mong được cứu...
-- Ngày 30-5, Sở Giáo dục và Đào tạo Hà Nội cho biết đã bổ sung 3.210 chỉ tiêu tuyển sinh lớp 10 năm học 2024-2025.
-- Gia cảnh khó khăn, Trần Tiến Lợi (lớp 12KC4 Trường phổ thông Năng khiếu - Đại học Quốc gia TP.HCM) đã tự gây quỹ cho chính mình viết tiếp ước mơ đi học.
-- Để đảm bảo an toàn cho học sinh, xe đưa đón ở các nước được gắn cảm biến thông minh, tài xế và người giám sát phải tuân thủ những quy định nghiêm ngặt...
-- Cháu bé bị bỏ quên trên xe đưa đón cả chục giờ đồng hồ dưới cái nóng gần 40 độ, và người phát hiện ra vẫn không phải lái xe, cô giáo...
-- Ngay tối 29-5, Công an TP Thái Bình (tỉnh Thái Bình) đã ra quyết định khởi tố vụ án liên quan vụ cháu bé 5 tuổi chết trong ô tô đưa đón học sinh của Trường mầm non Hồng Nhung.
-- Tối 29-5, ông Nguyễn Khắc Thận - chủ tịch UBND tỉnh Thái Bình - chủ trì cuộc họp khẩn, chỉ đạo điều tra vụ trẻ mầm non chết trong xe ô tô đưa đón do bị bỏ quên.
-- Đến 20h30 ngày 29-5, cơ quan chức năng của Thái Bình vẫn đang khoanh vùng hiện trường chiếc xe đưa đón trẻ thuộc Trường mầm non Hồng Nhung cơ sở 2 ở TP Thái Bình có trẻ tử vong, nghi do bị bỏ quên trên xe.
-- Trường đại học Y khoa Phạm Ngọc Thạch vừa công bố đề án tuyển sinh đại học chính quy năm 2024, và mức học phí dự kiến với sinh viên đại học chính quy năm học tới.
-- Theo phản ánh, học sinh chỉ được ký nhận tiền thưởng danh hiệu học sinh giỏi, nhưng thực chất các em không được nhận số tiền này, giáo viên chủ nhiệm thông báo nhà trường dùng cho mục đích khác.
-- UBND huyện Minh Hóa đã thành lập đoàn thanh tra đột xuất Trường mầm non số 1 thị trấn Quy Đạt, để làm rõ những vấn đề khuất tất liên quan đến phản ứng của hội phụ huynh về việc xã hội hóa mua tủ đồ cho học sinh.
-- Gia đình thường trú ở quận 3, TP.HCM nhưng trang web tuyển sinh lại 'đẩy về' quận 10, phải làm sao để con vào lớp 6 ở quận 3?
-- Sinh viên Trường đại học Tài chính - Marketing lo có thể bị trễ tiến độ tốt nghiệp do nhà trường thay đổi chuẩn đầu ra ngoại ngữ.
-- Trong lễ tổng kết, hội trưởng hội phụ huynh trường lên giãi bày về những bất thường trong việc nhà trường xã hội hóa mua tủ bỏ đồ cho các lớp thì bị hiệu trưởng lên chỉ mặt ngăn cản.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Dự báo trong 24 giờ tới, áp thấp nhiệt đới ở khu vực phía bắc quần đảo Hoàng Sa có khả năng mạnh lên thành bão.
-- Trên đường đi làm ruộng về, hai anh em ruột ở Lào Cai đi qua suối thì bị lũ cuốn trôi. Đến sáng 31-5, thi thể người anh được tìm thấy, còn em gái vẫn mất tích.
-- Cảnh sát giao thông đã xử phạt vi phạm hành chính 1 triệu đồng, tước bằng lái xe 2 tháng đối với anh V.V.Q., tài xế xe bán tải để bé trai ngồi trên thùng xe này khi chạy trên cao tốc Mai Sơn - quốc lộ 45.
-- Đà Nẵng sẽ có khoảng 38 dự án bến du thuyền được ưu tiên đầu tư, với tổng mức đầu tư khoảng 7.260 tỉ đồng.
-- Chủ nhân của hai chú chó bị kéo lê trên đường phố Đà Nẵng vừa lên tiếng xin lỗi, do việc anh gây ra chỉ là vô ý.
-- Tin tức đáng chú ý: San hô Côn Đảo chết và bị tẩy trắng vì nước biển nóng; Sẽ giảm nhiều loại phí, lệ phí tháo gỡ khó khăn cho doanh nghiệp và người dân, có phí căn cước; TP.HCM thanh, kiểm tra nhiều công trình giao thông trọng điểm trong năm 2024...
-- Hôm nay 31-5, các tỉnh thành miền Bắc, miền Nam, Tây Nguyên mưa rào đến mưa to, riêng miền Trung nắng nóng, chiều tối mưa dông.
-- Một quán ăn trên phố Dịch Vọng Hậu (quận Cầu Giấy, Hà Nội) bốc cháy ngùn ngụt, nhiều người bên trong hoảng loạn, hô hoán chạy ra ngoài thoát thân.
-- Hàng chục công nhân của các đơn vị tham gia khắc phục sự cố sạt lở hầm đường sắt Chí Thạnh vẫn đang tiếp tục thực hiện những công đoạn cuối cùng để thông hầm sớm nhất có thể.
-- Chiều 30-5 tại Phủ Chủ tịch, Chủ tịch nước Tô Lâm đã tiếp đại sứ, đại biện các nước ASEAN và Timor-Leste tại Hà Nội đến chào, chúc mừng.
-- Loại tủ mà trường mầm non số 1 Quy Đạt đặt mua cho các lớp là gì mà sau khi bị hội phụ huynh phản đối thì vị này báo giá giảm từ 6 xuống 4 triệu đồng?
-- 'Xây dựng không gian văn hóa Hồ Chí Minh phải khơi gợi được truyền thống yêu nước, khát vọng xây dựng TP, quận, phường ấm no, hạnh phúc trong mỗi người dân'.
-- Đại tướng Phan Văn Giang cho biết nước ta đã sản xuất được những loại áo giáp chỉ nặng bằng một nửa các loại áo giáp trước phải nhập của các nước tiên tiến.
-- Các cơ quan tố tụng tại tỉnh Đắk Nông đã đình chỉ điều tra, đình chỉ bị can để thực hiện các thủ tục bồi thường đối với một người dân bị tù oan.
-- Liên quan đến việc mới có chủ trương đã xây khu biệt thự trên đất rẫy trồng cà phê, ngành chức năng bất nhất trong xử lý vi phạm.
-- HĐND tỉnh Lạng Sơn khóa XVII xem xét, quyết định công tác nhân sự, trong đó có bãi nhiệm ủy viên UBND tỉnh với giám đốc Công an tỉnh Lạng Sơn Thái Hồng Công.
-- Ngày 30-5, tại xã Hồng Lý, huyện Vũ Thư, tỉnh Thái Bình xảy ra vụ sập giàn giáo khiến một người chết, hai người bị thương.
-- Vùng mây dông từ phía bắc có xu hướng phát triển, di chuyển nhanh về nội thành Hà Nội và bắt đầu gây mưa rào và dông.
-- Sau phản ảnh về nơi ngập rác y tế cùng hàng ngàn chai lọ không nhãn mác, UBND phường Tân Tạo (quận Bình Tân) đã kiểm tra, cắm bảng 'điểm rác', 'đang xử lý'.
-- Cơ quan khí tượng nhận định áp thấp nhiệt đới đang hoạt động ở khu vực quần đảo Hoàng Sa có khả năng mạnh thêm, nhưng ít có khả năng ảnh hưởng trực tiếp đến đất liền nước ta.
-- Tổng công ty Điện lực TP.HCM đã điều động hơn 150 cán bộ, kỹ sư, công nhân để tiếp sức thi công xây dựng dự án đường dây 500kV mạch 3 Quảng Trạch - Phố Nối.
-- Quảng Ngãi thành lập Ban chỉ đạo các công trình trọng điểm do ông Đặng Ngọc Huy, phó bí thư Tỉnh ủy làm trưởng ban.
-- Bộ trưởng Lê Minh Hoan sẽ trực tiếp kiêm nhiệm vụ trưởng Ban chỉ đạo thực hiện đề án thực hiện 1 triệu hecta lúa chất lượng cao vùng Đồng bằng sông Cửu Long.
-- Trường học và cầu treo dân sinh được xã Trà Vinh (huyện Nam Trà My, tỉnh Quảng Nam) vận động xây dựng giúp dân bị chính quyền tỉnh Kon Tum yêu cầu tạm dừng.
-- Đoàn đại biểu Đảng Cộng sản Việt Nam do ông Nguyễn Trọng Nghĩa - ủy viên Bộ Chính trị, bí thư Trung ương Đảng, trưởng Ban Tuyên giáo Trung ương - dẫn đầu đã có chuyến thăm và làm việc tại Cộng hòa Angola.
-- Các ngân hàng thương mại Nhà nước bán vàng với giá phù hợp, không vì lợi nhuận, đảm bảo giảm chênh lệch giá vàng trong nước và quốc tế.
-- Chiều 30-5, Trung tâm Quản lý giao thông công cộng TP.HCM thông tin vừa đình chỉ một tài xế xe buýt cố ý vượt đèn đỏ, đồng thời chuyển vụ việc qua cảnh sát giao thông xem xét xử lý hành vi vi phạm Luật Giao thông đường bộ.
-- Cho đến nay, Bệnh viện Đa khoa tỉnh Gia Lai chưa được thanh toán 8,3 tỉ đồng tiền khám chữa bệnh bảo hiểm y tế từ năm 2018.
-- Lực lượng cảnh sát giao thông vừa xử lý vụ tài xế xe bán tải để một bé trai ngồi trên thùng xe chạy trên cao tốc Mai Sơn - quốc lộ 45, đoạn qua tỉnh Thanh Hóa.
-- Một doanh nghiệp kinh doanh vàng tại Quảng Bình vừa bị xử phạt hơn 200 triệu đồng vì làm giả nhãn hiệu Chanel.
+- Chủ đầu tư dự án đường cao tốc Đà Nẵng - Quảng Ngãi cho rằng do ảnh hưởng của các cơn bão, lốc và hiệu ứng hiện tượng El Nino do biến đổi khí hậu, tình trạng hư hỏng biển báo trên tuyến đường này tiếp tục xuất hiện.
+- Hôm nay 1-6, thời tiết Nam Bộ và Tây Nguyên tiếp tục có mưa sau buổi trưa, mưa giảm so với hôm qua nhưng vài nơi vẫn còn mưa to.
+- Một số tin tức đáng chú ý: Chính phủ yêu cầu đánh giá tác hại thuốc lá điện tử; TP.HCM đề xuất hỗ trợ giáo viên môn khó tuyển; Thảo cầm viên tặng quà Tết Thiếu nhi...
+- Tối 31-5, Văn phòng quản lý đường bộ III.1 (Khu Quản lý đường bộ III) cho biết vừa xảy ra vụ tai nạn nghiêm trọng trên tuyến đường La Sơn - Hòa Liên khiến một xe rơi xuống cầu.
+- Bỉ, Phần Lan, Slovenia, Hungary nằm trong số các quốc gia châu Âu chúc mừng Chủ tịch nước Tô Lâm. Ngoài ra còn có Hàn Quốc, Thái Lan và một số nước châu Á khác.
+- Thông tin do đại diện Phòng cảnh sát phòng cháy, chữa cháy và cứu nạn cứu hộ - Công an TP.HCM nêu tại họp báo thường kỳ vào chiều 31-5.
+- Thông tin xử lý người xả rác, đốt rác trái phép do đại diện Sở Tài nguyên và Môi trường TP.HCM nêu tại họp báo thường kỳ tháng 5-2024 vào chiều 31-5.
+- Cơ quan điều tra vụ thi thể một trẻ sơ sinh trong túi ni lông. Chiếc túi này treo trên thân cây trước số nhà 12 Nguyễn Xiển (quận Thanh Xuân, Hà Nội).
+- Chủ tịch UBND TP.HCM Phan Văn Mãi cho biết trong tháng 6, UBND TP sẽ đi kiểm tra từng dự án, từng nhà thầu, xử lý các đơn vị thi công chậm, ảnh hưởng tiến độ giải ngân vốn đầu tư công.
+- Trong 38 tác phẩm, chùm tác phẩm thuộc 5 thể loại báo chí đạt Giải thưởng báo chí tỉnh Bình Định năm 2024, loạt bài về "cô bé bom hàng hiếu thảo và chị chủ shop tốt bụng" của báo Tuổi Trẻ đạt giải B thể loại báo điện tử.
+- Chiều 31-5, do ảnh hưởng của vụ tai nạn liên hoàn trên cao tốc TP.HCM - Long Thành - Dầu Giây khiến dòng xe kẹt kéo dài, hàng ngàn xe di chuyển khó khăn.
+- Hai vợ chồng ở tỉnh Đắk Nông bị khởi tố tội "lừa đảo chiếm đoạt tài sản", sau đó đổi tội danh khác, nhưng sau 8 năm, cơ quan chức năng không đủ cơ sở để buộc tội họ. Họ đang yêu cầu cơ quan gây ra oan ức phải bồi thường thiệt hại.
+- Hơn 400 phần quà đã được trao cho ngư dân và con em của những hộ gia đình có hoàn cảnh khó khăn tại tỉnh Tiền Giang.
+- Ngày 31-5, UBND tỉnh Đồng Tháp tổ chức hội nghị phân tích và đánh giá chỉ số năng lực cạnh tranh (PCI) và chỉ số xanh (PGI).
+- An Giang tạm phân luồng một chiều xe vào tuyến tránh TP Long Xuyên, hướng từ Kiên Giang, cầu Vàm Cống đi TP Châu Đốc để né sạt lở trên quốc lộ 80.
+- Một bệnh nhi 9 tuổi bị viêm cơ tim, suy tim nguy kịch đến tính mạng vừa được các bác sĩ tại Bệnh viện Trung ương Huế cứu sống bằng kỹ thuật tim phổi nhân tạo.
+- Sau cơn mưa lớn, rốn ngập ngã ba Trảng Dài trên đường Đồng khởi (TP Biên Hòa, Đồng Nai) vẫn chìm trong nước.
+- Đó là khẳng định của ông Nguyễn Thái Học, quyền bí thư Tỉnh ủy Lâm Đồng, tại buổi gặp mặt lãnh đạo cấp phó các sở ngành tỉnh này.
+- Thông tin trên được Công ty TNHH MTV Thoát nước Hà Nội đưa ra tại hội nghị thông tin về kế hoạch thoát nước mùa mưa năm 2024 tại Hà Nội diễn ra chiều 31-5.
+- Chủ đầu tư dự án kênh Tham Lương - Bến Cát cho biết hiện vẫn còn 48 trường hợp liên quan đến việc tái lấn chiếm hoặc giao cắt, chồng lấn ranh với dự án khác.
+- Đó là chia sẻ của ông Nguyễn Văn Quảng - bí thư Thành ủy Đà Nẵng - tại phiên thảo luận về cơ chế, chính sách đặc thù cho tỉnh Nghệ An và TP Đà Nẵng tại Quốc hội ngày 31-5.
+- Lần đầu tiên tại Huế sẽ tổ chức một cuộc đua xe địa hình quy mô lớn với 88 đội đua quy tụ tại công viên nước hồ Thủy Tiên.
+- Một thầy giáo tiểu học ở huyện Quỳnh Lưu, Nghệ An tử vong trong nhà nghỉ sau lễ tổng kết năm học.
+- Cơ quan điều tra vừa bắt tạm giam một công chức thuộc Chi cục Hải quan cửa khẩu sân bay quốc tế Cam Ranh về tội nhận hối lộ.
+- Sáng 31-5, một vụ sạt lở nghiêm trọng khiến 10 căn nhà trên bờ sông Bình Thủy (khu vực Bình Yên A, phường Long Hòa, quận Bình Thủy, TP Cần Thơ) bị sụp một phần xuống sông.
+- Để xảy ra khai thác cát trên sông La Ngà, chủ tịch và phó chủ tịch UBND xã Phú Thanh, huyện Tân Phú, tỉnh Đồng Nai vừa bị công an bắt tạm giam.
+- 5 tháng đầu năm, TP.HCM mới chỉ giải ngân vốn đầu tư công khoảng 14% kế hoạch vốn.
+- Vị trí giải phóng mặt bằng nút giao thông đều ở mặt tiền đường chính, trong trung tâm quận Ninh Kiều, TP Cần Thơ.
+- “Những vấn đề cấp thiết đặt ra trong xây dựng chính quyền đô thị sắp tới tại TP.HCM là hoàn thiện đồng bộ về thể chế và cơ chế chính sách đối với hoạt động”.
+- Sau khi đóng tủ xong, hiệu trưởng mới mời hội phụ huynh đến ký hợp đồng, biên bản bàn giao, biên bản thanh lý.
 ![New](News.png)
 ## Nhịp sống số 
+- 7 thí sinh Việt Nam đều đoạt giải Olympic tin học châu Á, trong đó có 1 huy chương vàng, 6 huy chương bạc.
 - Các cuộc tấn công mạng, lừa đảo trực tuyến sẽ ngày càng tăng theo cấp số nhân, và ngày càng tinh vi vì có AI hỗ trợ.
 - Mới đây, Huawei chính thức cho ra mắt đồng hồ thông minh mới HUAWEI WATCH FIT 3.
 - Sau đại dịch, ngành dược đã nhận thấy những cơ hội phát triển mạnh mẽ từ việc thúc đẩy ứng dụng công nghệ nhiều hơn.
@@ -94,5 +95,4 @@
 - Nếu Công ty Netflix không tuân thủ, Bộ Thông tin và Truyền thông sẽ phối hợp các cơ quan quản lý nhà nước liên quan xử lý theo quy định pháp luật Việt Nam.
 - Chìa khóa giải mã cho sự phát triển vượt trội của TV360 và Viettel Money là nền tảng khổng lồ của Tập đoàn công nghệ lớn nhất Việt Nam - Viettel.
 - Những video, âm thanh và hình ảnh do AI tạo ra hoặc do AI thay đổi nội dung sẽ được Meta gắn nhãn 'tạo bởi AI' để phân biệt với những sản phẩm khác.
-- Chuyên gia cảnh báo các cuộc tấn công mạng có xu hướng 'tự động hóa và cá nhân hóa' khi kẻ tấn công sử dụng thư điện tử lừa đảo và cuộc gọi điện thoại giả mạo do AI điều khiển để đánh lừa nạn nhân.
 ![life](Life.png)
