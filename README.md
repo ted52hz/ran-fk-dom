@@ -1,6 +1,12 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Chiều 2-6, nhiều thí sinh rời phòng thi trong tâm trạng khá thoải mái sau khi kết thúc hai môn thi đầu tiên của kỳ thi tuyển sinh vào lớp 10 Đà Nẵng.
+- Ngày 2-6 tại Hà Nội diễn ra lễ tổng kết và trao giải quốc gia Cuộc thi vô địch thiết kế đồ họa thế giới ACP mùa giải 2024.
+- Tại kỳ thi tuyển sinh vào lớp 10 Đà Nẵng, có một số thí sinh vừa phẫu thuật, vừa bị tai nạn giao thông… được bố trí phòng thi đặc biệt.
+- 11h sáng 2-6, các thí sinh đã hoàn tất bài làm trong kỳ thi đánh giá năng lực đợt 2 của Đại học Quốc gia TP.HCM.
+- Đề văn vào lớp 10 Đà Nẵng năm nay với phần nghị luận xã hội bàn về chủ đề môi trường được đánh giá khá hay.
+- Hai vợ chồng Bùi Phương Linh (sinh năm 1991) và Phạm Thanh Tùng (1992) cùng là tiến sĩ tại Trường Y tế công cộng T.H. Chan Đại học Harvard.
 - Đợt 2, cũng là đợt cuối cùng kỳ thi đánh giá năng lực của Đại học Quốc gia TP.HCM, diễn ra sáng nay 2-6.
 - Ngày 2-6, hơn 16.500 thí sinh dự kỳ thi tuyển sinh vào lớp 10 các trường THPT công lập Đà Nẵng.
 - Tối 1-6, tại Cung Thể thao Tiên Sơn, Đà Nẵng diễn ra lễ khai mạc Đại hội Thể thao học sinh Đông Nam Á lần thứ 13.
@@ -25,44 +31,38 @@
 - Cô giáo trẻ vừa đi làm 4 năm, lương đúng nghĩa ba cọc ba đồng, nhưng cô luôn dành một phần để mua quà khen tặng học sinh.
 - Khai giảng nhiều khóa trước cả thi tốt nghiệp THPT, kết nối mạnh với doanh nghiệp và hiệp hội các nước để cung ứng nguồn lao động 'xuyên biên giới'... nhiều trường nghề cho thấy bức tranh tươi mới trong mùa tuyển sinh 2024.
 - Ở một số nước, dù chưa xảy ra chuyện đau lòng như Việt Nam nhưng việc xử lý rất nghiêm khắc.
-- 7 thí sinh Việt Nam đều đoạt giải Olympic tin học châu Á, trong đó có 1 huy chương vàng, 6 huy chương bạc.
-- Nhiều vấn đề đặt ra từ vụ trẻ mầm non chết do bị bỏ quên trên xe đưa đón học sinh ở Thái Bình mới đây.
-- Sau cái chết của cháu Trần Gia Huy (5 tuổi, trú tại huyện Vũ Thư, tỉnh Thái Bình), nhiều câu hỏi được đặt ra về đảm bảo an toàn trong đưa đón học sinh.
-- Năm đầu tiên toàn TP.HCM thực hiện tuyển sinh đầu cấp theo bản đồ GIS (nơi ở thực tế), tuy nhiên các quận huyện lại làm mỗi nơi một kiểu dù đã có quy định chung của Sở Giáo dục và Đào tạo TP.HCM.
-- Kiểm toán rác là một trong nhiều cách mà các trường học ở Đà Nẵng đang áp dụng nhằm hạn chế rác thải ra môi trường.
-- Sau buổi bế giảng năm học cuối cấp, cả 40 học sinh lớp 12/8 Trường THPT Trần Phú, Đà Nẵng được nhận những món quà bất ngờ từ cô chủ nhiệm.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Ba dự án cao tốc kết nối TP.HCM với Bình Dương và các tỉnh Đông Nam Bộ được thúc đẩy sẽ tạo động lực mới để thu hút đầu tư.
+- Từ ngày 3 đến 8-6, kỳ họp 7 của Quốc hội bước vào tuần làm việc thứ 3 và cũng là tuần làm việc cuối cùng của đợt 1. Trọng tâm của tuần này là Quốc hội dành 2,5 ngày cho việc chất vấn và trả lời chất vấn với 4 nhóm vấn đề.
+- Tin tức đáng chú ý: Quốc hội họp tuần cuối đợt 1, sẽ chất vấn 4 'tư lệnh' ngành; Sớm đưa 2 vắc xin ngừa HPV và phế cầu vào tiêm chủng mở rộng...
+- Hôm nay 3-6, thời tiết Nam Bộ ngày nắng, chiều mưa rào, một số nơi khác ở Trung Bộ, Bắc Bộ nắng nóng.
+- Quảng Bình vừa kỷ niệm 420 năm hình thành tỉnh. Tại buổi lễ, Thủ tướng Phạm Minh Chính muốn tỉnh này phát huy khí phách “Quảng Bình quật khởi”.
+- Sau mỗi mùa hạn mặn, người lao động ở Đồng bằng sông Cửu Long lại ly hương để đến TP.HCM, Bình Dương, Đồng Nai… tìm việc làm. Vì sao như vậy?
+- Thượng tướng Nguyễn Duy Ngọc, thứ trưởng Bộ Công an, vừa có thư khen gửi giám đốc Công an TP.HCM đã chủ trì, phối hợp công an 18 tỉnh, thành triệt xóa 2 hội nhóm trên mạng mua bán vũ khí, vật liệu nổ.
+- Trong 5 năm (2019-2023), Kiểm toán Nhà nước đã chuyển 19 vụ việc có dấu hiệu vi phạm pháp luật qua kiểm toán cho cơ quan cảnh sát điều tra xem xét xử lý.
+- Thời gian gần đây khách hàng mua đất liền kề ngã ngửa vì biết những lô đất nộp tiền cọc từ nhiều năm trước vẫn đang được quy hoạch là đất biệt thự.
+- Thủ tướng Phạm Minh Chính thăm và kiểm tra một số công trình trọng điểm tại Quảng Bình nhân kỷ niệm 420 năm hình thành tỉnh.
+- Giai đoạn 2019-2023 đã hỗ trợ xây mới, sửa chữa trên 6.614 căn nhà với tổng kinh phí hơn 293 tỉ đồng.
+- Dự án khu phức hợp Hòa Bình Green Đà Nẵng của công ty ông Nguyễn Hữu Đường (đại gia Đường 'bia') xây sai phép từ năm 2019.
+- Khu vực xung quanh và chợ Bến Thành sẽ được cải tạo lại hứa hẹn thành một điểm đến thu hút của TP.HCM trong thời gian tới.
+- Ngày 2-6, UBND tỉnh Đồng Nai vừa có văn bản gửi Ủy ban Thường vụ Quốc hội về việc xử lý nguồn đất đắp từ dự án sân bay Long Thành phục vụ thi công tuyến đường cao tốc Biên Hòa - Vũng Tàu.
+- Dù UBND TP.HCM đã chỉ đạo các đơn vị liên quan xử lý các điểm đen rác thải mà báo chí phản ánh, thực tế tình hình vẫn không có nhiều thay đổi.
+- Tài xế là sĩ quan một đơn vị quân đội, vi phạm nồng độ cồn, lái xe bỏ chạy sau khi xảy ra tai nạn giao thông khiến một phụ nữ bị thương.
+- Bộ trưởng Nguyễn Văn Hùng đề xuất xây dựng chính sách với viên chức lĩnh vực nghệ thuật biểu diễn thuộc danh mục nghề, công việc nặng nhọc, độc hại, nguy hiểm.
+- Tuyến đường BOT ở Đồng Nai vừa giặm vá đã hư hỏng, mặt đường đầy ổ gà, ổ voi như bẫy người đi đường.
+- Bộ trưởng Nguyễn Văn Hùng đánh giá tiền lương vận động viên thể thao thấp dẫn tới khó khăn trong thực hiện chính sách đãi ngộ, thu hút nhân tài.
+- Ông Nguyễn Văn Nhưỡng - nguyên chủ tịch UBND xã Bãi Thơm (TP Phú Quốc) và Trần Quốc Anh - cán bộ địa chính xã này - vừa bị công an bắt.
+- Tuần này, thời tiết Bắc Bộ và Nam Bộ duy trì mưa, có nơi mưa to; Trung Bộ nắng nóng.
+- Giải thích biển báo trên cao tốc bị hư hỏng do biến đổi khí hậu khiến nhiều người ngạc nhiên. Chuyên gia nói gì về chuyện này?
+- Một kho đồ nhựa và đồ gia dụng ở thôn Võ Kiện (xã Diên An, huyện Diên Khánh, tinh Khánh Hòa) cháy sáng 2-6 khiến một vùng trời ngập khói đen.
+- Sáng 2-6, Công an Đà Lạt cho biết đã tìm thấy thi thể người quanh khu vực phát hiện chân người trước đó.
+- Từ cổng trường học đến quán nước vỉa hè, quán cà phê... không khó để bắt gặp những làn khói trắng xóa, đầy hương thơm của thuốc lá điện tử.
 - Một số tin tức đáng chú ý: Công ty đầu tư nhà ở xã hội vay trái phiếu lãi suất khủng vừa báo lỗ; Chi trả trên 3.500 tỉ đồng lương hưu, trợ cấp BHXH cho người dân ở Hà Nội; Hơn 6 triệu trẻ em được bổ sung vitamin A...
 - Sau một ngày thời tiết nắng nóng dịu bớt, hôm nay Trung Bộ nắng nóng trở lại. Nam Bộ, Bắc Bộ có mưa dông.
 - Tối 1-6, tại Cung Thể thao Tiên Sơn, Đà Nẵng diễn ra lễ khai mạc Đại hội Thể thao học sinh Đông Nam Á lần thứ 13.
 - Sở Giao thông vận tải TP.HCM đề xuất mở rộng đoạn đường dẫn cao tốc TP.HCM - Long Thành đoạn từ nút giao An Phú đến đường vành đai 2 lên 8 làn.
 - Chiếc xe đầu kéo chở hàng đang chạy trên quốc lộ 3 (tỉnh Cao Bằng) bất ngờ bị lật thùng hàng, đè lên xe tải nhỏ đi chiều ngược lại khiến tài xế mắc kẹt tử vong.
-- Theo Thứ trưởng Bộ Y tế Đỗ Xuân Tuyên, trong 5 tháng đầu năm 2024, toàn quốc đã ghi nhận 36 vụ ngộ độc thực phẩm, khiến trên 2.100 người mắc và 6 trường hợp tử vong.
-- Cán bộ Công an TP Cẩm Phả, tỉnh Quảng Ninh kịp thời ngăn chặn cụ bà chuyển thêm hơn 4 tỉ đồng cho kẻ lừa đảo trên mạng. Trước đó cụ bà đã rút và chuyển hơn 1 tỉ đồng.
-- Thủ tướng vừa có công điện về việc huy động các nguồn lực của địa phương để bảo đảm hậu cần và tăng cường hỗ trợ thi công.
-- Do nhận nhiệm vụ mới tại Văn phòng Chủ tịch nước, trung tướng Tô Ân Xô thôi làm nhiệm vụ người phát ngôn Bộ Công an.
-- Theo thiếu tướng Hoàng Anh Tuyên, vụ Phúc Sơn đã thu giữ trên 300 tỉ đồng, 2 triệu USD, 500 lượng vàng, hơn 1.000 sổ đỏ, còn vụ Thuận An thu giữ gần 40 tỉ đồng.
-- Sở Giao thông vận tải TP.HCM vừa báo cáo UBND TP về tình hình triển khai xây dựng đề án kiểm soát khí thải phương tiện giao thông tại TP.
-- Con đường thuộc dự án BOT ở gần trung tâm TP Biên Hòa, Đồng Nai trở thành nỗi ám ảnh của người dân. Đường vừa giặm vá đã hư hỏng và sình lầy như... đường ruộng.
-- Một vật giống chân người cắt rời đã bị phân hủy được phát hiện trên đường Hoa Hồng, trong khu du lịch quốc gia hồ Tuyền Lâm (Đà Lạt).
-- Ngày 1-6, Trung ương Đoàn phối hợp với UBND tỉnh Quảng Ninh tổ chức khai mạc hè, triển khai lớp dạy bơi miễn phí nhằm hưởng ứng Tháng hành động vì trẻ em.
-- Ông Hồ Quang Huy - chủ tịch UBND TP Móng Cái, tỉnh Quảng Ninh - bị kỷ luật cảnh cáo liên quan vi phạm trong thực hiện dự án đường kết nối từ cao tốc Vân Đồn - Móng Cái đến cảng Vạn Ninh.
-- Trong tháng 6, khả năng xuất hiện 1 - 2 cơn bão, áp thấp nhiệt đới (bao gồm cả bão số 1 - tên quốc tế là Maliksi).
-- Diện tích nhà ở bình quân của Hà Nội hiện nay là 29m2/người, TP đang phấn đấu đạt 31m2/người trong những năm tới.
-- Theo Bộ Nội vụ, có 10 tỉnh không thực hiện sáp nhập huyện, xã giai đoạn 2023 - 2025. Các địa phương đề xuất không sáp nhập với hơn 500 huyện, xã do có yếu tố đặc thù.
-- Đó là đề nghị của Phó thủ tướng Trần Hồng Hà gửi đến các bộ, ngành, địa phương tại lễ phát động Tháng hành động vì trẻ em 2024.
-- Với đặc thù quận trung tâm “tấc đất tấc vàng” nhưng người dân quận 3 nhiều năm qua hiến hàng ngàn mét vuông đất để mở rộng hẻm, giúp giao thông thuận lợi, tăng cường phòng cháy chữa cháy.
-- Những ngày này, công trường xây dựng Bệnh viện Đa khoa khu vực Thủ Đức, Hóc Môn, Củ Chi đang tất bật thi công để về đích kịp tiến độ, đáp ứng mong chờ của người dân và chia lửa cho các bệnh viện tuyến cuối.
-- HĐND TP Thủ Đức vừa bầu ông Đỗ Anh Khang - phó chủ tịch UBND quận Gò Vấp - làm phó chủ tịch UBND TP Thủ Đức.
-- Các chuyên gia đã mổ xẻ nguyên nhân và góp ý cho việc giảm ngập khu vực chợ Thủ Đức và nhiều tuyến đường khu vực này.
-- Sáng 1-6, Thủ tướng Phạm Minh Chính chủ trì phiên họp Chính phủ thường kỳ tháng 5-2024 nhằm thảo luận tình hình kinh tế-xã hội 5 tháng đầu năm...
-- Chủ đầu tư dự án đường cao tốc Đà Nẵng - Quảng Ngãi cho rằng do ảnh hưởng của các cơn bão, lốc và hiệu ứng hiện tượng El Nino do biến đổi khí hậu, tình trạng hư hỏng biển báo trên tuyến đường này tiếp tục xuất hiện.
-- Hôm nay 1-6, thời tiết Nam Bộ và Tây Nguyên tiếp tục có mưa sau buổi trưa, mưa giảm so với hôm qua nhưng vài nơi vẫn còn mưa to.
-- Một số tin tức đáng chú ý: Chính phủ yêu cầu đánh giá tác hại thuốc lá điện tử; TP.HCM đề xuất hỗ trợ giáo viên môn khó tuyển; Thảo cầm viên tặng quà Tết Thiếu nhi...
-- Tối 31-5, Văn phòng quản lý đường bộ III.1 (Khu Quản lý đường bộ III) cho biết vừa xảy ra vụ tai nạn nghiêm trọng trên tuyến đường La Sơn - Hòa Liên khiến một xe rơi xuống cầu.
-- Bỉ, Phần Lan, Slovenia, Hungary nằm trong số các quốc gia châu Âu chúc mừng Chủ tịch nước Tô Lâm. Ngoài ra còn có Hàn Quốc, Thái Lan và một số nước châu Á khác.
-- Thông tin do đại diện Phòng cảnh sát phòng cháy, chữa cháy và cứu nạn cứu hộ - Công an TP.HCM nêu tại họp báo thường kỳ vào chiều 31-5.
 ![New](News.png)
 ## Nhịp sống số 
 - 7 thí sinh Việt Nam đều đoạt giải Olympic tin học châu Á, trong đó có 1 huy chương vàng, 6 huy chương bạc.
