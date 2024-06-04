@@ -1,6 +1,21 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Sau khi phúc khảo, điểm môn toán của một thí sinh thi vào Trường THPT chuyên Lam Sơn (Thanh Hóa) tăng từ 1 lên 9 điểm. Nguyên nhân do lỗi ở quá trình nhập điểm, trách nhiệm thuộc về bộ phận lên điểm.
+- Đến nay các trường đại học đào tạo khối ngành y dược ở TP.HCM đều đã công bố mức thu học phí năm học 2024 - 2025 hầu hết đều tăng so với năm trước.
+- Ngày mai (5-6), hơn 98.600 thí sinh sẽ làm thủ tục dự thi vào lớp 10 tại TP.HCM năm học 2024-2025.
+- Ngày 3-6, UBND TP Hải Phòng thông tin kết quả điều tra vụ việc trẻ mầm non của Trường mầm non An Dương, quận Lê Chân bị bầm tím lưng.
+- Phó thủ tướng Trần Hồng Hà vừa ký quyết định thành lập Trường đại học Khoa học sức khỏe (Đại học Quốc gia TP.HCM).
+- Lãnh đạo UBND huyện Phúc Thọ (Hà Nội) cho hay do mưa nhiều, phần gạch vữa của nhà văn hóa bị tróc, đổ sập xuống sân khấu khiến 6 trẻ bị thương nhẹ, một số em phải vào viện sơ cứu.
+- TP Cần Thơ có 17.400 học sinh lớp 9, nhưng chỉ 14.614 em đăng ký dự thi vào lớp 10 công lập.
+- Cơ quan chức năng tại TP.HCM sẽ tăng cường kiểm tra để đảm bảo an toàn đối với hoạt động đưa rước học sinh.
+- Phụ huynh Trường tiểu học Hanh Thông (quận Gò Vấp, TP.HCM) phản ảnh việc trường không khen thưởng cho học sinh đoạt giải cấp quận, cấp TP. Đến khi phụ huynh thắc mắc, trường mới bổ sung khi đã nghỉ hè.
+- Trong kỳ thi đánh giá năng lực đợt 2 ngày 2-6, một thí sinh tại TP.HCM mất thẻ căn cước công dân đã xuất trình VNeID định danh cấp độ 2, nhưng không được chấp nhận cho vào thi.
+- Áp lực ngày càng tăng đối với trẻ em Trung Quốc dẫn tới sự ra đời của một nghề mới: Bạn đồng hành cùng sự phát triển của trẻ. Thu nhập cho nghề 'siêu gia sư' này có thể lên tới 60.000 nhân dân tệ/tháng.
+- Năm 2024 sẽ có hơn 21.000 thí sinh không đậu vào lớp 10 công lập tại TP.HCM. Đó là chưa kể hơn 16.000 thí sinh không đăng ký dự thi lớp 10.
+- Trong 3 trường THCS thì Trường THCS Hoa Lư, TP Thủ Đức có số thí sinh dự tuyển vào lớp 6 cao nhất là 1.116 em.
+- Trưa 3-6, gần 16.500 thí sinh thi vào lớp 10 ở Đà Nẵng đã hoàn thành xong bài thi môn toán. Đề toán năm nay được nhiều thí sinh đánh giá có độ phân hóa cao.
+- Điều tra độc quyền của Tuổi Trẻ phát hiện trong bảng xếp hạng 'nhà khoa học hàng đầu thế giới' của Research.com, nhiều người có bài báo khoa học bị gỡ, tên ông A nhưng hình ông B, nam biến thành nữ...
 - Chiều 2-6, nhiều thí sinh rời phòng thi trong tâm trạng khá thoải mái sau khi kết thúc hai môn thi đầu tiên của kỳ thi tuyển sinh vào lớp 10 Đà Nẵng.
 - Ngày 2-6 tại Hà Nội diễn ra lễ tổng kết và trao giải quốc gia Cuộc thi vô địch thiết kế đồ họa thế giới ACP mùa giải 2024.
 - Tại kỳ thi tuyển sinh vào lớp 10 Đà Nẵng, có một số thí sinh vừa phẫu thuật, vừa bị tai nạn giao thông… được bố trí phòng thi đặc biệt.
@@ -16,53 +31,38 @@
 - Mẹ và con là bạn học Trường Yale. Tuần trước bà Vanessa Landegger, 50 tuổi, tốt nghiệp chương trình đào tạo điều dưỡng điều trị tại Trường Yale - nơi con trai bà cũng đang là sinh viên năm thứ nhất.
 - Thí sinh đến từ các nơi trên thế giới có thể đăng ký tham gia Cuộc thi Piano SIU mùa 2 (SIU Piano Competition 2024) đến hết ngày 9/6.
 - Giữa cơn sốt "học sinh xuất sắc" xuất phát từ kỳ vọng, mong đợi của nhiều bậc phụ huynh, lại có những tấm giấy khen lạ đời.
-- Kỳ thi đánh giá năng lực Đại học Quốc gia TP.HCM đợt 2 năm 2024 sẽ diễn ra vào sáng mai (2-6), tại 14 tỉnh thành với 34 cụm thi.
-- Vụ trẻ mầm non tử vong do bị bỏ quên trên xe đưa đón một lần nữa gióng lên hồi chuông về trách nhiệm của các bên liên quan khi để xảy ra chuyện đau lòng.
-- Một số tin tức đáng chú ý: Chính phủ yêu cầu đánh giá tác hại thuốc lá điện tử; TP.HCM đề xuất hỗ trợ giáo viên môn khó tuyển; Thảo cầm viên tặng quà Tết Thiếu nhi...
-- Năm 2024, Đại học Quốc gia Hà Nội tuyển sinh 18.000 chỉ tiêu cho 150 ngành/chương trình đào tạo, tăng hơn 3.000 chỉ tiêu và 7 ngành/chương trình đào tạo so với năm ngoái.
-- Sau 15-6, nếu nhà đầu tư không đáp ứng các điều kiện hoạt động, Sở Giáo dục và Đào tạo TP.HCM sẽ tham mưu UBND TP quyết định đình chỉ hoạt động Trường quốc tế Mỹ.
-- Tổ chức Children of Vietnam sẽ hỗ trợ hơn 17 tỉ đồng cho Huế để xây phòng học vùng cao, cấp học bổng cho học sinh nghèo, mua máy lọc nước…
-- So với năm trước, số thí sinh chọn bài thi khoa học xã hội tăng 7,7%. Kỳ thi tốt nghiệp THPT năm 2024 sẽ diễn ra từ ngày 26 đến 28-6.
-- Trường đại học Quốc tế miền Đông tại Bình Dương tiếp tục có nhiều hoạt động nổi bật với các ngành học mới đạt chất lượng kiểm định và mở rộng hợp tác doanh nghiệp.
-- Chuyên gia cho rằng việc trẻ mầm non bị bỏ quên trên xe đưa đón hoàn toàn lỗi của người lớn.
-- Chương trình diễn ra sáng 31-5 tại Trường đại học Fulbright Việt Nam trong khuôn khổ Dự án tác động xã hội Đông Nam Á (ASIP) do Cơ quan Phát triển quốc tế Mỹ (USAID) tài trợ.
-- Liên quan vụ việc bé trai 5 tuổi chết vì bị bỏ quên trên xe đưa đón, Cơ quan cảnh sát điều tra Công an thành phố Thái Bình khởi tố thêm tài xế và 2 nữ giáo viên.
-- Sau khi đóng tủ xong, hiệu trưởng mới mời hội phụ huynh đến ký hợp đồng, biên bản bàn giao, biên bản thanh lý.
-- Cô giáo trẻ vừa đi làm 4 năm, lương đúng nghĩa ba cọc ba đồng, nhưng cô luôn dành một phần để mua quà khen tặng học sinh.
-- Khai giảng nhiều khóa trước cả thi tốt nghiệp THPT, kết nối mạnh với doanh nghiệp và hiệp hội các nước để cung ứng nguồn lao động 'xuyên biên giới'... nhiều trường nghề cho thấy bức tranh tươi mới trong mùa tuyển sinh 2024.
-- Ở một số nước, dù chưa xảy ra chuyện đau lòng như Việt Nam nhưng việc xử lý rất nghiêm khắc.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Ba dự án cao tốc kết nối TP.HCM với Bình Dương và các tỉnh Đông Nam Bộ được thúc đẩy sẽ tạo động lực mới để thu hút đầu tư.
-- Từ ngày 3 đến 8-6, kỳ họp 7 của Quốc hội bước vào tuần làm việc thứ 3 và cũng là tuần làm việc cuối cùng của đợt 1. Trọng tâm của tuần này là Quốc hội dành 2,5 ngày cho việc chất vấn và trả lời chất vấn với 4 nhóm vấn đề.
-- Tin tức đáng chú ý: Quốc hội họp tuần cuối đợt 1, sẽ chất vấn 4 'tư lệnh' ngành; Sớm đưa 2 vắc xin ngừa HPV và phế cầu vào tiêm chủng mở rộng...
-- Hôm nay 3-6, thời tiết Nam Bộ ngày nắng, chiều mưa rào, một số nơi khác ở Trung Bộ, Bắc Bộ nắng nóng.
-- Quảng Bình vừa kỷ niệm 420 năm hình thành tỉnh. Tại buổi lễ, Thủ tướng Phạm Minh Chính muốn tỉnh này phát huy khí phách “Quảng Bình quật khởi”.
-- Sau mỗi mùa hạn mặn, người lao động ở Đồng bằng sông Cửu Long lại ly hương để đến TP.HCM, Bình Dương, Đồng Nai… tìm việc làm. Vì sao như vậy?
-- Thượng tướng Nguyễn Duy Ngọc, thứ trưởng Bộ Công an, vừa có thư khen gửi giám đốc Công an TP.HCM đã chủ trì, phối hợp công an 18 tỉnh, thành triệt xóa 2 hội nhóm trên mạng mua bán vũ khí, vật liệu nổ.
-- Trong 5 năm (2019-2023), Kiểm toán Nhà nước đã chuyển 19 vụ việc có dấu hiệu vi phạm pháp luật qua kiểm toán cho cơ quan cảnh sát điều tra xem xét xử lý.
-- Thời gian gần đây khách hàng mua đất liền kề ngã ngửa vì biết những lô đất nộp tiền cọc từ nhiều năm trước vẫn đang được quy hoạch là đất biệt thự.
-- Thủ tướng Phạm Minh Chính thăm và kiểm tra một số công trình trọng điểm tại Quảng Bình nhân kỷ niệm 420 năm hình thành tỉnh.
-- Giai đoạn 2019-2023 đã hỗ trợ xây mới, sửa chữa trên 6.614 căn nhà với tổng kinh phí hơn 293 tỉ đồng.
-- Dự án khu phức hợp Hòa Bình Green Đà Nẵng của công ty ông Nguyễn Hữu Đường (đại gia Đường 'bia') xây sai phép từ năm 2019.
-- Khu vực xung quanh và chợ Bến Thành sẽ được cải tạo lại hứa hẹn thành một điểm đến thu hút của TP.HCM trong thời gian tới.
-- Ngày 2-6, UBND tỉnh Đồng Nai vừa có văn bản gửi Ủy ban Thường vụ Quốc hội về việc xử lý nguồn đất đắp từ dự án sân bay Long Thành phục vụ thi công tuyến đường cao tốc Biên Hòa - Vũng Tàu.
-- Dù UBND TP.HCM đã chỉ đạo các đơn vị liên quan xử lý các điểm đen rác thải mà báo chí phản ánh, thực tế tình hình vẫn không có nhiều thay đổi.
-- Tài xế là sĩ quan một đơn vị quân đội, vi phạm nồng độ cồn, lái xe bỏ chạy sau khi xảy ra tai nạn giao thông khiến một phụ nữ bị thương.
-- Bộ trưởng Nguyễn Văn Hùng đề xuất xây dựng chính sách với viên chức lĩnh vực nghệ thuật biểu diễn thuộc danh mục nghề, công việc nặng nhọc, độc hại, nguy hiểm.
-- Tuyến đường BOT ở Đồng Nai vừa giặm vá đã hư hỏng, mặt đường đầy ổ gà, ổ voi như bẫy người đi đường.
-- Bộ trưởng Nguyễn Văn Hùng đánh giá tiền lương vận động viên thể thao thấp dẫn tới khó khăn trong thực hiện chính sách đãi ngộ, thu hút nhân tài.
-- Ông Nguyễn Văn Nhưỡng - nguyên chủ tịch UBND xã Bãi Thơm (TP Phú Quốc) và Trần Quốc Anh - cán bộ địa chính xã này - vừa bị công an bắt.
-- Tuần này, thời tiết Bắc Bộ và Nam Bộ duy trì mưa, có nơi mưa to; Trung Bộ nắng nóng.
-- Giải thích biển báo trên cao tốc bị hư hỏng do biến đổi khí hậu khiến nhiều người ngạc nhiên. Chuyên gia nói gì về chuyện này?
-- Một kho đồ nhựa và đồ gia dụng ở thôn Võ Kiện (xã Diên An, huyện Diên Khánh, tinh Khánh Hòa) cháy sáng 2-6 khiến một vùng trời ngập khói đen.
-- Sáng 2-6, Công an Đà Lạt cho biết đã tìm thấy thi thể người quanh khu vực phát hiện chân người trước đó.
-- Từ cổng trường học đến quán nước vỉa hè, quán cà phê... không khó để bắt gặp những làn khói trắng xóa, đầy hương thơm của thuốc lá điện tử.
-- Một số tin tức đáng chú ý: Công ty đầu tư nhà ở xã hội vay trái phiếu lãi suất khủng vừa báo lỗ; Chi trả trên 3.500 tỉ đồng lương hưu, trợ cấp BHXH cho người dân ở Hà Nội; Hơn 6 triệu trẻ em được bổ sung vitamin A...
-- Sau một ngày thời tiết nắng nóng dịu bớt, hôm nay Trung Bộ nắng nóng trở lại. Nam Bộ, Bắc Bộ có mưa dông.
-- Tối 1-6, tại Cung Thể thao Tiên Sơn, Đà Nẵng diễn ra lễ khai mạc Đại hội Thể thao học sinh Đông Nam Á lần thứ 13.
-- Sở Giao thông vận tải TP.HCM đề xuất mở rộng đoạn đường dẫn cao tốc TP.HCM - Long Thành đoạn từ nút giao An Phú đến đường vành đai 2 lên 8 làn.
-- Chiếc xe đầu kéo chở hàng đang chạy trên quốc lộ 3 (tỉnh Cao Bằng) bất ngờ bị lật thùng hàng, đè lên xe tải nhỏ đi chiều ngược lại khiến tài xế mắc kẹt tử vong.
+- Sáng 4-6, ông Đặng Quốc Khánh lần đầu trả lời chất vấn trước Quốc hội kể từ khi nhận nhiệm vụ Bộ trưởng Tài nguyên và Môi trường.
+- Sáng 4-6, Bộ trưởng Bộ Tài nguyên và Môi trường Đặng Quốc Khánh là thành viên Chính phủ đầu tiên 'đăng đàn' trả lời chất vấn tại Quốc hội.
+- Hôm nay 4-6, thời tiết Bắc Bộ mưa tăng; Trung Bộ vẫn duy trì nắng nóng; Nam Bộ ngày nắng, chiều tối mưa rào.
+- Một số tin tức đáng chú ý: Garmex Sài Gòn lại rao bán đất; Thu gần 56.000 tỉ đồng từ cấp quyền khai thác khoáng sản; Thanh tra đột xuất về BHXH tại 1.000 đơn vị…
+- Ban Thường vụ Tỉnh ủy Nghệ An đã thi hành kỷ luật ông Doãn Tiến Dũng - phó bí thư Thị ủy, chủ tịch UBND thị xã Cửa Lò - bằng hình thức khai trừ ra khỏi Đảng.
+- Ngày 3-6, UBND TP Hải Phòng thông tin kết quả điều tra vụ việc trẻ mầm non của Trường mầm non An Dương, quận Lê Chân bị bầm tím lưng.
+- Đại biểu đề xuất bố trí xe dẫn đường với nguyên Tổng bí thư, nguyên Chủ tịch nước, nguyên Thủ tướng, nguyên Chủ tịch Quốc hội khi đi dự sự kiện quan trọng.
+- Lãnh đạo UBND huyện Phúc Thọ (Hà Nội) cho hay do mưa nhiều, phần gạch vữa của nhà văn hóa bị tróc, đổ sập xuống sân khấu khiến 6 trẻ bị thương nhẹ, một số em phải vào viện sơ cứu.
+- UBND TP.HCM vừa yêu cầu UBND quận 1 và các sở ngành hoàn tất thủ tục để khởi công cải tạo cảnh quan trước chợ Bến Thành vào ngày 1-10, hoàn thành trước 30-4-2025.
+- Cán bộ, chiến sĩ Vùng Cảnh sát biển 4 phát hiện và bắt giữ tàu cá đang vận chuyển khoảng 200.000 lít dầu DO trái phép trên vùng biển Tây Nam.
+- Bạn đọc Mạnh Quang phản ánh, sau thời gian tạm lắng, sân bay Tân Sơn Nhất lại tái diễn cảnh chèo kéo khách.
+- Ngày 3-6, Bộ Chỉ huy quân sự tỉnh Gia Lai cho biết đang tổ chức xử lý kỷ luật quân nhân vi phạm nồng độ cồn, lái xe bỏ chạy sau tai nạn giao thông.
+- Ngày 3-6, Công an TP Biên Hòa, Đồng Nai vừa có báo cáo kết quả kiểm tra phòng cháy chữa cháy tại các chung cư lớn trên địa bàn.
+- Tàu cá Quảng Bình đang đánh cá ở vùng biển ngoài khơi quần đảo Hoàng Sa thì lốc xoáy đánh chìm. Bốn thuyền viên trên tàu sống sót nhờ tàu bạn cứu.
+- Trong lúc đang làm công an xã, bị cáo Nguyễn Thị Mỹ Xuyên đã lừa nhiều người, trong đó có cả cô giáo của con mình để lấy tiền trả nợ.
+- ''Các hoạt động rất ý nghĩa, không lý gì thành phố không hỗ trợ', ông Nguyễn Văn Dũng - phó chủ tịch UBND TP.HCM - chia sẻ, sau khi lắng nghe báo cáo về công tác chuẩn bị 'Lễ hội không tiền mặt' 2024.
+- Về việc phân định sử dụng kinh phí công đoàn 2%, dự thảo Luật Công đoàn sửa đổi đã đề xuất hai phương án.
+- Liên quan tuyến đường BOT gần trung tâm Biên Hòa hư hỏng nặng, ô tô sụp ổ gà phải gọi xe cẩu nâng lên, chủ đầu tư đã phản hồi Tuổi Trẻ Online.
+- Hiện mây dông đang phát triển và mở rộng về phía trung tâm Hà Nội, cơ quan khí tượng cảnh báo mưa dông trong giờ tan tầm ở các quận nội thành.
+- Thanh tra tỉnh Lâm Đồng cho biết đơn vị này không đồng ý thanh tra toàn diện Đường hầm đất sét Đà Lạt theo đề xuất của Cục Thuế tỉnh Lâm Đồng.
+- Do chưa thống nhất về tên gọi sau sắp xếp nên tỉnh Nghệ An sẽ đề nghị chưa sáp nhập xã Quỳnh Đôi - quê hương Bà chúa thơ Nôm.
+- 6 dự án đầu tư công từ ngân sách trung ương năm 2023 tại tỉnh Gia Lai bị cắt vốn, không được cho gia hạn sang năm 2024 vì giải ngân không đạt tiến độ.
+- Chiều 3-6, thông tin từ Sở Thông tin và Truyền thông tỉnh Thừa Thiên Huế cho biết sở thực hiện xử lý nghiêm đối với những người đưa thông tin sai lệch về sự việc ông Lê Anh Tú (Thích Minh Tuệ) tại xã Hương Thọ (thành phố Huế).
+- Viên gạch ốp tường đã rơi trúng đầu một trẻ 2 tuổi tại khu vực sảnh chung cư FLC Garden (phường Đại Mỗ, quận Nam Từ Liêm, Hà Nội) sáng 3-6.
+- Đây là phần mềm mà Cục cảnh sát quản lý hành chính về trật tự xã hội phối hợp với Giáo hội Phật giáo Việt Nam vừa triển khai thí điểm.
+- Cơ quan công an đang vào cuộc điều tra, truy tìm người vứt hàng chục con heo chết xuống khu vực sông Ngàn Trươi (huyện Vũ Quang, tỉnh Hà Tĩnh).
+- Học viên thi giấy phép lái xe sau ngày 1-5, có thể đến tháng 8 mới được cấp giấy phép, do thiếu vật liệu in.
+- Bộ Công an nêu rõ dự thảo luật đã giới hạn rõ các trường hợp cấp thiết mà bộ trưởng Bộ Công an được quyết định áp dụng biện pháp cảnh vệ.
+- Thêm 1 con rùa biển vừa lên bãi biển xã Nhơn Hải (TP Quy Nhơn, tỉnh Bình Định) làm ổ, đẻ 102 trứng. Người dân địa phương sẽ bảo vệ ổ trứng cho đến khi rùa nở.
+- Lập khống các hồ sơ quyết toán, lạm thu tiền học sinh, hiệu trưởng và kế toán trường học ở huyện miền núi Nghệ An bị khởi tố, bắt tạm giam.
 ![New](News.png)
 ## Nhịp sống số 
 - 7 thí sinh Việt Nam đều đoạt giải Olympic tin học châu Á, trong đó có 1 huy chương vàng, 6 huy chương bạc.
