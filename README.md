@@ -1,6 +1,19 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Sáng nay 5-6, 98.681 thí sinh sẽ đến các điểm thi ở TP.HCM để làm thủ tục dự thi vào lớp 10 năm học 2024-2025. Làm sao để tránh những bất trắc có thể xảy ra trong kỳ thi quan trọng này?
+- Năm nay, ngoài đề thi phát cho các thí sinh, mỗi điểm thi sẽ có bì đựng 'đề bản gốc' dùng để đối chiếu khi thí sinh phát hiện có điểm không rõ.
+- Ngày 4-6, Công an huyện Tiên Lãng, TP Hải Phòng bố trí xe chuyên dụng để đưa đón một sĩ tử vừa mổ ruột thừa tới điểm thi trong kỳ thi tuyển sinh vào lớp 10.
+- Trường đại học Khoa học sức khỏe (Khoa Y Đại học Quốc gia TP.HCM cũ) công bố điều chỉnh cách thức nộp hồ sơ xét tuyển sớm năm 2024.
+- Đại học Quốc gia TP.HCM vừa có thêm trường đại học thành viên thứ 8. So với các đại học quốc gia khác, con số này nhiều hay ít?
+- Theo đánh giá chung của các thí sinh, đề môn văn thi vào lớp 10 ở Hải Phòng rất gần gũi với tình cảm, lứa tuổi của các em. Đây là đề thi hay.
+- Kỳ thi vào lớp 10 ở TP.HCM diễn ra ngày 6 và 7-6 có 6 thí sinh thi tại phòng riêng. Các phòng thi này đều có camera giám sát.
+- Đề chuyên văn thi vào lớp 10 Đà Nẵng được cả thí sinh và giáo viên đánh giá rất hay và thời sự.
+- Hôm nay một số người xét tuyển tiến sĩ bị trường từ chối vì văn bằng 2 ngành tiếng Anh không được công nhận do số tín chỉ ít.
+- Lãnh đạo Phòng Giáo dục và Đào tạo huyện Phúc Thọ (Hà Nội) cho biết do mưa nhiều, phần vữa của nhà văn hóa bị bở ra, bong tróc. Đúng lúc này, gió mạnh giật vào dây buộc phần mái sân khấu khiến gạch vữa cùng phần mái hiên sập xuống.
+- Điểm trường, cầu treo dân sinh được xã ở Quảng Nam vận động xã hội hóa xây dựng giúp dân bị chính quyền xã phía Kon Tum lập biên bản buộc tạm dừng thi công do chồng lấn địa giới hành chính, Quảng Nam đề nghị Kon Tum tạo điều kiện tiếp tục xây dựng.
+- Một số người tại Quảng Bình đã rải tiền lẻ trước cổng Trường chuyên Võ Nguyên Giáp, ngay trước buổi thi vào lớp 10 của học sinh.
+- Kết thúc kỳ thi đánh giá năng lực của Đại học Quốc gia TP.HCM đợt 2 năm 2024, nhiều thí sinh và giáo viên phản ánh đề thi sai sót.
 - Sau khi phúc khảo, điểm môn toán của một thí sinh thi vào Trường THPT chuyên Lam Sơn (Thanh Hóa) tăng từ 1 lên 9 điểm. Nguyên nhân do lỗi ở quá trình nhập điểm, trách nhiệm thuộc về bộ phận lên điểm.
 - Đến nay các trường đại học đào tạo khối ngành y dược ở TP.HCM đều đã công bố mức thu học phí năm học 2024 - 2025 hầu hết đều tăng so với năm trước.
 - Ngày mai (5-6), hơn 98.600 thí sinh sẽ làm thủ tục dự thi vào lớp 10 tại TP.HCM năm học 2024-2025.
@@ -18,53 +31,44 @@
 - Điều tra độc quyền của Tuổi Trẻ phát hiện trong bảng xếp hạng 'nhà khoa học hàng đầu thế giới' của Research.com, nhiều người có bài báo khoa học bị gỡ, tên ông A nhưng hình ông B, nam biến thành nữ...
 - Chiều 2-6, nhiều thí sinh rời phòng thi trong tâm trạng khá thoải mái sau khi kết thúc hai môn thi đầu tiên của kỳ thi tuyển sinh vào lớp 10 Đà Nẵng.
 - Ngày 2-6 tại Hà Nội diễn ra lễ tổng kết và trao giải quốc gia Cuộc thi vô địch thiết kế đồ họa thế giới ACP mùa giải 2024.
-- Tại kỳ thi tuyển sinh vào lớp 10 Đà Nẵng, có một số thí sinh vừa phẫu thuật, vừa bị tai nạn giao thông… được bố trí phòng thi đặc biệt.
-- 11h sáng 2-6, các thí sinh đã hoàn tất bài làm trong kỳ thi đánh giá năng lực đợt 2 của Đại học Quốc gia TP.HCM.
-- Đề văn vào lớp 10 Đà Nẵng năm nay với phần nghị luận xã hội bàn về chủ đề môi trường được đánh giá khá hay.
-- Hai vợ chồng Bùi Phương Linh (sinh năm 1991) và Phạm Thanh Tùng (1992) cùng là tiến sĩ tại Trường Y tế công cộng T.H. Chan Đại học Harvard.
-- Đợt 2, cũng là đợt cuối cùng kỳ thi đánh giá năng lực của Đại học Quốc gia TP.HCM, diễn ra sáng nay 2-6.
-- Ngày 2-6, hơn 16.500 thí sinh dự kỳ thi tuyển sinh vào lớp 10 các trường THPT công lập Đà Nẵng.
-- Tối 1-6, tại Cung Thể thao Tiên Sơn, Đà Nẵng diễn ra lễ khai mạc Đại hội Thể thao học sinh Đông Nam Á lần thứ 13.
-- Những lời nhắn nhủ của thầy giáo về hưu dành cho học sinh lớp 12, Trường THPT Hùng Vương, TP.HCM đã làm cho nhiều người không kìm được nước mắt.
-- Bên cạnh các ý kiến đồng tình, cũng có những lo ngại về quyền riêng tư và cho rằng việc tăng cường giám sát sẽ chỉ khiến tình trạng bạo lực học đường tại Trung Quốc lan ra ngoài khuôn viên trường học.
-- Trước ngày thi vào lớp 10 Đà Nẵng, nhiều thí sinh cho biết khá căng thẳng vì tỉ lệ chọi các trường top giữa năm nay khá cao.
-- Mẹ và con là bạn học Trường Yale. Tuần trước bà Vanessa Landegger, 50 tuổi, tốt nghiệp chương trình đào tạo điều dưỡng điều trị tại Trường Yale - nơi con trai bà cũng đang là sinh viên năm thứ nhất.
-- Thí sinh đến từ các nơi trên thế giới có thể đăng ký tham gia Cuộc thi Piano SIU mùa 2 (SIU Piano Competition 2024) đến hết ngày 9/6.
-- Giữa cơn sốt "học sinh xuất sắc" xuất phát từ kỳ vọng, mong đợi của nhiều bậc phụ huynh, lại có những tấm giấy khen lạ đời.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Sáng 4-6, ông Đặng Quốc Khánh lần đầu trả lời chất vấn trước Quốc hội kể từ khi nhận nhiệm vụ Bộ trưởng Tài nguyên và Môi trường.
-- Sáng 4-6, Bộ trưởng Bộ Tài nguyên và Môi trường Đặng Quốc Khánh là thành viên Chính phủ đầu tiên 'đăng đàn' trả lời chất vấn tại Quốc hội.
-- Hôm nay 4-6, thời tiết Bắc Bộ mưa tăng; Trung Bộ vẫn duy trì nắng nóng; Nam Bộ ngày nắng, chiều tối mưa rào.
-- Một số tin tức đáng chú ý: Garmex Sài Gòn lại rao bán đất; Thu gần 56.000 tỉ đồng từ cấp quyền khai thác khoáng sản; Thanh tra đột xuất về BHXH tại 1.000 đơn vị…
-- Ban Thường vụ Tỉnh ủy Nghệ An đã thi hành kỷ luật ông Doãn Tiến Dũng - phó bí thư Thị ủy, chủ tịch UBND thị xã Cửa Lò - bằng hình thức khai trừ ra khỏi Đảng.
-- Ngày 3-6, UBND TP Hải Phòng thông tin kết quả điều tra vụ việc trẻ mầm non của Trường mầm non An Dương, quận Lê Chân bị bầm tím lưng.
-- Đại biểu đề xuất bố trí xe dẫn đường với nguyên Tổng bí thư, nguyên Chủ tịch nước, nguyên Thủ tướng, nguyên Chủ tịch Quốc hội khi đi dự sự kiện quan trọng.
-- Lãnh đạo UBND huyện Phúc Thọ (Hà Nội) cho hay do mưa nhiều, phần gạch vữa của nhà văn hóa bị tróc, đổ sập xuống sân khấu khiến 6 trẻ bị thương nhẹ, một số em phải vào viện sơ cứu.
-- UBND TP.HCM vừa yêu cầu UBND quận 1 và các sở ngành hoàn tất thủ tục để khởi công cải tạo cảnh quan trước chợ Bến Thành vào ngày 1-10, hoàn thành trước 30-4-2025.
-- Cán bộ, chiến sĩ Vùng Cảnh sát biển 4 phát hiện và bắt giữ tàu cá đang vận chuyển khoảng 200.000 lít dầu DO trái phép trên vùng biển Tây Nam.
-- Bạn đọc Mạnh Quang phản ánh, sau thời gian tạm lắng, sân bay Tân Sơn Nhất lại tái diễn cảnh chèo kéo khách.
-- Ngày 3-6, Bộ Chỉ huy quân sự tỉnh Gia Lai cho biết đang tổ chức xử lý kỷ luật quân nhân vi phạm nồng độ cồn, lái xe bỏ chạy sau tai nạn giao thông.
-- Ngày 3-6, Công an TP Biên Hòa, Đồng Nai vừa có báo cáo kết quả kiểm tra phòng cháy chữa cháy tại các chung cư lớn trên địa bàn.
-- Tàu cá Quảng Bình đang đánh cá ở vùng biển ngoài khơi quần đảo Hoàng Sa thì lốc xoáy đánh chìm. Bốn thuyền viên trên tàu sống sót nhờ tàu bạn cứu.
-- Trong lúc đang làm công an xã, bị cáo Nguyễn Thị Mỹ Xuyên đã lừa nhiều người, trong đó có cả cô giáo của con mình để lấy tiền trả nợ.
-- ''Các hoạt động rất ý nghĩa, không lý gì thành phố không hỗ trợ', ông Nguyễn Văn Dũng - phó chủ tịch UBND TP.HCM - chia sẻ, sau khi lắng nghe báo cáo về công tác chuẩn bị 'Lễ hội không tiền mặt' 2024.
-- Về việc phân định sử dụng kinh phí công đoàn 2%, dự thảo Luật Công đoàn sửa đổi đã đề xuất hai phương án.
-- Liên quan tuyến đường BOT gần trung tâm Biên Hòa hư hỏng nặng, ô tô sụp ổ gà phải gọi xe cẩu nâng lên, chủ đầu tư đã phản hồi Tuổi Trẻ Online.
-- Hiện mây dông đang phát triển và mở rộng về phía trung tâm Hà Nội, cơ quan khí tượng cảnh báo mưa dông trong giờ tan tầm ở các quận nội thành.
-- Thanh tra tỉnh Lâm Đồng cho biết đơn vị này không đồng ý thanh tra toàn diện Đường hầm đất sét Đà Lạt theo đề xuất của Cục Thuế tỉnh Lâm Đồng.
-- Do chưa thống nhất về tên gọi sau sắp xếp nên tỉnh Nghệ An sẽ đề nghị chưa sáp nhập xã Quỳnh Đôi - quê hương Bà chúa thơ Nôm.
-- 6 dự án đầu tư công từ ngân sách trung ương năm 2023 tại tỉnh Gia Lai bị cắt vốn, không được cho gia hạn sang năm 2024 vì giải ngân không đạt tiến độ.
-- Chiều 3-6, thông tin từ Sở Thông tin và Truyền thông tỉnh Thừa Thiên Huế cho biết sở thực hiện xử lý nghiêm đối với những người đưa thông tin sai lệch về sự việc ông Lê Anh Tú (Thích Minh Tuệ) tại xã Hương Thọ (thành phố Huế).
-- Viên gạch ốp tường đã rơi trúng đầu một trẻ 2 tuổi tại khu vực sảnh chung cư FLC Garden (phường Đại Mỗ, quận Nam Từ Liêm, Hà Nội) sáng 3-6.
-- Đây là phần mềm mà Cục cảnh sát quản lý hành chính về trật tự xã hội phối hợp với Giáo hội Phật giáo Việt Nam vừa triển khai thí điểm.
-- Cơ quan công an đang vào cuộc điều tra, truy tìm người vứt hàng chục con heo chết xuống khu vực sông Ngàn Trươi (huyện Vũ Quang, tỉnh Hà Tĩnh).
-- Học viên thi giấy phép lái xe sau ngày 1-5, có thể đến tháng 8 mới được cấp giấy phép, do thiếu vật liệu in.
-- Bộ Công an nêu rõ dự thảo luật đã giới hạn rõ các trường hợp cấp thiết mà bộ trưởng Bộ Công an được quyết định áp dụng biện pháp cảnh vệ.
-- Thêm 1 con rùa biển vừa lên bãi biển xã Nhơn Hải (TP Quy Nhơn, tỉnh Bình Định) làm ổ, đẻ 102 trứng. Người dân địa phương sẽ bảo vệ ổ trứng cho đến khi rùa nở.
-- Lập khống các hồ sơ quyết toán, lạm thu tiền học sinh, hiệu trưởng và kế toán trường học ở huyện miền núi Nghệ An bị khởi tố, bắt tạm giam.
+- Sáng 5-6, khu vực nội thành Hà Nội đang có mưa vừa, mưa to đến rất to kèm thêm sấm sét. Cơ quan khí tượng cảnh báo nguy cơ ngập lụt nhiều tuyến đường.
+- Sáng 5-6, Bộ trưởng Bộ Công Thương Nguyễn Hồng Diên khẳng định như vậy khi tiếp tục 'đăng đàn' trả lời chất vấn tại Quốc hội.
+- Phó tổng Kiểm toán Nhà nước Bùi Quốc Dũng cho biết theo quy định, SCB không thuộc phạm vi, thẩm quyền, không phải đối tượng kiểm toán của Kiểm toán Nhà nước.
+- Một số tin tức đáng chú ý: Đề nghị Quốc hội tăng số lần khám thai hưởng thai sản lên 9 lần; Phạt một công ty bất động sản ở TP.HCM vì 'ém' thông tin liên quan trái phiếu; Thu ngân sách của Hải quan TP.HCM vẫn giảm...
+- Hôm nay 5-6, Tổng Kiểm toán Nhà nước Ngô Văn Tuấn và Bộ trưởng Bộ Văn hóa, Thể thao và Du lịch Nguyễn Văn Hùng sẽ 'đăng đàn' trả lời chất vấn tại Quốc hội.
+- Hôm nay  5-6, thời tiết Bắc Bộ có mưa to ban ngày; Nam Bộ và Trung Bộ ngày nắng nóng, chiều tối mưa dông.
+- Phó thủ tướng Trần Lưu Quang sẽ tham dự Diễn đàn Kinh tế quốc tế ở thành phố St. Petersburg (Nga) theo lời mời của cố vấn tổng thống Nga.
+- Tối 4-6, Tuần lễ trái cây Trên bến dưới thuyền khai mạc trên tuyến đường Nguyễn Văn Của - Bến Bình Đông (quận 8, TP.HCM) thu hút đông đảo người dân tham quan.
+- Để hoàn thành 183km metro trong 11 năm, TP.HCM đã đề xuất 28 cơ chế, chính sách đột phá, chưa từng có.
+- Công an tỉnh Lâm Đồng đã bắt tám người dùng thuốc hướng thần gây ảo giác cho người mua đất rồi chiếm đoạt tài sản.
+- Phó cục trưởng Cục Thuế thành phố Hà Nội Nguyễn Tiến Trường được điều động, bổ nhiệm làm cục trưởng Cục Thuế thành phố Hải Phòng.
+- Một trẻ 7 tuổi chết và người em 4 tuổi nguy kịch khi bố mẹ để cả hai tự chơi trong bể bơi căn hộ nghỉ dưỡng thuộc phường Bãi Cháy, TP Hạ Long, tỉnh Quảng Ninh.
+- Việc livestream bán hàng thu về hàng trăm tỉ, tình trạng bán hàng trên mạng với nguy cơ hàng giả, hàng nhái được kiểm soát, quản lý ra sao...
+- Kiểm tra Công ty TNHH Cấp cứu Phước Đức đặt tại quận 8, các cơ quan chức năng TP.HCM phát hiện cơ sở hoạt động không phép.
+- Chiều 4-6, Công an tỉnh Thái Bình công bố nghi phạm gây án chính là con gái của nạn nhân trong vụ việc ba người chết tại xã Trung An, huyện Vũ Thư.
+- Sau một tiếng nổ, người đàn ông tử vong bên cạnh xe ben trong một mỏ đá tại tỉnh Bình Dương.
+- Thủ tướng Phạm Minh Chính vừa ký quyết định điều động, bổ nhiệm ông Nguyễn Hoàng Long giữ chức thứ trưởng Bộ Công Thương.
+- Chiều 4-6, tại phiên chất vấn và trả lời chất vấn, Phó thủ tướng Trần Hồng Hà dẫn đánh giá của Cục Địa chất Mỹ, Việt Nam có tổng lượng đất hiếm chiếm 18% trữ lượng của thế giới.
+- Thành phố Vinh mở rộng đạt tiêu chí đô thị loại I là đô thị có biển, tạo động lực phát triển về kinh tế, xã hội cho tỉnh Nghệ An.
+- “Xuất khẩu gạo không phải đơn thuần chỉ là hình ảnh hạt gạo một doanh nghiệp mà là hạt gạo của ngành hàng lúa gạo Việt Nam đưa ra thị trường quốc tế, do vậy hiệp hội, các doanh nghiệp phải ý thức được vấn đề này”.
+- Những năm qua, rùa biển liên tục về đẻ trứng tại bờ biển xã Nhơn Hải (TP Quy Nhơn, tỉnh Bình Định). Dù sớm hay khuya, các thành viên Tổ cộng đồng bảo vệ nguồn lợi thủy sản xã Nhơn Hải luôn có mặt đỡ đẻ cho rùa.
+- Cơ quan khí tượng dự báo từ chiều tối nay 4-6 đến 6-6, ở Bắc Bộ và Hà Nội có mưa vừa, mưa to và dông, cục bộ có mưa rất to, có nơi trên 200mm. Tại Hà Nội hiện đang có mưa dông.
+- Chủ tịch UBND TP.HCM Phan Văn Mãi yêu cầu Công ty SJC huy động năng lực, đáp ứng yêu cầu sản xuất vàng miếng SJC của Ngân hàng Nhà nước với khối lượng lớn để bình ổn thị trường.
+- Đắk Lắk yêu cầu ngành chức năng, địa phương, Tổng công ty Cảng hàng không Việt Nam thực hiện việc thu hồi đất sân bay Buôn Ma Thuột đã cấp sai.
+- Giữa trưa, 7 thiếu niên ra sông Sài Gòn tắm nhưng bị đuối nước, 4 nam đã bơi được vào bờ. Còn 3 thiếu nữ mất tích, một em vừa được tìm thấy và đã tử vong.
+- Dự án đường Hoàng Sa - Dốc Sỏi có tổng vốn 3.500 tỉ đồng, gần nửa năm khởi công, giá trị thi công chưa được 4 tỉ đồng. Quảng Ngãi tổ chức nhiều cuộc họp tháo gỡ.
+- Bộ trưởng Bộ Công Thương Nguyễn Hồng Diên nêu rõ thời gian qua đang tồn tại khoảng trống pháp lý trong quản lý nhà nước với thuốc lá điện tử, thuốc lá nung nóng.
+- Cơ quan chức năng vừa tiếp tục cưỡng chế, kê biên tài sản tại Công ty TNHH thương mại và dịch vụ lắp máy Miền Nam của đại gia Huy “máy nổ”.
+- Sau hơn 2 tuần Thủ tướng đăng ký hiến mô, tạng và kêu gọi người dân 'Đăng ký hiến tặng mô, tạng cứu người - Cho đi là còn mãi', đã có thêm gần 10.000 người hưởng ứng.
+- Huyện chi trả toàn bộ 5,3 tỉ đồng tiền đền bù cho người chồng nên người vợ ngăn cản thi công cao tốc do họ đang làm thủ tục ly hôn, chưa thỏa thuận tài sản.
 ![New](News.png)
 ## Nhịp sống số 
+- Sáng 4-6, hệ thống công nghệ thông tin của Tổng công ty Bưu điện Việt Nam (Vietnam Post) đã bị tấn công bất hợp pháp bằng mã độc tống tiền (ransomware).
+- Ngày 4-6-2024, các doanh nghiệp viễn thông và dịch vụ trung tâm dữ liệu hàng đầu khu vực đã công bố chính thức thành lập liên minh AseanConnect.One.
+- TikTok từng vấp phải sự lên án của cả ông Trump lẫn ông Biden, nhưng giờ đây lại trở thành một trong những nhân tố tác động trực tiếp đến bầu cử Mỹ.
+- Công nghệ tạo ra những công ty có năng suất cao, buộc các đối thủ phải ‘bứt tốc’ để cạnh tranh.
 - 7 thí sinh Việt Nam đều đoạt giải Olympic tin học châu Á, trong đó có 1 huy chương vàng, 6 huy chương bạc.
 - Các cuộc tấn công mạng, lừa đảo trực tuyến sẽ ngày càng tăng theo cấp số nhân, và ngày càng tinh vi vì có AI hỗ trợ.
 - Mới đây, Huawei chính thức cho ra mắt đồng hồ thông minh mới HUAWEI WATCH FIT 3.
@@ -91,8 +95,4 @@
 - Với tốc độ 156.000 tỉ khung hình mỗi giây, máy ảnh mở ra khả năng ghi lại những hiện tượng xảy ra cực nhanh mà trước nay không nhìn thấy được.
 - Các tổ chức bảo vệ quyền trẻ em lên tiếng phản đối sau khi Meta hạ độ tuổi tối thiểu sử dụng ứng dụng nhắn tin WhatsApp tại Liên minh châu Âu (EU) từ 16 xuống 13 tuổi.
 - Ngoài làm mờ tin nhắn có ảnh khỏa thân, Meta cũng đang phát triển công nghệ xác định tài khoản lừa đảo sextort (tin tặc lừa đang giữ ảnh nóng của người dùng).
-- Nhà báo Vũ Kim Hạnh, sẽ xuất hiện trên sóng Shopee Live vào ngày 15-4 trong một sáng kiến mới nhằm hỗ trợ các doanh nghiệp địa phương trong cả nước giới thiệu nông đặc sản chất lượng.
-- Nếu Công ty Netflix không tuân thủ, Bộ Thông tin và Truyền thông sẽ phối hợp các cơ quan quản lý nhà nước liên quan xử lý theo quy định pháp luật Việt Nam.
-- Chìa khóa giải mã cho sự phát triển vượt trội của TV360 và Viettel Money là nền tảng khổng lồ của Tập đoàn công nghệ lớn nhất Việt Nam - Viettel.
-- Những video, âm thanh và hình ảnh do AI tạo ra hoặc do AI thay đổi nội dung sẽ được Meta gắn nhãn 'tạo bởi AI' để phân biệt với những sản phẩm khác.
 ![life](Life.png)
