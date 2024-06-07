@@ -1,6 +1,21 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Từ phản ánh của bạn đọc qua đường dây nóng, Tuổi Trẻ Online ghi nhận tình trạng việc phát tờ rơi bát nháo ở các điểm thi.
+- Mỗi đứa trẻ luôn có những giấc mơ, những chuyến phiêu lưu và đều có một tiềm năng đặc biệt đang chờ được khám phá và phát triển.
+- Trưa 6-6, sau khi kết thúc thi môn văn kỳ thi tuyển sinh lớp 10 ở TP.HCM, nhiều thí sinh ra về với nụ cười rạng rỡ.
+- Dù đã được nhắc nhở không đem điện thoại, nữ sinh tại TP.HCM vẫn giấu điện thoại mang vào phòng thi lớp 10, sau đó điện thoại reo trong buổi thi chiều 6-6.
+- Việc Trường Quản trị và Kinh doanh không xét tuyển thí sinh thấp lùn đang gây nhiều tranh cãi trên mạng xã hội.
+- Tuổi Trẻ Online xin giới thiệu đề thi và gợi ý bài giải môn tiếng Anh thi vào lớp 10 TP.HCM, diễn ra chiều nay 6-6.
+- Chuyện Trường Quản trị và Kinh doanh (Đại học Quốc gia Hà Nội) không xét tuyển thí sinh thấp lùn gây nhiều ý kiến tranh luận.
+- Sau buổi thi môn tiếng Anh kỳ thi vào lớp 10 ở TP.HCM diễn ra chiều nay 6-6, thí sinh tại các điểm thi vui vẻ ra về với nhận xét 'đề dễ'.
+- Sinh viên ngành ngôn ngữ Hàn Quốc của Trường Đại học Kinh tế - Tài chính TP.HCM (UEF) đang nắm giữ cường độ trải nghiệm học tập thực tế tại xứ sở Kim chi.
+- UBND huyện Mường Lát, Thanh Hóa đã xác minh vụ việc 'Trường phổ thông Dân tộc nội trú lấy phòng của học sinh cho người ngoài ở, hiệu trưởng nói gì?'.
+- Sở Giáo dục và Đào tạo tỉnh Tiền Giang cho biết hội đồng ra đề thi lớp 10 còn đang cách ly, sau khi thi xong sở sẽ yêu cầu giải trình và thông tin cho báo chí.
+- Quy chế mới về công khai đối với cơ sở giáo dục Bộ Giáo dục và Đào tạo vừa ban hành được bố cục lại gọn hơn với nội dung công khai gồm 2 phần, cắt giảm 19 phần so với quy định trước đây.
+- Mời bạn đọc tham khảo gợi ý bài giải môn văn thi tuyển sinh lớp 10 tại TP.HCM. Nhiều thí sinh nhận xét đề thi năm nay hay, tự tin được điểm 7, 8.
+- Đề văn kỳ thi vào lớp 10 TP.HCM với thông điệp 'nhịp trái tim không chỉ dành cho riêng mình' được nhiều thí sinh khen hay.
+- Dự báo điểm chuẩn xét tuyển bằng kết quả bài thi đánh giá năng lực năm 2024 (HAS) bằng hoặc thấp hơn những năm trước đây.
 - Trưởng hội phụ huynh trong clip bị hiệu trưởng chỉ mặt ngăn cản không cho nói về khuất tất xã hội hóa trong lễ tổng kết nói rõ lý do mình đưa chuyện này ra nói trong lễ tổng kết.
 - Hôm nay, hơn 98.000 học sinh lớp 9 ở TP.HCM bước vào ngày thi đầu tiên để tranh suất vào lớp 10 công lập năm học 2024-2025.
 - Do một tai nạn bất ngờ cách đây 3 tháng, nữ sinh Nguyễn Thị Yến Nhi (Trường THCS Nguyễn An Ninh, quận 12) bị gãy đốt sống lưng và ngực, dẫn đến việc phải nằm một chỗ.
@@ -16,53 +31,38 @@
 - Đó là bà Nguyễn Ngọc Trinh, ngụ TP Thủ Đức, TP.HCM. 4 năm học đại học, hễ có gì không hiểu là bà giơ tay hỏi liền.
 - Năm 2024, Trường Quản trị và Kinh doanh, Đại học Quốc gia Hà Nội tiếp tục ra điều kiện xét tuyển đối với thí sinh nữ từ 1m58, nam từ 1m65, thể lực tốt, thị giác tốt.
 - Trường đại học Sư phạm TP.HCM vừa công bố phổ điểm 5 đợt thi của kỳ thi đánh giá năng lực chuyên biệt năm 2024, với nhiều thông tin bất ngờ.
-- Từ 9h30 sáng nay 5-6, hơn 98.000 thí sinh ở TP.HCM đã đến các điểm thi để làm thủ tục dự thi lớp 10 năm học 2024 - 2025.
-- Do tháng 6 hằng năm có thể bị ảnh hưởng thời tiết xấu, mưa bão nên Kiên Giang có 3 phương án vận chuyển đề thi tốt nghiệp THPT năm 2024 ra Phú Quốc.
-- Sáng nay 5-6, 98.681 thí sinh sẽ đến các điểm thi ở TP.HCM để làm thủ tục dự thi vào lớp 10 năm học 2024-2025.
-- Năm nay, ngoài đề thi phát cho các thí sinh, mỗi điểm thi sẽ có bì đựng 'đề bản gốc' dùng để đối chiếu khi thí sinh phát hiện có điểm không rõ.
-- Ngày 4-6, Công an huyện Tiên Lãng, TP Hải Phòng bố trí xe chuyên dụng để đưa đón một sĩ tử vừa mổ ruột thừa tới điểm thi trong kỳ thi tuyển sinh vào lớp 10.
-- Trường đại học Khoa học sức khỏe (Khoa Y Đại học Quốc gia TP.HCM cũ) công bố điều chỉnh cách thức nộp hồ sơ xét tuyển sớm năm 2024.
-- Đại học Quốc gia TP.HCM vừa có thêm trường đại học thành viên thứ 8. So với các đại học quốc gia khác, con số này nhiều hay ít?
-- Theo đánh giá chung của các thí sinh, đề môn văn thi vào lớp 10 ở Hải Phòng rất gần gũi với tình cảm, lứa tuổi của các em. Đây là đề thi hay.
-- Kỳ thi vào lớp 10 ở TP.HCM diễn ra ngày 6 và 7-6 có 6 thí sinh thi tại phòng riêng. Các phòng thi này đều có camera giám sát.
-- Đề chuyên văn thi vào lớp 10 Đà Nẵng được cả thí sinh và giáo viên đánh giá rất hay và thời sự.
-- Hôm nay một số người xét tuyển tiến sĩ bị trường từ chối vì văn bằng 2 ngành tiếng Anh không được công nhận do số tín chỉ ít.
-- Lãnh đạo Phòng Giáo dục và Đào tạo huyện Phúc Thọ (Hà Nội) cho biết do mưa nhiều, phần vữa của nhà văn hóa bị bở ra, bong tróc. Đúng lúc này, gió mạnh giật vào dây buộc phần mái sân khấu khiến gạch vữa cùng phần mái hiên sập xuống.
-- Điểm trường, cầu treo dân sinh được xã ở Quảng Nam vận động xã hội hóa xây dựng giúp dân bị chính quyền xã phía Kon Tum lập biên bản buộc tạm dừng thi công do chồng lấn địa giới hành chính, Quảng Nam đề nghị Kon Tum tạo điều kiện tiếp tục xây dựng.
-- Một số người tại Quảng Bình đã rải tiền lẻ trước cổng Trường chuyên Võ Nguyên Giáp, ngay trước buổi thi vào lớp 10 của học sinh.
-- Kết thúc kỳ thi đánh giá năng lực của Đại học Quốc gia TP.HCM đợt 2 năm 2024, nhiều thí sinh và giáo viên phản ánh đề thi sai sót.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Sáng 6-6, Phó thủ tướng Trần Hồng Hà thừa ủy quyền của Thủ tướng Chính phủ làm rõ một số vấn đề thuộc 4 nhóm nội dung chất vấn và trực tiếp trả lời chất vấn.
-- Trưởng hội phụ huynh trong clip bị hiệu trưởng chỉ mặt ngăn cản không cho nói về khuất tất xã hội hóa trong lễ tổng kết nói rõ lý do mình đưa chuyện này ra nói trong lễ tổng kết.
-- Sáng 6-6, Bộ trưởng Bộ Văn hóa, Thể thao và Du lịch Nguyễn Văn Hùng tiếp tục 'đăng đàn' trả lời chất vấn của các đại biểu Quốc hội.
-- Hôm nay 6-6, mưa to tiếp tục duy trì ở các tỉnh thành phía Bắc. Nam Bộ sau nhiều ngày mưa giảm, nay sẽ có mưa trở lại vào chiều tối.
-- Tin tức đáng chú ý: Nghiên cứu giảm giờ làm việc xuống dưới 48h/tuần; Vé máy bay đã giảm giá chút ít; TP.HCM lấy ý kiến cử tri về phương án sắp xếp 80 phường...
-- Theo Cổng thông tin điện tử Quốc hội, ngày 6-6, sau phần chất vấn bộ trưởng Bộ Văn hóa, Thể thao và Du lịch, Quốc hội sẽ họp về công tác nhân sự.
-- Thấy tài khoản ngân hàng bất ngờ nhận 240 triệu đồng, chị Phương trình báo nhờ công an xác minh và trao trả lại số tiền này cho người chuyển nhầm.
-- TP Hà Nội và TP.HCM đã hoàn thiện dự thảo đề án với các nhóm cơ chế, chính sách đột phá để hoàn thiện mạng lưới metro theo quy hoạch.
-- Cư dân tại chung cư Scenia Bay Residences (TP Nha Trang, Khánh Hòa) tiếp tục kêu cứu vì chủ đầu tư dọa sẽ cắt điện, nước. Trong khi việc thanh toán tiền điện, nước giữa cư dân, ban quản trị và chủ đầu tư vẫn chưa tìm được tiếng nói chung.
-- Phát hiện đoàn tàu hỏa lao tới, tài xế lao về chiếc ô tô đang đậu sát đường sắt để đánh xe ra nhưng bất thành. Chiếc ô tô bị tông biến dạng.
-- Ngoại trưởng New Zealand Winston Peters bày tỏ mong muốn trên trong chuyến thăm Việt Nam trước thềm kỷ niệm 50 năm thiết lập quan hệ, 5 năm Đối tác chiến lược.
-- Một ca bệnh rất hy hữu khi bệnh nhân nhập viện bị suy hô hấp do bị đuôi cá đuối đâm thủng phổi. Các bác sĩ Bệnh viện Đa khoa tỉnh Quảng Ngãi rất cố gắng để cứu sống bệnh nhân.
-- Nam thanh niên dùng dao, cây sắt đánh chết người phụ nữ ngăn cản mình can hai nữ đồng nghiệp đang đánh nhau.
-- Một người ở Hà Giang không may bị sét đánh chết khi đi bừa ruộng trong đêm, còn tại Lào Cai sét đánh làm mất điện 1.210 hộ dân ở huyện Bát Xát.
-- Qua 6 tháng triển khai thí điểm, TP.HCM dự kiến xử phạt nguội xe quá tải hơn 28,6 tỉ đồng, bước đầu hiệu quả giảm gần 91% vi phạm so với trước đó.
-- Phường Tân Hưng, quận 7, TP.HCM sẽ cúp nước vào buổi tối các ngày 10 đến 15-6 tới, nguyên nhân do thi công đấu nối hệ thống cấp nước hiện hữu với hệ thống cấp nước mới.
-- Bộ trưởng Bộ Ngoại giao Bùi Thanh Sơn và Phó thủ tướng, Ngoại trưởng New Zealand Winston Peters đã cùng nhau dạo bộ cầu Thê Húc và uống cà phê Việt Nam tại nhà hàng Thủy Tạ bên hồ Hoàn Kiếm (Hà Nội) vào chiều 5-6.
-- Khi chiếc xe tải chở keo đang lưu thông trên đèo Liêu, huyện Tiên Phước, Quảng Nam thì bất ngờ lao xuống vực khiến tài xế và phụ xe tử vong tại chỗ.
-- Sau hơn 10 ngày vụ cháy nhà trọ ở Trung Kính, Hà Nội xảy ra, hai bệnh nhân được điều trị tại Bệnh viện Bạch Mai đã được xuất viện. Hiện chỉ còn một bệnh nhân cao tuổi nhất vẫn đang được điều trị tích cực.
-- Biểu trưng kỷ niệm 80 năm Ngày thành lập Quân đội nhân dân Việt Nam nhằm tuyên truyền, giáo dục sâu rộng đến cán bộ, chiến sĩ toàn quân và nhân dân về truyền thống lịch sử vẻ vang của quân đội.
-- Thanh tra Sở Giao thông vận tải TP.HCM phát hiện một số vi phạm trong quá trình thi công dự án chống sạt lở bán đảo Thanh Đa - đoạn 4.
-- Ông Hồ Quang Bửu, phó chủ tịch UBND tỉnh Quảng Nam, đã được Thủ tướng Chính phủ giao quyền chủ tịch UBND tỉnh này.
-- Trung tâm Đăng kiểm xe cơ giới tỉnh Gia Lai (81-03D) bị đình chỉ hoạt động 3 tháng vì vi phạm quy định về kinh doanh dịch vụ kiểm định xe cơ giới.
-- Sau hành trình đi thuyền buồm từ Philippines sang Việt Nam du lịch gặp sự cố và may mắn được ngư dân cứu, ông lão người Mỹ quyết định dừng hành trình trên biển, sẽ nhập cảnh vào Việt Nam và đi đường bộ.
-- Thanh tra Sở Giao thông vận tải TP.HCM yêu cầu chủ đầu tư, nhà thầu khẩn trương xử lý, khắc phục bất cập tại dự án hầm chui Nguyễn Văn Linh - Nguyễn Hữu Thọ (quận 7).
-- Tiểu ban Nhân sự Đại hội đại biểu Đảng bộ TP lần thứ XII, nhiệm kỳ 2025 - 2030 gồm 7 thành viên, do ông Nguyễn Văn Nên, bí thư Thành ủy TP.HCM, làm trưởng tiểu ban.
-- Bộ Văn hóa, Thể thao và Du lịch đang tập trung rà soát, xử lý các kiến nghị của thanh tra, khắc phục những sai phạm Khu liên hợp thể thao quốc gia.
-- Nhóm 10 thanh thiếu niên (15-17 tuổi) trong quá trình chơi trên cầu vượt đã có hành vi ném đá xuống đường cao tốc, trúng vào ô tô đang lưu thông.
-- Công an tỉnh Đồng Nai đã thông tin ban đầu vụ 112 hồ sơ bồi thường ở dự án cao tốc Biên Hòa - Vũng Tàu có dấu hiệu chỉnh sửa.
-- Sở Giao thông vận tải TP.HCM vừa thông tin về tiến độ triển khai dự án cầu đi bộ bắc qua sông Sài Gòn do Nutifood tài trợ.
+- Giải pháp nào để giải quyết dứt điểm tình trạng dây cáp viễn thông chằng chịt trên các tuyến đường và khu dân cư, gây mất mỹ quan đô thị, nguy cơ cháy nổ?
+- Công an thông báo tìm người bị hại liên quan vụ phóng viên cưỡng đoạt tài sản.
+- Một số tin tức đáng chú ý: Phạt đại gia xăng dầu miền Tây; Thanh tra Sở Giao thông vận tải TP.HCM kiến nghị dẹp cò mồi, bảo kê xe quá tải; Thành lập Trường Y Dược thuộc Đại học Đà Nẵng...
+- Sau khi "rút ruột" tiền của SCB, bà Lan chỉ đạo các thân tín thông qua các công ty "ma" chuyển cả trăm ngàn tỉ đồng ra nước ngoài.
+- Hôm nay 7-6, thời tiết Bắc Bộ và Nam Bộ đều có mưa nhưng miền Bắc mưa đêm đến sáng, còn miền Nam mưa vào chiều tối.
+- Qua theo dõi trên TikTok Shop, lực lượng chức năng kiểm tra, phát hiện một kho hàng tại Hà Nội chứa hơn 2.000 máy tính bảng, điện thoại... nghi nhập lậu.
+- Hai người đàn ông phá dỡ căn nhà trong ngõ thì xảy ra sập tường. Vụ việc khiến 1 người chết, 1 người bị thương.
+- Chiều 6-6, Chủ tịch nước Tô Lâm đã chủ trì và trao quyết định bổ nhiệm Phó thủ tướng Lê Thành Long và Bộ trưởng Bộ Công an Lương Tam Quang.
+- Ba thanh niên tại Quảng Bình vừa được Trung ương Đoàn trao tặng huy hiệu “Tuổi trẻ dũng cảm” vì đã lao ra biển cứu người. Ba người này đã cứu 5 học sinh khỏi “tử thần”.
+- Công an đã đưa nam ca sĩ Chu Bin cùng một số người khác tại một căn nhà ở quận 10 (TP.HCM) về trụ sở để làm rõ hành vi nghi liên quan đến ma túy.
+- Liên quan nhà sai phép 41-49 An Phú do YEAH1 ký hợp đồng xây dựng, TP Thủ Đức chưa thông tin đến Trung tâm báo chí về xử lý trách nhiệm địa phương.
+- Chiếc xe khách tông hàng loạt xe máy chờ đèn đỏ trên quốc lộ 1 ở huyện Bến Lức, tỉnh Long An khiến 1 người chết và nhiều người bị thương.
+- Phó thị trưởng TP Rotterdam chia sẻ Hà Lan và TP.HCM đều đang nỗ lực chống ngập đô thị, hai bên có thể cùng hợp tác và học hỏi lẫn nhau.
+- Thời gian hoàn thành, khai thác giai đoạn 1 cũng như nhu cầu, thời điểm đầu tư giai đoạn 2 sân bay Long Thành sẽ phụ thuộc vào chủ đầu tư - ACV.
+- Công an tỉnh Đắk Lắk đã bắt tạm giam ông Huỳnh Bảo Minh, con trai của nguyên tổng giám đốc Công ty Cao su Đắk Lắk, về tội tham ô tài sản và tội rửa tiền.
+- Vụ tai nạn giữa tàu SE 10 với máy xúc đang sửa chữa đường ray lúc chiều 6-6 tại đoạn qua huyện Bắc Bình, tỉnh Bình Thuận khiến đường sắt Bắc - Nam tạm thời gián đoạn.
+- Theo Sở Xây dựng TP.HCM, tính chịu nhiệt kém và đợt nắng nóng kéo dài khiến hàng loạt cây xanh trên địa bàn quận Bình Tân chết khô.
+- Công an TP.HCM phát hiện các trường hợp ban quản lý, bảo vệ chung cư tiếp tay cho các nhóm tội phạm, tệ nạn xã hội tại căn hộ dịch vụ, chung cư cao tầng.
+- Thứ trưởng Trần Thanh Nam cho biết Việt Nam đã nhận chuyển giao 25 bộ giống lúa mang thương hiệu của IRRI và mong muốn IRRI tiếp tục hợp tác mạnh mẽ hơn với Việt Nam.
+- Theo Ngân hàng Nhà nước TP.HCM, Công ty SJC có 35 năm kinh nghiệm trong sản xuất kinh doanh vàng. Về mặt nghiệp vụ, kỹ thuật, cơ sở vật chất, doanh nghiệp này đảm bảo khả năng cung ứng vàng miếng theo chỉ đạo.
+- Việt Nam kêu gọi Mỹ đưa Cuba khỏi danh sách các nước tài trợ khủng bố, mong muốn Mỹ tiến tới bình thường hóa quan hệ hoàn toàn với Cuba.
+- Tỉnh ủy Quảng Ngãi yêu cầu UBND tỉnh chỉ đạo kiểm điểm xét trách nhiệm đối với ông Nguyễn Văn Thành, giám đốc Sở Khoa học và Công nghệ, vì kiểm điểm trước đó chưa xác định đúng tính chất, mức độ vi phạm và hình thức kỷ luật.
+- Theo Ban Quản lý đường sắt đô thị TP.HCM, các vụ việc đang được các bên bàn bạc giải pháp giải quyết. Dù vậy, việc thi công metro số 1 vẫn theo tiến độ thống nhất với các nhà thầu và tư vấn Nhật Bản.
+- Liên quan đến loạt bài 'Rác ngập ngụa khắp nơi, ai xả?', 'Đại công trường' đốt rác bên dòng kênh ở huyện Bình Chánh mà báo Tuổi Trẻ Online đăng tải, UBND huyện Bình Chánh vừa có phản hồi.
+- Báo chí đã tăng cường tuyến nội dung về lan tỏa thông tin tích cực, đấu tranh phản bác các quan điểm xuyên tạc, tích cực tham gia bảo vệ nền tảng tư tưởng của Đảng.
+- Công an đang khám nghiệm hiện trường và thu thập tài liệu để làm rõ hành vi, xem xét xử lý hành chính đối với tài xế đậu ô tô sát đường sắt.
+- Chiều 6-6, ông Nguyễn Tấn Dũng - chủ tịch UBND xã Nhơn Lý, TP Quy Nhơn (Bình Định) - cho biết một con cá voi lớn vừa xuất hiện ở vùng biển xã này và được ngư dân quay phim lại.
+- Với đa số đại biểu có mặt tán thành, Quốc hội đã thông qua nghị quyết bầu bà Nguyễn Thị Thanh làm Phó chủ tịch Quốc hội khóa XV.
+- Với đa số tán thành, Quốc hội đã phê chuẩn bổ nhiệm Bộ trưởng Bộ Tư pháp Lê Thành Long làm tân Phó thủ tướng Chính phủ nhiệm kỳ 2021 - 2026.
+- Ngày 6-6, với đa số đại biểu tán thành, Quốc hội đã phê chuẩn bổ nhiệm thượng tướng Lương Tam Quang làm Bộ trưởng Bộ Công an theo đề nghị của Thủ tướng.
 ![New](News.png)
 ## Nhịp sống số 
 - Ngày 15-5, Công ty TNHH Sản phẩm công nghiệp Toshiba Asia đã tổ chức ngày hội đối tác kinh doanh ‘Business Partners Day 2024’ tại GEM Center, TP.HCM.
