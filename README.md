@@ -1,10 +1,29 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
-- Kỳ thi tuyển sinh vào lớp 10 ở Hà Nội năm nào cũng rất nóng bỏng vì đây là địa phương có số thí sinh dự tuyển đông nhất cả nước, nhưng chỉ tiêu trường công lập chỉ đạt trên dưới 60%.
+- Ngoài có kết quả đạt phỏng vấn, thí sinh phải có điểm trung bình chung học bạ 5 kỳ của 3 môn thuộc tổ hợp xét tuyển đạt 8,0 - 9,4 trở lên.
+- Tuy AI chưa thể thay thế hoàn toàn sự giám sát của con người, nhưng nó có thể giúp bảo vệ tính công bằng của kỳ thi đại học.
+- "Không khen, không chê, không lỗi chính tả, không có gì để nói" - nhận xét "4 không" được một số giáo viên Hà Nội bày tỏ sau khi thí sinh thi môn văn.
+- Trường mầm non VCN World tại TP Nha Trang phải dừng khai giảng lớp dạy bơi cho trẻ 4 - 5 tuổi sau khi đề nghị phụ huynh ký đơn 'tình nguyện chấp nhận những rủi ro tiềm ẩn'.
+- 'Thơ ca không làm ra lúa vàng, gạo trắng' khi vào đề thi chuyên văn bỗng thành 'Thơ ca không làm ra lúa gạo, vàng trắng' khiến mạng xã hội xôn xao.
+- Tổ chức tìm kiếm giải pháp sáng tạo cho những thách thức sức khỏe lớn nhất toàn cầu (The Trinity Challenge - TTC) vừa vinh danh chủ nhân Giải thưởng Lớn (Grand Prize).
+- Năm 2024, Trường đại học Y Hà Nội xét tuyển khối C00, D01, dùng kết quả thi đánh giá năng lực của Đại học Quốc gia Hà Nội xét tuyển.
+- Theo chủ tịch Trường đại học Fulbright Việt Nam, các sinh viên là những người có thể kiến tạo một cộng đồng đại học "không sợ hãi".
+- Mời bạn đọc theo dõi bài giải 24 mã đề môn tiếng Anh thi vào lớp 10 Hà Nội. Đề thi năm nay được nói vừa sức thí sinh.
+- Thí sinh nhận xét đề thi tiếng Anh tuyển sinh lớp 10 Hà Nội năm nay vừa sức, không đánh đố. Tuy nhiên giáo viên cho rằng sẽ ít thí sinh đạt điểm 10.
+- Phụ huynh học sinh Trung tâm Giáo dục thường xuyên An Giang nói bị ép buộc đóng tối thiểu 500.000 đồng xây mái che, nhà trường nói gì?
+- GS.TS Nguyễn Vũ Quốc Huy, hiệu trưởng Trường đại học Y Dược Huế, vừa được tổng thống Pháp trao tặng Huân chương Công trạng quốc gia, tước hiệp sĩ.
+- Một giáo viên toán tự do ở TP.HCM cho rằng thí sinh không làm được đề thi toán tuyển sinh lớp 10 ở TP.HCM vì học theo mô típ cũ.
+- Rất nhiều ý kiến tranh luận xung quanh bài viết 'Nhiều thí sinh khóc vì đề thi toán lớp 10, Sở Giáo dục TP.HCM nói gì?'.
+- Kỳ thi vào lớp 10 những năm gần đây là cuộc đua căng thẳng, áp lực hơn rất nhiều so với cuộc thi để tuyển vào đại học. Vì sao?
+- Sau khi hoàn thành 50% học phí, phụ huynh của Trường quốc tế Á Châu đã nhận lại học bạ bản photo và sẽ nhận bản chính khi trả hết 100% học phí.
+- Đề văn thi vào lớp 10 Hà Nội năm nay gây bất ngờ cho thí sinh ở tác phẩm Đồng chí nhưng được nhận xét dễ thở.
+- Đề thi văn lớp 10 Hà Nội ra tác phẩm Đồng chí khiến nhiều thí sinh bất ngờ, còn câu nghị luận là 'ứng xử thế nào trước mong đợi của người thân với chúng ta'.
+- Trung ương Hội Sinh viên Việt Nam vừa đến thăm, động viên các đội hình tình nguyện Tiếp sức mùa thi tại kỳ thi tuyển sinh vào lớp 10 ở Hà Nội.
 - Trưởng thành trong thời đại công nghệ, Gen Z - thế hệ bản địa kỹ thuật số - chọn học Digital Marketing như “cá gặp nước”.
 - Sáng nay 8-6, gần 106.000 thí sinh Hà Nội thi vào lớp 10 với môn thi đầu tiên là ngữ văn trong tiết trời dịu mát.
 - Theo nhận định của giáo viên, điểm chuẩn ở các trường THPT thuộc tốp giữa và tốp dưới sẽ không giảm hoặc có thể tăng lên chút ít.
+- Kỳ thi tuyển sinh vào lớp 10 ở Hà Nội năm nào cũng rất nóng bỏng vì đây là địa phương có số thí sinh dự tuyển đông nhất cả nước, nhưng chỉ tiêu trường công lập chỉ đạt trên dưới 60%.
 - Cậu con trai chỉ nói dứt câu 'đề toán dài quá con làm không hết' rồi khóc hù hụ. Giáo dục đang biến việc học - thi bình thường thành 'cái gì đó' rất bất thường!
 - Cơ quan chức năng An Giang đang thông báo, yêu cầu làm rõ thông tin nữ sinh đi thi lớp 10 tại TP Châu Đốc đến nay chưa thấy về nhà.
 - Bộ Giáo dục và Đào tạo vừa công bố danh mục mã ngành đào tạo thí điểm các trình độ của giáo dục đại học, trong đó có các ngành về trị liệu lĩnh vực sức khỏe.
@@ -12,57 +31,38 @@
 - Tỉnh Nghệ An sẽ xem xét giao một lô đất không qua đấu giá với trường hợp thầy cô mượn đất của Trường THPT Dân tộc nội trú tỉnh nhưng chưa trả lại.
 - Phó giám đốc Sở GD-ĐT TP.HCM nói đề toán vào lớp 10 vẫn đảm bảo theo yêu cầu và không ảnh hưởng đến việc lựa chọn nguyện vọng.
 - Hơn 98.000 thí sinh ở TP.HCM vừa trải qua kỳ thi vào lớp 10 công lập. Có nhiều nụ cười và cũng có những giọt nước mắt.
-- Hội đồng Giáo sư nhà nước vừa công bố danh sách 28 ủy viên hội đồng giáo sư nhà nước nhiệm kỳ 2024-2029.
-- Học sinh Trường Quốc tế Á Châu đạt 18 giải tại Kỳ thi chọn học sinh giỏi lớp 9 và lớp 12 năm học 2023-2024 do Sở Giáo dục - Đào tạo TPHCM tổ chức.
-- Sở Giáo dục và Đào tạo tỉnh Tiền Giang xác nhận đề thi tiếng Anh vào lớp 10 có sai sót, sẽ hướng dẫn chấm thi để đảm bảo quyền lợi thí sinh.
-- Trường Quản trị và Kinh doanh, Đại học Quốc gia Hà Nội đã bỏ tiêu chí chiều cao trong đề án tuyển sinh đại học năm 2024.
-- Hai thí sinh thi vào lớp 10 ở Hà Nội được mang điện thoại vào phòng thi, để bấm truyền insulin mỗi khi cần.
-- Ông Nguyễn Tiến Thanh bày tỏ tâm trạng trĩu nặng âu lo khi nhận chức vụ ở lĩnh vực nhiều thách thức và nhạy cảm là xuất bản sách giáo dục, SGK.
-- Sáng 7-6, thí sinh Nguyễn Thị Yến Nhi (Trường THCS Nguyễn An Ninh, quận 12, TP.HCM) phải nhập viện và không thể tiếp tục thi vào lớp 10.
-- Chính phủ Trung Quốc đã ban hành hàng loạt biện pháp nhằm đảm bảo kỳ thi đại học 2024 diễn ra suôn sẻ và khách quan nhất.
-- Ngày 7-6, gần 106.000 thí sinh Hà Nội đã có mặt ở 201 điểm thi để nghe phổ biến quy chế và làm thủ tục dự thi vào lớp 10.
-- Mời bạn đọc tham khảo gợi ý bài giải môn toán thi tuyển sinh lớp 10 tại TP.HCM.
-- Nhiều thí sinh than đề môn toán kỳ thi lớp 10 ở TP.HCM năm nay dài và khó. Giáo viên cũng nhận định đề quá dài khiến thí sinh bị rối.
-- 4h sáng, bà Nguyễn Thị Ánh Trang (quận 12, TP.HCM) dậy sớm sửa soạn đồ đạc, giấy tờ đi thi lớp 10 cho con gái Nguyễn Thị Yến Nhi.
-- Từ phản ánh của bạn đọc qua đường dây nóng, Tuổi Trẻ Online ghi nhận tình trạng việc phát tờ rơi bát nháo ở các điểm thi.
-- Mỗi đứa trẻ luôn có những giấc mơ, những chuyến phiêu lưu và đều có một tiềm năng đặc biệt đang chờ được khám phá và phát triển.
-- Trưa 6-6, sau khi kết thúc thi môn văn kỳ thi tuyển sinh lớp 10 ở TP.HCM, nhiều thí sinh ra về với nụ cười rạng rỡ.
-- Dù đã được nhắc nhở không đem điện thoại, nữ sinh tại TP.HCM vẫn giấu điện thoại mang vào phòng thi lớp 10, sau đó điện thoại reo trong buổi thi chiều 6-6.
-- Việc Trường Quản trị và Kinh doanh không xét tuyển thí sinh thấp lùn đang gây nhiều tranh cãi trên mạng xã hội.
-- Tuổi Trẻ Online xin giới thiệu đề thi và gợi ý bài giải môn tiếng Anh thi vào lớp 10 TP.HCM, diễn ra chiều nay 6-6.
-- Chuyện Trường Quản trị và Kinh doanh (Đại học Quốc gia Hà Nội) không xét tuyển thí sinh thấp lùn gây nhiều ý kiến tranh luận.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Tham gia trả lời chất vấn tại kỳ họp thứ 7, Bộ trưởng Bộ Nông nghiệp và Phát triển nông thôn Lê Minh Hoan cho rằng đã đến lúc 'cần có tuyên ngôn rằng chúng ta không phải quốc gia dư thừa nước và ngày càng khan hiếm'.
-- Một vụ tai nạn nghiêm trọng vừa xảy ra trên quốc lộ 1 đoạn qua tỉnh Hà Tĩnh khiến 3 người tử vong tại chỗ.
-- Một số tin tức đáng chú ý: Hôm nay, Quốc hội họp ngày cuối của đợt 1 kỳ họp thứ 7; Mỹ hỗ trợ phòng ngừa các bệnh liên quan đến biến đổi khí hậu tại Đồng bằng sông Cửu Long; Đề xuất có thể hưởng ốm đau bằng giấy tờ do UBND xã cấp khi thiên tai.
-- Một vụ tai nạn giữa xe khách, xe đầu kéo và xe tải đang chạy trên tuyến quốc lộ 1 đoạn đường tránh TP Huế khiến nhiều người bị thương, nhập viện cấp cứu.
-- Hôm nay 8-6, thời tiết mưa to tiếp tục diễn ra ở Bắc Bộ và Nam Bộ. Dự báo tình trạng ngập, sạt lở đất diễn biến phức tạp.
-- Hai cán bộ Công an tỉnh Gia Lai gồm một trung tá và một thiếu tá bị đối tượng tàng trữ ma túy dùng dao đâm bị thương trong lúc truy bắt.
-- Điện Kiến Trung bên trong hoàng cung Huế đã rực sáng sắc màu của công nghệ 3D mapping trong đêm khai mạc Tuần lễ Festival Huế 2024.
-- Quận Bình Thạnh được đề nghị khẩn trương di dời các hộ dân ra khỏi khu vực sạt lở ở đoạn kè Thanh Đa.
-- Lãnh đạo Chi cục Thuế TP Quy Nhơn (Bình Định) cho biết vừa ra quyết định cưỡng chế đối với Công ty CP Tập đoàn FLC số tiền hơn 133 tỉ do nợ thuế quá hạn.
-- Cơ quan an ninh điều tra đã ra quyết định khởi tố bị can, lệnh bắt tạm giam đối với ông Trương Huy San (hay còn gọi là Osin Huy Đức) và ông Trần Đình Triển.
-- Cơ quan chức năng An Giang đang thông báo, yêu cầu làm rõ thông tin nữ sinh đi thi lớp 10 tại TP Châu Đốc đến nay chưa thấy về nhà.
-- Đại diện Viện kiểm sát tỉnh Khánh Hòa đề nghị mức án đối với 18 bị cáo vụ sòng bạc ở Nha Trang, trong đó cựu công an nhận hối lộ trong vụ án bị đề nghị 4 - 5 năm tù.
-- Anh hùng Lực lượng vũ trang nhân dân, nguyên thuyền trưởng tàu Không số năm xưa - trung tá Hồ Đắc Thạnh (Phú Yên) ra mắt tập hồi ký "Nhớ và ghi lại" với những ký ức về đường Hồ Chí Minh trên biển.
-- Ông Kin Moy, người được Tổng thống Mỹ Joe Biden đề cử làm đại sứ Mỹ mới tại Việt Nam, có nhiều năm ở châu Á, trong đó có Trung Quốc và Hàn Quốc.
-- Nhóm ba thiếu niên rủ nhau đến vực Dài thuộc sông Bánh Lái (xã Hòa Mỹ Tây, huyện Tây Hòa, Phú Yên) để vui chơi, không may một em chết đuối.
-- Liên quan các sự cố y khoa xảy ra tại các phòng khám thẩm mỹ tư nhân ở TP.HCM, Sở Y tế TP cho biết sẽ làm rõ các sai phạm và cương quyết xử lý nghiêm.
-- Các quốc gia lưu vực sông Mekong có những “khác biệt cơ bản” về chính sách khai thác nguồn tài nguyên nước, đặt ra nhiều thách thức về mặt pháp lý, chính trị, ngoại giao.
-- Dù cao tốc Đà Nẵng - Quảng Ngãi đưa vào vận hành đã 6 năm nhưng nút giao cực kỳ quan trọng nối cao tốc này với Khu kinh tế Dung Quất vẫn dang dở.
-- Bộ Giao thông vận tải đề nghị UBND các tỉnh thành yêu cầu cơ sở giáo dục có xe đưa đón học sinh thực hiện quy trình, kiểm tra số học sinh lên và rời xe.
-- Chiều 7-6, cơ quan chức năng vẫn đang tìm kiếm một người bị rớt xuống sông Đồng Nai trong vụ lật thuyền máy.
-- Người dân tiếp tục phát hiện, ghi hình được khoảnh khắc người nước ngoài thản nhiên dùng bình xịt sơn, vẽ bậy trên đường Trần Hưng Đạo, quận 1, TP.HCM.
-- Theo Thanh tra giao thông Sở Giao thông vận tải TP.HCM, việc phạt nguội xe quá tải ở các trạm cân mang hiệu quả cao sau 6 tháng triển khai thí điểm.
-- Lãnh đạo tất cả 7 nước Đối tác chiến lược toàn diện của Việt Nam đã gửi thư chúc mừng Chủ tịch nước Tô Lâm, mới nhất là Tổng thống Mỹ Joe Biden.
-- Tỉnh Nghệ An sẽ xem xét giao một lô đất không qua đấu giá với trường hợp thầy cô mượn đất của Trường THPT Dân tộc nội trú tỉnh nhưng chưa trả lại.
-- Nhà thầu Long Hưng tự ý chạy máy xúc trên đường ray khiến đoàn tàu SE10 tông vào ở huyện Bắc Bình, tỉnh Bình Thuận, gây gián đoạn tạm thời đường sắt Bắc - Nam.
-- Quỹ đất ở cuối sông Trà Khúc rộng 12ha dự kiến bán đấu giá sau khi hoàn thành kè Tịnh Long - Tịnh Khê nay cân nhắc giữ lại làm công viên.
-- Chiều nay 7-6, Bộ trưởng Bộ Y tế Đào Hồng Lan đã trao quyết định bổ nhiệm TS Chu Quốc Thịnh, 43 tuổi, làm phó cục trưởng Cục An toàn thực phẩm.
-- Diễn đàn Kinh tế quốc tế St. Peterburg ở Nga với sự tham gia của hơn 100 nước và vùng lãnh thổ.
-- Nếu phát hiện việc nhận hoa hồng từ việc quảng cáo, bán hàng có dấu hiệu vi phạm pháp luật, chuyển cơ quan chức năng để xử lý.
-- Bà Nguyễn Thị Thanh Lịch, phó chủ tịch tỉnh Gia Lai, được giao điều hành hoạt động của UBND tỉnh trong thời gian kiện toàn chức danh chủ tịch tỉnh.
+- Tin tức đáng chú ý: SCB thanh lý loạt xe chở tiền, có chiếc chỉ hơn 100 triệu đồng; Phạt một cá nhân vì liên tiếp mua "chui" cổ phiếu; Bệnh viện Nhi Hà Nội chuẩn bị đi vào hoạt động...
+- Hôm nay 9-6, thời tiết Bắc bộ tiếp tục có mưa to và dông, vài nơi mưa rất to. Nam Bộ và Tây Nguyên mưa rào đến mưa to.
+- Chiếc sà lan chở cần cẩu nặng hàng chục tấn thi công dự án bờ kè sông Đồng Nai bất ngờ va vào nhà dân khiến một số tài sản bị hư hỏng, đổ sập xuống sông.
+- Nhiều tài xế bức xúc việc đóng - mở cao tốc TP.HCM - Long Thành khiến các tuyến đường xung quanh bị ảnh hưởng và cho rằng cách làm này không hiệu quả.
+- Chủ tịch UBND TP.HCM phê bình Sở Tài nguyên và Môi trường, Sở Quy hoạch - Kiến trúc, Sở Giáo dục và Đào tạo, UBND quận 3, 5, 8, Bình Thạnh và TP Thủ Đức chậm giải ngân vốn đầu tư công.
+- Mây dông đang phát triển mạnh trên khu vực Nam Bộ, TP.HCM, dự báo tối nay mưa dông nhiều nơi, có nơi mưa to.
+- Cô gái 20 tuổi bị lừa sang Lào làm việc lương cao nhưng bị ép bán dâm ở khu vực Tam giác vàng.
+- Hàng loạt cây xanh ở An Giang bị bật gốc, gãy đổ trong cơn mưa dông kèm gió lớn. Một số nhà dân bị hư hại, có người bị thương.
+- 17 hộ dân có nhà nằm phía dưới quốc lộ 14 bị sạt trượt vào tháng 8-2023 vừa có đơn cầu cứu ngành chức năng vì "ở nơm nớp, đi thì trắng tay".
+- Mây dông đang phát triển và gây mưa cho khu vực Ba Vì, Sơn Tây, Chương Mỹ... Dự báo 3 giờ tới mây dông kéo vào và gây mưa khu vực nội thành Hà Nội.
+- Cùng với đẩy mạnh tăng trưởng các ngành động lực, tháo gỡ khó khăn cho doanh nghiệp, việc đảm bảo nguồn cung hàng hóa, điều chỉnh giá các mặt hàng do Nhà nước quản lý cần cân nhắc kỹ lưỡng.
+- Bộ trưởng Đào Ngọc Dung bày tỏ tán thành ý kiến của Ủy ban Xã hội là cần phải báo cáo xem việc sử dụng 2% kinh phí công đoàn thời gian qua như thế nào.
+- Ngày 8-6, Quốc hội thảo luận tại tổ về chương trình mục tiêu quốc gia về phát triển văn hóa với nhiều ý kiến băn khoăn về tính hiệu quả của chương trình và việc bố trí vốn.
+- Quốc hội quyết định điều chỉnh chương trình xây dựng luật, pháp lệnh năm 2024 về bổ sung Luật sửa đổi, bổ sung một số điều của Luật Đất đai, Nhà ở, Kinh doanh bất động sản, Các tổ chức tín dụng.
+- Sau loạt bài phản ánh các điểm đen tồn đọng nhiều rác thải trên địa bàn, UBND quận Bình Tân  (TP.HCM) đã chỉ đạo xử lý, tổng vệ sinh.
+- Quốc hội quyết định sẽ giám sát tối cao chuyên đề việc thực hiện chính sách, pháp luật về bảo vệ môi trường kể từ khi Luật Bảo vệ môi trường năm 2020 có hiệu lực thi hành.
+- Bộ Tư lệnh Vùng cảnh sát biển 4 phối hợp Tỉnh ủy Sóc Trăng, Bệnh viện Hùng Vương TP.HCM khám, cấp thuốc miễn phí cho gần 300 ngư dân nghèo.
+- Chánh án Nguyễn Hòa Bình cho rằng nếu không tách vụ án, thời hạn điều tra với các cháu chưa thành niên phải theo người lớn. Điều này đặt các cháu vào tình trạng bị khởi tố, tạm giam kéo dài.
+- Tại khuôn khổ Ngày hội Sống xanh TP.HCM lần 4, Phó chủ tịch UBND TP.HCM Bùi Xuân Cường cho biết TP đặt trọng tâm đẩy mạnh thu gom, tái chế chất thải theo mô hình kinh tế tuần hoàn.
+- Sở Giao thông vận tải TP.HCM vừa có văn bản yêu cầu các đơn vị liên quan tăng cường biện pháp đảm bảo an toàn giao thông phục vụ tuyến tàu cao tốc TP.HCM - Côn Đảo.
+- Sau nhiều ngày huy động hàng trăm người dân lục rừng tìm kiếm, chiều 7-6, ông A Lăng Nía (38 tuổi, thôn A Rớch, xã A Ting, Đông Giang, Quảng Nam) - người đi lạc trong rừng suốt 4 ngày - đã được tìm thấy trong tình trạng suy kiệt nặng.
+- Liên quan vụ tàu SE10 tông máy xúc ở Bình Thuận, trao đổi với Tuổi Trẻ trưa 8-6, đại diện Bộ Giao thông vận tải cho biết đã chấn chỉnh các nhà thầu và đang phối hợp cùng cơ quan chức năng để sớm có kết quả xử lý.
+- Sở Y tế tỉnh Yên Bái thông tin tỉnh vừa ghi nhận bệnh nhân nhập viện do mắc liên cầu lợn. Trước đó, bệnh nhân có ăn nem chua, nem nắm mua tại quán bia.
+- Chánh án Nguyễn Hòa Bình cho rằng thế giới đã chứng minh và chỉ áp dụng biện pháp trừng phạt đưa vào nhà tù với trẻ vị thành niên khi không còn giải pháp nào khác.
+- Cơ quan chức năng đã vào cuộc vụ một số hạng mục công trình hạ tầng kỹ thuật dự án khu du lịch sinh thái Nam Ô vi phạm vào phạm vi bảo vệ cầu đường sắt Nam Ô.
+- Lửa và khói đen bốc lên ngùn ngụt tại tầng 2 quán cà phê trên phố Hàng Vải (Hà Nội). Sau khoảng 10 phút, đám cháy được lực lượng chức năng dập tắt hoàn toàn.
+- Ông Lê Văn Phước - phó chủ tịch UBND tỉnh An Giang, yêu cầu tăng cường kiểm tra, xử lý kịp thời phản ánh của du khách bị ‘chặt chém’ khi đi du lịch hành hương.
+- Sáng 8-6, xe container gặp sự cố trên cầu Long Thành khiến dòng xe trên cao tốc hướng TP.HCM đi Đồng Nai, Vũng Tàu... ùn ứ kéo dài từ nút giao An Phú đến trạm thu phí Long Phước (TP Thủ Đức).
+- Nhiều bạn đọc đặt vấn đề về chuyện hàng loạt cây xanh chết khô tại TP.HCM trong thời gian qua. Chuyên gia lý giải ra sao?
+- Một người dân ở TP Hội An khởi kiện chủ tịch và UBND tỉnh Quảng Nam, buộc trả lại diện tích đất và nhà, UBND tỉnh này đề nghị tòa án bác đơn khởi kiện.
 ![New](News.png)
 ## Nhịp sống số 
 - Lần đầu tiên, một cuộc thi được dành riêng cho các tác phẩm ảnh và video dành cho lĩnh vực công nghệ.
