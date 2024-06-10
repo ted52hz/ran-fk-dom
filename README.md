@@ -1,6 +1,14 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Ngày 9-6, Bộ Giáo dục và Đào tạo cho biết 8 học sinh đội tuyển Việt Nam dự Olympic Vật lý châu Á đều có giải, trong đó có một huy chương vàng.
+- Cơ quan chức năng tỉnh An Giang vẫn đang tích cực truy tìm, và chưa thấy tung tích nữ sinh đi thi lớp 10 mất tích tại TP Châu Đốc.
+- Bước đầu Công an huyện Chương Mỹ đã làm rõ 7 trường hợp liên quan đến vụ đánh, lột đồ, ép nữ sinh lớp 6 hút thuốc.
+- Giám đốc Sở Giáo dục và Đào tạo tỉnh Gia Lai trao đổi về hướng xử lý vụ đề thi tuyển sinh lớp 10 chuyên văn trích dẫn sai nguyên tác.
+- Khóc cho tuổi 15, cho một lần trải nghiệm, cho một ngã rẽ cuộc đời, đâu có gì là sai. Khóc để vơi nhẹ tất thảy những áp lực đã qua rồi bước tiếp.
+- Giám đốc Sở Giáo dục và Đào tạo Hà Nội Trần Thế Cương khẳng định thông tin lộ đề văn kỳ thi lớp 10 tại Hà Nội là không chính xác.
+- Mời bạn đọc theo dõi gợi ý bài giải môn toán thi lớp 10 Hà Nội. Tuổi Trẻ Online liên tục cập nhật.
+- Đề thi toán tuyển sinh lớp 10 Hà Nội năm nay được thí sinh nhận xét dễ, điểm 8 trong tầm tay học sinh khá.
 - Ngoài có kết quả đạt phỏng vấn, thí sinh phải có điểm trung bình chung học bạ 5 kỳ của 3 môn thuộc tổ hợp xét tuyển đạt 8,0 - 9,4 trở lên.
 - Tuy AI chưa thể thay thế hoàn toàn sự giám sát của con người, nhưng nó có thể giúp bảo vệ tính công bằng của kỳ thi đại học.
 - "Không khen, không chê, không lỗi chính tả, không có gì để nói" - nhận xét "4 không" được một số giáo viên Hà Nội bày tỏ sau khi thí sinh thi môn văn.
@@ -23,46 +31,38 @@
 - Trưởng thành trong thời đại công nghệ, Gen Z - thế hệ bản địa kỹ thuật số - chọn học Digital Marketing như “cá gặp nước”.
 - Sáng nay 8-6, gần 106.000 thí sinh Hà Nội thi vào lớp 10 với môn thi đầu tiên là ngữ văn trong tiết trời dịu mát.
 - Theo nhận định của giáo viên, điểm chuẩn ở các trường THPT thuộc tốp giữa và tốp dưới sẽ không giảm hoặc có thể tăng lên chút ít.
-- Kỳ thi tuyển sinh vào lớp 10 ở Hà Nội năm nào cũng rất nóng bỏng vì đây là địa phương có số thí sinh dự tuyển đông nhất cả nước, nhưng chỉ tiêu trường công lập chỉ đạt trên dưới 60%.
-- Cậu con trai chỉ nói dứt câu 'đề toán dài quá con làm không hết' rồi khóc hù hụ. Giáo dục đang biến việc học - thi bình thường thành 'cái gì đó' rất bất thường!
-- Cơ quan chức năng An Giang đang thông báo, yêu cầu làm rõ thông tin nữ sinh đi thi lớp 10 tại TP Châu Đốc đến nay chưa thấy về nhà.
-- Bộ Giáo dục và Đào tạo vừa công bố danh mục mã ngành đào tạo thí điểm các trình độ của giáo dục đại học, trong đó có các ngành về trị liệu lĩnh vực sức khỏe.
-- Kết thúc Đại hội Thể thao học sinh Đông Nam Á đoàn Việt Nam dẫn đầu với tổng cộng 44 huy chương vàng.
-- Tỉnh Nghệ An sẽ xem xét giao một lô đất không qua đấu giá với trường hợp thầy cô mượn đất của Trường THPT Dân tộc nội trú tỉnh nhưng chưa trả lại.
-- Phó giám đốc Sở GD-ĐT TP.HCM nói đề toán vào lớp 10 vẫn đảm bảo theo yêu cầu và không ảnh hưởng đến việc lựa chọn nguyện vọng.
-- Hơn 98.000 thí sinh ở TP.HCM vừa trải qua kỳ thi vào lớp 10 công lập. Có nhiều nụ cười và cũng có những giọt nước mắt.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Tin tức đáng chú ý: SCB thanh lý loạt xe chở tiền, có chiếc chỉ hơn 100 triệu đồng; Phạt một cá nhân vì liên tiếp mua "chui" cổ phiếu; Bệnh viện Nhi Hà Nội chuẩn bị đi vào hoạt động...
-- Hôm nay 9-6, thời tiết Bắc bộ tiếp tục có mưa to và dông, vài nơi mưa rất to. Nam Bộ và Tây Nguyên mưa rào đến mưa to.
-- Chiếc sà lan chở cần cẩu nặng hàng chục tấn thi công dự án bờ kè sông Đồng Nai bất ngờ va vào nhà dân khiến một số tài sản bị hư hỏng, đổ sập xuống sông.
-- Nhiều tài xế bức xúc việc đóng - mở cao tốc TP.HCM - Long Thành khiến các tuyến đường xung quanh bị ảnh hưởng và cho rằng cách làm này không hiệu quả.
-- Chủ tịch UBND TP.HCM phê bình Sở Tài nguyên và Môi trường, Sở Quy hoạch - Kiến trúc, Sở Giáo dục và Đào tạo, UBND quận 3, 5, 8, Bình Thạnh và TP Thủ Đức chậm giải ngân vốn đầu tư công.
-- Mây dông đang phát triển mạnh trên khu vực Nam Bộ, TP.HCM, dự báo tối nay mưa dông nhiều nơi, có nơi mưa to.
-- Cô gái 20 tuổi bị lừa sang Lào làm việc lương cao nhưng bị ép bán dâm ở khu vực Tam giác vàng.
-- Hàng loạt cây xanh ở An Giang bị bật gốc, gãy đổ trong cơn mưa dông kèm gió lớn. Một số nhà dân bị hư hại, có người bị thương.
-- 17 hộ dân có nhà nằm phía dưới quốc lộ 14 bị sạt trượt vào tháng 8-2023 vừa có đơn cầu cứu ngành chức năng vì "ở nơm nớp, đi thì trắng tay".
-- Mây dông đang phát triển và gây mưa cho khu vực Ba Vì, Sơn Tây, Chương Mỹ... Dự báo 3 giờ tới mây dông kéo vào và gây mưa khu vực nội thành Hà Nội.
-- Cùng với đẩy mạnh tăng trưởng các ngành động lực, tháo gỡ khó khăn cho doanh nghiệp, việc đảm bảo nguồn cung hàng hóa, điều chỉnh giá các mặt hàng do Nhà nước quản lý cần cân nhắc kỹ lưỡng.
-- Bộ trưởng Đào Ngọc Dung bày tỏ tán thành ý kiến của Ủy ban Xã hội là cần phải báo cáo xem việc sử dụng 2% kinh phí công đoàn thời gian qua như thế nào.
-- Ngày 8-6, Quốc hội thảo luận tại tổ về chương trình mục tiêu quốc gia về phát triển văn hóa với nhiều ý kiến băn khoăn về tính hiệu quả của chương trình và việc bố trí vốn.
-- Quốc hội quyết định điều chỉnh chương trình xây dựng luật, pháp lệnh năm 2024 về bổ sung Luật sửa đổi, bổ sung một số điều của Luật Đất đai, Nhà ở, Kinh doanh bất động sản, Các tổ chức tín dụng.
-- Sau loạt bài phản ánh các điểm đen tồn đọng nhiều rác thải trên địa bàn, UBND quận Bình Tân  (TP.HCM) đã chỉ đạo xử lý, tổng vệ sinh.
-- Quốc hội quyết định sẽ giám sát tối cao chuyên đề việc thực hiện chính sách, pháp luật về bảo vệ môi trường kể từ khi Luật Bảo vệ môi trường năm 2020 có hiệu lực thi hành.
-- Bộ Tư lệnh Vùng cảnh sát biển 4 phối hợp Tỉnh ủy Sóc Trăng, Bệnh viện Hùng Vương TP.HCM khám, cấp thuốc miễn phí cho gần 300 ngư dân nghèo.
-- Chánh án Nguyễn Hòa Bình cho rằng nếu không tách vụ án, thời hạn điều tra với các cháu chưa thành niên phải theo người lớn. Điều này đặt các cháu vào tình trạng bị khởi tố, tạm giam kéo dài.
-- Tại khuôn khổ Ngày hội Sống xanh TP.HCM lần 4, Phó chủ tịch UBND TP.HCM Bùi Xuân Cường cho biết TP đặt trọng tâm đẩy mạnh thu gom, tái chế chất thải theo mô hình kinh tế tuần hoàn.
-- Sở Giao thông vận tải TP.HCM vừa có văn bản yêu cầu các đơn vị liên quan tăng cường biện pháp đảm bảo an toàn giao thông phục vụ tuyến tàu cao tốc TP.HCM - Côn Đảo.
-- Sau nhiều ngày huy động hàng trăm người dân lục rừng tìm kiếm, chiều 7-6, ông A Lăng Nía (38 tuổi, thôn A Rớch, xã A Ting, Đông Giang, Quảng Nam) - người đi lạc trong rừng suốt 4 ngày - đã được tìm thấy trong tình trạng suy kiệt nặng.
-- Liên quan vụ tàu SE10 tông máy xúc ở Bình Thuận, trao đổi với Tuổi Trẻ trưa 8-6, đại diện Bộ Giao thông vận tải cho biết đã chấn chỉnh các nhà thầu và đang phối hợp cùng cơ quan chức năng để sớm có kết quả xử lý.
-- Sở Y tế tỉnh Yên Bái thông tin tỉnh vừa ghi nhận bệnh nhân nhập viện do mắc liên cầu lợn. Trước đó, bệnh nhân có ăn nem chua, nem nắm mua tại quán bia.
-- Chánh án Nguyễn Hòa Bình cho rằng thế giới đã chứng minh và chỉ áp dụng biện pháp trừng phạt đưa vào nhà tù với trẻ vị thành niên khi không còn giải pháp nào khác.
-- Cơ quan chức năng đã vào cuộc vụ một số hạng mục công trình hạ tầng kỹ thuật dự án khu du lịch sinh thái Nam Ô vi phạm vào phạm vi bảo vệ cầu đường sắt Nam Ô.
-- Lửa và khói đen bốc lên ngùn ngụt tại tầng 2 quán cà phê trên phố Hàng Vải (Hà Nội). Sau khoảng 10 phút, đám cháy được lực lượng chức năng dập tắt hoàn toàn.
-- Ông Lê Văn Phước - phó chủ tịch UBND tỉnh An Giang, yêu cầu tăng cường kiểm tra, xử lý kịp thời phản ánh của du khách bị ‘chặt chém’ khi đi du lịch hành hương.
-- Sáng 8-6, xe container gặp sự cố trên cầu Long Thành khiến dòng xe trên cao tốc hướng TP.HCM đi Đồng Nai, Vũng Tàu... ùn ứ kéo dài từ nút giao An Phú đến trạm thu phí Long Phước (TP Thủ Đức).
-- Nhiều bạn đọc đặt vấn đề về chuyện hàng loạt cây xanh chết khô tại TP.HCM trong thời gian qua. Chuyên gia lý giải ra sao?
-- Một người dân ở TP Hội An khởi kiện chủ tịch và UBND tỉnh Quảng Nam, buộc trả lại diện tích đất và nhà, UBND tỉnh này đề nghị tòa án bác đơn khởi kiện.
+- Nhằm giúp người bệnh trên xã đảo Thạnh An tiếp cận sớm nhất với y bác sĩ, cơ sở y tế, báo Tuổi Trẻ và Thành Đoàn TP.HCM phát động chương trình.
+- Nhân chuyến thăm và làm việc tại tỉnh Cao Bằng, tối 9-6-2024, Chủ tịch nước Tô Lâm đến thăm và tiếp thân mật nhân dân xóm Pác Bó, xã Trường Hà, huyện Hà Quảng.
+- Mùa hè, trẻ em có xu hướng được sử dụng thiết bị điện tử nhiều hơn. Các chuyên gia, bác sĩ cảnh báo việc sử dụng thiết bị điện tử không kiểm soát, thiếu môi trường giao lưu vận động sẽ dẫn đến trầm cảm, lo âu, căng thẳng...
+- Hôm nay 10-6, thời tiết cả nước có mưa về chiều tối, Bắc Bộ có nơi mưa rất to; Nam Bộ mưa to; Trung Bộ ngày nắng, chiều mưa rào.
+- Một số tin tức đáng chú ý: Lãnh đạo TP.HCM yêu cầu dẹp 'xe dù, bến cóc'; Bất động sản bắt đầu ấm lên; Tiêu thụ điện trong tháng 6 có thể vượt mọi kỷ lục...
+- Căn nhà trên đường Bắc Hải, phường 15, quận 10, TP.HCM bất ngờ bốc cháy khiến nhiều người mắc kẹt, lực lượng cảnh sát PCCC đã nỗ lực cứu được 5 người.
+- Công an TP Buôn Ma Thuột (Đắk Lắk) đã ra quyết định khởi tố cô gái lái xế hộp tông vào xe đối phương sau mâu thuẫn trên bàn nhậu.
+- Người dân, du khách TP.HCM đã chen kín hai bờ sông Sài Gòn để ngắm nhìn loạt chương trình biểu diễn trên sông của mô tô nước kết hợp ván phản lực, Flyboard, thuyền Sailing và 1.100 drone thắp sáng bầu trời.
+- Nhân chuyến thăm, đoàn công tác liên ngành về Việt Nam tham gia gìn giữ hòa bình Liên Hiệp Quốc sẽ tìm hiểu khả năng tiếp tục triển khai các cá nhân, đơn vị của Việt Nam tham gia hoạt động gìn giữ hòa bình Liên Hiệp Quốc.
+- Nhóm khách Tây với 6 người do anh Trần Văn Quân hướng dẫn đã có trải nghiệm "kẹt" 4 tiếng trên con đường giữa lưng đèo Mã Pì Lèng (Hà Giang), do mưa lũ cuồn cuộn và sạt lở chiều 9-6.
+- Ngày 9-6, Bộ Giáo dục và Đào tạo cho biết 8 học sinh đội tuyển Việt Nam dự Olympic Vật lý châu Á đều có giải, trong đó có một huy chương vàng.
+- Có 29 kiến nghị được UBND TP.HCM chỉ đạo tháo gỡ 2 lần nhưng các đơn vị vẫn chậm trễ, chưa giải quyết dứt điểm, làm chậm tiến độ giải ngân đầu tư công.
+- Phó chủ tịch UBND TP.HCM Bùi Xuân Cường vừa chỉ đạo các đơn vị khẩn trương tháo gỡ vướng mắc, sớm khép kín vành đai 2 TP.HCM.
+- Sau những cơn mưa đầu mùa, cây cối và thảm cỏ thực vật tự nhiên ở rừng Phú Quốc bắt đầu đâm chồi nảy lộc. Suối Tiên, suối Đá Bàn hoang sơ nên du khách và người dân địa phương rất thích đến chơi.
+- Chủ đầu tư Hòa Bình Green Đà Nẵng vừa có công văn gửi chính quyền liên quan việc cấp giấy chứng nhận sở hữu căn hộ (sổ hồng). Thông báo này cũng được gửi đến khách hàng.
+- Tuyến metro Bến Thành - Tham Lương đã giải phóng được 95% mặt bằng, phần còn lại sẽ hoàn thành và bàn giao cho chủ đầu tư trong tháng 6-2024.
+- Theo Luật Căn cước có hiệu lực từ ngày 1-7, người dân được đi cấp đổi căn cước khi xác định lại giới tính hoặc chuyển giới theo quy định của pháp luật.
+- Cơ quan chức năng tỉnh An Giang vẫn đang tích cực truy tìm, và chưa thấy tung tích nữ sinh đi thi lớp 10 mất tích tại TP Châu Đốc.
+- Một con vích mẹ bơi từ Malaysia sang Côn Đảo đẻ hơn 100 trứng vích và đã nở được 87 vích con. Số vích con này được thả về tự nhiên.
+- Dự báo từ chiều tối nay đến sáng 10-6, các tỉnh Bắc Bộ tiếp tục có mưa vừa, mưa to, có nơi trên 120-200mm.
+- Các nhà khoa học đến từ nhiều quốc gia vừa công bố một loài mới đặc hữu, cũng là một chi thực vật mới, ở núi đá vôi tỉnh Quảng Trị.
+- Sạt lở vùng đệm U Minh Thượng vẫn còn diễn biến phức tạp, địa phương đã hỗ trợ di dời 116 nhà dân ở vùng có nguy cơ ảnh hưởng cao.
+- Gần nửa năm trôi qua, hàng loạt dự án tại TP.HCM vẫn chưa giải ngân đồng nào do vướng mắc thủ tục ở các sở ngành, địa phương.
+- Cầu 110 mới nối giữa hai tỉnh Gia Lai và Đắk Lắk bỏ hoang gần 6 năm nay do... vẫn chưa giải phóng mặt bằng.
+- Phó chủ tịch UBND TP.HCM chỉ đạo các đơn vị đẩy nhanh tiến độ các dự án trọng điểm, trong đó có cầu Thủ Thiêm 4, cầu Cần Giờ.
+- Công an đang phát thông báo truy tìm tài xế Bùi Ngọc Hải để điều tra vụ tai nạn giao thông khiến 3 người tử vong.
+- Mạng lưới này sẽ chăm sóc người bệnh ung thư từ lúc tầm soát sớm, chẩn đoán, điều trị cho đến chăm sóc giai đoạn cuối.
+- Một du khách đi hướng Đà Lạt - TP.HCM qua đèo Bảo Lộc (quốc lộ 20, địa phận huyện Đạ Huoai, tỉnh Lâm Đồng) đã bị xe khách lấn làn tông chết.
+- Ô tô 7 chỗ tự lật nhiều vòng trên cao tốc Vân Đồn - Móng Cái dưới trời mưa lớn. Nam tài xế văng khỏi xe, thiệt mạng tại chỗ.
+- Mưa lớn kéo dài từ đêm 8 đến ngày 9-6 khiến hàng loạt khu vực tại Hải Phòng, Quảng Ninh ngập cả mét, việc di chuyển gần như tê liệt.
 ![New](News.png)
 ## Nhịp sống số 
 - Lần đầu tiên, một cuộc thi được dành riêng cho các tác phẩm ảnh và video dành cho lĩnh vực công nghệ.
