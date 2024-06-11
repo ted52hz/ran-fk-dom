@@ -1,9 +1,24 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Một sinh viên đã cho ra mắt dự án Bộ khớp đa năng hỗ trợ cho người khuyết tật vận động chi trên - giúp người khiếm khuyết tay có thể sinh hoạt thuận lợi hơn.
+- Ai từng ra đề thi ngữ văn đều biết công việc này không hề đơn giản, càng những kỳ thi quan trọng càng khó. Ở nước ta đề thi xong được "soi", luận bàn sôi nổi.
+- TP.HCM là một trong những tỉnh, thành bắt đầu thực hiện nội dung giáo dục kỹ năng công dân số cho học sinh tiểu học từ năm học tới, sau một năm thí điểm.
+- Đã xảy ra rất nhiều điều đáng tiếc với thí sinh khi đi thi với chiếc điện thoại dù các em không muốn.
+- Chỉ có 8/3.714 học sinh đạt điểm 10 môn toán không chuyên trong kỳ thi vào lớp 10 Trường phổ thông Năng khiếu năm 2024.
+- Sở Giáo dục Gia Lai cho biết không tổ chức thi lại môn Ngữ văn vào lớp 10 trường huyên Hùng Vương, vì lỗi sai đề văn chỉ chiếm 5% tổng điểm.
+- PGS.TS Lê Đình Tùng, trưởng phòng quản lý đào tạo Trường đại học Y Hà Nội, cho biết ngành tâm lý học thuộc lĩnh vực khoa học xã hội và hành vi, do vậy nhà trường xét tuyển tổ hợp C00 (ngữ văn, lịch sử, địa lý) hoàn toàn phù hợp.
+- UBND huyện Chương Mỹ cho biết nữ sinh lớp 8 bị đánh, lột đồ, ép hút thuốc lá hiện bị sốc tâm lý và phải điều trị tại bệnh viện.
+- Trưa 10-6, Trường phổ thông Năng khiếu công bố điểm thi và điểm chuẩn tuyển sinh lớp 10 năm 2024.
+- Đại học Quốc gia TP.HCM công bố kết quả kỳ thi đánh giá năng lực đợt 2 năm 2024, thí sinh có điểm thi cao nhất là 1.116 và điểm thấp nhất là 289.
+- Tại nhiều trường đại học có những căn phòng đặc biệt giúp sinh viên xả stress, chia sẻ buồn vui.
+- Nước giặt, nước rửa chén của chàng sinh viên bách khoa đã được bán cho một số tiệm tạp hóa ở các tỉnh miền Tây, TP.HCM và Bình Định.
+- Mùa tuyển sinh năm nay, nhiều trường y bổ sung thêm các tổ hợp xét tuyển khác lạ, trong đó có môn ngữ văn.
+- Dự kiến điểm chuẩn vào lớp 10 công lập của Hà Nội có thể xê dịch ở khoảng 0,5 - 1 điểm, tùy theo nhóm trường.
+- Dự kiến 12h trưa nay (10-6) Trường phổ thông Năng khiếu sẽ công bố điểm thi và điểm chuẩn tuyển sinh lớp 10 năm 2024.
 - Ngày 9-6, Bộ Giáo dục và Đào tạo cho biết 8 học sinh đội tuyển Việt Nam dự Olympic Vật lý châu Á đều có giải, trong đó có một huy chương vàng.
 - Cơ quan chức năng tỉnh An Giang vẫn đang tích cực truy tìm, và chưa thấy tung tích nữ sinh đi thi lớp 10 mất tích tại TP Châu Đốc.
-- Bước đầu Công an huyện Chương Mỹ đã làm rõ 7 trường hợp liên quan đến vụ đánh, lột đồ, ép nữ sinh lớp 6 hút thuốc.
+- Bước đầu Công an huyện Chương Mỹ đã làm rõ 7 trường hợp liên quan đến vụ đánh, lột đồ, ép nữ sinh lớp 8 hút thuốc.
 - Giám đốc Sở Giáo dục và Đào tạo tỉnh Gia Lai trao đổi về hướng xử lý vụ đề thi tuyển sinh lớp 10 chuyên văn trích dẫn sai nguyên tác.
 - Khóc cho tuổi 15, cho một lần trải nghiệm, cho một ngã rẽ cuộc đời, đâu có gì là sai. Khóc để vơi nhẹ tất thảy những áp lực đã qua rồi bước tiếp.
 - Giám đốc Sở Giáo dục và Đào tạo Hà Nội Trần Thế Cương khẳng định thông tin lộ đề văn kỳ thi lớp 10 tại Hà Nội là không chính xác.
@@ -16,53 +31,38 @@
 - 'Thơ ca không làm ra lúa vàng, gạo trắng' khi vào đề thi chuyên văn bỗng thành 'Thơ ca không làm ra lúa gạo, vàng trắng' khiến mạng xã hội xôn xao.
 - Tổ chức tìm kiếm giải pháp sáng tạo cho những thách thức sức khỏe lớn nhất toàn cầu (The Trinity Challenge - TTC) vừa vinh danh chủ nhân Giải thưởng Lớn (Grand Prize).
 - Năm 2024, Trường đại học Y Hà Nội xét tuyển khối C00, D01, dùng kết quả thi đánh giá năng lực của Đại học Quốc gia Hà Nội xét tuyển.
-- Theo chủ tịch Trường đại học Fulbright Việt Nam, các sinh viên là những người có thể kiến tạo một cộng đồng đại học "không sợ hãi".
-- Mời bạn đọc theo dõi bài giải 24 mã đề môn tiếng Anh thi vào lớp 10 Hà Nội. Đề thi năm nay được nói vừa sức thí sinh.
-- Thí sinh nhận xét đề thi tiếng Anh tuyển sinh lớp 10 Hà Nội năm nay vừa sức, không đánh đố. Tuy nhiên giáo viên cho rằng sẽ ít thí sinh đạt điểm 10.
-- Phụ huynh học sinh Trung tâm Giáo dục thường xuyên An Giang nói bị ép buộc đóng tối thiểu 500.000 đồng xây mái che, nhà trường nói gì?
-- GS.TS Nguyễn Vũ Quốc Huy, hiệu trưởng Trường đại học Y Dược Huế, vừa được tổng thống Pháp trao tặng Huân chương Công trạng quốc gia, tước hiệp sĩ.
-- Một giáo viên toán tự do ở TP.HCM cho rằng thí sinh không làm được đề thi toán tuyển sinh lớp 10 ở TP.HCM vì học theo mô típ cũ.
-- Rất nhiều ý kiến tranh luận xung quanh bài viết 'Nhiều thí sinh khóc vì đề thi toán lớp 10, Sở Giáo dục TP.HCM nói gì?'.
-- Kỳ thi vào lớp 10 những năm gần đây là cuộc đua căng thẳng, áp lực hơn rất nhiều so với cuộc thi để tuyển vào đại học. Vì sao?
-- Sau khi hoàn thành 50% học phí, phụ huynh của Trường quốc tế Á Châu đã nhận lại học bạ bản photo và sẽ nhận bản chính khi trả hết 100% học phí.
-- Đề văn thi vào lớp 10 Hà Nội năm nay gây bất ngờ cho thí sinh ở tác phẩm Đồng chí nhưng được nhận xét dễ thở.
-- Đề thi văn lớp 10 Hà Nội ra tác phẩm Đồng chí khiến nhiều thí sinh bất ngờ, còn câu nghị luận là 'ứng xử thế nào trước mong đợi của người thân với chúng ta'.
-- Trung ương Hội Sinh viên Việt Nam vừa đến thăm, động viên các đội hình tình nguyện Tiếp sức mùa thi tại kỳ thi tuyển sinh vào lớp 10 ở Hà Nội.
-- Trưởng thành trong thời đại công nghệ, Gen Z - thế hệ bản địa kỹ thuật số - chọn học Digital Marketing như “cá gặp nước”.
-- Sáng nay 8-6, gần 106.000 thí sinh Hà Nội thi vào lớp 10 với môn thi đầu tiên là ngữ văn trong tiết trời dịu mát.
-- Theo nhận định của giáo viên, điểm chuẩn ở các trường THPT thuộc tốp giữa và tốp dưới sẽ không giảm hoặc có thể tăng lên chút ít.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Nhằm giúp người bệnh trên xã đảo Thạnh An tiếp cận sớm nhất với y bác sĩ, cơ sở y tế, báo Tuổi Trẻ và Thành Đoàn TP.HCM phát động chương trình.
-- Nhân chuyến thăm và làm việc tại tỉnh Cao Bằng, tối 9-6-2024, Chủ tịch nước Tô Lâm đến thăm và tiếp thân mật nhân dân xóm Pác Bó, xã Trường Hà, huyện Hà Quảng.
-- Mùa hè, trẻ em có xu hướng được sử dụng thiết bị điện tử nhiều hơn. Các chuyên gia, bác sĩ cảnh báo việc sử dụng thiết bị điện tử không kiểm soát, thiếu môi trường giao lưu vận động sẽ dẫn đến trầm cảm, lo âu, căng thẳng...
-- Hôm nay 10-6, thời tiết cả nước có mưa về chiều tối, Bắc Bộ có nơi mưa rất to; Nam Bộ mưa to; Trung Bộ ngày nắng, chiều mưa rào.
-- Một số tin tức đáng chú ý: Lãnh đạo TP.HCM yêu cầu dẹp 'xe dù, bến cóc'; Bất động sản bắt đầu ấm lên; Tiêu thụ điện trong tháng 6 có thể vượt mọi kỷ lục...
-- Căn nhà trên đường Bắc Hải, phường 15, quận 10, TP.HCM bất ngờ bốc cháy khiến nhiều người mắc kẹt, lực lượng cảnh sát PCCC đã nỗ lực cứu được 5 người.
-- Công an TP Buôn Ma Thuột (Đắk Lắk) đã ra quyết định khởi tố cô gái lái xế hộp tông vào xe đối phương sau mâu thuẫn trên bàn nhậu.
-- Người dân, du khách TP.HCM đã chen kín hai bờ sông Sài Gòn để ngắm nhìn loạt chương trình biểu diễn trên sông của mô tô nước kết hợp ván phản lực, Flyboard, thuyền Sailing và 1.100 drone thắp sáng bầu trời.
-- Nhân chuyến thăm, đoàn công tác liên ngành về Việt Nam tham gia gìn giữ hòa bình Liên Hiệp Quốc sẽ tìm hiểu khả năng tiếp tục triển khai các cá nhân, đơn vị của Việt Nam tham gia hoạt động gìn giữ hòa bình Liên Hiệp Quốc.
-- Nhóm khách Tây với 6 người do anh Trần Văn Quân hướng dẫn đã có trải nghiệm "kẹt" 4 tiếng trên con đường giữa lưng đèo Mã Pì Lèng (Hà Giang), do mưa lũ cuồn cuộn và sạt lở chiều 9-6.
-- Ngày 9-6, Bộ Giáo dục và Đào tạo cho biết 8 học sinh đội tuyển Việt Nam dự Olympic Vật lý châu Á đều có giải, trong đó có một huy chương vàng.
-- Có 29 kiến nghị được UBND TP.HCM chỉ đạo tháo gỡ 2 lần nhưng các đơn vị vẫn chậm trễ, chưa giải quyết dứt điểm, làm chậm tiến độ giải ngân đầu tư công.
-- Phó chủ tịch UBND TP.HCM Bùi Xuân Cường vừa chỉ đạo các đơn vị khẩn trương tháo gỡ vướng mắc, sớm khép kín vành đai 2 TP.HCM.
-- Sau những cơn mưa đầu mùa, cây cối và thảm cỏ thực vật tự nhiên ở rừng Phú Quốc bắt đầu đâm chồi nảy lộc. Suối Tiên, suối Đá Bàn hoang sơ nên du khách và người dân địa phương rất thích đến chơi.
-- Chủ đầu tư Hòa Bình Green Đà Nẵng vừa có công văn gửi chính quyền liên quan việc cấp giấy chứng nhận sở hữu căn hộ (sổ hồng). Thông báo này cũng được gửi đến khách hàng.
-- Tuyến metro Bến Thành - Tham Lương đã giải phóng được 95% mặt bằng, phần còn lại sẽ hoàn thành và bàn giao cho chủ đầu tư trong tháng 6-2024.
-- Theo Luật Căn cước có hiệu lực từ ngày 1-7, người dân được đi cấp đổi căn cước khi xác định lại giới tính hoặc chuyển giới theo quy định của pháp luật.
-- Cơ quan chức năng tỉnh An Giang vẫn đang tích cực truy tìm, và chưa thấy tung tích nữ sinh đi thi lớp 10 mất tích tại TP Châu Đốc.
-- Một con vích mẹ bơi từ Malaysia sang Côn Đảo đẻ hơn 100 trứng vích và đã nở được 87 vích con. Số vích con này được thả về tự nhiên.
-- Dự báo từ chiều tối nay đến sáng 10-6, các tỉnh Bắc Bộ tiếp tục có mưa vừa, mưa to, có nơi trên 120-200mm.
-- Các nhà khoa học đến từ nhiều quốc gia vừa công bố một loài mới đặc hữu, cũng là một chi thực vật mới, ở núi đá vôi tỉnh Quảng Trị.
-- Sạt lở vùng đệm U Minh Thượng vẫn còn diễn biến phức tạp, địa phương đã hỗ trợ di dời 116 nhà dân ở vùng có nguy cơ ảnh hưởng cao.
-- Gần nửa năm trôi qua, hàng loạt dự án tại TP.HCM vẫn chưa giải ngân đồng nào do vướng mắc thủ tục ở các sở ngành, địa phương.
-- Cầu 110 mới nối giữa hai tỉnh Gia Lai và Đắk Lắk bỏ hoang gần 6 năm nay do... vẫn chưa giải phóng mặt bằng.
-- Phó chủ tịch UBND TP.HCM chỉ đạo các đơn vị đẩy nhanh tiến độ các dự án trọng điểm, trong đó có cầu Thủ Thiêm 4, cầu Cần Giờ.
-- Công an đang phát thông báo truy tìm tài xế Bùi Ngọc Hải để điều tra vụ tai nạn giao thông khiến 3 người tử vong.
-- Mạng lưới này sẽ chăm sóc người bệnh ung thư từ lúc tầm soát sớm, chẩn đoán, điều trị cho đến chăm sóc giai đoạn cuối.
-- Một du khách đi hướng Đà Lạt - TP.HCM qua đèo Bảo Lộc (quốc lộ 20, địa phận huyện Đạ Huoai, tỉnh Lâm Đồng) đã bị xe khách lấn làn tông chết.
-- Ô tô 7 chỗ tự lật nhiều vòng trên cao tốc Vân Đồn - Móng Cái dưới trời mưa lớn. Nam tài xế văng khỏi xe, thiệt mạng tại chỗ.
-- Mưa lớn kéo dài từ đêm 8 đến ngày 9-6 khiến hàng loạt khu vực tại Hải Phòng, Quảng Ninh ngập cả mét, việc di chuyển gần như tê liệt.
+- Chủ tịch Quốc hội Trần Thanh Mẫn nêu rõ công tác nhân sự tại đợt 1 của kỳ họp thứ 7 đã được tiến hành kịp thời, đúng quy định, quy trình với số phiếu bầu rất cao.
+- Chủ đầu tư tòa nhà câu lạc bộ golf Đồi Cù Đà Lạt sẽ tháo dỡ toàn bộ diện tích công trình xây dựng trái phép hơn 20.000m2.
+- Cảnh sát kiểm tra chung cư cao cấp trên địa bàn phường Thảo Điền, TP Thủ Đức bắt quả tang người đàn ông Hàn Quốc và bạn gái đang sử dụng ma túy.
+- Chủ tịch UBND huyện Cần Giờ Nguyễn Văn Hồng cho biết lãnh đạo và nhân dân huyện rất vui mừng khi báo Tuổi Trẻ và Thành Đoàn TP.HCM phát động chương trình: "Tàu cấp cứu đường thủy cho Cần Giờ".
+- Lũ lớn từ Hà Giang tràn về nên từ 8h sáng 11-6, Nhà máy thủy điện Tuyên Quang mở 1 cửa xả đáy (hay còn gọi xả lũ) để đảm bảo an toàn và tránh việc xả cấp tập khi lũ về hồ tăng đột biến trong thời gian tới.
+- Một số tin tức đáng chú ý: Sáng nay, khai mạc phiên họp thứ 34 của Ủy ban Thường vụ Quốc hội; Bộ Tài chính khuyến cáo việc giả mạo văn bản, con dấu và website của bộ; UOB dự báo Việt Nam tăng trưởng 6% quý 2-2024...
+- Hôm nay 11-6, thời tiết Bắc Bộ mưa đã giảm so với những ngày trước. Tuy nhiên sáng sớm vẫn có vài nơi mưa rào đến mưa to.
+- "Hành động của thượng úy Nguyễn Mạnh Tường tuy là bình dị thường ngày của lực lượng công an nhưng thể hiện tinh thần trách nhiệm cao trước Đảng, Nhà nước và Nhân dân", theo Bộ trưởng Bộ Công an Lương Tam Quang.
+- Chủ tịch nước Tô Lâm đề nghị Cao Bằng cần thống nhất, đồng lòng, hành động quyết liệt, khơi dậy mạnh mẽ khát vọng vươn lên.
+- Từ khi triển khai thay thế Đội công binh số 1, cán bộ, nhân viên Đội công binh số 2 đã có rất nhiều cố gắng và đạt được những thành tích đáng khích lệ trong việc tham gia các hoạt động gìn giữ hòa bình Liên Hiệp Quốc.
+- Trong thời gian 3 tháng sau khi san hô bị tẩy trắng, cần giảm tải các hoạt động như khai thác thủy sản, dịch vụ du lịch bơi ngắm, xả thải từ đất liền...
+- Một nhiếp ảnh gia về thiên nhiên, môi trường đã lên tiếng trên mạng xã hội về chuyện một người cắt tổ chim để thực hiện bộ ảnh nghệ thuật, đăng tải ở tạp chí địa phương.
+- Đó là yêu cầu được Bộ trưởng Bộ Tài nguyên và Môi trường Đặng Quốc Khánh nhấn mạnh tại lễ phát động quốc gia Tuần lễ biển và hải đảo Việt Nam, Tháng hành động vì môi trường.
+- Phát hiện một nhóm người bị dòng nước lũ cuốn khi đang di chuyển, thượng úy Nguyễn Mạnh Tường nhanh chóng lao xuống, cứu được 2 người.
+- Ba bộ Nông nghiệp và Phát triển nông thôn, Tài nguyên và Môi trường, Giao thông vận tải phối hợp các đơn vị liên quan làm rõ nguyên nhân lúa chết tại Hậu Giang.
+- Công ty Hoàng Gia ĐL, chủ đầu tư công trình trái phép tòa nhà câu lạc bộ golf Đồi Cù Đà Lạt, cho hay sẽ tiến hành tháo dỡ công trình từ ngày 11-6.
+- Sau khi thuyền bị lật, ông K. mất tích, đến nay cơ quan chức năng đã tìm thấy thi thể gần khu vực thuyền chìm.
+- Hội đồng thi tuyển sẽ đánh giá, xếp hạng và trao thưởng 2 tỉ đồng cho giải nhất ý tưởng quy hoạch chung đô thị sân bay Long Thành và vùng phụ cận.
+- Cảnh sát hình sự bắt nhóm chuyên trộm xe máy (chủ yếu Honda Wave Alpha), sau đó đưa qua Lào tiêu thụ.
+- Dự báo cuối tuần này, miền Bắc khả năng xuất hiện một đợt mưa vừa, mưa to trên diện rộng, trong đó mưa lớn tập trung ở vùng núi và trung du.
+- Nam thanh niên ở Vĩnh Long được chủ tiệm kêu đi bán vàng, song người này về báo bị xịt hơi cay cướp mất tiền.
+- Nhiều bạn đọc tới báo Tuổi Trẻ hoặc chuyển khoản quyên góp tiền ủng hộ chương trình "Tàu cấp cứu đường thủy cho Cần Giờ".
+- Ngày 10-6, Bộ Quốc phòng tổ chức hội nghị tổng kết thực hiện Luật Sĩ quan Quân đội nhân dân Việt Nam (gọi tắt là Luật Sĩ quan).
+- Sở Giáo dục Gia Lai cho biết không tổ chức thi lại môn Ngữ văn vào lớp 10 trường huyên Hùng Vương, vì lỗi sai đề văn chỉ chiếm 5% tổng điểm.
+- Thông tin trên được lãnh đạo Hà Nội cung cấp tại hội nghị sơ kết 1 năm tháo gỡ "điểm nghẽn" trong triển khai Đề án 06 sáng 10-6.
+- Cục trưởng Cục Thuế tỉnh Bình Định vừa gửi công văn đề nghị Bộ Công an tạm hoãn xuất cảnh với 4 giám đốc doanh nghiệp nợ thuế.
+- Cơ quan chức năng các địa phương vào cuộc xác minh xử lý những người liên quan sau bài viết 'Cảnh báo nạn xe ôm cát cứ bến bãi' đăng trên Tuổi Trẻ.
+- Toàn tỉnh Kiên Giang hiện có 2.311 người nghiện và sử dụng trái phép ma túy, trong đó số người nghiện dưới 30 tuổi chiếm 56,6%.
+- Công an TP Long Xuyên, tỉnh An Giang vượt 200km bắt giữ tài xế gây tai nạn chết người trên tuyến tránh TP Long Xuyên.
+- Ông Lê Phỉ, người được mọi người yêu mến gọi là 'nhà Đà Lạt học', vừa qua đời ở tuổi 97. Ông là người có dấu ấn lớn trong suốt hành trình phát triển của Đà Lạt.
 ![New](News.png)
 ## Nhịp sống số 
 - Lần đầu tiên, một cuộc thi được dành riêng cho các tác phẩm ảnh và video dành cho lĩnh vực công nghệ.
