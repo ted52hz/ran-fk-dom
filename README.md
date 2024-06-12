@@ -1,6 +1,18 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Đó là nhận định của TS Phan Tất Hiển - người sáng lập Hoa Trạng Nguyên Maths & Science, nguyên trưởng bộ môn toán kinh tế Trường đại học Sài Gòn, khi được hỏi về chuyện dạy và học toán trong nhà trường phổ thông.
+- Kết quả kiểm tra, xác minh của UBND huyện Mường Lát đã làm rõ nội dung phản ánh của Tuổi Trẻ Online ngày 23-5, liên quan đến tuyển sinh vào Trường phổ thông Dân tộc nội trú THCS Mường Lát.
+- Trường đại học Cần Thơ kiến nghị Bộ Nông nghiệp và Phát triển nông thôn xem trường như là đơn vị thuộc bộ; còn Bộ trưởng Lê Minh Hoan cũng đặt hàng nhiều vấn đề với các nhà khoa học của trường.
+- Sinh viên sẽ đến doanh nghiệp thực tập và học tập một số học phần ngay từ năm nhất thay vì thường phải chờ đến cuối năm ba như hiện nay.
+- Bộ trưởng Nguyễn Kim Sơn lưu ý chuẩn bị phương án khi thời tiết bất thường mùa mưa bão trong kỳ thi tốt nghiệp THPT 2024.
+- Nhiều lãnh đạo từ Bộ Giáo dục và hiệu trưởng đại học các nước Đông Nam Á đến TP.HCM để được nâng cao năng lực quản lý.
+- Chủ tịch UBND TP.HCM Phan Văn Mãi đánh giá cao chương trình hợp tác giữa UBND TP.HCM với Đại học Quốc gia TP.HCM. Ông đề nghị các sở ngành nghiên cứu, giải quyết ngay vấn đề xe buýt cho sinh viên, hỗ trợ xây quảng trường sáng tạo...
+- Trưa 11-6, Sở Giáo dục và Đào tạo TP.HCM đã công bố đáp án thi tuyển sinh lớp 10 năm 2024.
+- Tham dự cuộc thi văn - toán Tuổi Thơ toàn quốc năm 2024, đoàn học sinh quận Hoàn Kiếm, Hà Nội xuất sắc giành 2 cúp vàng đồng đội, 100% học sinh dự thi cá nhân đoạt giải.
+- 'Người ta từng ngỡ ngàng khi thấy một học sinh chuyên toán được giải văn, nhưng chắc sẽ ngờ vực khi nghe câu chuyện một học sinh lớp văn học sư phạm toán'.
+- Thêm một trường hợp gia đình ở TP Châu Đốc, tỉnh An Giang trình báo công an và nhờ cộng đồng mạng truy tìm giúp nữ sinh lớp 7 ‘mất tích’ gần 4 ngày.
+- Thứ trưởng Bộ GD-ĐT Nguyễn Thị Kim Chi đã có buổi kiểm tra, làm việc với tỉnh Yên Bái về chuẩn bị cho kỳ thi tốt nghiệp THPT 2024 vào ngày 10-6.
 - Một sinh viên đã cho ra mắt dự án Bộ khớp đa năng hỗ trợ cho người khuyết tật vận động chi trên - giúp người khiếm khuyết tay có thể sinh hoạt thuận lợi hơn.
 - Ai từng ra đề thi ngữ văn đều biết công việc này không hề đơn giản, càng những kỳ thi quan trọng càng khó. Ở nước ta đề thi xong được "soi", luận bàn sôi nổi.
 - TP.HCM là một trong những tỉnh, thành bắt đầu thực hiện nội dung giáo dục kỹ năng công dân số cho học sinh tiểu học từ năm học tới, sau một năm thí điểm.
@@ -19,52 +31,41 @@
 - Ngày 9-6, Bộ Giáo dục và Đào tạo cho biết 8 học sinh đội tuyển Việt Nam dự Olympic Vật lý châu Á đều có giải, trong đó có một huy chương vàng.
 - Cơ quan chức năng tỉnh An Giang vẫn đang tích cực truy tìm, và chưa thấy tung tích nữ sinh đi thi lớp 10 mất tích tại TP Châu Đốc.
 - Bước đầu Công an huyện Chương Mỹ đã làm rõ 7 trường hợp liên quan đến vụ đánh, lột đồ, ép nữ sinh lớp 8 hút thuốc.
-- Giám đốc Sở Giáo dục và Đào tạo tỉnh Gia Lai trao đổi về hướng xử lý vụ đề thi tuyển sinh lớp 10 chuyên văn trích dẫn sai nguyên tác.
-- Khóc cho tuổi 15, cho một lần trải nghiệm, cho một ngã rẽ cuộc đời, đâu có gì là sai. Khóc để vơi nhẹ tất thảy những áp lực đã qua rồi bước tiếp.
-- Giám đốc Sở Giáo dục và Đào tạo Hà Nội Trần Thế Cương khẳng định thông tin lộ đề văn kỳ thi lớp 10 tại Hà Nội là không chính xác.
-- Mời bạn đọc theo dõi gợi ý bài giải môn toán thi lớp 10 Hà Nội. Tuổi Trẻ Online liên tục cập nhật.
-- Đề thi toán tuyển sinh lớp 10 Hà Nội năm nay được thí sinh nhận xét dễ, điểm 8 trong tầm tay học sinh khá.
-- Ngoài có kết quả đạt phỏng vấn, thí sinh phải có điểm trung bình chung học bạ 5 kỳ của 3 môn thuộc tổ hợp xét tuyển đạt 8,0 - 9,4 trở lên.
-- Tuy AI chưa thể thay thế hoàn toàn sự giám sát của con người, nhưng nó có thể giúp bảo vệ tính công bằng của kỳ thi đại học.
-- "Không khen, không chê, không lỗi chính tả, không có gì để nói" - nhận xét "4 không" được một số giáo viên Hà Nội bày tỏ sau khi thí sinh thi môn văn.
-- Trường mầm non VCN World tại TP Nha Trang phải dừng khai giảng lớp dạy bơi cho trẻ 4 - 5 tuổi sau khi đề nghị phụ huynh ký đơn 'tình nguyện chấp nhận những rủi ro tiềm ẩn'.
-- 'Thơ ca không làm ra lúa vàng, gạo trắng' khi vào đề thi chuyên văn bỗng thành 'Thơ ca không làm ra lúa gạo, vàng trắng' khiến mạng xã hội xôn xao.
-- Tổ chức tìm kiếm giải pháp sáng tạo cho những thách thức sức khỏe lớn nhất toàn cầu (The Trinity Challenge - TTC) vừa vinh danh chủ nhân Giải thưởng Lớn (Grand Prize).
-- Năm 2024, Trường đại học Y Hà Nội xét tuyển khối C00, D01, dùng kết quả thi đánh giá năng lực của Đại học Quốc gia Hà Nội xét tuyển.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Chủ tịch Quốc hội Trần Thanh Mẫn nêu rõ công tác nhân sự tại đợt 1 của kỳ họp thứ 7 đã được tiến hành kịp thời, đúng quy định, quy trình với số phiếu bầu rất cao.
-- Chủ đầu tư tòa nhà câu lạc bộ golf Đồi Cù Đà Lạt sẽ tháo dỡ toàn bộ diện tích công trình xây dựng trái phép hơn 20.000m2.
-- Cảnh sát kiểm tra chung cư cao cấp trên địa bàn phường Thảo Điền, TP Thủ Đức bắt quả tang người đàn ông Hàn Quốc và bạn gái đang sử dụng ma túy.
-- Chủ tịch UBND huyện Cần Giờ Nguyễn Văn Hồng cho biết lãnh đạo và nhân dân huyện rất vui mừng khi báo Tuổi Trẻ và Thành Đoàn TP.HCM phát động chương trình: "Tàu cấp cứu đường thủy cho Cần Giờ".
-- Lũ lớn từ Hà Giang tràn về nên từ 8h sáng 11-6, Nhà máy thủy điện Tuyên Quang mở 1 cửa xả đáy (hay còn gọi xả lũ) để đảm bảo an toàn và tránh việc xả cấp tập khi lũ về hồ tăng đột biến trong thời gian tới.
-- Một số tin tức đáng chú ý: Sáng nay, khai mạc phiên họp thứ 34 của Ủy ban Thường vụ Quốc hội; Bộ Tài chính khuyến cáo việc giả mạo văn bản, con dấu và website của bộ; UOB dự báo Việt Nam tăng trưởng 6% quý 2-2024...
-- Hôm nay 11-6, thời tiết Bắc Bộ mưa đã giảm so với những ngày trước. Tuy nhiên sáng sớm vẫn có vài nơi mưa rào đến mưa to.
-- "Hành động của thượng úy Nguyễn Mạnh Tường tuy là bình dị thường ngày của lực lượng công an nhưng thể hiện tinh thần trách nhiệm cao trước Đảng, Nhà nước và Nhân dân", theo Bộ trưởng Bộ Công an Lương Tam Quang.
-- Chủ tịch nước Tô Lâm đề nghị Cao Bằng cần thống nhất, đồng lòng, hành động quyết liệt, khơi dậy mạnh mẽ khát vọng vươn lên.
-- Từ khi triển khai thay thế Đội công binh số 1, cán bộ, nhân viên Đội công binh số 2 đã có rất nhiều cố gắng và đạt được những thành tích đáng khích lệ trong việc tham gia các hoạt động gìn giữ hòa bình Liên Hiệp Quốc.
-- Trong thời gian 3 tháng sau khi san hô bị tẩy trắng, cần giảm tải các hoạt động như khai thác thủy sản, dịch vụ du lịch bơi ngắm, xả thải từ đất liền...
-- Một nhiếp ảnh gia về thiên nhiên, môi trường đã lên tiếng trên mạng xã hội về chuyện một người cắt tổ chim để thực hiện bộ ảnh nghệ thuật, đăng tải ở tạp chí địa phương.
-- Đó là yêu cầu được Bộ trưởng Bộ Tài nguyên và Môi trường Đặng Quốc Khánh nhấn mạnh tại lễ phát động quốc gia Tuần lễ biển và hải đảo Việt Nam, Tháng hành động vì môi trường.
-- Phát hiện một nhóm người bị dòng nước lũ cuốn khi đang di chuyển, thượng úy Nguyễn Mạnh Tường nhanh chóng lao xuống, cứu được 2 người.
-- Ba bộ Nông nghiệp và Phát triển nông thôn, Tài nguyên và Môi trường, Giao thông vận tải phối hợp các đơn vị liên quan làm rõ nguyên nhân lúa chết tại Hậu Giang.
-- Công ty Hoàng Gia ĐL, chủ đầu tư công trình trái phép tòa nhà câu lạc bộ golf Đồi Cù Đà Lạt, cho hay sẽ tiến hành tháo dỡ công trình từ ngày 11-6.
-- Sau khi thuyền bị lật, ông K. mất tích, đến nay cơ quan chức năng đã tìm thấy thi thể gần khu vực thuyền chìm.
-- Hội đồng thi tuyển sẽ đánh giá, xếp hạng và trao thưởng 2 tỉ đồng cho giải nhất ý tưởng quy hoạch chung đô thị sân bay Long Thành và vùng phụ cận.
-- Cảnh sát hình sự bắt nhóm chuyên trộm xe máy (chủ yếu Honda Wave Alpha), sau đó đưa qua Lào tiêu thụ.
-- Dự báo cuối tuần này, miền Bắc khả năng xuất hiện một đợt mưa vừa, mưa to trên diện rộng, trong đó mưa lớn tập trung ở vùng núi và trung du.
-- Nam thanh niên ở Vĩnh Long được chủ tiệm kêu đi bán vàng, song người này về báo bị xịt hơi cay cướp mất tiền.
-- Nhiều bạn đọc tới báo Tuổi Trẻ hoặc chuyển khoản quyên góp tiền ủng hộ chương trình "Tàu cấp cứu đường thủy cho Cần Giờ".
-- Ngày 10-6, Bộ Quốc phòng tổ chức hội nghị tổng kết thực hiện Luật Sĩ quan Quân đội nhân dân Việt Nam (gọi tắt là Luật Sĩ quan).
-- Sở Giáo dục Gia Lai cho biết không tổ chức thi lại môn Ngữ văn vào lớp 10 trường huyên Hùng Vương, vì lỗi sai đề văn chỉ chiếm 5% tổng điểm.
-- Thông tin trên được lãnh đạo Hà Nội cung cấp tại hội nghị sơ kết 1 năm tháo gỡ "điểm nghẽn" trong triển khai Đề án 06 sáng 10-6.
-- Cục trưởng Cục Thuế tỉnh Bình Định vừa gửi công văn đề nghị Bộ Công an tạm hoãn xuất cảnh với 4 giám đốc doanh nghiệp nợ thuế.
-- Cơ quan chức năng các địa phương vào cuộc xác minh xử lý những người liên quan sau bài viết 'Cảnh báo nạn xe ôm cát cứ bến bãi' đăng trên Tuổi Trẻ.
-- Toàn tỉnh Kiên Giang hiện có 2.311 người nghiện và sử dụng trái phép ma túy, trong đó số người nghiện dưới 30 tuổi chiếm 56,6%.
-- Công an TP Long Xuyên, tỉnh An Giang vượt 200km bắt giữ tài xế gây tai nạn chết người trên tuyến tránh TP Long Xuyên.
-- Ông Lê Phỉ, người được mọi người yêu mến gọi là 'nhà Đà Lạt học', vừa qua đời ở tuổi 97. Ông là người có dấu ấn lớn trong suốt hành trình phát triển của Đà Lạt.
+- Cho rằng người vợ bán nghé mà không trao đổi, hỏi ý kiến chồng nên Mai Văn Hà đã dùng dao chém vợ nhiều nhát khiến nạn nhân tử vong tại chỗ.
+- Đến đảo ngọc Phú Quốc (Kiên Giang) hiện nay đi đâu cũng gặp phải dự án treo. Nhiều dự án treo kéo dài đằng đẵng hàng chục năm.
+- Tin tức đáng chú ý: Lập tổ kiểm tra loạt công trình giao thông trọng điểm TP.HCM; Đơn giản hóa quy định, thủ tục hành chính liên quan đến phiếu lý lịch tư pháp; Cần Thơ tập trung ngăn chặn tội phạm tín dụng đen, tội phạm công nghệ cao...
+- Sau đợt mưa, thời tiết Bắc Bộ nắng nóng nhiều nơi, còn Trung Bộ nắng gay gắt, Nam Bộ mưa dông chiều tối.
+- Cơ quan điều tra Công an TP.HCM vừa khởi tố, bắt tạm giam giám đốc và đại diện Công ty Nguyễn Quyền về tội 'lừa đảo chiếm đoạt tài sản' vì bán căn hộ xây lụi.
+- Liên quan vụ Hiệp hội Hồ tiêu và cây gia vị Việt Nam phản ánh các doanh nghiệp bị mất hàng là cà phê, hồ tiêu tại cảng Cát Lái, Tổng công ty Tân Cảng Sài Gòn vừa có phản hồi chính thức.
+- Cơ quan khí tượng dự báo trong vòng 1 tháng tới, ở khu vực Bắc Bộ và Bắc Trung Bộ có khả năng xuất hiện một số đợt mưa vừa, mưa to diện rộng kéo dài khoảng 2-4 ngày.
+- Sau khi một giáo viên bị bắt vì bán ma túy, Bình Phước nhanh chóng có chỉ đạo tăng cường công tác phòng chống ma túy trong học đường.
+- Đó là nội dung mà UBND TP.HCM sẽ kiến nghị Bộ Xây dựng liên quan cấp phép xây dựng công trình có tầng hầm và quy hoạch không gian ngầm trên địa bàn.
+- Phó giám đốc Sở Tài chính TP.HCM cho biết sở này nhận được 744 đề án cho thuê, kinh doanh, liên doanh liên kết tài sản công, nhưng thời gian qua UBND TP chỉ phê duyệt 4 đề án.
+- Một đối tượng truy nã đặc biệt, liên quan đến vụ giết người ở Hải Phòng, đã bị cơ quan chức năng tỉnh Tây Ninh bắt giữ ở biên giới, khu vực sát Campuchia.
+- Trường đại học Cần Thơ kiến nghị Bộ Nông nghiệp và Phát triển nông thôn xem trường như là đơn vị thuộc bộ; còn Bộ trưởng Lê Minh Hoan cũng đặt hàng nhiều vấn đề với các nhà khoa học của trường.
+- Vì chưa được phê duyệt quy hoạch, giao thuê đất nên nhà đầu tư chỉ xây được 5/9 bến trên tuyến buýt sông số 1, khiến số lượt tàu chạy không đáp ứng hợp đồng.
+- Thứ trưởng Ngoại giao Nguyễn Minh Hằng khẳng định nhóm BRICS có thể đóng vai trò lớn hơn, đồng thời đề xuất ba trọng tâm hợp tác với các nước đang phát triển.
+- Nguyên nhân gây cháy Vườn quốc gia Tràm Chim, theo nhận định ban đầu, do có người xâm nhập trái phép dùng lửa bất cẩn gây ra.
+- Công ty có nhà máy sản xuất phân bón ở gần khu vực giáp ranh Long An - Tiền Giang bị xử phạt hơn 300 triệu đồng vì xả thải ra môi trường.
+- Chủ tịch UBND TP Hà Nội Trần Sỹ Thanh cho biết như trên và cho rằng cần giao cho Hà Nội quyền cắt điện, nước với công trình vi phạm. Việc này sẽ do chủ tịch UBND các cấp quyết định.
+- Nội dung được nêu trong công văn chỉ đạo của chủ tịch TP.HCM về triển khai kế hoạch năm 2024 thực hiện đề án phát triển kết cấu hạ tầng giao thông giai đoạn 2020-2030.
+- Một người đàn ông Trung Quốc khi đang sinh sống tại Hà Tĩnh bị nhóm người bắt cóc, đánh đập, đe dọa và cưỡng đoạt số tiền hơn 1 tỉ đồng.
+- Một vùng mây dông từ các huyện Thạch Thất, Quốc Oai, Chương Mỹ đang có xu hướng di chuyển về phía nội thành Hà Nội. Dự báo trong khoảng 3 giờ tới sẽ có mưa rào và dông.
+- Công an TP Phú Quốc họp kiểm điểm, phê bình hai cán bộ Công an phường An Thới vì giải quyết việc người dân tố cáo có người hủy hoại tài sản nhưng đã thiếu trách nhiệm khi thực hiện nhiệm vụ.
+- Ban Thường vụ Tỉnh ủy Lâm Đồng yêu cầu làm rõ trách nhiệm cá nhân, các ngành trong sai phạm liên quan đến xây dựng trái phép bên trong Đồi Cù Đà Lạt.
+- UBND tỉnh Quảng Ngãi có văn bản đề nghị chủ đầu tư dự án đường ven biển Dung Quất - Sa Huỳnh phối hợp Sở Giao thông vận tải xem xét khởi kiện nhà thầu, để thu nợ tạm ứng quá hạn.
+- HĐND tỉnh Khánh Hòa thống nhất chủ trương chi hơn 13,6 triệu USD từ ngân sách thay thế vốn vay ODA bị World Bank hủy tài trợ, ở dự án CCSEP Nha Trang.
+- Chủ tịch Quốc hội Trần Thanh Mẫn đề nghị đánh giá kỹ đường cao tốc như thế nào là đạt chuẩn, như thế nào là chưa đạt chuẩn.
+- Huyện Tư Nghĩa, Quảng Ngãi quyết định dừng những cuộc họp không quá cấp thiết, tập trung lực lượng giải phóng mặt bằng cao tốc Quảng Ngãi - Hoài Nhơn.
+- Kẻ xấu mạo danh an ninh mạng, quảng cáo các dịch vụ như hỗ trợ lấy lại tiền bị treo, thu hồi tiền lừa đảo... để lừa tiếp nạn nhân.
+- Trưa 11-6, tin từ Văn phòng UBND huyện Tam Nông, tỉnh Đồng Tháp, các đơn vị đang huy động hàng trăm người tham gia chữa cháy rừng ở Vườn quốc gia Tràm Chim. Tuổi Trẻ Online cập nhật.
+- TP.HCM đang tính toán 3 phương án để người dân đi đến sân bay Long Thành (Đồng Nai), trong đó có phương án đi bằng tàu cao tốc bến Bạch Đằng - bến du thuyền SwanBay.
+- Nguyên chủ tịch UBND huyện Hưng Hà, tỉnh Thái Bình bị khởi tố, bắt tạm giam vì liên quan đến việc chuyển mục đích sử dụng đất trái quy định.
 ![New](News.png)
 ## Nhịp sống số 
+- Người dùng có thể sử dụng công cụ ChatGPT trên các thiết bị iPhone, iPad, Macbook để tạo nội dung văn bản và hình ảnh mà không cần tải ứng dụng riêng.
 - Lần đầu tiên, một cuộc thi được dành riêng cho các tác phẩm ảnh và video dành cho lĩnh vực công nghệ.
 - Ngày 15-5, Công ty TNHH Sản phẩm công nghiệp Toshiba Asia đã tổ chức ngày hội đối tác kinh doanh ‘Business Partners Day 2024’ tại GEM Center, TP.HCM.
 - Sáng 4-6, hệ thống công nghệ thông tin của Tổng công ty Bưu điện Việt Nam (Vietnam Post) đã bị tấn công bất hợp pháp bằng mã độc tống tiền (ransomware).
@@ -94,5 +95,4 @@
 - Đại diện Cục Bản quyền tác giả nói môi trường số là môi trường xuyên biên giới, nên nạn đánh cắp bản quyền càng nghiêm trọng, khó giải quyết.
 - Những thông tin bị đánh cắp có thể bao gồm thông tin đăng nhập vào nền tảng mạng xã hội, dịch vụ ngân hàng trực tuyến, ví điện tử, hệ thống nội bộ và email doanh nghiệp.
 - TP.HCM thí điểm thực hiện học bạ số với toàn bộ học sinh lớp 1 của thành phố năm học 2023-2024 này.
-- Với tốc độ 156.000 tỉ khung hình mỗi giây, máy ảnh mở ra khả năng ghi lại những hiện tượng xảy ra cực nhanh mà trước nay không nhìn thấy được.
 ![life](Life.png)
