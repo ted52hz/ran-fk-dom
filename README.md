@@ -1,6 +1,26 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Sở Nội vụ Hà Nội ngày 14-6 cho biết thông tin phản ánh '63 giáo viên Hà Nội tố bị bùng tiền hỗ trợ đào tạo học thạc sĩ' là không chính xác.
+- Có 8 chương trình đào tạo chuẩn cùng có điểm chuẩn xét học bạ 29,9, gồm kiểm toán, ngân hàng, ngân hàng số, tài chính, công nghệ tài chính, kinh doanh quốc tế, logistics và quản lý chuỗi cung ứng, luật kinh tế.
+- Chiều 15-6, Trường đại học Thương mại chính thức công bố điểm chuẩn bốn phương thức xét tuyển sớm năm nay.
+- Ngoài việc bị phản ánh thu nhiều khoản tiền vô lý, một số học sinh đang lan truyền câu chuyện trường thu cả ‘tiền chống trượt’ tốt nghiệp THPT. Hiệu trưởng đã trả lời về việc này.
+- Chiều 15-6, Phòng Giáo dục và Đào tạo TP Thủ Đức đã công bố đề khảo sát vào lớp 6 năm học 2024-2025.
+- Số liệu được Tổng lãnh sự quán Malaysia tại TP.HCM công bố tại Ngày hội du học Malaysia ngày 15-6.
+- Chương trình đào tạo kỹ sư chuyên sâu đặc thù về trí tuệ nhân tạo tạo sinh - Generative AI Engineer Program (GenAI), chương trình đào tạo đầu tiên về trí tuệ nhân tạo tạo sinh tại Việt Nam - ra mắt ngày 15-6 tại Đại học Bách khoa Hà Nội.
+- Báo Tuổi Trẻ và Trường đại học Nguyễn Tất Thành phát triển mô hình đào tạo truyền thông mới tại Việt Nam.
+- Điểm chuẩn cao nhất trúng tuyển lớp 10 thuộc về Trường THPT Thực hành Sư phạm - Trường đại học Cần Thơ với 38,9 điểm.
+- 6 sinh viên Trường đại học Lạc Hồng sẽ sang Indonesia tranh tài tại cuộc đua xe tự hành tiết kiệm năng lượng dành riêng cho sinh viên được tổ chức 40 năm qua.
+- Sau khi thí sinh hoàn thành bài thi môn toán kỳ thi vào lớp 10 tại Bắc Ninh, trên mạng xôn xao thông tin một phụ huynh tố giám thị đã mời 3 - 4 học sinh hoàn thành bài thi nhanh nhất mang bài thi vào nhà vệ sinh để giám thị chụp ảnh.
+- Lớp học 30-45 sinh viên khiến chi phí vận hành tăng lên nhưng chất lượng đào tạo cũng tăng theo.
+- Trường đại học Ngoại thương công bố điểm chuẩn xét tuyển sớm ba phương thức, ngành thấp nhất là 25,5, hầu hết trên 27 điểm.
+- TP.HCM dự kiến điều chỉnh tăng mức trần tiền ăn bán trú lên 40.000 đồng/suất, bổ sung 3 dịch vụ trong các trường công.
+- Hội đồng cấp cao đánh giá nghiên cứu và giáo dục đại học đã trao chứng nhận đạt kiểm định cơ sở giáo dục đại học cho 4 cơ sở giáo dục đại học Việt Nam.
+- Đại học Quốc gia TP.HCM lần đầu tiên có chương trình đào tạo liên ngành, liên trường với ngành kinh doanh thương mại Hàn Quốc.
+- Năm ngành có điểm chuẩn xét tuyển tài năng cao nhất năm ngoái tiếp tục dẫn đầu năm nay, có ngành tăng tới hơn 20 điểm/thang điểm 110.
+- Sinh viên khối ngành truyền thông học trực tiếp tại tòa soạn báo Tuổi Trẻ. Đây là mô hình đào tạo truyền thông mới tại Việt Nam.
+- Hội đồng kỳ thi đánh giá năng lực Đại học Quốc gia TP.HCM đã phát hiện lỗi kỹ thuật trong việc công bố điểm thi đánh giá năng lực đợt 2 năm 2024, do đó sẽ kéo dài thời gian nhận phúc khảo.
+- Xếp hạng đại học, như một loại hình của đảm bảo chất lượng bên ngoài, sẽ chỉ hiệu quả và phát huy được tác dụng nếu ứng xử với nó một cách phù hợp, không làm kiểu hình thức và bằng mọi giá.
 - Câu chuyện đề thi toán vào lớp 10, dạy và học toán trong trường học trên Tuổi Trẻ Online nhận được nhiều sự quan tâm của bạn đọc. Để đa chiều, Tuổi Trẻ Online ghi nhận thêm ý kiến của phụ huynh, giáo viên.
 - 81 học sinh dự thi vào lớp 6 Trường THCS Trần Phú bị nhầm điểm môn toán khiến 11 thí sinh từ đỗ thành trượt, 4 học sinh từ trượt thành đỗ sau phúc khảo.
 - Đại học Quốc gia TP.HCM cho rằng cần có cơ chế thí điểm đặc thù cho đại học này về việc xét công nhận đạt tiêu chuẩn và bổ nhiệm chức danh giáo sư, phó giáo sư.
@@ -11,58 +31,38 @@
 - 'Chúng ta phải dạy cho sinh viên nhiều thứ khác ngoài ngữ pháp, câu bị động, từ vựng', theo chuyên gia tiếng Anh cao cấp từ Bộ Ngoại giao Mỹ.
 - Ở tuổi 11, dịch giả Lily (Hồ An Nhiên, Hà Nội) đã là chủ nhân của 5 dịch phẩm. Nhiều người thán phục nhưng cũng không ít người ngạc nhiên
 - GS.TS Nguyễn Thị Thanh Mai vừa được bổ nhiệm giữ chức phó giám đốc Đại học Quốc gia TP.HCM. Đây là nữ phó giám đốc đầu tiên của đại học này.
-- Chính phủ Úc công bố những người có visa du lịch và visa tốt nghiệp tạm thời sẽ không thể chuyển sang visa du học ở Úc.
-- Dù kỳ thi vào lớp 10 ở TP.HCM đã kết thúc nhưng đề thi toán khiến thí sinh bật khóc vẫn còn khiến nhiều người băn khoăn mãi đến giờ.
-- Theo chuyên gia, thực tế cho thấy các trường đại học có thể dùng chiêu trò, thủ thuật để vào được các bảng xếp hạng. Cụ thể ra sao?
-- Chuyện đề thi toán vào lớp 10 ở TP.HCM khiến nhiều học sinh bật khóc tiếp tục gây tranh luận về chuyện dạy và học toán ở trường.
-- Năm học 2024-2025, New Zealand dự kiến tăng nhiều học bổng giá trị cho học sinh, sinh viên Việt Nam.
-- Hiện nay, nhiều trường đại học đã chủ động xây dựng, triển khai điều kiện học tập mở nhằm tiếp nhận sinh viên quốc tế đến tham gia học tập.
-- Nhà xuất bản Hindawi đã bị xóa sổ, trong khi nhiều tạp chí thuộc nhà xuất bản này có trong danh mục tạp chí được Hội đồng Giáo sư nhà nước tính điểm năm 2023.
-- Thứ trưởng Bộ Giáo dục và Đào tạo gợi ý cần làm sớm việc phổ biến quy chế thi tốt nghiệp THPT 2024 để thí sinh tránh những vi phạm quy chế.
-- Hội đồng tuyển sinh lớp 6 Trường Trần Đại Nghĩa vừa thông báo có 4.301 học sinh đăng ký dự tuyển năm học 2024-2025.
-- Một trong những chuyện cứ lặp đi lặp lại, hết năm này đến năm khác là chuyện thi vào lớp 10: căng thẳng, nóng bỏng và đẫm nước mắt!
-- Đó là nhận định của TS Phan Tất Hiển - người sáng lập Hoa Trạng Nguyên Maths & Science, nguyên trưởng bộ môn toán kinh tế Trường đại học Sài Gòn, khi được hỏi về chuyện dạy và học toán trong nhà trường phổ thông.
-- Kết quả kiểm tra, xác minh của UBND huyện Mường Lát đã làm rõ nội dung phản ánh của Tuổi Trẻ Online ngày 23-5, liên quan đến tuyển sinh vào Trường phổ thông Dân tộc nội trú THCS Mường Lát.
-- Trường đại học Cần Thơ kiến nghị Bộ Nông nghiệp và Phát triển nông thôn xem trường như là đơn vị thuộc bộ; còn Bộ trưởng Lê Minh Hoan cũng đặt hàng nhiều vấn đề với các nhà khoa học của trường.
-- Sinh viên sẽ đến doanh nghiệp thực tập và học tập một số học phần ngay từ năm nhất thay vì thường phải chờ đến cuối năm ba như hiện nay.
-- Bộ trưởng Nguyễn Kim Sơn lưu ý chuẩn bị phương án khi thời tiết bất thường mùa mưa bão trong kỳ thi tốt nghiệp THPT 2024.
-- Nhiều lãnh đạo từ Bộ Giáo dục và hiệu trưởng đại học các nước Đông Nam Á đến TP.HCM để được nâng cao năng lực quản lý.
-- Chủ tịch UBND TP.HCM Phan Văn Mãi đánh giá cao chương trình hợp tác giữa UBND TP.HCM với Đại học Quốc gia TP.HCM. Ông đề nghị các sở ngành nghiên cứu, giải quyết ngay vấn đề xe buýt cho sinh viên, hỗ trợ xây quảng trường sáng tạo...
-- Trưa 11-6, Sở Giáo dục và Đào tạo TP.HCM đã công bố đáp án thi tuyển sinh lớp 10 năm 2024.
-- Tham dự cuộc thi văn - toán Tuổi Thơ toàn quốc năm 2024, đoàn học sinh quận Hoàn Kiếm, Hà Nội xuất sắc giành 2 cúp vàng đồng đội, 100% học sinh dự thi cá nhân đoạt giải.
-- 'Người ta từng ngỡ ngàng khi thấy một học sinh chuyên toán được giải văn, nhưng chắc sẽ ngờ vực khi nghe câu chuyện một học sinh lớp văn học sư phạm toán'.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Chiều nay 14-6, lễ hội Không tiền mặt 2024 sẽ khai mạc tại phố đi bộ Nguyễn Huệ (quận 1, TP.HCM) với nhiều hoạt động, quà tặng hấp dẫn.
-- Nhiều nhà trọ, chung cư biến tướng từ nhà ở xây sai phép tại phường An Khánh (TP Thủ Đức) và còn chưa bảo đảm về an toàn thoát nạn.
-- Ngôi nhà 3 tầng nằm trong ngách 176, ngõ Trại Cá, phố Trương Định (Hà Nội) bốc cháy dữ dội, cảnh sát phòng cháy chữa cháy đã huy động nhiều xe cứu hỏa cùng hàng chục cán bộ, chiến sĩ đến dập lửa.
-- Một số tin tức đáng chú ý: Đề xuất thêm biên chế cho công đoàn; Liên Khương "lên đời" vào mạng lưới sân bay của thế giới; Hiến giác mạc - một hành động nhỏ nhưng mang giá trị lớn lao...
-- Hôm nay 14-6, thời tiết Bắc Bộ ban ngày vẫn nắng nóng, từ tối nay có mưa to. Nam Bộ ngày nắng, chiều tối có nơi mưa rào.
-- Thêm hai cán bộ bị bắt vì liên quan đến Nguyễn Sơn La (biệt danh “La Điên”) trong việc làm trái quy định pháp luật về đất đai tại huyện Kiến Xương, Thái Bình.
-- Thường trực Ban Bí thư Lương Cường yêu cầu Ủy ban Kiểm tra Trung ương xử lý dứt điểm các vụ việc liên quan đến vi phạm của Công ty AIC và hệ sinh thái AIC, Vạn Thịnh Phát, Phúc Sơn, Thuận An và các vụ việc mới phát sinh.
-- Thủ tướng Phạm Minh Chính ký quyết định số 506 ngày 13-6 về việc phân công nhiệm vụ của các phó thủ tướng Chính phủ.
-- Một phụ nữ 49 tuổi ở huyện Vĩnh Linh bị xử phạt hành chính 5 triệu đồng do nói sai sự thật, xuyên tạc về chính quyền Quảng Trị trên mạng xã hội liên quan đến việc ông Lê Anh Tú (Thích Minh Tuệ) bộ hành.
-- Khu đô thị mới Hoàng Gia tại quận Thốt Nốt, TP Cần Thơ có nhiều vi phạm khi được điều chỉnh quy mô không đúng Luật Đầu tư, giao đất không đúng Luật Đất đai.
-- Tại buổi tiếp, Chủ tịch nước Tô Lâm khẳng định Việt Nam luôn coi Mỹ là đối tác có tầm quan trọng chiến lược, sẵn sàng phối hợp cùng Mỹ đưa quan hệ đi vào chiều sâu, hiệu quả và thực chất.
-- Góp ý về đề án hệ thống đường sắt đô thị tại TP.HCM, chủ tịch UBND TP Thủ Đức gợi ý mô hình xe buýt điện chạy trên đường ray có sẵn, giúp giảm chi phí chạy tàu.
-- Cơ quan điều tra hình sự trong quân đội đang tiến hành làm việc với người dân thu thập thông tin về hợp đồng mua đất tại sân bay Nha Trang.
-- Sau khi Tuổi Trẻ Online có loạt bài phản ánh tình trạng xả rác ra kênh rạch, nơi công cộng, UBND TP.HCM đã chỉ đạo các sở ngành, địa phương xử lý dứt điểm các điểm ô nhiễm, không để tái nhiễm.
-- Sau khi Tổng biên tập Tăng Hữu Phong được điều động, bổ nhiệm làm phó Ban Tuyên giáo Thành ủy TP.HCM, Phó tổng biên tập Nguyễn Khắc Văn sẽ điều hành hoạt động của báo Sài Gòn Giải Phóng.
-- Liên quan đến sự việc một salon bị tố nhận 703 bộ tóc hiến nhưng chỉ tặng 50 bộ tóc cho bệnh nhân ung thư, đại diện Quỹ Ngày mai tươi sáng (Bộ Y tế) - đơn vị trực tiếp thực hiện chương trình "Tóc cho bệnh nhân ung thư" - đã có thông tin chính thức.
-- Người đàn ông ở An Giang bị tạm giữ hình sự vì vận chuyển thuê cho người lạ hơn nửa triệu USD qua định mang qua biên giới trái phép.
-- Ủy ban Thường vụ Quốc hội thống nhất trình Quốc hội xem xét, quyết định Luật sửa đổi, bổ sung một số điều của Luật Đất đai, Nhà ở, Kinh doanh bất động sản, Các tổ chức tín dụng theo quy trình một kỳ họp.
-- UBND tỉnh Kiên Giang ban hành kế hoạch thực hiện truy xuất nguồn gốc thủy sản khai thác qua hệ thống phần mềm truy xuất nguồn gốc thủy sản khai thác điện tử (eCDT), góp phần chống khai thác IUU.
-- Sau cú va chạm với tàu hàng, tàu cá vỡ mũi tàu, nước tuôn vào ào ạt. Rất may, 8 ngư dân trên tàu đã được một tàu cá khác đến cứu.
-- Ông Lương Minh Phúc - giám đốc Ban Quản lý dự án đầu tư xây dựng các công trình giao thông TP.HCM - đã thông tin về tình hình khởi công các dự án khép kín đường vành đai 2.
-- Chiều 13-6, Phó chủ tịch nước Võ Thị Ánh Xuân cùng đoàn công tác đã có buổi thăm và làm việc với Biên phòng cửa khẩu cảng Bà Rịa - Vũng Tàu (Bộ đội biên phòng tỉnh Bà Rịa - Vũng Tàu).
-- Ông Nguyễn Kim Sơn, bộ trưởng Bộ Giáo dục và Đào tạo, kiểm tra công tác chuẩn bị kỳ thi tốt nghiệp THPT tại Quảng Ngãi đã yêu cầu tỉnh chủ động tuyên truyền phụ huynh, thí sinh, tránh trường hợp thí sinh ngủ quên.
-- Chiếc taxi bị thiêu rụi giữa nút giao Láng - Nguyễn Chí Thanh (Hà Nội) vào chiều 13-6. Phát hiện dấu hiệu cháy xe, tài xế đã kịp thời chạy ra ngoài.
-- Đại tướng Phan Văn Giang nhấn mạnh đến tầm quan trọng của việc tích cực học tập, nghiên cứu, vận dụng sáng tạo tư tưởng Hồ Chí Minh và đề nghị làm cho việc học Bác thực sự đi vào đời sống của bộ đội.
-- Bí thư Quận ủy quận 1 chia sẻ một số khu vực trung tâm quận như khu Chợ Gà, Chợ Gạo, có gia đình khi đi ngủ phải chia ca nhau vì chật chội.
-- Cao tốc Cam Lâm - Vĩnh Hảo đoạn qua tỉnh Ninh Thuận dài 63km đã thông xe, nhưng đường gom dân sinh vẫn chưa làm.
-- Tòa án nhân dân Tối cao cho biết Nghị quyết 04 sẽ nâng cao hiệu quả công tác chống khai thác thủy sản bất hợp pháp.
-- Nhiệm vụ của ngành kiểm sát không chỉ phát hiện cái sai, vi phạm mà quan trọng hơn phải phát hiện cho được nguyên nhân dẫn đến vi phạm.
-- Đi làm không được trả lương, Quyết bị đuổi xuống xe khách vì không có tiền. Đi bộ đói và mệt, Quyết ghé vào tổ công tác cảnh sát giao thông xin nước uống.
+- Việc xem xét, thi hành kỷ luật với tổ chức Đảng, đảng viên thuộc thẩm quyền Ban Chấp hành Trung ương Đảng, Bộ Chính trị, Ban Bí thư thực hiện theo quy trình 3 bước.
+- Một vụ cháy nhà dân trong đêm về sáng 16-6 khiến 3 người tử vong ở Bắc Giang.
+- Gần đây, vùng biển từ Kiên Giang đến Cà Mau liên tục phát hiện nhiều nhóm người bao chiếm mặt biển thu tiền bảo kê, tranh giành ngư trường rất gay gắt.
+- Ban thường vụ Tỉnh ủy Đồng Nai vừa ban hành quyết định thi hành kỷ luật Đảng đối với bà Nguyễn Thị Giang Hương bằng hình thức cách chức phó bí thư Huyện ủy Nhơn Trạch.
+- Một số tin tức đáng chú ý: Đất nền TP.HCM tiếp tục trầm lắng; Nhiều nơi ở Nam Bộ lần đầu có mưa đá; Liên tiếp trẻ mắc viêm màng não, cha mẹ cần lưu ý...
+- Hôm nay 16-6, mưa dông vẫn diễn ra ở nhiều nơi tại Bắc Bộ và Nam Bộ, trong khi đó Trung Bộ thời tiết lại nắng nóng gay gắt.
+- Đến nay, lịch sửa chữa và thời điểm các tuyến cáp quang biển được khắc phục sự cố vẫn chưa được công bố.
+- Công ty cổ phần Chứng khoán Tân Việt là một trong những pháp nhân liên quan tới vụ án trái phiếu nhóm bà Trương Mỹ Lan. Công ty này bên cạnh kẹt ngàn tỉ ở SCB gần đây cũng hết lãi khủng.
+- Người dân cùng lực lượng chức năng đã phát hiện 3 thiếu niên chết đuối trên sông Ba, tại khu vực thuộc địa bàn huyện Phú Hòa (tỉnh Phú Yên).
+- Phát hiện một con vật dài khoảng 1,2m bò vào nhà, một người dân ở huyện Bình Chánh (TP.HCM) đã bắt và tự nguyện giao cho kiểm lâm. Kiểm lâm viên ghi nhận đây là kỳ đà vân, nặng khoảng 7kg, có tên trong danh mục động vật nguy cấp quý hiếm.
+- UBND tỉnh Bà Rịa - Vũng Tàu yêu cầu chủ đầu tư Khu công nghiệp Mỹ Xuân A2 khẩn trương thống nhất, có lộ trình trả tiền nước cho công ty cấp nước. Chủ đầu tư khu công nghiệp này nợ tiền nước từ tháng 1-2024 đến nay, với hơn 23 tỉ đồng.
+- Tại tỉnh Đắk Lắk, nhiều thẩm mỹ viện nhái, không có giấy phép nhưng vẫn quảng cáo có các dịch vụ như hút mỡ bụng, nâng mũi, cắt mí, tiêm filler, botox…
+- UBND phường An Khánh (TP Thủ Đức) sẽ yêu cầu chủ 3 nhà ở biến thành chung cư, nhà trọ chấp hành tháo dỡ diện tích sai phép theo các quyết định xử phạt trước đó.
+- Báo Tuổi Trẻ đoạt giải nhất Giải Báo chí thành phố Đà Nẵng với loạt bài Gạc Ma - 35 năm vòng tròn bất tử.
+- Tỉnh Quảng Ngãi xem xét khởi kiện nhà thầu để đòi nợ tạm ứng quá hạn kéo dài khoảng 10 năm. Ít nhất, tỉnh này đã gửi nhà thầu 25 văn bản để đòi nợ nhưng bất thành.
+- Công an TP Long Xuyên, An Giang bắt 2 tên cướp bị truy nã đặc biệt, thu giữ nhiều mã tấu, dao tự chế và nhiều khẩu súng.
+- Dự án nâng cấp, mở rộng cầu Xương Giang, Gianh, Quán Hàu và hầm Đèo Ngang trên quốc lộ 1 với tổng mức đầu tư 1.997 tỉ đồng cơ bản hoàn thành trong năm 2025.
+- Trưa 15-6, bầu trời TP.HCM mù mịt, bị bao phủ bởi lớp sương dày mặc dù đang giữa trưa.
+- Dông lốc làm 4 trại gà sập hoàn toàn, nhiều nhà dân bị tốc mái. Đường điện trung thế cũng bị đứt khoảng 100m và cáp mạng viễn thông bị ảnh hưởng.
+- “Hôm nay là ngày vui nhất của cuộc đời mẹ con tui. Chỉ biết nói là vui thôi à” - chị Miệp, người mẹ đơn thân, thốt lên.
+- Ủy ban Kiểm tra Trung ương đã kỷ luật cảnh cáo với cựu chủ tịch các tỉnh Ninh Thuận, Bình Dương, Long An, Bà Rịa - Vũng Tàu.
+- Ủy ban Kiểm tra Trung ương xác định ông Nguyễn Văn Yên - phó trưởng Ban Nội chính Trung ương, đã vi phạm quy định những điều đảng viên không được làm và trách nhiệm nêu gương, gây hậu quả rất nghiêm trọng.
+- Ủy ban Kiểm tra Trung ương đã nêu rõ các vi phạm, trong đó có vi phạm liên quan Tập đoàn Vạn Thịnh Phát, An Đông, AIC và kỷ luật loạt cán bộ của Bộ Tài chính.
+- Bạn đọc phản ảnh nhiều tuyến đường chính của TP Rạch Giá có các trang cờ bạc quảng cáo “núp bóng” dưới danh nghĩa tài trợ bảng hiệu cho quán cà phê, quán ăn. Chính quyền có nắm được điều này?
+- Cơn mưa lớn khiến nước chảy xiết, người phụ nữ mất lái bị nước cống ngầm cuốn đi dẫn đến tử vong.
+- Không chỉ là cầu nối vận chuyển hàng hóa, dự án đường dẫn ra cảng tổng hợp TP Hà Tiên với tổng vốn đầu tư khoảng 1.177 tỉ đồng còn tạo động lực phát triển du lịch địa phương.
+- Người dân ở huyện Phú Riềng (Bình Phước) không khỏi bức xúc khi con suối dài hàng chục cây số đổi màu đen ngòm, nổi bọt trắng, bốc mùi hôi nồng nặc nghi ô nhiễm.
+- Ngày 15-6, Công an TP.HCM tổ chức lễ ra mắt Trung tâm giáo dục cộng đồng về phòng cháy chữa cháy và cứu nạn cứu hộ TP.HCM.
+- Bộ Giao thông vận tải khẳng định chưa dùng cát biển làm cao tốc nên việc nói lúa nhiễm mặn tại xã Vị Thắng, huyện Vị Thủy, tỉnh Hậu Giang do dùng cát biển làm đường là chưa có cơ sở.
+- Từ 13h chiều nay (15-6), hồ thủy điện Sơn La sẽ mở 1 cửa xả đáy, hồ thủy điện Tuyên Quang mở thêm 1 cửa xả đáy để đưa về cao trình mực nước cao nhất trước lũ theo quy định.
 ![New](News.png)
 ## Nhịp sống số 
 - Người dùng có thể sử dụng công cụ ChatGPT trên các thiết bị iPhone, iPad, Macbook để tạo nội dung văn bản và hình ảnh mà không cần tải ứng dụng riêng.
