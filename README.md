@@ -1,6 +1,13 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Ngày hội tư vấn xét tuyển diễn ra tại Hà Nội và TP.HCM với sự tham gia của hàng trăm trường đại học, cao đẳng, đơn vị giáo dục trong và ngoài nước.
+- Nữ sinh đi thi lớp 10 mất tích nhiều ngày ở TP Châu Đốc, tỉnh An Giang được cơ quan chức năng tìm thấy ở Đồng Nai và giao cho gia đình.
+- TS Võ Nguyễn Đại Việt, người ở vị trí thứ 17 trong số 47 người Việt vào “top nhà khoa học ảnh hưởng nhất thế giới”, là tác giả của bài báo vừa bị một tạp chí quốc tế gỡ bỏ. Ông giải thích thế nào khi công bố 3 ngày 1 bài báo khoa học?
+- Những ngày qua xuất hiện một số trang thông tin, nhóm Zalo và email mạo danh các đơn vị của Bộ Giáo dục và Đào tạo để cung cấp thông tin, trong đó đăng tải nhiều hình ảnh, bài viết có nội dung lừa đảo chiếm đoạt tài sản.
+- Dưới ánh đèn sân khấu của SIU Piano Competition, từng nốt nhạc vang lên thể hiện tài năng và niềm đam mê của các thí sinh.
+- Kỳ thi sắp tới, thầy mong các em 'hãy vượt qua trùng vi thạch trận như ông lái đò, hãy cắt sợi dây trói buộc số phận mà tự cứu mình như Mị'.
+- Dự hội nghị khoa học tại TP Quy Nhơn, hai giáo sư nổi tiếng Jean-François Joanny và Detlef Lohse gửi gắm đến các bạn trẻ mê nghiên cứu: hãy tò mò về những hiện tượng tự nhiên, tìm hiểu về chúng và đặt câu hỏi tại sao.
 - Sở Nội vụ Hà Nội ngày 14-6 cho biết thông tin phản ánh '63 giáo viên Hà Nội tố bị bùng tiền hỗ trợ đào tạo học thạc sĩ' là không chính xác.
 - Có 8 chương trình đào tạo chuẩn cùng có điểm chuẩn xét học bạ 29,9, gồm kiểm toán, ngân hàng, ngân hàng số, tài chính, công nghệ tài chính, kinh doanh quốc tế, logistics và quản lý chuỗi cung ứng, luật kinh tế.
 - Chiều 15-6, Trường đại học Thương mại chính thức công bố điểm chuẩn bốn phương thức xét tuyển sớm năm nay.
@@ -24,45 +31,38 @@
 - Câu chuyện đề thi toán vào lớp 10, dạy và học toán trong trường học trên Tuổi Trẻ Online nhận được nhiều sự quan tâm của bạn đọc. Để đa chiều, Tuổi Trẻ Online ghi nhận thêm ý kiến của phụ huynh, giáo viên.
 - 81 học sinh dự thi vào lớp 6 Trường THCS Trần Phú bị nhầm điểm môn toán khiến 11 thí sinh từ đỗ thành trượt, 4 học sinh từ trượt thành đỗ sau phúc khảo.
 - Đại học Quốc gia TP.HCM cho rằng cần có cơ chế thí điểm đặc thù cho đại học này về việc xét công nhận đạt tiêu chuẩn và bổ nhiệm chức danh giáo sư, phó giáo sư.
-- Ông Nguyễn Kim Sơn, bộ trưởng Bộ Giáo dục và Đào tạo, kiểm tra công tác chuẩn bị kỳ thi tốt nghiệp THPT tại Quảng Ngãi đã yêu cầu tỉnh chủ động tuyên truyền phụ huynh, thí sinh, tránh trường hợp thí sinh ngủ quên.
-- Với hình ảnh sinh động, nội dung đa dạng và liên tục cải tiến, game online thu hút nhiều người chơi, từ người lớn tới trẻ em.
-- Ngày 13-6, Học viện Ngoại giao chính thức công bố điểm chuẩn xét tuyển sớm dựa trên kết quả học tập THPT (học bạ) năm 2024.
-- Ở các kỳ thi trước, khi được hỏi, một số thí sinh làm lộ, lọt đề thi tốt nghiệp trong thời gian làm bài không ý thức được đang vi phạm hình sự.
-- 'Chúng ta phải dạy cho sinh viên nhiều thứ khác ngoài ngữ pháp, câu bị động, từ vựng', theo chuyên gia tiếng Anh cao cấp từ Bộ Ngoại giao Mỹ.
-- Ở tuổi 11, dịch giả Lily (Hồ An Nhiên, Hà Nội) đã là chủ nhân của 5 dịch phẩm. Nhiều người thán phục nhưng cũng không ít người ngạc nhiên
-- GS.TS Nguyễn Thị Thanh Mai vừa được bổ nhiệm giữ chức phó giám đốc Đại học Quốc gia TP.HCM. Đây là nữ phó giám đốc đầu tiên của đại học này.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Việc xem xét, thi hành kỷ luật với tổ chức Đảng, đảng viên thuộc thẩm quyền Ban Chấp hành Trung ương Đảng, Bộ Chính trị, Ban Bí thư thực hiện theo quy trình 3 bước.
-- Một vụ cháy nhà dân trong đêm về sáng 16-6 khiến 3 người tử vong ở Bắc Giang.
-- Gần đây, vùng biển từ Kiên Giang đến Cà Mau liên tục phát hiện nhiều nhóm người bao chiếm mặt biển thu tiền bảo kê, tranh giành ngư trường rất gay gắt.
-- Ban thường vụ Tỉnh ủy Đồng Nai vừa ban hành quyết định thi hành kỷ luật Đảng đối với bà Nguyễn Thị Giang Hương bằng hình thức cách chức phó bí thư Huyện ủy Nhơn Trạch.
-- Một số tin tức đáng chú ý: Đất nền TP.HCM tiếp tục trầm lắng; Nhiều nơi ở Nam Bộ lần đầu có mưa đá; Liên tiếp trẻ mắc viêm màng não, cha mẹ cần lưu ý...
-- Hôm nay 16-6, mưa dông vẫn diễn ra ở nhiều nơi tại Bắc Bộ và Nam Bộ, trong khi đó Trung Bộ thời tiết lại nắng nóng gay gắt.
-- Đến nay, lịch sửa chữa và thời điểm các tuyến cáp quang biển được khắc phục sự cố vẫn chưa được công bố.
-- Công ty cổ phần Chứng khoán Tân Việt là một trong những pháp nhân liên quan tới vụ án trái phiếu nhóm bà Trương Mỹ Lan. Công ty này bên cạnh kẹt ngàn tỉ ở SCB gần đây cũng hết lãi khủng.
-- Người dân cùng lực lượng chức năng đã phát hiện 3 thiếu niên chết đuối trên sông Ba, tại khu vực thuộc địa bàn huyện Phú Hòa (tỉnh Phú Yên).
-- Phát hiện một con vật dài khoảng 1,2m bò vào nhà, một người dân ở huyện Bình Chánh (TP.HCM) đã bắt và tự nguyện giao cho kiểm lâm. Kiểm lâm viên ghi nhận đây là kỳ đà vân, nặng khoảng 7kg, có tên trong danh mục động vật nguy cấp quý hiếm.
-- UBND tỉnh Bà Rịa - Vũng Tàu yêu cầu chủ đầu tư Khu công nghiệp Mỹ Xuân A2 khẩn trương thống nhất, có lộ trình trả tiền nước cho công ty cấp nước. Chủ đầu tư khu công nghiệp này nợ tiền nước từ tháng 1-2024 đến nay, với hơn 23 tỉ đồng.
-- Tại tỉnh Đắk Lắk, nhiều thẩm mỹ viện nhái, không có giấy phép nhưng vẫn quảng cáo có các dịch vụ như hút mỡ bụng, nâng mũi, cắt mí, tiêm filler, botox…
-- UBND phường An Khánh (TP Thủ Đức) sẽ yêu cầu chủ 3 nhà ở biến thành chung cư, nhà trọ chấp hành tháo dỡ diện tích sai phép theo các quyết định xử phạt trước đó.
-- Báo Tuổi Trẻ đoạt giải nhất Giải Báo chí thành phố Đà Nẵng với loạt bài Gạc Ma - 35 năm vòng tròn bất tử.
-- Tỉnh Quảng Ngãi xem xét khởi kiện nhà thầu để đòi nợ tạm ứng quá hạn kéo dài khoảng 10 năm. Ít nhất, tỉnh này đã gửi nhà thầu 25 văn bản để đòi nợ nhưng bất thành.
-- Công an TP Long Xuyên, An Giang bắt 2 tên cướp bị truy nã đặc biệt, thu giữ nhiều mã tấu, dao tự chế và nhiều khẩu súng.
-- Dự án nâng cấp, mở rộng cầu Xương Giang, Gianh, Quán Hàu và hầm Đèo Ngang trên quốc lộ 1 với tổng mức đầu tư 1.997 tỉ đồng cơ bản hoàn thành trong năm 2025.
-- Trưa 15-6, bầu trời TP.HCM mù mịt, bị bao phủ bởi lớp sương dày mặc dù đang giữa trưa.
-- Dông lốc làm 4 trại gà sập hoàn toàn, nhiều nhà dân bị tốc mái. Đường điện trung thế cũng bị đứt khoảng 100m và cáp mạng viễn thông bị ảnh hưởng.
-- “Hôm nay là ngày vui nhất của cuộc đời mẹ con tui. Chỉ biết nói là vui thôi à” - chị Miệp, người mẹ đơn thân, thốt lên.
-- Ủy ban Kiểm tra Trung ương đã kỷ luật cảnh cáo với cựu chủ tịch các tỉnh Ninh Thuận, Bình Dương, Long An, Bà Rịa - Vũng Tàu.
-- Ủy ban Kiểm tra Trung ương xác định ông Nguyễn Văn Yên - phó trưởng Ban Nội chính Trung ương, đã vi phạm quy định những điều đảng viên không được làm và trách nhiệm nêu gương, gây hậu quả rất nghiêm trọng.
-- Ủy ban Kiểm tra Trung ương đã nêu rõ các vi phạm, trong đó có vi phạm liên quan Tập đoàn Vạn Thịnh Phát, An Đông, AIC và kỷ luật loạt cán bộ của Bộ Tài chính.
-- Bạn đọc phản ảnh nhiều tuyến đường chính của TP Rạch Giá có các trang cờ bạc quảng cáo “núp bóng” dưới danh nghĩa tài trợ bảng hiệu cho quán cà phê, quán ăn. Chính quyền có nắm được điều này?
-- Cơn mưa lớn khiến nước chảy xiết, người phụ nữ mất lái bị nước cống ngầm cuốn đi dẫn đến tử vong.
-- Không chỉ là cầu nối vận chuyển hàng hóa, dự án đường dẫn ra cảng tổng hợp TP Hà Tiên với tổng vốn đầu tư khoảng 1.177 tỉ đồng còn tạo động lực phát triển du lịch địa phương.
-- Người dân ở huyện Phú Riềng (Bình Phước) không khỏi bức xúc khi con suối dài hàng chục cây số đổi màu đen ngòm, nổi bọt trắng, bốc mùi hôi nồng nặc nghi ô nhiễm.
-- Ngày 15-6, Công an TP.HCM tổ chức lễ ra mắt Trung tâm giáo dục cộng đồng về phòng cháy chữa cháy và cứu nạn cứu hộ TP.HCM.
-- Bộ Giao thông vận tải khẳng định chưa dùng cát biển làm cao tốc nên việc nói lúa nhiễm mặn tại xã Vị Thắng, huyện Vị Thủy, tỉnh Hậu Giang do dùng cát biển làm đường là chưa có cơ sở.
-- Từ 13h chiều nay (15-6), hồ thủy điện Sơn La sẽ mở 1 cửa xả đáy, hồ thủy điện Tuyên Quang mở thêm 1 cửa xả đáy để đưa về cao trình mực nước cao nhất trước lũ theo quy định.
+- Sau khi bắt nhiều bác sĩ, Cục Cảnh sát hình sự Bộ Công an đã bắt thêm viện trưởng và viện phó Viện Pháp y tâm thần trung ương Biên Hòa, Đồng Nai.
+- 3 người trong cùng gia đình ở An Giang được người dân phát hiện tử vong, công an xác định nguyên nhân ban đầu nghi do điện giật.
+- UBND TP Hà Nội yêu cầu giám đốc Công an TP điều tra, làm rõ nguyên nhân, trách nhiệm tổ chức, cá nhân liên quan đến vụ cháy nhà ở Định Công Hạ (Hoàng Mai) làm 4 người chết.
+- Một số tin tức đáng chú ý: Sáng nay, Quốc hội tiếp tục họp đợt 2 kỳ họp thứ 7; Ngân hàng 'đua' nâng lãi suất; Bộ Tài chính nói gì về việc dùng ngân sách khắc phục vi phạm bảo hiểm xã hội?
+- Hôm nay nắng nóng không chỉ ở miền Trung mà còn xảy ra ở đồng bằng Bắc Bộ, còn thời tiết Nam Bộ nắng gián đoạn, mưa dông chiều tối.
+- Nữ sinh đi thi lớp 10 mất tích nhiều ngày ở TP Châu Đốc, tỉnh An Giang được cơ quan chức năng tìm thấy ở Đồng Nai và giao cho gia đình.
+- Tính đến tháng 6-2024, cả nước có 503 dự án nhà ở xã hội đã được triển khai, với quy mô 418.200 căn.
+- Chiều 16-6, Viện Pháp y tâm thần trung ương Biên Hòa có văn bản gửi Bộ Y tế cho hay nhiều lãnh đạo viện bị bắt và bị triệu tập làm việc, không còn cán bộ làm việc.
+- Mưa kèm gió lớn trong tối 16-6 khiến nhiều cây to bị gãy đổ, đè lên nhiều ô tô trên phố Hà Nội.
+- Phấn đấu 100% các lĩnh vực công tác của tòa án được chuyển đổi số, quản trị thống nhất trên nền tảng số, có cơ sở dữ liệu dùng chung và cơ sở dữ liệu chuyên ngành.
+- Ngọn lửa cháy dữ dội kèm theo khói đen bốc cao nghi ngút tại tầng 4 của ngôi nhà 5 tầng trên phố Định Công Hạ (Hà Nội) khi trời mưa.
+- Vùng mây dông gây mưa từ khu vực huyện Thường Tín, Thanh Oai đang phát triển và kéo về trung tâm Hà Nội, dự báo gây mưa cho các quận nội thành trong chiều tối 16-6.
+- Mỗi khu dân cư, thôn ở Đà Nẵng được thành lập một tổ bảo vệ an ninh trật tự và mức lương của tổ trưởng được hưởng ngang mức lương cơ sở.
+- Ngân hàng Nhà nước cho biết thời gian qua tại một số tỉnh, thành phố có người dụ dỗ học sinh, sinh viên mở tài khoản thanh toán, sau đó chuyển lại cho những người này.
+- Các công ty Chaktomuk Campuchia, Sok Theara, Global Green Energy được Bộ Mỏ và năng lượng Campuchia cấp phép khai thác khoảng 1,39 tỉ m3 cát trên các sông Mekong, Bassac có thể bán cát cho các dự án cao tốc phía Nam.
+- Dự báo từ ngày 17-6 các tỉnh đồng bằng Bắc Bộ, trong đó có thủ đô Hà Nội, Hòa Bình có thể nắng nóng lên tới 38 độ C, còn các tỉnh miền Trung có nơi nóng tới 40 độ C.
+- Cảnh sát kiểm tra tiệm tạp hóa ở TP Châu Đốc, tỉnh An Giang nhưng phát hiện tại cơ sở này chứa một lượng lớn ma túy các loại.
+- Cơ quan chức năng vừa ra quân xử lý các trường hợp tập trung trẻ em, người lang thang xin ăn, đồng thời sắp xếp các trường hợp này vào trung tâm bảo trợ xã hội phù hợp.
+- Một loài sinh vật lạ vừa được nhóm thám hiểm hang động phát hiện trong hang Hùng, thuộc phân khu bảo vệ nghiêm ngặt của Vườn quốc gia Phong Nha - Kẻ Bàng.
+- Nhân kỷ niệm 30 năm ngày ký Hiệp ước hữu nghị Việt Nam - Nga, Tổng bí thư Nguyễn Phú Trọng và Chủ tịch nước Tô Lâm đã trao đổi thư mừng với Tổng thống Nga Vladimir Putin.
+- Đường ống dẫn nước thải bị tắc nghẽn, bờ bao của cụm bể gạn mủ cao su bị vỡ khiến nước thải chưa qua xử lý tràn ra ngoài suối.
+- Sau khi bắt nhiều bác sĩ, Cục Cảnh sát hình sự Bộ Công an đã bắt thêm viện trưởng và viện phó Viện Pháp y tâm thần trung ương Biên Hòa, Đồng Nai.
+- Phòng Cảnh sát giao thông Công an Hà Nội cùng Công an quận Tây Hồ đang củng cố hồ sơ để xử lý 4 thanh, thiếu niên lái xe máy 'đánh võng' trên cầu Nhật Tân.
+- Khoảng 17h ngày 15-6, xã đảo Hòn Tre, huyện đảo Kiên Hải, tỉnh Kiên Giang có mưa lớn kéo dài kèm theo lốc xoáy, khiến 1 người dân tử vong do bị chìm ghe.
+- Trong vụ cháy nhà dân ở Bắc Giang, công an phát hiện căn phòng chứa nhiều vật liệu dễ cháy khiến ngọn lửa lan nhanh, sinh ra nhiều khói và khí độc khiến 3 người tử vong.
+- Thường trực Ban Bí thư Lương Cường thay mặt Bộ Chính trị ký quyết định 164 về quy trình giải quyết tố cáo với tổ chức Đảng trực thuộc Trung ương và đảng viên là cán bộ thuộc diện Trung ương quản lý.
+- Từ đầu tuần này, mưa sẽ giảm ở Bắc Bộ, nắng nóng quay lại. Trung Bộ nắng nóng nhiều nơi, còn Nam Bộ nắng gián đoạn, chiều tối mưa dông.
+- Sùng A Sếnh và vợ đang trên đường mang theo 30kg ma túy đưa vào Bình Dương tiêu thụ thì bị lực lượng chức năng mật phục bắt quả tang.
+- Tuyến tránh TP Long Xuyên có vốn đầu tư 2.107 tỉ đồng từ vốn vay của ADB và đối ứng của Chính phủ vừa khánh thành, đưa vào sử dụng.
+- Trao đổi với Tuổi Trẻ, một số doanh nghiệp kinh doanh vàng cho biết không dám "lơ là" quy định về hóa đơn vì sợ bị rút giấy phép.
 ![New](News.png)
 ## Nhịp sống số 
 - Người dùng có thể sử dụng công cụ ChatGPT trên các thiết bị iPhone, iPad, Macbook để tạo nội dung văn bản và hình ảnh mà không cần tải ứng dụng riêng.
