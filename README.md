@@ -1,6 +1,16 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- "Mưa" điểm 10 xuất hiện ở môn ngoại ngữ. Không có thí sinh nào đạt điểm thi 10 môn ngữ văn.
+- Sáng sớm 19-6, Sở Giáo dục và đào tạo TP.HCM công bố điểm thi lớp 10 năm 2024. Thí sinh có thể tra cứu tại https://tuoitre.vn/diem-thi.htm
+- TP.HCM sẽ công bố điểm thi tuyển sinh lớp 10 năm 2024 vào lúc 9h sáng 19-6, sớm hơn dự kiến. Thí sinh có thể tra cứu nhanh tại https://tuoitre.vn/diem-thi.htm
+- Tối 18-6, Sở Giáo dục và Đào tạo TP Đà Nẵng công bố điểm chuẩn thi vào lớp 10. Năm nay Trường THPT Phan Châu Trinh có điểm chuẩn lớp 10 cao nhất với 58,38 điểm.
+- Theo tin từ hội đồng chấm thi tuyển sinh lớp 10 năm 2024 ở TP.HCM, phổ điểm môn toán năm nay khá đẹp.
+- Phụ huynh Trường tiểu học Hanh Thông (Gò Vấp, TP.HCM) phản ánh con họ phải mang những bình nước 5 lít đến trường trong suốt năm học, vì hệ thống lọc nước uống mà nhà trường lắp đặt có mùi.
+- Trường đại học Công nghệ TP.HCM (HUTECH) tổ chức Lễ khai giảng khóa đào tạo thạc sĩ, tiến sĩ đợt 1 - năm 2024 với đông đảo học viên và nghiên cứu sinh tham dự.
+- Lo ngại về thiết bị gian lận thi tốt nghiệp THPT được đặt ra trong buổi làm việc của Ban chỉ đạo thi Hà Nội với lãnh đạo Bộ Giáo dục và Đào tạo ngày 18-6.
+- Sở Giáo dục và Đào tạo TP.HCM dự kiến công bố điểm thi lớp 10 vào sáng 20-6. Thí sinh có thể tra cứu nhanh tại https://tuoitre.vn/diem-thi.htm
+- Đêm cao nguyên buốt lạnh, mưa rơi lộp độp trên lá không cản được những bước chân già trẻ hướng về lớp học đặc biệt giữa rừng Đăk Sơmei, huyện Đăk Đoa, tỉnh Gia Lai.
 - Sau khi hiệu trưởng Trường cao đẳng Y tế Quảng Nam bị khởi tố, tỉnh này yêu cầu Sở Nội vụ phối hợp Ban Tổ chức Tỉnh ủy sớm tham mưu, xin ý kiến Ban Thường vụ Tỉnh ủy giao quyền hiệu trưởng để ký, cấp các văn bằng tốt nghiệp cho sinh viên.
 - Lực lượng chức năng sẽ tăng cường kiểm tra, xử lý nghiêm vi phạm trong hoạt động vận tải hành khách, trong đó có xe đưa đón học sinh.
 - Sáng sớm 17-6, nhiều phụ huynh có mặt từ 5h để mua hồ sơ xét tuyển vào lớp 1 Trường tiểu học Thực hành Đại học Sài Gòn (quận 3, TP.HCM).
@@ -21,50 +31,42 @@
 - Ngoài việc bị phản ánh thu nhiều khoản tiền vô lý, một số học sinh đang lan truyền câu chuyện trường thu cả ‘tiền chống trượt’ tốt nghiệp THPT. Hiệu trưởng đã trả lời về việc này.
 - Chiều 15-6, Phòng Giáo dục và Đào tạo TP Thủ Đức đã công bố đề khảo sát vào lớp 6 năm học 2024-2025.
 - Số liệu được Tổng lãnh sự quán Malaysia tại TP.HCM công bố tại Ngày hội du học Malaysia ngày 15-6.
-- Chương trình đào tạo kỹ sư chuyên sâu đặc thù về trí tuệ nhân tạo tạo sinh - Generative AI Engineer Program (GenAI), chương trình đào tạo đầu tiên về trí tuệ nhân tạo tạo sinh tại Việt Nam - ra mắt ngày 15-6 tại Đại học Bách khoa Hà Nội.
-- Báo Tuổi Trẻ và Trường đại học Nguyễn Tất Thành phát triển mô hình đào tạo truyền thông mới tại Việt Nam.
-- Điểm chuẩn cao nhất trúng tuyển lớp 10 thuộc về Trường THPT Thực hành Sư phạm - Trường đại học Cần Thơ với 38,9 điểm.
-- 6 sinh viên Trường đại học Lạc Hồng sẽ sang Indonesia tranh tài tại cuộc đua xe tự hành tiết kiệm năng lượng dành riêng cho sinh viên được tổ chức 40 năm qua.
-- Sau khi thí sinh hoàn thành bài thi môn toán kỳ thi vào lớp 10 tại Bắc Ninh, trên mạng xôn xao thông tin một phụ huynh tố giám thị đã mời 3 - 4 học sinh hoàn thành bài thi nhanh nhất mang bài thi vào nhà vệ sinh để giám thị chụp ảnh.
-- Lớp học 30-45 sinh viên khiến chi phí vận hành tăng lên nhưng chất lượng đào tạo cũng tăng theo.
-- Trường đại học Ngoại thương công bố điểm chuẩn xét tuyển sớm ba phương thức, ngành thấp nhất là 25,5, hầu hết trên 27 điểm.
-- TP.HCM dự kiến điều chỉnh tăng mức trần tiền ăn bán trú lên 40.000 đồng/suất, bổ sung 3 dịch vụ trong các trường công.
-- Hội đồng cấp cao đánh giá nghiên cứu và giáo dục đại học đã trao chứng nhận đạt kiểm định cơ sở giáo dục đại học cho 4 cơ sở giáo dục đại học Việt Nam.
-- Đại học Quốc gia TP.HCM lần đầu tiên có chương trình đào tạo liên ngành, liên trường với ngành kinh doanh thương mại Hàn Quốc.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Ban Thường vụ Thành ủy TP.HCM chỉ định ông Võ Khắc Thái - bí thư Quận ủy quận 7, giữ chức bí thư Đảng đoàn Liên đoàn Lao động TP.HCM.
-- Sau khi hiệu trưởng Trường cao đẳng Y tế Quảng Nam bị khởi tố, tỉnh này yêu cầu Sở Nội vụ phối hợp Ban Tổ chức Tỉnh ủy sớm tham mưu, xin ý kiến Ban Thường vụ Tỉnh ủy giao quyền hiệu trưởng để ký, cấp các văn bằng tốt nghiệp cho sinh viên.
-- Ông Trịnh Quang Trí, cựu giám đốc Trung tâm Kiểm soát bệnh tật (CDC) Đắk Lắk và 5 đồng phạm cùng ra tòa về tội "vi phạm quy định về đấu thầu gây hậu quả nghiêm trọng", liên quan đến vụ mua kit xét nghiệm của Công ty Việt Á.
-- Việc giải phóng mặt bằng mở rộng quốc lộ 50 (kết nối TP.HCM và Long An) hiện có nhiều chuyển biến tích cực. Dự kiến đường song hành sẽ xong cuối năm nay và hoàn thành toàn dự án trong năm 2025.
-- Tin tức đáng chú ý: Làm giấy khai sinh, đăng ký thường trú, thẻ bảo hiểm y tế cho trẻ dưới 6 tuổi trên Cổng dịch vụ công, cách nào?; Đã có 15.000 người đăng ký hiến mô tạng trong gần 1 tháng qua...
-- Hôm nay nắng nóng lan ra diện rộng nhiều nơi tại Bắc Bộ và Trung Bộ. Nam Bộ thời tiết điển hình mùa mưa khi ngày nắng, chiều mưa dông.
-- Việc giảm giờ làm việc cần được thử nghiệm tại các doanh nghiệp lớn, trước khi mở rộng, tạo thành phong trào, chứng minh cho người sử dụng lao động thấy lợi ích của giảm giờ làm như tăng năng suất lao động, thêm thời gian tái tạo sức lao động...
-- Tổng thống Putin đã bốn lần đến Việt Nam và lần thứ năm sắp tới là thăm cấp nhà nước, theo lời mời của Tổng bí thư Nguyễn Phú Trọng.
-- Năm em nhỏ ở Đà Nẵng 10 - 14 tuổi rủ nhau ra hồ tự nhiên ở quận Cẩm Lệ tắm, hai em chết đuối thương tâm.
-- Vụ chủ đầu tư Khu công nghiệp Mỹ Xuân A2, tỉnh Bà Rịa - Vũng Tàu nợ chây ỳ 23,6 tỉ đồng tiền nước được chỉ đạo chuyển sang công an để điều tra, xử lý.
-- Lực lượng chức năng sẽ tăng cường kiểm tra, xử lý nghiêm vi phạm trong hoạt động vận tải hành khách, trong đó có xe đưa đón học sinh.
-- Chủ tịch nước Tô Lâm khẳng định Việt Nam luôn coi Nga là một trong những đối tác ưu tiên hàng đầu, đồng thời nhất trí với Đại sứ Nga Gennady Bezdetko rằng chuyến thăm sắp tới của Tổng thống Putin sẽ là dấu mốc quan trọng.
-- Sở Giao thông vận tải TP.HCM yêu cầu các trung tâm đăng kiểm đang hoạt động tổ chức rà soát lại đội ngũ đăng kiểm viên hiện có để chủ động xây dựng kế hoạch, phương án kiện toàn nhân sự.
-- Chi cục Chăn nuôi và Thú y TP.HCM cho biết theo quy định hiện nay, các đội bắt chó thả rông vẫn thành lập tại các phường, xã và không thành lập đội bắt chó có quy mô toàn thành phố.
-- Chủ tịch nước Tô Lâm nêu rõ Luật Công chứng sửa đổi cần quy định rõ trong những trường hợp nào phải công chứng, không phải một cơ quan hay cán bộ nào đặt ra thủ tục buộc người dân phải công chứng.
-- Thi thể hai chị em được tìm thấy trong ao nước dự án tái định cư thuộc khu 5, phường Hải Yên, TP Móng Cái, tỉnh Quảng Ninh.
-- Ông Hà Huy Dũng, trưởng khoa điều trị bắt buộc Bệnh viện Tâm thần trung ương I, bị Công an Hà Nội bắt tạm giam để điều tra về tội nhận hối lộ.
-- Chiều 17-6, đoàn đại biểu TP.HCM do Chủ tịch UBND TP.HCM Phan Văn Mãi dẫn đầu đã đến thăm, làm việc với báo Tuổi Trẻ nhân kỷ niệm 99 năm Ngày Báo chí cách mạng Việt Nam (21-6-1925 - 21-6-2024).
-- Viện Kiểm sát nhân dân tối cao chấp thuận cho thôi giữ chức vụ theo nguyện vọng với phó viện trưởng Viện Kiểm sát nhân dân huyện Ngọc Hiển, Cà Mau - người bị tố "vòi tiền" gia đình bị can.
-- Tàu cá bất ngờ bốc cháy ở cầu cảng xã Long Hòa, huyện Cần Giờ, TP.HCM. Dù đã cố gắng chữa cháy nhưng lửa vẫn cháy lan hai chiếc tàu kế bên.
-- Thủ tướng Phạm Minh Chính yêu cầu các cơ quan chức năng cần rà soát, phân loại, có giải pháp hữu hiệu về phòng cháy, chữa cháy đối với nhà ở cho thuê trọ, nhà ở có nhiều tầng, nhiều căn hộ, dứt khoát xử lý nghiêm các trường hợp vi phạm.
-- Bộ trưởng Bộ Y tế Đào Hồng Lan cho hay các đơn vị đang rà soát, tháo gỡ vướng mắc liên quan đến hai bệnh viện Bạch Mai và Việt Đức cơ sở 2, sau 10 năm khởi công tại tỉnh Hà Nam.
-- Đây là chuyến thăm cấp nhà nước thứ hai của Tổng thống Putin đến Việt Nam, nhưng là lần thứ năm ông đặt chân đến đây trên cương vị nguyên thủ quốc gia.
-- Bộ trưởng Hồ Đức Phớc cho biết hiện một số nước đã bỏ quy định không đánh thuế VAT với hàng giá trị nhỏ. Nhưng ông chưa nêu quan điểm nên hay bỏ quy định này.
-- Bộ trưởng Bộ Y tế Đào Hồng Lan cho hay ngay khi nhận được thông tin báo cáo về tình hình tại Viện Pháp y tâm thần Biên Hòa, Bộ Y tế có chỉ đạo và họp bàn tìm cách tháo gỡ, đảm bảo hoạt động của viện.
-- Theo lãnh đạo Bộ Nông nghiệp và Phát triển nông thôn, thời gian gần đây dịch bệnh gia súc, gia cầm xảy ra ở nhiều tỉnh, diễn biến phức tạp và một trong những nguyên nhân chính là do buôn lậu gia súc gia cầm.
-- UBND tỉnh Khánh Hòa có quyết định đầu tư gần 167 tỉ đồng để thực hiện dự án tu bổ, tôn tạo di tích thành cổ Diên Khánh (huyện Diên Khánh).
-- Tại trường tổ chức bếp ăn tập thể cho gần 400 người, gồm học sinh (học sinh nhiều nơi ở tại trường ôn thi) và giáo viên, lao động nhà trường.
-- Ủy ban Tài chính - Ngân sách của Quốc hội đề nghị tham khảo mở rộng nguồn thu thuế với hàng nhập khẩu qua các sàn Shopee, Lazada, Tiki, TikTok…
-- Ông Lưu Xuân Vĩnh để xảy ra nhiều vi phạm trong việc cho thuê đất thực hiện các dự án điện gió, điện năng lượng mặt trời.
+- Bộ trưởng Bộ Công an - thượng tướng Lương Tam Quang đã trình Quốc hội dự thảo Luật Phòng cháy, chữa cháy và cứu nạn, cứu hộ với nhiều quy định mới.
+- Tại các đô thị lớn hiện nay như Hà Nội, TP.HCM, không khó để bắt gặp cảnh đậu xe bừa từ lề đường, vỉa hè đường lớn đến chui vào các con hẻm, khiến giao thông thêm áp lực.
+- Hôm qua (18-6), Quốc hội thảo luận ở hội trường về dự thảo Luật Công đoàn sửa đổi. Dự Luật quy định kinh phí Công đoàn do cơ quan, tổ chức, doanh nghiệp đóng bằng 2% quỹ tiền lương làm căn cứ đóng bảo hiểm xã hội cho người lao động.
+- Hiện một nhánh hầm chui đã nhìn rõ từ bên nay qua bên kia, dự kiến thông xe kỹ thuật vào cuối tháng 8 tới.
+- Chiều 18-6, dự thảo Luật sửa đổi, bổ sung một số điều của Luật Dược được đưa ra bàn thảo tại kỳ họp thứ 7 Quốc hội khóa XV với nhiều điểm mới đáng chú ý.
+- Đề xuất chi tới 50 triệu đồng mua tin phòng chống tham nhũng; TP.HCM muốn mở rộng phạm vi cho xe điện du lịch 4 bánh...
+- Chuyên cơ của Tổng thống Putin dự kiến đến Hà Nội hôm nay 19-6, đưa ông trở lại Việt Nam sau gần 7 năm trong khuôn khổ một chuyến thăm cấp nhà nước.
+- Hôm nay 19-6, nắng nóng gay gắt diễn ra khắp nơi ở Bắc Bộ và Trung Bộ, thời tiết khô hanh. Nam Bộ tối nhiều nơi mưa rào.
+- Giám đốc Công an TP Hà Nội nhấn mạnh chuyến thăm Việt Nam của Tổng thống Nga Putin là sự kiện có ý nghĩa đặc biệt quan trọng, cần đảm bảo tuyệt đối an ninh, an toàn cho đoàn.
+- Lực lượng chức năng cũng yêu cầu người tham gia giao thông chấp hành nghiêm Luật Giao thông đường bộ; khi gặp các xe được quyền ưu tiên thì cần chấp hành theo hướng dẫn phân luồng của lực lượng chức năng và nhanh chóng nhường đường.
+- Chính quyền phường Hàng Bông đã lập biên bản vi phạm hành chính đối với ông P.N.H.. Người phụ nữ trong đoạn clip là khách của quán ông H., và ông này cũng là người kéo cô gái ra khỏi khu vực đường ray tàu hỏa.
+- Mây dông đang phát triển mạnh tại TP.HCM, dự báo đêm nay một vài quận huyện có mưa to.
+- Ngày 18-6, Phó thủ tướng Trần Lưu Quang ký quyết định số 528/QĐ-TTg của Thủ tướng Chính phủ về việc thi hành kỷ luật đối với ông Vũ Chí Giang, phó chủ tịch UBND tỉnh Vĩnh Phúc.
+- Người đi trên quốc lộ 1 nối TP.HCM - Bình Dương tá hỏa khi thấy ô tô bốc cháy, lửa khói cuồn cuộn.
+- Với đề xuất cấm xuất khẩu di vật, cổ vật để tránh mất di sản ra nước ngoài, nhiều đại biểu Quốc hội cho rằng là cần thiết trong bối cảnh nhiều cổ vật bị đấu giá, kinh doanh ở nước ngoài.
+- Chủ tịch Quốc hội Trần Thanh Mẫn đề nghị cần kiểm soát chặt chẽ quảng cáo thuốc, không để nội dung quảng cáo sai lệch, người dân tiền mất tật mang do sử dụng thuốc theo quảng cáo.
+- Ông Nguyễn Văn Thành, giám đốc Sở Khoa học và Công nghệ tỉnh Quảng Ngãi, bị tố cáo và hai kết luận tố cáo xác định có nhiều vi phạm nhưng vẫn được đề nghị đánh giá hoàn thành tốt nhiệm vụ.
+- Đại sứ Việt Nam tại Nga Đặng Minh Khôi nhận định việc Tổng thống Putin thăm cấp nhà nước thể hiện sự coi trọng của Nga, đồng thời cho thấy Việt Nam độc lập và tự chủ trong đối ngoại.
+- Biết vợ chồng nạn nhân muốn có con nối dõi nên Dung đã đưa thông tin gian dối có khả năng tìm người cho trứng, mang thai hộ để lừa đảo lấy tiền.
+- Thủ tướng vừa có tờ trình Chủ tịch nước tặng quà cho người có công với cách mạng dịp 27-7, tổng kinh phí gần 420 tỉ đồng.
+- Tại dự thảo Luật Dược sửa đổi, Chính phủ đề xuất không được kinh doanh dược trên mạng xã hội và các hình thức kinh doanh điện tử khác.
+- Những ngày này, việc bàn giao mặt bằng cho tuyến metro số 2 (Bến Thành - Tham Lương) trên đường Cách mạng tháng 8 đang gấp rút để kịp hoàn thành khâu này trong tháng 6.
+- Lãnh đạo TP.HCM yêu cầu việc thiết kế kiến trúc sân khấu phục vụ biểu diễn của nhà hát nhạc giao hưởng, nhạc và vũ kịch phải đáp ứng các yêu cầu của sân khấu hiện đại bậc nhất trên thế giới.
+- Chưa đầy 2 tuần sau khi Công an TP.HCM kết luận điều tra, viện kiểm sát cùng cấp đã hoàn tất cáo trạng truy tố cô gái bắt cóc hai bé ở phố đi bộ Nguyễn Huệ để quay clip khiêu dâm.
+- Cầu Vàm Cái Cát tại xã An Điền, huyện Thạnh Phú, tỉnh Bến Tre do báo Tuổi Trẻ vận động, Ngân hàng Nông nghiệp và Phát triển nông thôn Việt Nam đóng góp 300 triệu đồng đã được khánh thành và đưa vào sử dụng vào ngày 18-6.
+- Ông Huỳnh Thanh Phương - chủ tịch Hội Nông dân phường Phước Tân, TP Biên Hòa - bị kẻ lạ dọa giết.
+- Ông Nguyễn Thanh Tùng, tổng giám đốc Công ty cổ phần Thương mại xuất nhập khẩu dầu khí Thái Bình Dương, bị khởi tố, bắt tạm giam vì vi phạm quy định về kế toán gây hậu quả nghiêm trọng.
+- Chủ tịch Tổng liên đoàn Lao động Việt Nam Nguyễn Đình Khang cho hay tài chính công đoàn được Kiểm toán Nhà nước định kỳ kiểm toán 2 năm/lần và báo cáo Quốc hội.
+- Một người đàn ông ở tỉnh Quảng Ninh đã bị truy nã về tội giết người, bỏ trốn lên huyện miền núi Nam Giang, Quảng Nam sau 33 năm thì bị bắt giữ.
+- Trung tâm Quản lý điều hành giao thông đô thị TP.HCM cho biết sắp tiến hành cải tạo, mở rộng đường Võ Văn Kiệt (từ nút giao Tân Kiên về đường hầm sông Sài Gòn).
 ![New](News.png)
 ## Nhịp sống số 
+- Họp trực tuyến ngày càng phổ biến vì đáp ứng nhu cầu công việc tức thời, tối ưu thời gian và chi phí.
+- Công ty Ricoh Imaging của Nhật Bản thông báo sẽ cho ra mắt một máy ảnh phim Pentax mới lần đầu tiên sau hai thập kỷ
 - Một trong những vấn đề nghiêm trọng nhất trong lừa đảo thanh toán là ngoài các kịch bản tấn công lừa đảo đa dạng và phong phú, kỹ thuật công nghệ cũng càng tinh vi.
 - Theo các chuyên gia quốc tế, 46% nội dung độc hại trên các trang web vi phạm bản quyền là lừa đảo, nếu thẻ tín dụng được sử dụng để đăng ký thuê bao vi phạm bản quyền trực tuyến thì khả năng bị gian lận thẻ cao gấp 4 lần.
 - Người dùng có thể sử dụng công cụ ChatGPT trên các thiết bị iPhone, iPad, Macbook để tạo nội dung văn bản và hình ảnh mà không cần tải ứng dụng riêng.
@@ -93,6 +95,4 @@
 - Để các đối tác nhà hàng, quán ăn được tiếp sức trên chặng đường đầy cạnh tranh, Gojek tiếp tục xây dựng kế hoạch hỗ trợ trong năm 2024.
 - Kết hợp lợi ích của public cloud và các máy chủ vật lý trong một mô hình Hybrid tăng mức độ linh hoạt, khả năng mở rộng và hiệu quả chi phí tối ưu.
 - Galaxy AI trên S24 chưa kịp ngưng sốt thì mới đây, người dùng có cơ hội trải nghiệm những tính năng thông minh trên dòng Galaxy Tab S9.
-- Việc đầu tư khoảng 1 tỉ USD để đào tạo 50.000 kỹ sư bán dẫn sẽ gián tiếp tạo nguồn thu 15 - 16 tỉ USD cho nền kinh tế.
-- Đại diện Cục Bản quyền tác giả nói môi trường số là môi trường xuyên biên giới, nên nạn đánh cắp bản quyền càng nghiêm trọng, khó giải quyết.
 ![life](Life.png)
