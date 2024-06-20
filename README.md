@@ -1,8 +1,20 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
-- "Mưa" điểm 10 xuất hiện ở môn ngoại ngữ. Không có thí sinh nào đạt điểm thi 10 môn ngữ văn.
-- Sáng sớm 19-6, Sở Giáo dục và đào tạo TP.HCM công bố điểm thi lớp 10 năm 2024. Thí sinh có thể tra cứu tại https://tuoitre.vn/diem-thi.htm
+- Ngày 19-6, Sở Giáo dục và Đào tạo TP.HCM công bố điểm tuyển sinh lớp 10. Tuổi Trẻ ghi nhận những phân tích, dự đoán của giáo viên về điểm chuẩn vào các trường THPT công lập năm học 2024 - 2025.
+- Trường đại học Công nghiệp Hà Nội, Trường đại học Xây dựng Hà Nội, Học viện Công nghệ bưu chính viễn thông... vừa công bố điểm chuẩn xét học bạ, có ngành điểm chuẩn cao nhất 28,97 điểm.
+- Thủ tướng Chính phủ vừa ký quyết định bổ nhiệm ông Trần Cao Vinh, chủ tịch hội đồng trường Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM), giữ chức phó giám đốc Đại học Quốc gia TP.HCM.
+- Ủy ban Kiểm tra Tỉnh ủy Thanh Hóa sẽ vào cuộc tiến hành kiểm tra khi có dấu hiệu vi phạm đối với tổ chức đảng, đảng viên liên quan đến công tác tuyển sinh vào Trường phổ thông Dân tộc nội trú THCS Mường Lát.
+- Trường đại học Y khoa Phạm Ngọc Thạch, TP.HCM vừa bổ sung đề án tuyển sinh đại học 2024, với việc mở thêm ngành y học cổ truyền.
+- 55.264/98.464 thí sinh có điểm môn toán thi lớp 10 tại TP.HCM dưới 5 điểm. Như vậy, hơn 56% thí sinh có điểm toán dưới trung bình.
+- Nhận được phản ánh bị lừa đảo của học viên đang theo học đào tạo nhân viên hàng không tại Skyteam, phóng viên Tuổi Trẻ vào cuộc. Nhiều thông tin dần hé lộ.
+- 'Ước mơ từ nhỏ của em là trở thành bác sĩ. Em mong muốn chữa bệnh giúp đời', thủ khoa thi vào lớp 10 TP.HCM năm nay chia sẻ.
+- Trường đại học Sư phạm (Đại học Huế) hơn một năm nay không có hiệu trưởng và hiệu phó, mà chỉ có quyền hiệu trưởng.
+- Kỳ thi vào lớp 10 năm nay tại TP.HCM ghi nhận một thí sinh có điểm thi cao nhất là 28,75 và ba thí sinh khác được 28,5 điểm.
+- Sở Giáo dục và Đào tạo TP.HCM vừa công bố phổ điểm các môn thi tuyển sinh lớp 10 năm 2024.
+- Trong số hơn 98.000 thí sinh dự thi lớp 10 tại TP.HCM, chỉ có 49 thí sinh đạt điểm 10 môn toán. Năm trước có 121 thí sinh.
+- Hơn 1.700 thí sinh được điểm 10 môn ngoại ngữ. Không có thí sinh nào đạt điểm thi 10 môn ngữ văn.
+- Sáng sớm 19-6, Sở Giáo dục và Đào tạo TP.HCM công bố điểm thi lớp 10 năm 2024. Thí sinh có thể tra cứu tại https://tuoitre.vn/diem-thi.htm
 - TP.HCM sẽ công bố điểm thi tuyển sinh lớp 10 năm 2024 vào lúc 9h sáng 19-6, sớm hơn dự kiến. Thí sinh có thể tra cứu nhanh tại https://tuoitre.vn/diem-thi.htm
 - Tối 18-6, Sở Giáo dục và Đào tạo TP Đà Nẵng công bố điểm chuẩn thi vào lớp 10. Năm nay Trường THPT Phan Châu Trinh có điểm chuẩn lớp 10 cao nhất với 58,38 điểm.
 - Theo tin từ hội đồng chấm thi tuyển sinh lớp 10 năm 2024 ở TP.HCM, phổ điểm môn toán năm nay khá đẹp.
@@ -19,52 +31,11 @@
 - Cho thí sinh khác chép bài hoặc chép bài của thí sinh khác bị trừ 50% điểm bài môn thi đó trong kỳ thi tốt nghiệp THPT.
 - Dự kiến điểm thi vào lớp 10 và điểm chuẩn các trường THPT công lập ở Đà Nẵng, Trường THTP chuyên Lê Quý Đôn sẽ công bố lúc 19h ngày 18-6.
 - Ngày hội tư vấn xét tuyển diễn ra tại Hà Nội và TP.HCM với sự tham gia của hàng trăm trường đại học, cao đẳng, đơn vị giáo dục trong và ngoài nước.
-- Nữ sinh đi thi lớp 10 mất tích nhiều ngày ở TP Châu Đốc, tỉnh An Giang được cơ quan chức năng tìm thấy ở Đồng Nai và giao cho gia đình.
-- TS Võ Nguyễn Đại Việt, người ở vị trí thứ 17 trong số 47 người Việt vào “top nhà khoa học ảnh hưởng nhất thế giới”, là tác giả của bài báo vừa bị một tạp chí quốc tế gỡ bỏ. Ông giải thích thế nào khi công bố 3 ngày 1 bài báo khoa học?
-- Những ngày qua xuất hiện một số trang thông tin, nhóm Zalo và email mạo danh các đơn vị của Bộ Giáo dục và Đào tạo để cung cấp thông tin, trong đó đăng tải nhiều hình ảnh, bài viết có nội dung lừa đảo chiếm đoạt tài sản.
-- Dưới ánh đèn sân khấu của SIU Piano Competition, từng nốt nhạc vang lên thể hiện tài năng và niềm đam mê của các thí sinh.
-- Kỳ thi sắp tới, thầy mong các em 'hãy vượt qua trùng vi thạch trận như ông lái đò, hãy cắt sợi dây trói buộc số phận mà tự cứu mình như Mị'.
-- Dự hội nghị khoa học tại TP Quy Nhơn, hai giáo sư nổi tiếng Jean-François Joanny và Detlef Lohse gửi gắm đến các bạn trẻ mê nghiên cứu: hãy tò mò về những hiện tượng tự nhiên, tìm hiểu về chúng và đặt câu hỏi tại sao.
-- Sở Nội vụ Hà Nội ngày 14-6 cho biết thông tin phản ánh '63 giáo viên Hà Nội tố bị bùng tiền hỗ trợ đào tạo học thạc sĩ' là không chính xác.
-- Có 8 chương trình đào tạo chuẩn cùng có điểm chuẩn xét học bạ 29,9, gồm kiểm toán, ngân hàng, ngân hàng số, tài chính, công nghệ tài chính, kinh doanh quốc tế, logistics và quản lý chuỗi cung ứng, luật kinh tế.
-- Chiều 15-6, Trường đại học Thương mại chính thức công bố điểm chuẩn bốn phương thức xét tuyển sớm năm nay.
-- Ngoài việc bị phản ánh thu nhiều khoản tiền vô lý, một số học sinh đang lan truyền câu chuyện trường thu cả ‘tiền chống trượt’ tốt nghiệp THPT. Hiệu trưởng đã trả lời về việc này.
-- Chiều 15-6, Phòng Giáo dục và Đào tạo TP Thủ Đức đã công bố đề khảo sát vào lớp 6 năm học 2024-2025.
-- Số liệu được Tổng lãnh sự quán Malaysia tại TP.HCM công bố tại Ngày hội du học Malaysia ngày 15-6.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Bộ trưởng Bộ Công an - thượng tướng Lương Tam Quang đã trình Quốc hội dự thảo Luật Phòng cháy, chữa cháy và cứu nạn, cứu hộ với nhiều quy định mới.
-- Tại các đô thị lớn hiện nay như Hà Nội, TP.HCM, không khó để bắt gặp cảnh đậu xe bừa từ lề đường, vỉa hè đường lớn đến chui vào các con hẻm, khiến giao thông thêm áp lực.
-- Hôm qua (18-6), Quốc hội thảo luận ở hội trường về dự thảo Luật Công đoàn sửa đổi. Dự Luật quy định kinh phí Công đoàn do cơ quan, tổ chức, doanh nghiệp đóng bằng 2% quỹ tiền lương làm căn cứ đóng bảo hiểm xã hội cho người lao động.
-- Hiện một nhánh hầm chui đã nhìn rõ từ bên nay qua bên kia, dự kiến thông xe kỹ thuật vào cuối tháng 8 tới.
-- Chiều 18-6, dự thảo Luật sửa đổi, bổ sung một số điều của Luật Dược được đưa ra bàn thảo tại kỳ họp thứ 7 Quốc hội khóa XV với nhiều điểm mới đáng chú ý.
-- Đề xuất chi tới 50 triệu đồng mua tin phòng chống tham nhũng; TP.HCM muốn mở rộng phạm vi cho xe điện du lịch 4 bánh...
-- Chuyên cơ của Tổng thống Putin dự kiến đến Hà Nội hôm nay 19-6, đưa ông trở lại Việt Nam sau gần 7 năm trong khuôn khổ một chuyến thăm cấp nhà nước.
-- Hôm nay 19-6, nắng nóng gay gắt diễn ra khắp nơi ở Bắc Bộ và Trung Bộ, thời tiết khô hanh. Nam Bộ tối nhiều nơi mưa rào.
-- Giám đốc Công an TP Hà Nội nhấn mạnh chuyến thăm Việt Nam của Tổng thống Nga Putin là sự kiện có ý nghĩa đặc biệt quan trọng, cần đảm bảo tuyệt đối an ninh, an toàn cho đoàn.
-- Lực lượng chức năng cũng yêu cầu người tham gia giao thông chấp hành nghiêm Luật Giao thông đường bộ; khi gặp các xe được quyền ưu tiên thì cần chấp hành theo hướng dẫn phân luồng của lực lượng chức năng và nhanh chóng nhường đường.
-- Chính quyền phường Hàng Bông đã lập biên bản vi phạm hành chính đối với ông P.N.H.. Người phụ nữ trong đoạn clip là khách của quán ông H., và ông này cũng là người kéo cô gái ra khỏi khu vực đường ray tàu hỏa.
-- Mây dông đang phát triển mạnh tại TP.HCM, dự báo đêm nay một vài quận huyện có mưa to.
-- Ngày 18-6, Phó thủ tướng Trần Lưu Quang ký quyết định số 528/QĐ-TTg của Thủ tướng Chính phủ về việc thi hành kỷ luật đối với ông Vũ Chí Giang, phó chủ tịch UBND tỉnh Vĩnh Phúc.
-- Người đi trên quốc lộ 1 nối TP.HCM - Bình Dương tá hỏa khi thấy ô tô bốc cháy, lửa khói cuồn cuộn.
-- Với đề xuất cấm xuất khẩu di vật, cổ vật để tránh mất di sản ra nước ngoài, nhiều đại biểu Quốc hội cho rằng là cần thiết trong bối cảnh nhiều cổ vật bị đấu giá, kinh doanh ở nước ngoài.
-- Chủ tịch Quốc hội Trần Thanh Mẫn đề nghị cần kiểm soát chặt chẽ quảng cáo thuốc, không để nội dung quảng cáo sai lệch, người dân tiền mất tật mang do sử dụng thuốc theo quảng cáo.
-- Ông Nguyễn Văn Thành, giám đốc Sở Khoa học và Công nghệ tỉnh Quảng Ngãi, bị tố cáo và hai kết luận tố cáo xác định có nhiều vi phạm nhưng vẫn được đề nghị đánh giá hoàn thành tốt nhiệm vụ.
-- Đại sứ Việt Nam tại Nga Đặng Minh Khôi nhận định việc Tổng thống Putin thăm cấp nhà nước thể hiện sự coi trọng của Nga, đồng thời cho thấy Việt Nam độc lập và tự chủ trong đối ngoại.
-- Biết vợ chồng nạn nhân muốn có con nối dõi nên Dung đã đưa thông tin gian dối có khả năng tìm người cho trứng, mang thai hộ để lừa đảo lấy tiền.
-- Thủ tướng vừa có tờ trình Chủ tịch nước tặng quà cho người có công với cách mạng dịp 27-7, tổng kinh phí gần 420 tỉ đồng.
-- Tại dự thảo Luật Dược sửa đổi, Chính phủ đề xuất không được kinh doanh dược trên mạng xã hội và các hình thức kinh doanh điện tử khác.
-- Những ngày này, việc bàn giao mặt bằng cho tuyến metro số 2 (Bến Thành - Tham Lương) trên đường Cách mạng tháng 8 đang gấp rút để kịp hoàn thành khâu này trong tháng 6.
-- Lãnh đạo TP.HCM yêu cầu việc thiết kế kiến trúc sân khấu phục vụ biểu diễn của nhà hát nhạc giao hưởng, nhạc và vũ kịch phải đáp ứng các yêu cầu của sân khấu hiện đại bậc nhất trên thế giới.
-- Chưa đầy 2 tuần sau khi Công an TP.HCM kết luận điều tra, viện kiểm sát cùng cấp đã hoàn tất cáo trạng truy tố cô gái bắt cóc hai bé ở phố đi bộ Nguyễn Huệ để quay clip khiêu dâm.
-- Cầu Vàm Cái Cát tại xã An Điền, huyện Thạnh Phú, tỉnh Bến Tre do báo Tuổi Trẻ vận động, Ngân hàng Nông nghiệp và Phát triển nông thôn Việt Nam đóng góp 300 triệu đồng đã được khánh thành và đưa vào sử dụng vào ngày 18-6.
-- Ông Huỳnh Thanh Phương - chủ tịch Hội Nông dân phường Phước Tân, TP Biên Hòa - bị kẻ lạ dọa giết.
-- Ông Nguyễn Thanh Tùng, tổng giám đốc Công ty cổ phần Thương mại xuất nhập khẩu dầu khí Thái Bình Dương, bị khởi tố, bắt tạm giam vì vi phạm quy định về kế toán gây hậu quả nghiêm trọng.
-- Chủ tịch Tổng liên đoàn Lao động Việt Nam Nguyễn Đình Khang cho hay tài chính công đoàn được Kiểm toán Nhà nước định kỳ kiểm toán 2 năm/lần và báo cáo Quốc hội.
-- Một người đàn ông ở tỉnh Quảng Ninh đã bị truy nã về tội giết người, bỏ trốn lên huyện miền núi Nam Giang, Quảng Nam sau 33 năm thì bị bắt giữ.
-- Trung tâm Quản lý điều hành giao thông đô thị TP.HCM cho biết sắp tiến hành cải tạo, mở rộng đường Võ Văn Kiệt (từ nút giao Tân Kiên về đường hầm sông Sài Gòn).
 ![New](News.png)
 ## Nhịp sống số 
+- Vừa qua, Motorola Solutions đã khai trương trung tâm R&amp;D tại TP.HCM, với mục tiêu thúc đẩy nghiên cứu và phát triển phần mềm, phân tích dữ liệu và công nghệ trí tuệ nhân tạo (AI).
 - Họp trực tuyến ngày càng phổ biến vì đáp ứng nhu cầu công việc tức thời, tối ưu thời gian và chi phí.
 - Công ty Ricoh Imaging của Nhật Bản thông báo sẽ cho ra mắt một máy ảnh phim Pentax mới lần đầu tiên sau hai thập kỷ
 - Một trong những vấn đề nghiêm trọng nhất trong lừa đảo thanh toán là ngoài các kịch bản tấn công lừa đảo đa dạng và phong phú, kỹ thuật công nghệ cũng càng tinh vi.
@@ -94,5 +65,4 @@
 - Galaxy Z Fold là một biểu tượng của Samsung trong công nghệ mới, khi có khả năng gập đôi và màn hình rộng gần 8 inch.
 - Để các đối tác nhà hàng, quán ăn được tiếp sức trên chặng đường đầy cạnh tranh, Gojek tiếp tục xây dựng kế hoạch hỗ trợ trong năm 2024.
 - Kết hợp lợi ích của public cloud và các máy chủ vật lý trong một mô hình Hybrid tăng mức độ linh hoạt, khả năng mở rộng và hiệu quả chi phí tối ưu.
-- Galaxy AI trên S24 chưa kịp ngưng sốt thì mới đây, người dùng có cơ hội trải nghiệm những tính năng thông minh trên dòng Galaxy Tab S9.
 ![life](Life.png)
