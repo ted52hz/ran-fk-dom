@@ -1,6 +1,13 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Các thiết bị gian lận thi cử ngày càng tinh vi, khó phát hiện, tin đồn lan trên mạng... khiến các đơn vị, địa phương lo lắng khi kỳ thi tốt nghiệp tới gần.
+- Tối 20-6, Viện Đại học Sydney Việt Nam chính thức ra mắt tại Hà Nội, đây là viện nghiên cứu tập hợp gần 100 nhà khoa học trong và ngoài nước thực hiện các nghiên cứu đa lĩnh vực, hướng tới cải thiện đời sống người dân Việt Nam.
+- 'Con tôi bị bọn buôn người dụ dỗ, bảo sẽ giới thiệu vào làm công việc văn phòng, lương cao tại Tây Ninh nhưng sau đó lừa đưa qua Thái Lan'.
+- Đại học Kinh tế TP.HCM vừa công bố điểm chuẩn 3 phương thức xét tuyển sớm đại học chính quy năm 2024 với mặt bằng điểm tăng mạnh.
+- Điểm cao nhất của cả 6 đợt thi đánh giá tư duy Đại học Bách khoa Hà Nội năm 2024 là 96,43 điểm, điểm trung bình là 53,1 điểm.
+- Ngày 20-6, Bộ Giáo dục và Đào tạo tổ chức hội nghị triển khai kỳ thi tốt nghiệp THPT 2024. Đây là năm cuối cùng tổ chức thi theo chương trình cũ.
+- Nhìn bài hoặc trao đổi bài với thí sinh khác sẽ bị trừ 25% số điểm bài thi. Cho thí sinh khác chép bài hoặc chép bài của thí sinh khác bị trừ 50% điểm...
 - Ngày 19-6, Sở Giáo dục và Đào tạo TP.HCM công bố điểm tuyển sinh lớp 10. Tuổi Trẻ ghi nhận những phân tích, dự đoán của giáo viên về điểm chuẩn vào các trường THPT công lập năm học 2024 - 2025.
 - Trường đại học Công nghiệp Hà Nội, Trường đại học Xây dựng Hà Nội, Học viện Công nghệ bưu chính viễn thông... vừa công bố điểm chuẩn xét học bạ, có ngành điểm chuẩn cao nhất 28,97 điểm.
 - Thủ tướng Chính phủ vừa ký quyết định bổ nhiệm ông Trần Cao Vinh, chủ tịch hội đồng trường Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM), giữ chức phó giám đốc Đại học Quốc gia TP.HCM.
@@ -9,7 +16,7 @@
 - 55.264/98.464 thí sinh có điểm môn toán thi lớp 10 tại TP.HCM dưới 5 điểm. Như vậy, hơn 56% thí sinh có điểm toán dưới trung bình.
 - Nhận được phản ánh bị lừa đảo của học viên đang theo học đào tạo nhân viên hàng không tại Skyteam, phóng viên Tuổi Trẻ vào cuộc. Nhiều thông tin dần hé lộ.
 - 'Ước mơ từ nhỏ của em là trở thành bác sĩ. Em mong muốn chữa bệnh giúp đời', thủ khoa thi vào lớp 10 TP.HCM năm nay chia sẻ.
-- Trường đại học Sư phạm (Đại học Huế) hơn một năm nay không có hiệu trưởng và hiệu phó, mà chỉ có quyền hiệu trưởng.
+- Trường đại học Sư phạm (Đại học Huế) hơn một năm nay không có hiệu trưởng và hiệu phó, mà chỉ có phó hiệu trưởng phụ trách.
 - Kỳ thi vào lớp 10 năm nay tại TP.HCM ghi nhận một thí sinh có điểm thi cao nhất là 28,75 và ba thí sinh khác được 28,5 điểm.
 - Sở Giáo dục và Đào tạo TP.HCM vừa công bố phổ điểm các môn thi tuyển sinh lớp 10 năm 2024.
 - Trong số hơn 98.000 thí sinh dự thi lớp 10 tại TP.HCM, chỉ có 49 thí sinh đạt điểm 10 môn toán. Năm trước có 121 thí sinh.
@@ -24,15 +31,39 @@
 - Sở Giáo dục và Đào tạo TP.HCM dự kiến công bố điểm thi lớp 10 vào sáng 20-6. Thí sinh có thể tra cứu nhanh tại https://tuoitre.vn/diem-thi.htm
 - Đêm cao nguyên buốt lạnh, mưa rơi lộp độp trên lá không cản được những bước chân già trẻ hướng về lớp học đặc biệt giữa rừng Đăk Sơmei, huyện Đăk Đoa, tỉnh Gia Lai.
 - Sau khi hiệu trưởng Trường cao đẳng Y tế Quảng Nam bị khởi tố, tỉnh này yêu cầu Sở Nội vụ phối hợp Ban Tổ chức Tỉnh ủy sớm tham mưu, xin ý kiến Ban Thường vụ Tỉnh ủy giao quyền hiệu trưởng để ký, cấp các văn bằng tốt nghiệp cho sinh viên.
-- Lực lượng chức năng sẽ tăng cường kiểm tra, xử lý nghiêm vi phạm trong hoạt động vận tải hành khách, trong đó có xe đưa đón học sinh.
-- Sáng sớm 17-6, nhiều phụ huynh có mặt từ 5h để mua hồ sơ xét tuyển vào lớp 1 Trường tiểu học Thực hành Đại học Sài Gòn (quận 3, TP.HCM).
-- Gua chấm điểm, các bài thi đáp ứng yêu cầu tuyển lựa thí sinh vào các lớp chuyên văn dù có sự cố đề thi trước đó.
-- Sở GD-ĐT yêu cầu các phòng GD-ĐT tiếp tục nhận hồ sơ hỗ trợ học phí cho học sinh tiểu học tư thục ở địa bàn không đủ trường tiểu học công lập.
-- Cho thí sinh khác chép bài hoặc chép bài của thí sinh khác bị trừ 50% điểm bài môn thi đó trong kỳ thi tốt nghiệp THPT.
-- Dự kiến điểm thi vào lớp 10 và điểm chuẩn các trường THPT công lập ở Đà Nẵng, Trường THTP chuyên Lê Quý Đôn sẽ công bố lúc 19h ngày 18-6.
-- Ngày hội tư vấn xét tuyển diễn ra tại Hà Nội và TP.HCM với sự tham gia của hàng trăm trường đại học, cao đẳng, đơn vị giáo dục trong và ngoài nước.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Tin tức đáng chú ý sáng 21-6: Năm 2025 cả nước giảm 12 huyện, 624 xã; Hoa hậu H'Hen Niê đồng hành phòng chống, nâng cao nhận thức về tội phạm mua bán người; TP.HCM có nguy cơ bùng dịch sởi...
+- Theo ghi nhận của Tuổi Trẻ, tình trạng mua bán thuốc qua mạng hiện nay đang diễn ra rầm rộ trên khắp nền tảng mạng xã hội như Facebook, Zalo...
+- Hôm nay 21-6, thời tiết Bắc Bộ đến Trung Bộ ngày nắng nóng, còn Nam Trung Bộ trở vào Nam Bộ có nơi mưa to đến rất to.
+- Người đàn ông gặp nạn dưới giếng sâu 30m đã được giải cứu thành công và chuyển đến bệnh viện điều trị.
+- Tối 20-6, Viện Đại học Sydney Việt Nam chính thức ra mắt tại Hà Nội, đây là viện nghiên cứu tập hợp gần 100 nhà khoa học trong và ngoài nước thực hiện các nghiên cứu đa lĩnh vực, hướng tới cải thiện đời sống người dân Việt Nam.
+- Bị bắt phải đóng quỹ đua thuyền mỗi hộ 100.000 đồng, nhiều hộ dân đã phản ứng. Tuy nhiên chính quyền nói năm sau sẽ… rút kinh nghiệm.
+- Ngày 20-6, nhiều cơ quan đã đến thăm, chúc mừng Văn phòng đại diện báo Tuổi Trẻ tại Hà Nội nhân kỷ niệm 99 năm Ngày Báo chí cách mạng Việt Nam (21-6-1925 - 21-6-2024).
+- Chủ tịch UBND tỉnh Bạc Liêu Phạm Văn Thiều cho biết cơ quan, đơn vị nào từ chối cung cấp thông tin cho báo chí thì phóng viên báo cáo về thường trực UBND tỉnh và cá nhân ông để "tôi xử lý ngay".
+- Sau hơn 9 tháng thi công, hạng mục đường cất hạ cánh thuộc dự án sân bay Long Thành giai đoạn 1 đã vượt tiến độ 2 tháng so với hợp đồng.
+- Mây ngũ sắc rực rỡ xuất hiện trên bầu trời Hà Nội đúng giờ tan tầm, người dân thích thú chụp ảnh chia sẻ lên mạng.
+- Cầu Ninh Cường vượt sông Ninh Cơ tại Nam Định sẽ được xây dựng với tổng mức đầu tư 581 tỉ đồng để thay thế cầu phao Ninh Cường hiện nay.
+- Đến thăm và thắp nén hương cho hai vợ chồng bị đâm chết trong vụ trọng án xảy ra tại xã Nghĩa Dõng, TP Quảng Ngãi, bí thư Tỉnh ủy Quảng Ngãi nói các cấp ngành sẽ luôn bên cạnh hai cháu bé sống sót sau vụ truy sát cả nhà.
+- Hội đồng nhân dân tỉnh Bình Thuận đã thông qua nghị quyết điều chỉnh chủ trương đầu tư dự án thoát nước phía hạ lưu đường ĐT.706B - cửa ra số 2&3, TP Phan Thiết để tránh tình trạng sạt lở cát đỏ như vừa qua.
+- Sau 8 năm triển khai, Bệnh viện Bình Dân đã giúp hàng nghìn người bệnh hẹp niệu đạo thoát cảnh mang túi chứa nước tiểu suốt đời. Đây là bệnh viện đầu tiên của cả nước triển khai kỹ thuật này.
+- Việc điều chuyển cảng An Thới về UBND tỉnh Kiên Giang quản lý sẽ tạo điều kiện cho địa phương chủ động phương án, có thể khắc phục được các tồn tại trong quá trình khai thác cảng An Thới trong thời gian qua.
+- Công ty TNHH MTV Công viên cây xanh TP.HCM cho biết làm vỉa hè, đường, trám xi măng... bịt bùng quanh gốc sẽ làm cây chết dân theo thời gian.
+- Sau gần 4 năm kể từ vụ ô tô tông xe máy rơi xuống sông làm 5 người chết ở Nghệ An, một cây cầu cứng sẽ được xây dựng với số vốn gần 240 tỉ đồng, để thay thế cầu treo hiện tại.
+- Chiều 20-6, trong khuôn khổ chuyến thăm cấp nhà nước Việt Nam, Tổng thống Putin đã có cuộc hội đàm với Tổng bí thư Nguyễn Phú Trọng.
+- Mặc dù nhà thế chấp nhưng tại sao việc ký kết đặt cọc lại ‘lọt’ qua được cửa công chứng?
+- Liên danh nhà thầu cam kết sẽ hoàn thành nhà máy xử lý nước thải đặt tại phường Thạnh Mỹ Lợi 
+ (TP Thủ Đức) trước 30-6-2025.
+- Loạt bài "Trăm ngàn lượt xe quá tốc độ và bất cập dữ liệu hành trình" đoạt giải nhất thể loại điều tra.
+- 'Con tôi bị bọn buôn người dụ dỗ, bảo sẽ giới thiệu vào làm công việc văn phòng, lương cao tại Tây Ninh nhưng sau đó lừa đưa qua Thái Lan'.
+- Bộ trưởng Bộ Nội vụ Phạm Thị Thanh Trà cho biết Bộ Chính trị đã thống nhất tăng lương cơ sở đồng đều cho tất cả cán bộ, công chức từ 1,8 triệu đồng lên 2.340.000 đồng từ ngày 1-7.
+- Việc trao đổi, chia sẻ giữa các tòa nhà, các tầng rất khó khăn, ảnh hưởng lớn đến nhiệm vụ cấp ủy chi bộ.
+- Chiều 20-6, tại trụ sở Chính phủ, Thủ tướng Phạm Minh Chính hội kiến Tổng thống Liên bang Nga Vladimir Putin thăm cấp Nhà nước tới Việt Nam.
+- Con đường cặp mé sông Ông Vẽ, huyện Cái Bè, tỉnh Tiền Giang vừa mới được đầu tư xây dựng, người dân chưa kịp vui mừng thì đã bị sạt lở xuống sông.
+- Từ 15h ngày 20-6, giá xăng dầu tiếp tục thay đổi, mỗi lít xăng RON95 lên 22.460 đồng/lít, tăng 230 đồng.
+- Ngay sau cuộc hội đàm trưa 20-6, Chủ tịch nước Tô Lâm và Tổng thống Putin đã chứng kiến lễ trao nhiều văn kiện hợp tác được ký kết nhân chuyến thăm.
+- Đáng chú ý đa số trẻ mắc bệnh này chưa đến độ tuổi tiêm chủng hoặc chưa tiêm vắc xin đầy đủ.
+- Gần 360ha cao su tươi tốt đang kỳ cho mủ mọc trên đất rừng phòng hộ tại Gia Lai không có ai nhận là chủ, nhưng vẫn khai thác thường xuyên.
 ![New](News.png)
 ## Nhịp sống số 
 - Vừa qua, Motorola Solutions đã khai trương trung tâm R&amp;D tại TP.HCM, với mục tiêu thúc đẩy nghiên cứu và phát triển phần mềm, phân tích dữ liệu và công nghệ trí tuệ nhân tạo (AI).
