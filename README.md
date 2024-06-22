@@ -1,6 +1,15 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- 'Đề thi các môn đều có sự phân hóa rõ rệt. Đây là cơ sở cần thiết đáp ứng cho yêu cầu của một kỳ thi tuyển sinh', theo Sở GD-ĐT TP.HCM.
+- Trường đại học Ngân hàng TP.HCM vừa công bố điểm chuẩn 2 phương thức xét tuyển sớm theo đề án tuyển sinh đại học năm 2024 của trường.
+- Trường đại học Luật TP.HCM vừa công bố điểm xét trúng tuyển đối với thí sinh được tuyển thẳng, xét tuyển sớm đại học chính quy năm 2024.
+- Đó là khẳng định của một trong những chuyên gia tham gia soạn thảo Luật Nhà giáo tại buổi Hội thảo góp ý Luật Nhà Giáo diễn ra tại TP.HCM ngày 21-6.
+- Sở Giáo dục và Đào tạo Khánh Hòa thông báo điểm chuẩn vào lớp 10 THPT công lập sẽ được công bố vào ngày 29-7, khiến phụ huynh, học sinh lo lắng vì chờ quá lâu.
+- Học sinh trúng tuyển vào lớp 10 một trường ở Đắk Lắk bị hủy kết quả do chậm nộp học phí, nhà trường nói làm đúng quy định.
+- Chủ tịch tỉnh Ninh Thuận yêu cầu khẩn trương xử lý triệt để, dứt điểm vụ hiệu trưởng chỉ đạo lạm thu, sai phạm hơn 800 triệu đồng.
+- Ban quản lý Khu công nghệ cao TP.HCM đề nghị Trường đại học FPT ngừng đào tạo đại học trong khu công nghệ cao, gỡ bỏ các thông tin liên quan phân hiệu.
+- Công an Đà Nẵng vừa triệt phá một đường dây sản xuất, buôn bán sách giáo khoa giả có quy mô đặc biệt lớn tại Đà Nẵng và TP.HCM.
 - Các thiết bị gian lận thi cử ngày càng tinh vi, khó phát hiện, tin đồn lan trên mạng... khiến các đơn vị, địa phương lo lắng khi kỳ thi tốt nghiệp tới gần.
 - Tối 20-6, Viện Đại học Sydney Việt Nam chính thức ra mắt tại Hà Nội, đây là viện nghiên cứu tập hợp gần 100 nhà khoa học trong và ngoài nước thực hiện các nghiên cứu đa lĩnh vực, hướng tới cải thiện đời sống người dân Việt Nam.
 - 'Con tôi bị bọn buôn người dụ dỗ, bảo sẽ giới thiệu vào làm công việc văn phòng, lương cao tại Tây Ninh nhưng sau đó lừa đưa qua Thái Lan'.
@@ -22,48 +31,38 @@
 - Trong số hơn 98.000 thí sinh dự thi lớp 10 tại TP.HCM, chỉ có 49 thí sinh đạt điểm 10 môn toán. Năm trước có 121 thí sinh.
 - Hơn 1.700 thí sinh được điểm 10 môn ngoại ngữ. Không có thí sinh nào đạt điểm thi 10 môn ngữ văn.
 - Sáng sớm 19-6, Sở Giáo dục và Đào tạo TP.HCM công bố điểm thi lớp 10 năm 2024. Thí sinh có thể tra cứu tại https://tuoitre.vn/diem-thi.htm
-- TP.HCM sẽ công bố điểm thi tuyển sinh lớp 10 năm 2024 vào lúc 9h sáng 19-6, sớm hơn dự kiến. Thí sinh có thể tra cứu nhanh tại https://tuoitre.vn/diem-thi.htm
-- Tối 18-6, Sở Giáo dục và Đào tạo TP Đà Nẵng công bố điểm chuẩn thi vào lớp 10. Năm nay Trường THPT Phan Châu Trinh có điểm chuẩn lớp 10 cao nhất với 58,38 điểm.
-- Theo tin từ hội đồng chấm thi tuyển sinh lớp 10 năm 2024 ở TP.HCM, phổ điểm môn toán năm nay khá đẹp.
-- Phụ huynh Trường tiểu học Hanh Thông (Gò Vấp, TP.HCM) phản ánh con họ phải mang những bình nước 5 lít đến trường trong suốt năm học, vì hệ thống lọc nước uống mà nhà trường lắp đặt có mùi.
-- Trường đại học Công nghệ TP.HCM (HUTECH) tổ chức Lễ khai giảng khóa đào tạo thạc sĩ, tiến sĩ đợt 1 - năm 2024 với đông đảo học viên và nghiên cứu sinh tham dự.
-- Lo ngại về thiết bị gian lận thi tốt nghiệp THPT được đặt ra trong buổi làm việc của Ban chỉ đạo thi Hà Nội với lãnh đạo Bộ Giáo dục và Đào tạo ngày 18-6.
-- Sở Giáo dục và Đào tạo TP.HCM dự kiến công bố điểm thi lớp 10 vào sáng 20-6. Thí sinh có thể tra cứu nhanh tại https://tuoitre.vn/diem-thi.htm
-- Đêm cao nguyên buốt lạnh, mưa rơi lộp độp trên lá không cản được những bước chân già trẻ hướng về lớp học đặc biệt giữa rừng Đăk Sơmei, huyện Đăk Đoa, tỉnh Gia Lai.
-- Sau khi hiệu trưởng Trường cao đẳng Y tế Quảng Nam bị khởi tố, tỉnh này yêu cầu Sở Nội vụ phối hợp Ban Tổ chức Tỉnh ủy sớm tham mưu, xin ý kiến Ban Thường vụ Tỉnh ủy giao quyền hiệu trưởng để ký, cấp các văn bằng tốt nghiệp cho sinh viên.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Tin tức đáng chú ý sáng 21-6: Năm 2025 cả nước giảm 12 huyện, 624 xã; Hoa hậu H'Hen Niê đồng hành phòng chống, nâng cao nhận thức về tội phạm mua bán người; TP.HCM có nguy cơ bùng dịch sởi...
-- Theo ghi nhận của Tuổi Trẻ, tình trạng mua bán thuốc qua mạng hiện nay đang diễn ra rầm rộ trên khắp nền tảng mạng xã hội như Facebook, Zalo...
-- Hôm nay 21-6, thời tiết Bắc Bộ đến Trung Bộ ngày nắng nóng, còn Nam Trung Bộ trở vào Nam Bộ có nơi mưa to đến rất to.
-- Người đàn ông gặp nạn dưới giếng sâu 30m đã được giải cứu thành công và chuyển đến bệnh viện điều trị.
-- Tối 20-6, Viện Đại học Sydney Việt Nam chính thức ra mắt tại Hà Nội, đây là viện nghiên cứu tập hợp gần 100 nhà khoa học trong và ngoài nước thực hiện các nghiên cứu đa lĩnh vực, hướng tới cải thiện đời sống người dân Việt Nam.
-- Bị bắt phải đóng quỹ đua thuyền mỗi hộ 100.000 đồng, nhiều hộ dân đã phản ứng. Tuy nhiên chính quyền nói năm sau sẽ… rút kinh nghiệm.
-- Ngày 20-6, nhiều cơ quan đã đến thăm, chúc mừng Văn phòng đại diện báo Tuổi Trẻ tại Hà Nội nhân kỷ niệm 99 năm Ngày Báo chí cách mạng Việt Nam (21-6-1925 - 21-6-2024).
-- Chủ tịch UBND tỉnh Bạc Liêu Phạm Văn Thiều cho biết cơ quan, đơn vị nào từ chối cung cấp thông tin cho báo chí thì phóng viên báo cáo về thường trực UBND tỉnh và cá nhân ông để "tôi xử lý ngay".
-- Sau hơn 9 tháng thi công, hạng mục đường cất hạ cánh thuộc dự án sân bay Long Thành giai đoạn 1 đã vượt tiến độ 2 tháng so với hợp đồng.
-- Mây ngũ sắc rực rỡ xuất hiện trên bầu trời Hà Nội đúng giờ tan tầm, người dân thích thú chụp ảnh chia sẻ lên mạng.
-- Cầu Ninh Cường vượt sông Ninh Cơ tại Nam Định sẽ được xây dựng với tổng mức đầu tư 581 tỉ đồng để thay thế cầu phao Ninh Cường hiện nay.
-- Đến thăm và thắp nén hương cho hai vợ chồng bị đâm chết trong vụ trọng án xảy ra tại xã Nghĩa Dõng, TP Quảng Ngãi, bí thư Tỉnh ủy Quảng Ngãi nói các cấp ngành sẽ luôn bên cạnh hai cháu bé sống sót sau vụ truy sát cả nhà.
-- Hội đồng nhân dân tỉnh Bình Thuận đã thông qua nghị quyết điều chỉnh chủ trương đầu tư dự án thoát nước phía hạ lưu đường ĐT.706B - cửa ra số 2&3, TP Phan Thiết để tránh tình trạng sạt lở cát đỏ như vừa qua.
-- Sau 8 năm triển khai, Bệnh viện Bình Dân đã giúp hàng nghìn người bệnh hẹp niệu đạo thoát cảnh mang túi chứa nước tiểu suốt đời. Đây là bệnh viện đầu tiên của cả nước triển khai kỹ thuật này.
-- Việc điều chuyển cảng An Thới về UBND tỉnh Kiên Giang quản lý sẽ tạo điều kiện cho địa phương chủ động phương án, có thể khắc phục được các tồn tại trong quá trình khai thác cảng An Thới trong thời gian qua.
-- Công ty TNHH MTV Công viên cây xanh TP.HCM cho biết làm vỉa hè, đường, trám xi măng... bịt bùng quanh gốc sẽ làm cây chết dân theo thời gian.
-- Sau gần 4 năm kể từ vụ ô tô tông xe máy rơi xuống sông làm 5 người chết ở Nghệ An, một cây cầu cứng sẽ được xây dựng với số vốn gần 240 tỉ đồng, để thay thế cầu treo hiện tại.
-- Chiều 20-6, trong khuôn khổ chuyến thăm cấp nhà nước Việt Nam, Tổng thống Putin đã có cuộc hội đàm với Tổng bí thư Nguyễn Phú Trọng.
-- Mặc dù nhà thế chấp nhưng tại sao việc ký kết đặt cọc lại ‘lọt’ qua được cửa công chứng?
-- Liên danh nhà thầu cam kết sẽ hoàn thành nhà máy xử lý nước thải đặt tại phường Thạnh Mỹ Lợi 
- (TP Thủ Đức) trước 30-6-2025.
-- Loạt bài "Trăm ngàn lượt xe quá tốc độ và bất cập dữ liệu hành trình" đoạt giải nhất thể loại điều tra.
-- 'Con tôi bị bọn buôn người dụ dỗ, bảo sẽ giới thiệu vào làm công việc văn phòng, lương cao tại Tây Ninh nhưng sau đó lừa đưa qua Thái Lan'.
-- Bộ trưởng Bộ Nội vụ Phạm Thị Thanh Trà cho biết Bộ Chính trị đã thống nhất tăng lương cơ sở đồng đều cho tất cả cán bộ, công chức từ 1,8 triệu đồng lên 2.340.000 đồng từ ngày 1-7.
-- Việc trao đổi, chia sẻ giữa các tòa nhà, các tầng rất khó khăn, ảnh hưởng lớn đến nhiệm vụ cấp ủy chi bộ.
-- Chiều 20-6, tại trụ sở Chính phủ, Thủ tướng Phạm Minh Chính hội kiến Tổng thống Liên bang Nga Vladimir Putin thăm cấp Nhà nước tới Việt Nam.
-- Con đường cặp mé sông Ông Vẽ, huyện Cái Bè, tỉnh Tiền Giang vừa mới được đầu tư xây dựng, người dân chưa kịp vui mừng thì đã bị sạt lở xuống sông.
-- Từ 15h ngày 20-6, giá xăng dầu tiếp tục thay đổi, mỗi lít xăng RON95 lên 22.460 đồng/lít, tăng 230 đồng.
-- Ngay sau cuộc hội đàm trưa 20-6, Chủ tịch nước Tô Lâm và Tổng thống Putin đã chứng kiến lễ trao nhiều văn kiện hợp tác được ký kết nhân chuyến thăm.
-- Đáng chú ý đa số trẻ mắc bệnh này chưa đến độ tuổi tiêm chủng hoặc chưa tiêm vắc xin đầy đủ.
-- Gần 360ha cao su tươi tốt đang kỳ cho mủ mọc trên đất rừng phòng hộ tại Gia Lai không có ai nhận là chủ, nhưng vẫn khai thác thường xuyên.
+- Bộ Chính trị đã thống nhất từ ngày 1-7 sẽ tăng tiền lương cơ sở từ 1,8 triệu đồng lên 2,34 triệu đồng (30%) cho tất cả cán bộ, công chức.
+- Một số tin tức đáng chú ý: Đề xuất thời gian làm việc trong năm học của giáo viên phổ thông là 42 tuần; Đông Nam Bộ còn 7 đợt triều cường; Tích hợp thông tin thẻ bảo hiểm y tế lên VNeID...
+- Hôm nay 22-6, thời tiết Bắc Bộ và Nam Bộ mưa to, chủ yếu vào đêm và sáng sớm, Trung Bộ ngày nắng.
+- Đó là nhận định của Bộ trưởng Bộ Ngoại giao Bùi Thanh Sơn, khi trả lời phỏng vấn sau chuyến thăm của Tổng thống Putin ngày 19 và 20-6 vừa qua.
+- Chủ tịch nước Tô Lâm gửi tới các thế hệ nhà báo những tình cảm thân thiết, lời thăm hỏi ân cần, lời chúc mừng tốt đẹp nhất của Tổng bí thư Nguyễn Phú Trọng nhân kỷ niệm 99 năm Ngày Báo chí cách mạng Việt Nam.
+- Do nhầm lẫn số hiệu hai chuyến bay có số hiệu gần giống nhau nên kiểm soát viên không lưu đã để hai máy bay vi phạm phân cách an toàn.
+- Theo Công ty Thủy điện Ialy, nguyên nhân ban đầu khiến cá chết do mưa lớn làm rửa trôi bùn đất và phù sa vùng bán ngập đổ xuống lòng hồ nơi đặt lồng nuôi cá.
+- Việc Vườn Quốc gia Cát Tiên đạt danh hiệu Danh lục Xanh là sự công nhận nỗ lực của đội ngũ tại đây trong công tác bảo tồn thiên nhiên và bảo tồn đa dạng sinh học.
+- Đường dây cá độ bóng đá dựa trên các giải trong, ngoài nước (kể cả Euro 2024) với trị giá giao dịch, cá cược khoảng 8 triệu USD/tháng.
+- Cơ quan chức năng của TP.HCM sẽ thường xuyên theo dõi, kiểm tra để có phương án tổ chức giao thông tối ưu cho khu vực thi công nút giao An Phú (TP Thủ Đức, TP.HCM).
+- Giải báo chí tỉnh Kiên Giang năm 2024, báo Tuổi Trẻ đoạt giải ba và giải khuyến khích.
+- Ban Thường vụ Tỉnh ủy Lâm Đồng đã điều động, chỉ định ông Trần Trung Hiếu làm bí thư Huyện ủy Đức Trọng.
+- Bộ Lao động - Thương binh và Xã hội đang lấy ý kiến cơ quan liên quan về tăng mức chuẩn trợ cấp xã hội từ 360.000 đồng/tháng lên 500.000 đồng/tháng.
+- Cơ quan chức năng đề nghị lập đoàn thanh tra liên ngành để thanh tra toàn diện dự án điện gió Tân Tấn Nhật - Đăk Glei tại tỉnh Kon Tum vì liên tiếp sai phạm.
+- Ban Chấp hành Trung ương Đảng đồng ý để ông Đinh Tiến Dũng thôi giữ chức vụ ủy viên Bộ Chính trị, ủy viên Ban Chấp hành Trung ương Đảng khóa XIII.
+- Bộ trưởng Bộ Tài nguyên và Môi trường Đặng Quốc Khánh cho hay các luật liên quan bất động sản với nhiều chính sách mới sẽ góp phần giải quyết những tồn đọng, vướng mắc trong phát triển kinh tế, xã hội lâu nay.
+- Đó là chia sẻ của ông Nguyễn Tấn Tuân - chủ tịch UBND tỉnh Khánh Hòa trong buổi thăm Văn phòng đại diện  báo Tuổi Trẻ khu vực Nam Trung Bộ - Tây Nguyên.
+- Dự báo khoảng ngày 23 đến 24-6, trên Biển Đông có khả năng hình thành vùng áp thấp và sau đó mạnh lên thành áp thấp nhiệt đới.
+- Một sản phụ suy đa tạng do vỡ tử cung, hoại tử ruột non khi mang thai ở tuần thứ 32 vừa được các bác sĩ tại ba bệnh viện ở TP.HCM phối hợp cứu sống.
+- Ngày 21-6, ông Đặng Vĩnh Sơn - trưởng Ban Quản lý khu kinh tế tỉnh Bình Định - cho biết đã ban hành quyết định chấm dứt hoạt động đối với dự án khu vui chơi giải trí đầm Thị Nại tại xã Nhơn Hội (TP Quy Nhơn).
+- Sau thời gian điều tra mở rộng, Công an tỉnh An Giang đã khởi tố, bắt tạm giam 3 người liên quan đến vụ đưa hơn nửa triệu USD qua Campuchia.
+- Bộ Y tế vừa tiếp nhận 65.000 lọ thuốc điều trị cho người nhiễm HIV, do Chính phủ Úc viện trợ thông qua hợp tác với Tổ chức Y tế thế giới.
+- Cà Mau vừa có quyết định thành lập khu bảo tồn biển rộng 27.000ha nhằm bảo vệ và bảo tồn nguồn lợi thủy sản, bảo vệ môi trường và các hệ sinh thái gắn với phát triển du lịch sinh thái bền vững.
+- Liên quan đến cá nhân hành nghề tư vấn định giá đất, Bộ Tài nguyên và Môi trường đề xuất quy định rõ các điều kiện của cơ sở đào tạo, bồi dưỡng nghiệp vụ về giá đất.
+- Vụ tai nạn liên hoàn trên quốc lộ 1 đoạn qua đèo Quán Cau (huyện Tuy An, tỉnh Phú Yên) khiến 3 ô tô hư hỏng, gây ùn ứ giao thông nhiều giờ.
+- Hàng chục tấn cá lăng đặc sản sắp thu hoạch của người dân nuôi trên hồ thủy điện Ialy (Kon Tum) bất ngờ chết hàng loạt.
+- Chuyến đi của Trợ lý ngoại trưởng Mỹ Daniel J. Kritenbrink đến Hà Nội hôm nay 21-6, mang theo các cam kết của Mỹ trong quan hệ với Việt Nam.
+- Đại tá Nguyễn Hồng Phong - 45 tuổi, giám đốc Công an tỉnh Hà Tĩnh - được điều động, bổ nhiệm làm giám đốc Công an tỉnh Đồng Nai.
+- Sáng 21-6, Viện kiểm sát nhân dân, Công an huyện Đắk Glong, tỉnh Đắk Nông tổ chức buổi xin lỗi công khai hai vợ chồng 8 năm bị khởi tố, 4 tháng bắt giam oan ức.
+- Trên website của chùa Ba Vàng ngày 21-6 thông báo khóa tu mùa hè (sau khóa 1) của chùa Ba Vàng năm nay sẽ tạm hoãn.
 ![New](News.png)
 ## Nhịp sống số 
 - Vừa qua, Motorola Solutions đã khai trương trung tâm R&amp;D tại TP.HCM, với mục tiêu thúc đẩy nghiên cứu và phát triển phần mềm, phân tích dữ liệu và công nghệ trí tuệ nhân tạo (AI).
