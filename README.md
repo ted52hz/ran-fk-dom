@@ -1,6 +1,16 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Hai tạp chí JABES và JSAMD thuộc hai đại học của Việt Nam vừa được xếp vào nhóm Q1 (25% tạp chí tốt nhất thế giới).
+- Sở Giáo dục và Đào tạo TP.HCM vừa cho biết 11h hôm nay 24-6, sở sẽ công bố điểm chuẩn vào lớp 10 chuyên và tích hợp năm 2024.
+- Vừa hỗ trợ học sinh luyện thi tốt nghiệp THPT ban đêm, lúc rảnh tay lại tranh thủ vào bếp đun nồi nước sôi lớn để úp mì tôm trứng. Mỗi đêm, các thầy cô đã "giải cứu" hàng trăm cái bụng đói của những sĩ tử vùng cao.
+- Sau mỗi chuyến đi và hoạt động, học sinh Royal School thêm trưởng thành, hòa mình vào thế giới đầy màu sắc, có những bài học và kỷ niệm đáng nhớ đầy hạnh phúc.
+- Nghỉ hưu, bà Nguyễn Thị Bạch Vân (quận 10, TP.HCM) vẫn miệt mài với con chữ trên giảng đường đại học. Bà vừa nhận tấm bằng thạc sĩ luật khi đã 66 tuổi.
+- Hội đồng tuyển sinh Trường đại học Cần Thơ vừa công bố kết quả xét tuyển sớm theo phương thức xét điểm học bạ THPT vào đại học chính quy năm 2024.
+- Chỉ còn 4 ngày nữa sẽ chính thức diễn ra kỳ thi tốt nghiệp THPT, nhiều trường phổ thông dân tộc nội trú, bán trú tại Lào Cai sáng đèn từ sáng đến đêm để phục vụ các sĩ tử ôn thi giai đoạn nước rút.
+- Đề xuất nhà giáo phải có chứng chỉ hành nghề đang tạo ra tranh luận của nhiều bạn đọc.
+- Sáng 23-6, hội đồng tuyển sinh lớp 6 Trường THCS Nguyễn Hữu Thọ, quận 7, TP.HCM đã công bố kết quả. Theo đó, điểm chuẩn trúng tuyển là 50,5 điểm.
+- 'Tôi đã mất những mùa hè để nghỉ ngơi hoặc cho những dự án khác, cũng có vài lần tính từ bỏ', nam sinh chia sẻ về hành trình chinh phục cùng lúc 3 ngành học.
 - Thủ tướng Chính phủ vừa có công điện về việc tổ chức kỳ thi tốt nghiệp trung học phổ thông năm 2024 và việc quản lý trẻ em, học sinh trong dịp nghỉ hè.
 - Buổi lễ trưởng thành và tri ân dành cho học sinh lớp 12 Trường THPT Nguyễn Thị Diệu, quận 3, TP.HCM có nhiều điều bất ngờ. Nhất là khi một học sinh đã đặt câu hỏi tại sao chúng ta cảm thấy khó khăn khi nói lời cảm ơn ba mẹ?
 - Con tôi năm nay lên lớp 6, chỉ cư trú cách một trường THCS khoảng 450m, tuyển sinh đầu cấp con có được học trường gần nhà nhất đó không? Nếu có sai sót hồ sơ thì liên hệ ở đâu?
@@ -21,48 +31,38 @@
 - Các thiết bị gian lận thi cử ngày càng tinh vi, khó phát hiện, tin đồn lan trên mạng... khiến các đơn vị, địa phương lo lắng khi kỳ thi tốt nghiệp tới gần.
 - Tối 20-6, Viện Đại học Sydney Việt Nam chính thức ra mắt tại Hà Nội, đây là viện nghiên cứu tập hợp gần 100 nhà khoa học trong và ngoài nước thực hiện các nghiên cứu đa lĩnh vực, hướng tới cải thiện đời sống người dân Việt Nam.
 - 'Con tôi bị bọn buôn người dụ dỗ, bảo sẽ giới thiệu vào làm công việc văn phòng, lương cao tại Tây Ninh nhưng sau đó lừa đưa qua Thái Lan'.
-- Đại học Kinh tế TP.HCM vừa công bố điểm chuẩn 3 phương thức xét tuyển sớm đại học chính quy năm 2024 với mặt bằng điểm tăng mạnh.
-- Điểm cao nhất của cả 6 đợt thi đánh giá tư duy Đại học Bách khoa Hà Nội năm 2024 là 96,43 điểm, điểm trung bình là 53,1 điểm.
-- Ngày 20-6, Bộ Giáo dục và Đào tạo tổ chức hội nghị triển khai kỳ thi tốt nghiệp THPT 2024. Đây là năm cuối cùng tổ chức thi theo chương trình cũ.
-- Nhìn bài hoặc trao đổi bài với thí sinh khác sẽ bị trừ 25% số điểm bài thi. Cho thí sinh khác chép bài hoặc chép bài của thí sinh khác bị trừ 50% điểm...
-- Ngày 19-6, Sở Giáo dục và Đào tạo TP.HCM công bố điểm tuyển sinh lớp 10. Tuổi Trẻ ghi nhận những phân tích, dự đoán của giáo viên về điểm chuẩn vào các trường THPT công lập năm học 2024 - 2025.
-- Trường đại học Công nghiệp Hà Nội, Trường đại học Xây dựng Hà Nội, Học viện Công nghệ bưu chính viễn thông... vừa công bố điểm chuẩn xét học bạ, có ngành điểm chuẩn cao nhất 28,97 điểm.
-- Thủ tướng Chính phủ vừa ký quyết định bổ nhiệm ông Trần Cao Vinh, chủ tịch hội đồng trường Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM), giữ chức phó giám đốc Đại học Quốc gia TP.HCM.
-- Ủy ban Kiểm tra Tỉnh ủy Thanh Hóa sẽ vào cuộc tiến hành kiểm tra khi có dấu hiệu vi phạm đối với tổ chức đảng, đảng viên liên quan đến công tác tuyển sinh vào Trường phổ thông Dân tộc nội trú THCS Mường Lát.
-- Trường đại học Y khoa Phạm Ngọc Thạch, TP.HCM vừa bổ sung đề án tuyển sinh đại học 2024, với việc mở thêm ngành y học cổ truyền.
-- 55.264/98.464 thí sinh có điểm môn toán thi lớp 10 tại TP.HCM dưới 5 điểm. Như vậy, hơn 56% thí sinh có điểm toán dưới trung bình.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Nhiều bà nội trợ lại tiếp tục lo giá cả sẽ còn tăng bởi tình trạng "té nước theo mưa" khi tăng lương cơ sở từ 1,8 triệu đồng lên 2,34 triệu đồng (30%) cho tất cả cán bộ, công chức từ 1-7 tới.
-- Chỉ tốn hơn 3 triệu đồng, khách từ hai đầu đất nước đã có vé máy bay khứ hồi và hai đêm ở khách sạn tại Đà Nẵng. Trong bối cảnh khan hiếm máy bay, các gói combo siêu hời này vừa được tung ra đã thu hút được sự quan tâm của du khách.
-- Dự án cao tốc Khánh Hòa - Buôn Ma Thuột giai đoạn 1 bị ảnh hưởng tiến độ giải ngân vì chậm giải phóng mặt bằng.
-- Thủ tướng Chính phủ vừa có công điện về việc tổ chức kỳ thi tốt nghiệp trung học phổ thông năm 2024 và việc quản lý trẻ em, học sinh trong dịp nghỉ hè.
-- Đến sáng nay 23-6, các lực lượng chức năng và chính quyền địa phương đã tìm thấy thi thể ba nạn nhân bị đuối nước khi tắm biển tại xã Hoằng Phụ, huyện Hoằng Hóa (Thanh Hóa).
-- Một số tin tức đáng chú ý: Côn Đảo giảm nhựa sử dụng một lần; Yeah1 sẽ bán vốn tại hàng loạt công ty con...
-- Dự báo hôm nay 23-6, thời tiết Tây Nguyên và Nam Bộ mưa nhiều nơi, Bắc Bộ cũng mưa rào và dông.
-- Bộ Tài chính đề xuất Ban Chỉ đạo trung ương quyết định mức chi cụ thể khi mua tin phòng chống tham nhũng với tối đa 50 triệu đồng một tin.
-- Thủ tướng Phạm Minh Chính sẽ có bài phát biểu đặc biệt và chủ trì một số phiên thảo luận tại WEF Đại Liên - một trong những sự kiện quan trọng nhất châu Á - Thái Bình Dương.
-- Bộ Giao thông vận tải công bố sân bay Liên Khương trở thành cảng hàng không quốc tế, tiếp nhận các chuyến bay quốc tế từ ngày 22-6-2024.
-- Thẻ căn cước được cấp mới từ ngày 1-7 có hình chữ nhật, chiều rộng 53,98mm, chiều dài 85,6mm, độ dày 0,76mm, bốn góc được cắt tròn với bán kính 3,18mm, được sản xuất bằng chất liệu nhựa, có nhiều trường thông tin được thay đổi.
-- Chiều 22-6, Thủ tướng Phạm Minh Chính cùng đoàn công tác đã đi kiểm tra, động viên công nhân thi công dự án đường dây 500kV mạch 3 Quảng Trạch - Phố Nối qua địa bàn tỉnh Thanh Hóa.
-- Quyền Bí thư Tỉnh ủy Lâm Đồng Nguyễn Thái Học đề nghị doanh nghiệp hãy phản ánh cán bộ nào né tránh, không chịu làm, tỉnh sẽ xử lý.
-- Đến ngày 22-6, đã có 34 căn nhà bị ảnh hưởng do việc thi công nạo vét sông Bạc Liêu, phạm vi ảnh hưởng kéo dài tới 800m.
-- Tại Hà Nội, Trợ lý Ngoại trưởng Mỹ Daniel Kritenbrink khẳng định sự tôn trọng với chính sách đối ngoại của Việt Nam, bất kể quan điểm của Mỹ với nước khác.
-- Hàng trăm con cá koi đến từ nhiều trại cá, hồ và câu lạc bộ cá koi nổi tiếng trong và ngoài nước đã cùng tham gia cuộc thi tại Triển lãm cá koi toàn quốc năm 2024 ở TP.HCM.
-- Một số ô tô va chạm trên đường dẫn lên cao tốc TP.HCM - Long Thành - Dầu Giây khiến cao tốc và quốc lộ 51 (đoạn qua huyện Long Thành, Đồng Nai) ùn tắc kéo dài.
-- Theo đại diện Phòng CSGT TP.HCM, mặc dù đã quyết liệt xử lý nghiêm tình trạng xe khách dừng, đỗ, đón, trả khách không đúng quy định. Tuy nhiên các lái xe vì lợi nhuận bất chấp, phớt lờ quy định.
-- Những ngày gần đây, nhiều người dân hiếu kỳ tìm tới cánh đồng tại xã Bar Măih, huyện Chư Sê (Gia Lai) để chứng kiến hiện tượng đất ruộng 'tự bốc cháy'.
-- Công an xã Phổ Cường, thị xã Đức Phổ, Quảng Ngãi khi tiếp nhận thông tin du khách Nga đánh rơi ba lô có nhiều tư trang đã tích cực tìm kiếm. Du khách nhận lại rất vui mừng và cảm ơn Công an Việt Nam.
-- Chiếc xe khách lạng lách, chặn đầu ô tô tải giữa đường cao tốc. Ba người đàn ông sau đó đi xuống từ xe khách, leo lên cacbin rồi hành hung tài xế xe tải.
-- Bộ Lao động - Thương binh và Xã hội đề xuất tăng chuẩn trợ cấp ưu đãi người có công từ 2,055 triệu đồng lên 2,789 triệu đồng, tức tăng 35,7%.
-- Ông Nguyễn Phước Lộc, phó bí thư Thành ủy TP.HCM, được chỉ định giữ chức bí thư Đảng đoàn MTTQ Việt Nam TP.HCM nhiệm kỳ 2019 - 2024.
-- Phát hiện các hộ kinh doanh mua bán phân bón, thuốc bảo vệ thực vật kém chất lượng, cơ quan chức năng địa phương sẽ xử lý mạnh tay, không có ngoại lệ.
-- Tư duy 'thành phố trong làng, làng trong thành phố' sẽ tiếp tục nghiên cứu và cụ thể trong quy hoạch.
-- Thủ tướng Phạm Minh Chính sẽ đến Đại Liên (Trung Quốc) từ ngày 24 đến ngày 27-6 để tham dự Hội nghị thường niên các nhà tiên phong lần thứ 15 của Diễn đàn Kinh tế thế giới (WEF).
-- Công an tỉnh Kiên Giang đã bắt thêm một giám đốc công ty liên quan đến vụ án 'Vi phạm quy định về đầu tư công trình xây dựng gây hậu quả nghiêm trọng và thiếu trách nhiệm gây hậu quả nghiêm trọng', xảy ra tại Vườn quốc gia U Minh Thượng.
-- Bà Trần Kim Yến - chủ tịch Ủy ban Mặt trận Tổ quốc Việt Nam TP.HCM - được điều động, phân công làm chủ nhiệm Ủy ban Kiểm tra Thành ủy TP.HCM.
-- Lãnh đạo Sở Giáo dục và Đào tạo chưa nhận được báo cáo vụ chậm nộp học phí 2 ngày, bị hủy kết quả trúng tuyển lớp 10.
-- Nhà đầu tư trạm dừng nghỉ cao tốc Phan Thiết - Dầu Giây nộp ngân sách nhà nước 260 tỉ đồng để đầu tư, khai thác trạm dừng nghỉ trong 25 năm.
+- Với 459/464 đại biểu có mặt tán thành, Quốc hội đã biểu quyết thông qua Luật Tổ chức Tòa án nhân dân (sửa đổi).
+- Hiện tại mây đang phát triển mạnh và gây mưa dông nhiều nơi ở TP.HCM, mưa sáng đầu tuần sẽ ảnh hưởng tới giao thông đi lại.
+- Tin tức đáng chú ý: 3,3 triệu người đang hưởng lương hưu được tăng lương từ 1-7; Giá cà phê tăng khiến giá trị xuất khẩu cà phê Tây Nguyên tăng mạnh; Thêm 1.200 loại thuốc được gia hạn giấy đăng ký lưu hành...
+- Hôm nay 24-6, thời tiết các tỉnh Bắc Bộ đến Trung Trung Bộ có mưa to đến rất to. Nam Bộ mưa rào, vài nơi mưa to.
+- Dự kiến từ ngày 1-7 tới đây, lương hưu và trợ cấp bảo hiểm xã hội tăng 15%, cao nhất từ trước đến nay, tác động hơn 3,3 triệu người.
+- Hai phụ nữ đang làm việc tại dự án cao tốc Bắc - Nam đoạn qua Hà Tĩnh thì xảy ra vụ sạt lở đất. Vụ việc khiến một người chết, một người bị thương.
+- Một khung sắt khổ lớn được hàn dựng ngay trên nhà cổ kinh doanh nhà hàng đã buộc phải tháo dỡ sau tin nhắn chỉ đạo của chủ tịch thành phố Hội An.
+- UBND tỉnh Lâm Đồng vừa duyệt giá khởi điểm cho thuê khu đất nhà hàng Thủy Tạ Đà Lạt với giá khoảng 36,5 tỉ đồng trong 10 năm.
+- Các tỉnh Tây Nguyên kiến nghị nhiều nội dung liên quan đến Quy hoạch khoáng sản (Quyết định 866) làm đình trệ nhiều hoạt động kinh tế.
+- Trong quy hoạch Tây Nguyên đến năm 2030, Măng Đen, Biển Hồ trở thành khu du lịch quốc gia.
+- Dự báo chiều tối nay (23-6) ở Bắc Bộ, Tây Nguyên và Nam Bộ có mưa rào và dông, cục bộ có nơi mưa to.
+- Ông Nguyễn Vũ Chi - Phó trưởng Ban Tuyên giáo Tỉnh ủy Hòa Bình - bị cách tất cả chức vụ trong Đảng do vi phạm khi còn làm Chủ tịch UBND huyện Lương Sơn.
+- Ngày 23-6, lãnh đạo Ủy ban nhân dân tỉnh Đồng Nai cho biết Ủy ban nhân dân tỉnh đã có quyết định cách chức đối với bà Nguyễn Thị Giang Hương, chủ tịch Ủy ban nhân dân huyện Nhơn Trạch, tỉnh Đồng Nai.
+- Chỉ còn 4 ngày nữa sẽ chính thức diễn ra kỳ thi tốt nghiệp THPT, nhiều trường phổ thông dân tộc nội trú, bán trú tại Lào Cai sáng đèn từ sáng đến đêm để phục vụ các sĩ tử ôn thi giai đoạn nước rút.
+- Chủ tịch Bạc Liêu yêu cầu giám sát chặt chẽ khu vực thi công nạo vét lòng sông Bạc Liêu - Cà Mau, đồng thời rà soát từng nhà dân bị ảnh hưởng, để kịp thời di dời đến nơi an toàn.
+- Theo Tập đoàn Dệt may Việt Nam (Vinatex), xuất khẩu dệt may Việt Nam đạt gần 16 tỉ USD trong 5 tháng đầu năm 2024, tăng 5% so với cùng kỳ năm trước.
+- Một nhà hàng ở phố biển Cửa Lò, Nghệ An từ chối chi 20% hóa đơn cho hai tài xế xe ôm vì họ dẫn đoàn khách tới nhà hàng.
+- Từ 1-7, dự kiến tăng lương cơ sở 30%, nhiều chế độ cũng được tăng lên như trợ cấp thất nghiệp, thai sản, mai táng…
+- Ủy ban Thường vụ Quốc hội đã xin ý kiến các đại biểu Quốc hội về hai phương án cấm nồng độ cồn trong dự Luật Trật tự, an toàn giao thông đường bộ.
+- Sáng 23-6, tại An Hòa tự, thị trấn Phú Mỹ, huyện Phú Tân (tỉnh An Giang), Ban Trị sự Trung ương Giáo hội Phật giáo Hòa Hảo đã long trọng tổ chức Đại lễ kỷ niệm 85 năm ngày Đức Huỳnh Giáo chủ khai sáng đạo Phật giáo Hòa Hảo.
+- Thủ tướng Chính phủ Phạm Minh Chính vừa ký ban hành công điện gửi các bộ ngành, địa phương về việc tăng cường các biện pháp quản lý, điều hành giá.
+- Công an tỉnh Đồng Nai vừa khởi tố vụ án hình sự lừa đảo chiếm đoạt tài sản liên quan đến một công ty mua bán đất nền, thu lợi trên 1.000 tỉ đồng.
+- Bộ trưởng Ngoại giao Bùi Thanh Sơn khẳng định với Trợ lý Ngoại trưởng Mỹ Daniel Kritenbrink rằng Việt Nam luôn coi Mỹ là đối tác có tầm quan trọng chiến lược.
+- Ngay sau khi công bố quy hoạch tỉnh Lâm Đồng đến năm 2030, tầm nhìn đến năm 2050, nhiều doanh nghiệp cam kết rót hơn 125.000 tỉ đồng đầu tư vào tỉnh.
+- Cơ quan chức năng phạt hành chính 6,5 triệu đồng đối với nhà hàng Minh Phi 1 tại phường Hà Khẩu, TP Hạ Long, tỉnh Quảng Ninh vì đuổi khách ra ngoài.
+- Tuần này thời tiết cả nước mưa to nhiều nơi, có nơi mưa rất to, cần đề phòng lũ, sạt lở đất.
+- Công an ở Quảng Nam vừa triệt xóa điểm nhóm sinh hoạt 'hội thánh Đức Chúa trời mẹ' tại nhà một người dân ở địa phương này.
+- Mưa, dông những ngày qua đã làm cho nhiều nhà cửa và tàu cá của người dân ở Kiên Giang, Cà Mau bị ảnh hưởng, thiệt hại.
+- Sân bay Liên Khương (Lâm Đồng) trở thành sân bay quốc tế đầu tiên của Tây Nguyên.
+- Từ 1-7 tới, Bộ Công an sẽ tiến hành cấp giấy chứng nhận căn cước cho người gốc Việt Nam chưa xác định được quốc tịch đang sinh sống liên tục từ 6 tháng trở lên.
 ![New](News.png)
 ## Nhịp sống số 
 - Vừa qua, Motorola Solutions đã khai trương trung tâm R&amp;D tại TP.HCM, với mục tiêu thúc đẩy nghiên cứu và phát triển phần mềm, phân tích dữ liệu và công nghệ trí tuệ nhân tạo (AI).
