@@ -1,70 +1,71 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Công an xác định chủ tài khoản TikTok “Mờ Quann” đăng tải thông tin về đề thi tốt nghiệp THPT 2024 là nam sinh một trường THPT ở huyện Ứng Hòa, Hà Nội.
+- Sư phạm, sư phạm... Đó là câu trả lời của rất nhiều học sinh tại các ngôi trường vùng cao thuộc tỉnh Lào Cai khi được hỏi sẽ đăng ký nguyện vọng vào trường nào, ngành nào.
+- Sáng 27-6, Phòng Giáo dục và đào tạo TP Thủ Đức đã công bố điểm chuẩn vào lớp 6 năm học 2024-2025. Cụ thể như sau:
+- Sáng nay 27-6, hơn 1 triệu thí sinh cả nước sẽ thi môn ngữ văn - môn thi đầu tiên trong kỳ thi tốt nghiệp THPT năm 2024.
+- Thí sinh tham dự kỳ thi tốt nghiệp THPT 2024 là những học sinh đặc biệt. Hôm nay (27-6), các em bước vào một kỳ thi cũng hết sức đặc biệt.
+- Những thước phim tiếng Anh do học sinh tiểu học TP.HCM làm đã chạm vào trái tim của người xem khi thể hiện sâu sắc tình cảm gia đình, bạn bè, tình yêu quê hương đất nước.
+- Tính đến ngày 26-6, đã có hơn 70 đại học, trường đại học, học viện công bố điểm chuẩn xét tuyển sớm.
+- Tối 26-6, nhiều thí sinh vẫn miệt mài ôn bài để chuẩn bị tốt nhất cho ngày thi đầu tiên của kỳ thi tốt nghiệp THPT 2024.
+- Kiểm tra công tác thi tốt nghiệp THPT tại Nghệ An, Phó thủ tướng Lê Thành Long nhấn mạnh các địa phương cần tạo điều kiện tốt nhất cho thí sinh, tất cả vì học sinh.
+- Dù cho trời mưa như trút nước, ông Sùng Seo Pao (51 tuổi) vẫn vượt 17km đường đèo xuống tận điểm thi cổ vũ con trai thi tốt nghiệp.
+- Tại các huyện vùng cao Thanh Hóa, do địa bàn rộng, đi lại khó khăn nên ban chỉ đạo thi tốt nghiệp THPT quan tâm đến chuẩn bị chỗ ở miễn phí cho thí sinh có nhà riêng ở xa điểm thi. Nhiều nhà dân gần điểm thi đã cho thí sinh ở trọ miễn phí.
+- Những thí sinh đã trúng tuyển vào lớp 10 chuyên hoặc tích hợp tại TP.HCM phải làm những thủ tục gì để xác nhận nhập học?
+- Trường cao đẳng Bến Tre đã xét và cấp bằng tốt nghiệp cho 534 sinh viên từ năm 2019 đến 2023 không đúng quy định do chưa có chứng chỉ quốc phòng. Những giáo viên mầm non này sẽ bị thu hồi bằng tốt nghiệp?
+- 270 sĩ tử ở huyện Ngọc Hiển (Cà Mau) cùng các thầy cô đã khăn gói lên đường sang huyện Năm Căn để chuẩn bị cho kỳ thi tốt nghiệp.
+- Trong kỳ thi tốt nghiệp THPT 2024, TP.HCM có 3 thí sinh không thể viết bài thi vì những lý do bất khả kháng, trong đó 1 thí sinh phải nằm trên giường để làm bài thi.
+- Trước ngày thi tốt nghiệp THPT 2024, nhiều sĩ tử 2k6 ở TP Đà Nẵng rủ nhau đến các ngôi chùa trong thành phố để cầu may mắn.
+- Trong dòng phụ huynh đưa thí sinh đến điểm thi tốt nghiệp THPT 2024 nghe quy chế chiều 26-6, có một 'phụ huynh' đặc biệt trong màu áo hải quân.
+- Học tập trong môi trường đại học năng động và sáng tạo để trải nghiệm và tăng cường rèn các kỹ năng đã trở thành ưu tiên của gen Z trong quá trình lựa chọn đăng ký vào các trường.
+- Theo quy chế thi, thí sinh dự thi tốt nghiệp THPT 2024 được mang vào phòng thi bút viết, thước kẻ, bút chì, tẩy chì, êke; thước vẽ đồ thị...
+- Một bài viết được cho là của sinh viên khoa du lịch Trường đại học Nha Trang (Khánh Hòa) vừa đăng lên mạng xã hội, với nội dung cho rằng việc kiến tập “quá sức” của bạn này tại cơ sở lưu trú.
+- Hàng ngàn thí sinh người đồng bào dân tộc thiểu số được chính quyền tỉnh Gia Lai hỗ trợ tiền động viên tinh thần trước khi bước vào kỳ thi tốt nghiệp THPT.
+- Đại học RMIT Việt Nam xác nhận á hậu Phạm Ngọc Phương Anh đã trúng tuyển vào làm giảng viên đại học của trường từ ngày 24-6.
+- 14h chiều nay 26-6, hơn 1 triệu thí sinh cả nước có mặt tại các điểm thi để làm thủ tục dự thi tốt nghiệp THPT.
+- Trước thềm kỳ thi tốt nghiệp THPT năm 2024, các thủ khoa, thí sinh từng đạt điểm 'khủng' trong các kỳ thi 'bật mí' cách làm bài thi đạt điểm cao.
 - Liên quan trường học và cầu treo dân sinh đang xây dựng phải đình chỉ, đến nay hai địa phương ở Kon Tum và Quảng Nam vẫn chưa có buổi làm việc chung để tháo gỡ vướng mắc.
 - Theo đề nghị của Bộ Giáo dục và Đào tạo, hiện Bộ Công an đang tổ chức xác minh đối tượng đăng thông tin sai sự thật  'lộ đề thi tốt nghiệp THPT năm 2024'.
 - Sau khi hiệu trưởng bị khởi tố, tỉnh Quảng Nam đã giao quyền hiệu trưởng Trường cao đẳng Y tế Quảng Nam cho ông Bùi Long Ẩn - phó hiệu trưởng - để giải quyết câu chuyện cấp bằng tốt nghiệp cho sinh viên.
 - Những ngày này, tại các trường THPT trên cả nước, tiết học cuối dành cho học sinh lớp 12, lứa thí sinh cuối cùng thi tốt nghiệp theo Chương trình giáo dục phổ thông 2006, diễn ra thật đặc biệt.
 - Dự báo trong kỳ thi tốt nghiệp THPT năm 2024, thời tiết ở Hà Nội và Bắc Bộ sẽ nắng nóng, còn ở Nam Bộ và TP.HCM trời nắng, chiều tối có mưa dông.
 - Tối nay 25-6, việc vận chuyển đề thi tốt nghiệp THPT năm 2024 vượt gần 250km lên đến huyện vùng cao, biên giới Mường Lát (Thanh Hóa) đã được cơ quan chức năng hoàn tất, đảm bảo an toàn tuyệt đối.
-- Chiều 25-6, Trường đại học Luật Hà Nội chính thức thông tin về quá trình đào tạo tiến sĩ của học viên Vương Tấn Việt (tức thượng tọa Thích Chân Quang).
-- Em Võ Thành Huy, thủ khoa kỳ thi vào lớp 10 Trường THPT chuyên Lê Khiết, Quảng Ngãi, ước mơ trong tương lai sẽ trở thành bác sĩ được người người quý mến.
-- Tay xách bao tải, tay ba lô, hơn 120 học sinh cuối cấp của Trường THPT số 2 Si Ma Cai được thầy cô đưa về khu ở tập trung gần điểm thi, đảm bảo an toàn trong suốt kỳ thi.
-- Đà Nẵng tạm dừng hoạt động đối với một số xe ô tô tải, để đảm bảo giao thông phục vụ kỳ thi tốt nghiệp THPT 2024.
-- Mới đây, Sở GD-ĐT TPHCM đã công bố điểm chuẩn tuyển sinh lớp 10 chuyên và tích hợp năm học 2014-2015.
-- Sở Giao thông vận tải TP.HCM vừa đề nghị các đơn vị liên quan phối hợp bảo đảm an toàn giao thông trong thời gian tổ chức kỳ thi THPT năm 2024.
-- Ngày 25-6, 138 thí sinh đã ngồi tàu cao tốc vượt biển từ Nam Du, Hòn Sơn và Hòn Tre (huyện Kiên Hải, Kiên Giang) đến TP Rạch Giá thi tốt nghiệp THPT năm 2024.
-- Tỉnh Khánh Hòa sẽ thu học phí năm học mới 2025 - 2026 như các mức năm vừa qua, mức thấp nhất chỉ 25.000 đồng/tháng. Tỉnh cũng miễn 100% phí, lệ phí cho dân, doanh nghiệp khi làm trực tuyến nhiều thủ tục hành chính.
-- Cán bộ, giảng viên nhiều trường đại học vừa lên đường làm nhiệm vụ kiểm tra kỳ thi tốt nghiệp THPT năm 2024.
-- Những học trò ôn thi kỳ thi tốt nghiệp THPT cảm thấy ấm lòng hơn trước những ly chè, nước mía được thầy cô trao gửi.
-- Còn hai ngày nữa, kỳ thi tốt nghiệp THPT 2024 diễn ra. Thí sinh dự thi năm nay cần lưu ý gì để không ảnh hưởng đến kết quả thi của mình?
-- Sở Giáo dục và Đào tạo tỉnh Kiên Giang đã đóng thùng đề thi, niêm phong cẩn thận đưa xuống tàu cao tốc vượt 120km đường biển ra Phú Quốc để các thí sinh thi tốt nghiệp THPT năm 2024.
-- Thời gian ôn tập và luyện thi gấp rút nhưng lượng kiến thức quá nhiều, vậy làm thế nào để học hiệu quả và nâng cao trình độ của bản thân?
-- Nhiều người cho rằng việc thượng tọa Thích Chân Quang tốt nghiệp cử nhân luật hệ vừa học vừa làm năm 2019, đến năm 2021 đã bảo vệ thành công luận án tiến sĩ luật tại Trường đại học Luật Hà Nội là quá “siêu phàm”.
-- Chỉ còn ít ngày nữa kỳ thi tốt nghiệp THPT 2024 sẽ diễn ra với khoảng 1 triệu thí sinh cả nước. Thời điểm này, thầy trò đang chạy nước rút ôn thi.
-- Hà Minh Nhật, học sinh Trường THPT Hùng Vương, TP.HCM, sẽ du học ở Nhật Bản với học bổng toàn phần vào tháng 9-2024.
-- Trong 5 năm qua, bộ sách giáo khoa Tiếng Anh Global Success đã chinh phục nhiều học sinh, giáo viên và phụ huynh.
-- Học sinh chậm nộp học phí 2 ngày nên bị hủy kết quả trúng tuyển lớp 10 tha thiết được ở lại trường học tập, tuy nhiên trường không chấp nhận.
-- Kỳ thi tốt nghiệp THPT năm 2024, thí sinh làm thủ tục dự thi vào ngày 26-6. Ngày 27-6 thi văn, toán, ngày 28-6 thi khoa học tự nhiên/khoa học xã hội và ngoại ngữ.
-- Lãnh đạo Trường đại học Luật Hà Nội cho biết nhà trường đang rà soát các mốc thời gian học cử nhân, tiến sĩ của thượng tọa Thích Chân Quang.
-- Chỉ cần không bị điểm liệt, các thí sinh ở huyện đảo Phú Quý, tỉnh Bình Thuận đã trúng tuyển vào lớp 10 Trường THPT Ngô Quyền.
-- Trung tâm dạy nghề kiểu mẫu huyện Sơn Tịnh, Quảng Ngãi bỏ hoang hơn chục năm. Dự án đã qua hai đời chủ, giờ tiếp tục tìm chủ mới để phát huy hiệu quả.
-- Vào 19h tối nay 24-6, EMASI Nam Long sẽ lên sóng trong chương trình Khám phá trường học trên Tuổi Trẻ Online.
-- Theo thống kê của Đại học Quốc gia TP.HCM, tổng số thí sinh đăng ký xét tuyển bằng điểm thi đánh giá năng lực và số nguyện vọng đăng ký đều tăng so với năm ngoái.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Sáng 26-6, với 452/459 đại biểu tán thành, Quốc hội thông qua nghị quyết về tổ chức chính quyền đô thị và thí điểm một số cơ chế, chính sách đặc thù phát triển TP Đà Nẵng.
-- Ngày 26-6, Tòa án nhân dân Cấp cao tại Hà Nội mở phiên xét xử phúc thẩm sau khi cựu giám đốc Công an TP Hải Phòng Đỗ Hữu Ca có đơn kháng cáo.
-- Liên quan trường học và cầu treo dân sinh đang xây dựng phải đình chỉ, đến nay hai địa phương ở Kon Tum và Quảng Nam vẫn chưa có buổi làm việc chung để tháo gỡ vướng mắc.
-- Diễn đàn Kinh tế thế giới (WEF) mùa hè với chủ đề "Những chân trời tăng trưởng mới" đánh dấu sự trở lại tại thành phố Đại Liên, tỉnh Liêu Ninh sau 5 năm gián đoạn với số lượng địa điểm và khách mời kỷ lục.
-- Ngày 25-6, Thủ tướng Chính phủ Phạm Minh Chính đã tham dự và có bài phát biểu tại Diễn đàn Kinh tế thế giới (WEF) lần thứ 15 - tổ chức ở TP Đại Liên, tỉnh Liêu Ninh, Trung Quốc.
-- Một số tin tức đáng chú ý: Chủ tịch nước Tô Lâm tặng quà dịp 77 năm Ngày Thương binh - Liệt sĩ; Thị trường trái phiếu doanh nghiệp sẽ 'bận rộn' hơn trong nửa cuối năm?; Ngân hàng rao bán loạt bất động sản tiền tỉ tại Phú Quốc...
-- Hôm nay 26-6, thời tiết cả nước có mưa. Hai miền Nam - Bắc mưa vừa đến mưa to, còn miền Trung mưa rào.
-- Khi đến cơ quan thuế để đóng thuế thu nhập cá nhân, một người dân ở Huế bỗng dưng nhận được thông báo bản thân đang còn nợ thuế hơn 1,4 triệu đồng.
-- Lễ vinh danh Doanh nghiệp tiêu biểu vì người lao động 2024 do Tổng liên đoàn Lao động Việt Nam, Bộ Lao động - Thương binh và Xã hội, Liên đoàn Công nghiệp và Thương mại Việt Nam phối hợp tổ chức tối 25-6.
-- Sở Xây dựng TP.HCM có văn bản đề nghị các đơn vị liên quan vào cuộc xử lý hàng loạt cây xanh tại các tuyến đường trên địa bàn TP.HCM bị bê tông trám kín gốc, bồn cây bị hư hỏng...
-- Trung tá quân đội vi phạm nồng độ cồn, lái xe bỏ chạy sau tai nạn vừa bị xử phạt hành chính 63 triệu đồng vì ba hành vi.
-- Dự báo trong kỳ thi tốt nghiệp THPT năm 2024, thời tiết ở Hà Nội và Bắc Bộ sẽ nắng nóng, còn ở Nam Bộ và TP.HCM trời nắng, chiều tối có mưa dông.
-- Chiều 25-6, UBND tỉnh Bình Định tổ chức hội nghị xúc tiến đầu tư các doanh nghiệp Ấn Độ tại tỉnh này. Tại đây, các bên đã ký kết nhiều bản ghi nhớ hợp tác đầu tư trên các lĩnh vực: công nghệ, du lịch, giáo dục, y tế…
-- UBND tỉnh Phú Thọ vừa yêu cầu một doanh nghiệp tạm dừng khai thác cát trên sông Đà - nơi giáp ranh với khu vực 42 nhà dân ở huyện Ba Vì (Hà Nội) bị nứt toác.
-- Chiều 25-6, đại diện Đồn biên phòng Cần Thạnh (huyện Cần Giờ, TP.HCM) cho biết vừa phối hợp với các bên liên quan trục vớt một tàu cá bị chìm trên biển thuộc thị trấn Cần Thạnh.
-- Dự kiến nhà ga T3 Tân Sơn Nhất hoàn thành vào ngày 30-4-2025. Trong khi đó, một số dự án cầu đường kết nối về đây cũng đang được đẩy nhanh tiến độ.
-- Bốn xe va chạm liên hoàn trên cầu Phú Mỹ, dòng xe cả hai hướng bị ảnh hưởng, dẫn đến kẹt xe kéo dài nhiều giờ liền.
-- Chủ tịch UBND TP.HCM đã giao quyền xử phạt hành chính cho 5 phó chủ tịch UBND TP với những lĩnh vực phụ trách sau khi kiện toàn và phân chia lại nhiệm vụ cho Thường trực UBND TP.
-- Ngành chức năng tỉnh Đắk Lắk đã phải gấp rút vào cuộc khi phát hiện trên địa bàn xuất hiện nhan nhản biển hiệu quảng cáo cá độ bóng đá trái phép.
-- Đại biểu Quốc hội Nguyễn Thiện Nhân (TP.HCM) băn khoăn tại sao 5 năm qua chưa công bố mức sống tối thiểu nên chưa có cơ sở xác định mức lương để đảm bảo mức sống tối thiểu.
-- Khu đất quy hoạch làm công viên cây xanh nhưng chủ đầu tư lại xây hồ bơi để phục vụ riêng cho cư dân của chung cư Amber Court.
-- Một nam sinh ở Hà Tĩnh trong quá trình trèo lên trạm biến áp để gỡ diều thì bị điện giật, mặc dù được cấp cứu kịp thời, song nam sinh này không qua khỏi.
-- Sập bẫy hẹn hò online, hai người đàn ông ở Quảng Ngãi bị lừa chuyển hơn 4,5 tỉ đồng.
-- Đà Nẵng tạm dừng hoạt động đối với một số xe ô tô tải, để đảm bảo giao thông phục vụ kỳ thi tốt nghiệp THPT 2024.
-- Mường Thanh tháo dỡ hơn 50% khối lượng công trình sai phép tại chung cư dự án tổ hợp khách sạn Mường Thanh - căn hộ cao cấp Sơn Trà (Đà Nẵng) và xin cho tồn tại phần vi phạm còn lại.
-- Với đa số tán thành, Quốc hội đã biểu quyết thông qua nghị quyết về việc cho ông Đinh Tiến Dũng thôi làm nhiệm vụ đại biểu Quốc hội khóa XV.
-- Với đa số tán thành, Quốc hội đã thông qua nghị quyết bầu Bí thư Tỉnh ủy Thái Nguyên - bà Nguyễn Thanh Hải làm Ủy viên Ủy ban Thường vụ Quốc hội.
-- Ông Nguyễn Văn Yên bị Cơ quan an ninh điều tra, Bộ Công an khởi tố, bắt tạm giam để điều tra về tội chiếm đoạt tài liệu bí mật nhà nước.
-- Cơ quan thẩm tra đề nghị Chính phủ cần bổ sung thông tin đầy đủ về 5 nguồn kinh phí thực hiện tiền lương tới hết năm 2026.
-- Ban Chấp hành Đảng bộ TP Hà Nội sẽ tiến hành quy trình để kiểm điểm trách nhiệm, xem xét hình thức kỷ luật một số đảng viên theo thẩm quyền tại Đảng ủy Đại học Quốc gia Hà Nội liên quan tới vụ án AIC.
+- Giữa quận 1 - trung tâm TP.HCM vẫn có những khu dân cư chật chội, kém an toàn với những căn nhà chỉ vài m2. Nơi mà Bí thư quận 1 - Dương Anh Đức nói người dân phải ‘chia ca để ngủ’.
+- Với đa số đại biểu Quốc hội có mặt biểu quyết tán thành, Quốc hội đã thông qua Luật Trật tự an toàn giao thông đường bộ, trong đó cấm tuyệt đối nồng độ cồn với tài xế.
+- Trước dự báo của ngành khí tượng thủy văn, mùa mưa bão, lũ năm nay được đánh giá sẽ bất thường vì có những yếu tố rất bất định.
+- Tin tức đáng chú ý: Sáng nay 27-6 Quốc hội sẽ 'chốt' phương án cấm nồng độ cồn, vấn đề được quan tâm là cấm tuyệt đối hay để mức thấp?; Giá USD tự do tiếp tục tăng nóng; Cầu Nam Lý, TP Thủ Đức dự kiến về đích vào tháng 9-2024...
+- Hôm nay, thời tiết cả nước mưa dông vẫn là chủ đạo. Một vài nơi ở miền Trung ngày nắng, còn lại các vùng miền trời âm u, nắng gián đoạn đến mưa.
+- Người dân ở xã Lộc Quảng (huyện Bảo Lâm, tỉnh Lâm Đồng) bốn năm qua khổ sở vì cảnh có đất ở nhưng không được ở. Chuyện tréo ngoe này xuất phát từ việc UBND tỉnh Lâm Đồng ra một thông báo nhưng… "bỏ quên" nhiều năm trời.
+- Sau ít ngày Cơ quan cảnh sát điều tra Công an huyện Cẩm Xuyên (Hà Tĩnh) ra quyết định truy nã đặc biệt với Bùi Ngọc Hải vì liên quan đến vụ tai nạn khiến 3 người chết, người này đã ra đầu thú sau 18 ngày lẩn trốn.
+- Thủ tướng Phạm Minh Chính nhấn mạnh việc cụ thể hóa các thỏa thuận cấp cao với 287 nhiệm vụ với tinh thần thực hiện "đã nói là làm, đã làm là phải hiệu quả, cân đong đo đếm và lượng hóa được".
+- Lãnh đạo UBND tỉnh Khánh Hòa vừa kết luận chỉ đạo về việc cưỡng chế thu hồi đất tại dự án khu dân cư Cồn Tân Lập Nha Trang.
+- Kiểm tra công tác thi tốt nghiệp THPT tại Nghệ An, Phó thủ tướng Lê Thành Long nhấn mạnh các địa phương cần tạo điều kiện tốt nhất cho thí sinh, tất cả vì học sinh.
+- Thường trực Ban Bí thư Lương Cường lưu ý tỉnh Bắc Giang đẩy mạnh kiểm tra, giám sát, phòng ngừa vi phạm.
+- Đại biểu Tạ Văn Hạ cho rằng mức sống tăng lên, chi phí đắt đỏ và lương tăng 30% thì ít nhất giảm trừ gia cảnh cũng phải tăng 30%, thậm chí 50% mới hợp lý.
+- UBND tỉnh Khánh Hòa vừa có quyết định xếp hạng di tích kiến trúc nghệ thuật cấp tỉnh đối với biệt thự Cầu Đá Nha Trang.
+- UBND TP.HCM vừa xin Thủ tướng có cơ chế thưởng cho nhà thầu có trách nhiệm, vượt tiến độ thi công các công trình, dự án trọng điểm.
+- Công an TP Hà Nội đã khởi tố vụ án, khởi tố 3 bị can là cán bộ Phòng Tài nguyên và Môi trường và Trung tâm Phát triển quỹ đất huyện Thanh Oai vi phạm quy định về bồi thường hỗ trợ tái định cư khi thu hồi đất xây đường vành đai 4.
+- Lãnh đạo Phòng cảnh sát ma túy Công an TP.HCM cho biết tội phạm ma túy thường thuê các căn hộ chung cư cao cấp để cất giấu, chia nhỏ ma túy tàng trữ, sử dụng, mua bán.
+- Để chở lô hàng cấm là gỗ trắc, vảy tê tê trị giá gần 13 tỉ đồng từ Lào về Việt Nam, các bị cáo đã tự chế một ngăn bí mật trên xe tải.
+- Cơ quan công an đề nghị Sở Kế hoạch và Đầu tư tỉnh Đồng Nai cung cấp hồ sơ thông tin 5 gói thầu tại dự án tái định cư cho sân bay Long Thành.
+- Những ngày qua, một số doanh nghiệp trong Khu công nghiệp Mỹ Xuân A2, Bà Rịa - Vũng Tàu phải thuê xe bồn chở nước đến nhà máy để duy trì sản xuất. Vì sao có chuyện này?
+- Thiếu tướng Nguyễn Thanh Tùng - phó giám đốc Công an TP Hà Nội - cho biết nguyên nhân vụ cháy nhà trọ làm 14 người chết ở Trung Kính (Cầu Giấy) là do chập mạch điện ở đầu xe máy điện, sau đó cháy lan ra các xe máy khác.
+- Một nam du khách Hàn Quốc trong lúc chạy xe máy tham quan ở Hội An nhưng lại đi lạc đường đến tận huyện miền núi Bắc Trà My, sau đó được lực lượng công an giúp tìm được người thân, hỗ trợ ăn uống, nghỉ ngơi.
+- Thời gian qua, việc thí điểm đèn giao thông không đếm ngược thời gian tại TP.HCM đã phần nào cải thiện tình trạng vượt đèn đỏ, đảm bảo an toàn giao thông.
+- Việc tăng cường rà soát, cấp giấy tờ tùy thân cho nhân khẩu đặc biệt được đánh giá là hoạt động thiết thực, tránh “neo đậu” các thủ tục pháp lý liên quan.
+- Nhà ga T3 Tân Sơn Nhất sẽ hoàn thành vào ngày 30-4-2025. Trong khi đó, các dự án cầu đường kết nối sân bay cũng đang được đẩy nhanh tiến độ, có nơi sắp hoàn thiện.
+- Đại biểu Quốc hội Phạm Khánh Phong Lan đề nghị tuyệt đối không đưa thuốc kê đơn vào danh mục có thể phân phối qua thương mại điện tử.
+- Tại cơ quan công an, ông N. khai nhận "xuất phát từ ham muốn của bản thân muốn xem lén người thuê phòng là nữ tắm", nên đã lên mạng xã hội đặt mua 3 bộ camera về lắp vào phòng tắm của khu trọ.
+- Công an tỉnh Kiên Giang hỗ trợ Zheng Huanyi ở huyện Thặng Tứ (tỉnh Chiết Giang, Trung Quốc) bị bỏ rơi ở huyện Giồng Riềng (Kiên Giang) về lại Trung Quốc ngày 26-6.
+- Buổi lễ hồi hương hài cốt quân nhân Mỹ mất tích trong chiến tranh được tổ chức tại sân bay Đà Nẵng.
+- Sáng 26-6, Ban Quản lý đường sắt đô thị TP.HCM (MAUR) cho biết sẽ phát hành 600.000 thẻ đi tàu thuộc tuyến metro số 1 (Bến Thành - Suối Tiên) trong thời gian đầu khi khai thác thương mại.
+- Tại phiên tòa phúc thẩm, cựu giám đốc Công an TP Hải Phòng Đỗ Hữu Ca được giảm 3 năm tù so với bản án sơ thẩm liên quan tội “lừa đảo chiếm đoạt tài sản”.
 ![New](News.png)
 ## Nhịp sống số 
+- Mới đây, F.Studio by FPT đã chính thức mở bán các sản phẩm Apple trên gian hàng TikTok Shop của hệ thống.
 - Vừa qua, Motorola Solutions đã khai trương trung tâm R&amp;D tại TP.HCM, với mục tiêu thúc đẩy nghiên cứu và phát triển phần mềm, phân tích dữ liệu và công nghệ trí tuệ nhân tạo (AI).
 - Họp trực tuyến ngày càng phổ biến vì đáp ứng nhu cầu công việc tức thời, tối ưu thời gian và chi phí.
 - Công ty Ricoh Imaging của Nhật Bản thông báo sẽ cho ra mắt một máy ảnh phim Pentax mới lần đầu tiên sau hai thập kỷ
@@ -94,5 +95,4 @@
 - Con chip này còn có thể dùng trong các hệ thống cảm biến và giám sát như trong xe tự hành hoặc để phát hiện lỗi nhỏ trong dây chuyền lắp ráp robot.
 - Galaxy Z Fold là một biểu tượng của Samsung trong công nghệ mới, khi có khả năng gập đôi và màn hình rộng gần 8 inch.
 - Để các đối tác nhà hàng, quán ăn được tiếp sức trên chặng đường đầy cạnh tranh, Gojek tiếp tục xây dựng kế hoạch hỗ trợ trong năm 2024.
-- Kết hợp lợi ích của public cloud và các máy chủ vật lý trong một mô hình Hybrid tăng mức độ linh hoạt, khả năng mở rộng và hiệu quả chi phí tối ưu.
 ![life](Life.png)
