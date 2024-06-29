@@ -1,68 +1,69 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
-- Hai điểm mạnh cũng là điểm thú vị của đề văn hơn một thập niên qua nằm ở phần đọc - hiểu và phần làm văn dạng nghị luận xã hội.
-- Sáng nay 28-6, thí sinh thi tổ hợp khoa học tự nhiên hoặc khoa học xã hội theo hình thức trắc nghiệm.
-- Ngày 27-6, khoảng 1 triệu thí sinh cả nước đã dự thi tốt nghiệp THPT năm 2024 với môn thi văn (buổi sáng) và môn toán (buổi chiều).
-- Theo phương hướng tuyển sinh Trường đại học Kinh tế quốc dân vừa công cố, năm 2025 nhà trường chỉ xét tuyển 4 tổ hợp, thay vì xét tuyển 9 tổ hợp như năm 2024.
-- Một thí sinh của Trường THPT Võ Thị Sáu mới mổ ruột thừa, ban ngày đi xe cấp cứu đưa đến điểm thi, tối về nằm điều trị tại bệnh viện.
-- Khi cổng trường thi sắp đóng, người mẹ gương mặt đầy âu lo, dáo dác nhìn quanh sân trường: 'Nó ngủ dậy trễ, đi thi không mặc đồng phục, không biết có được vô phòng thi không'.
-- Kỳ thi tốt nghiệp THPT 2024 tại tỉnh Gia Lai có hai thí sinh đặc biệt là hai thầy giáo gần 50 tuổi, đang công tác tại hai trường tiểu học ở huyện Ia Grai.
-- Trên đường chở con gái đi thi môn toán, một người ở Nghệ An gặp tai nạn giao thông phải nhập viện cấp cứu.
-- Tuổi Trẻ Online giới thiệu bài giải môn toán kỳ thi tốt nghiệp THPT 2024 do AI thực hiện.
-- Mời bạn đọc tham khảo bài giải 24 mã đề môn toán thi tốt nghiệp THPT 2024. Theo giáo viên, đề thi năm nay có tính phân hóa cao.
-- Đã có đề thi toán kỳ thi tốt nghiệp THPT 2024. Đa số thí sinh nói đề vừa sức, một số em kêu khó. Giáo viên nhận xét đề phân hóa tốt.
-- Bị gãy tay phải khi chỉ còn một tuần nữa là thi tốt nghiệp THPT, nữ thí sinh vẫn quyết dự kỳ thi để vươn tới ước mơ trở thành dược sĩ.
-- Bước vào kỳ thi quan trọng sau 12 năm đèn sách, nhiều thí sinh không khỏi lo lắng. Phụ huynh các em cũng lo không kém, nhưng họ luôn là chỗ dựa cho con.
-- Hoàn thành quá trình học phổ thông, thí sinh bước vào kỳ thi đầy cam go, thi tốt nghiệp THPT để làm tiền đề cho tương lai đỗ vào trường đại học mình mong muốn, chọn được ngành học bản thân yêu thích.
-- Nhiều bạn trẻ thế hệ mới “phải lòng” ngành Truyền thông đa phương tiện (Truyền thông) - nơi nuôi dưỡng và hiện thực hóa đam mê, khẳng định bản sắc.
-- Trong kỳ thi tốt nghiệp THPT năm 2024, hơn 1.000 thí sinh ở Đồng Nai được tiếp sức bằng bữa trưa miễn phí ngay tại trường thi.
-- Sau buổi thi môn văn, nhiều thí sinh mừng rỡ vì đề thi ra đúng với tác phẩm đoán trước. Bộ Giáo dục và Đào tạo khẳng định đề thi đã được bảo mật tuyệt đối.
-- Bí thư Trung ương Đoàn Nguyễn Phạm Duy Trang và Phó bí thư Thành Đoàn TP.HCM Trần Thu Hà đã động viên tinh thần sinh viên tình nguyện Tiếp sức mùa thi TP.HCM sáng 27-6.
-- Dù được miễn thi nhưng một nam sinh ở Đồng Nai vẫn đăng ký dự kỳ thi tốt nghiệp THPT năm 2024 để xem năng lực mình tới đâu.
-- Nhà thơ Nguyễn Khoa Điềm đã có những chia sẻ với Tuổi Trẻ Online về bài thơ Đất Nước được đưa vào đề thi văn THPT 2024.
-- Hơn 1 triệu thí sinh hôm nay bước vào kỳ thi tốt nghiệp THPT. Đây là kỳ thi cuối cùng theo Chương trình giáo dục phổ thông 2006.
-- Việc chấm bài thi trắc nghiệm do máy thực hiện, các chuyên gia lưu ý mọi bước thí sinh thực hiện trên phiếu trả lời đều phải cẩn trọng.
-- Gần điểm thi Trường THPT Nguyễn Huệ, một nhà yến phát loa inh ỏi, phụ huynh lo lắng ảnh hưởng đến các thí sinh thi tốt nghiệp.
-- Mời bạn đọc tham khảo bài giải gợi ý môn văn thi tốt nghiệp THPT 2024. Bài giải môn văn được cập nhật liên tục.
-- Công trình khoa học của BS Hồ Ngọc Anh Vũ cùng nhóm nghiên cứu vừa được công bố trên tạp chí y khoa hàng đầu thế giới The Lancet.
-- Đề thi văn kỳ thi tốt nghiệp THPT năm nay ra bài Đất nước của Nguyễn Khoa Điềm, nhiều thí sinh khoe 'trúng tủ' và tự tin làm bài được 7, 8 điểm.
-- Những phần cơm nóng hổi đủ dinh dưỡng và đầy nghĩa tình sẽ được trao tận tay thí sinh, giúp các em “vững bụng” trong kỳ thi tốt nghiệp THPT.
-- Thí sinh tham dự kỳ thi tốt nghiệp THPT 2024 là những học sinh đặc biệt. Hôm nay (27-6), các em bước vào một kỳ thi cũng hết sức đặc biệt.
-- Năm 2024, thí sinh cả nước có cơ hội nhận học bổng 100% toàn khóa của Trường đại học Quốc tế Sài Gòn (SIU) bằng điểm thi THPT cho tất cả 29 chuyên ngành đào tạo.
-- Công an xác định chủ tài khoản TikTok “Mờ Quann” đăng tải thông tin về đề thi tốt nghiệp THPT 2024 là nam sinh một trường THPT ở huyện Ứng Hòa, Hà Nội.
+- Các sĩ tử vừa trải qua kỳ thi tốt nghiệp THPT nhiều áp lực. Cả ba mẹ và con đều cần được thả lỏng và tăng kết nối ở giai đoạn này.
+- Hôm nay 28-6, các sĩ tử đã trải qua ngày thi cuối cùng của kỳ thi tốt nghiệp THPT. Những cái ôm, những cái bắt tay như những khoảnh khắc lắng đọng khép lại kỳ thi đầy cảm xúc này.
+- Ngày 28-6, ngay sau khi kết thúc môn thi cuối cùng của kỳ thi tốt nghiệp THPT 2024, Bộ Giáo dục và Đào tạo tổ chức họp báo.
+- Tại điểm thi tốt nghiệp THPT Trường THPT Củ Chi (huyện Củ Chi, TP.HCM), các sĩ tử 2k6 đã vô cùng ngạc nhiên khi thấy một thí sinh đặc biệt.
+- Lãnh đạo Sở Giáo dục và Đào tạo Đắk Lắk cho biết đã báo cáo Ban chỉ đạo thi quốc gia việc lỗi mờ mã đề thi môn toán xảy ra chiều 27-6 ở một số điểm thi.
+- Tuổi Trẻ Online giới thiệu bài giải môn tiếng Anh kỳ thi tốt nghiệp THPT 2024 do AI thực hiện.
+- Mời bạn đọc tham khảo gợi ý bài giải môn tiếng Anh thi tốt nghiệp THPT 2024. Bài giải được cập nhật liên tục.
+- Hết giờ thi môn tiếng Anh tốt nghiệp THPT 2024, hầu hết thí sinh ra về với nụ cười tươi rói, khoe 'đề dễ'. Dẫu vậy, giáo viên nói thí sinh không dễ lấy điểm 10.
+- Một số trường đại học ở TP.HCM vừa công bố điều chỉnh đối tượng tuyển sinh, rà soát các thông tin đăng ký, minh chứng trong xét tuyển sớm và công bố điểm chuẩn xét học bạ.
+- Phát triển nguồn nhân lực chất lượng cao là bài toán khó và mô hình Đại học - Doanh nghiệp trở thành lời giải xác đáng, mang đến lợi thế vững vàng cho cả ba bên doanh nghiệp - đại học - sinh viên.
+- Hằng năm các trường đại học triển khai chính sách học bổng khác nhau để thu hút tài năng, nâng cao chất lượng sinh viên đầu vào.
+- Ghi nhận những ngày diễn ra kỳ thi tốt nghiệp THPT, nhiều thí sinh mặc quần đùi áo cộc, dép lê đi thi.
+- Tuổi Trẻ Online giới thiệu bài giải môn sinh học kỳ thi tốt nghiệp THPT 2024 do AI thực hiện.
+- Nhiều thí sinh có chứng chỉ IELTS, thuộc diện được miễn thi ngoại ngữ trong xét tốt nghiệp THPT nhưng đã đăng ký dự thi môn này, nay nghĩ lại không muốn thi nữa được không?
+- Mời bạn đọc tham khảo bài giải gợi ý môn địa lý thi tốt nghiệp THPT 2024. Bài giải được cập nhật liên tục.
+- Mời bạn đọc tham khảo bài giải gợi ý môn vật lý thi tốt nghiệp THPT 2024. Tuổi Trẻ Online liên tục cập nhật.
+- Mời bạn đọc tham khảo bài giải gợi ý môn lịch sử thi tốt nghiệp THPT 2024. Bài giải được cập nhật liên tục.
+- Bài giải gợi ý môn hóa học thi tốt nghiệp THPT 2024. Tuổi Trẻ Online liên tục cập nhật.
+- Thí sinh thi tốt nghiệp THPT cho rằng đề thi giáo dục công dân, lịch sử, địa lý năm nay dễ, chỉ có vài câu hỏi phân hóa để lấy điểm cao.
+- Mời bạn đọc theo dõi bài giải môn sinh học thi tốt nghiệp THPT 2024. Tuổi Trẻ Online liên tục cập nhật.
+- Đề thi tổ hợp khoa học tự nhiên kỳ thi tốt nghiệp THPT 2024 được thí sinh nhận xét vừa sức. 
+Chiều nay thí sinh sẽ thi môn cuối cùng là ngoại ngữ.
+- Mời bạn đọc tham khảo bài giải môn giáo dục công dân thi tốt nghiệp THPT 2024. Tuổi Trẻ Online liên tục cập nhật.
+- Đề thi tốt nghiệp THPT 2024 môn hóa học. Mời bạn đọc theo dõi gợi ý bài giải trên Tuổi Trẻ Online.
+- Đề thi môn vật lý thi tốt nghiệp THPT 2024. Mời bạn đọc theo dõi gợi ý bài giải trên Tuổi Trẻ Online.
+- Đã có đề thi tốt nghiệp THPT môn lịch sử. Mời các bạn đón xem gợi ý.
+- Đề thi tốt nghiệp THPT 2024 môn sinh học. Mời bạn đọc theo dõi gợi ý bài giải trên Tuổi Trẻ Online.
+- Đã có đề thi tốt nghiệp THPT môn địa lý. Mời các bạn đón xem gợi ý giải bài
+- Đã có đề thi tốt nghiệp môn giáo dục công dân. Mời bạn đón xem gợi ý làm bài.
+- Các tình nguyện viên lặng lẽ và cần mẫn, nhiều lực lượng không quản nắng hay mưa, đêm hay ngày... để thí sinh có một mùa thi tốt nghiệp thuận lợi nhất.
+- Lần thứ ba, bài thơ Đất nước của nhà thơ Nguyễn Khoa Điềm vào đề thi văn tốt nghiệp THPT (hai lần trước là năm 2017 và 2020).
 ![Edu](Edu.png)
 ## Thời Sự 
-- Với 462/470 đại biểu có mặt tán thành, Quốc hội đã thông qua Luật Thủ đô sửa đổi. Trong đó, đã có nhiều quy định mới để phát triển Hà Nội.
-- Ngay giữa quận 1 trung tâm TP.HCM vẫn còn tồn tại những khu dân cư chật chội, kém an toàn với những căn nhà chỉ vài mét vuông, nơi người dân phải "chia ca để ngủ" như lời bí thư quận 1 Dương Anh Đức.
-- Với 388/450 đại biểu Quốc hội có mặt biểu quyết tán thành (bằng 79,84% tổng số đại biểu Quốc hội), Quốc hội đã thông qua Luật Trật tự, an toàn giao thông đường bộ và chính thức có hiệu lực từ ngày 1-1-2025.
-- Một số tin tức đáng chú ý: Giải ngân vốn đầu tư công mới đạt 28%; Măng cụt trong nước mất mùa, hàng Thái chiếm lĩnh; Nhu cầu tìm mua đất nền Hưng Yên tăng gần 200%...
-- Hôm nay 28-6, thời tiết từ Bắc Bộ vào Trung Bộ nắng trở lại, có nơi nắng nóng. Nam Bộ và Tây Nguyên nhiều mây, nắng gián đoạn, nhiều lúc mưa rào đến mưa to.
-- Tối 27-6, một vụ tai nạn liên hoàn ở trung tâm Vũng Tàu, ô tô tông nhiều xe máy đang chờ đèn đỏ làm chết hai người, nhiều người bị thương.
-- Qua đấu thầu, đến ngày 27-6, Cục Đường cao tốc Việt Nam đã phê duyệt nhà đầu tư trạm dừng nghỉ cao tốc Mai Sơn - quốc lộ 45,  Cam Lâm - Vĩnh Hảo, Vĩnh Hảo - Phan Thiết và Phan Thiết - Dầu Giây.
-- Theo Trang tin điện tử Đảng bộ TP.HCM, ngày 27-6, UBND huyện Nhà Bè tổ chức Hội nghị đại biểu các dân tộc thiểu số huyện Nhà Bè lần 3 năm 2024.
-- Chiếc ô tô di chuyển từ Sơn La về Hà Nội thì bị mất lái lao vào hộ lan đường trên quốc lộ 6, 4 người ngồi trên xe may mắn thoát nạn.
-- TP đã công bố và mở đề thi để các cá nhân, tổ chức tham gia dự thi tuyển quốc tế ý tưởng quy hoạch - kiến trúc bán đảo Bình Quới - Thanh Đa.
-- Chiều 27-6, Bộ Nông nghiệp và Phát triển nông thôn phối hợp UBND tỉnh Kiên Giang tổ chức Hội nghị thực trạng và định hướng phát triển nuôi biển của tỉnh đến năm 2025 và tầm nhìn đến năm 2030.
-- Sở Giao thông vận tải TP.HCM cho biết từ đầu năm 2024 đến nay, có 157 trường hợp vi phạm lái xe buýt về đảm bảo an toàn giao thông. Trong đó, 25 trường hợp vượt đèn đỏ.
-- Chiều 27-6, sau một ngày xét xử, hội đồng xét xử Tòa án nhân dân cấp cao tại TP.HCM đã tuyên trả lại nhà số 317 Trần Bình Trọng (quận 5, TP.HCM) cho ông Nguyễn Thành Công.
-- TP.HCM vừa ban hành quyết định về phân loại, thu gom, vận chuyển, xử lý rác cồng kềnh trên địa bàn TP và gắn trách nhiệm cho từng cá nhân, đơn vị cụ thể.
-- Kỳ họp thứ 17 (kỳ họp thường kỳ giữa năm) HĐND TP Hà Nội khóa XVI sẽ diễn ra từ ngày 1-7 đến 4-7. Trong đó, Hà Nội sẽ dành 1 ngày để chất vấn và trả lời chất vấn.
-- Đại biểu đề nghị quy định cụ thể điều kiện bảo đảm phòng cháy, chữa cháy cơ sở nhà ở, đặc biệt là nhà ở kết hợp sản xuất kinh doanh.
-- Ngày 27-6, UBND tỉnh Đồng Nai công bố quyết định giao quyền chủ tịch UBND huyện Nhơn Trạch cho một phó chủ tịch UBND huyện.
-- Đây là chuyến thăm chính thức Hàn Quốc đầu tiên của Thủ tướng Phạm Minh Chính, cũng là chuyến thăm cấp cao nhất sau khi hai nước nâng cấp quan hệ năm 2022.
-- Các gói thầu của chương trình, dự án đầu tư, mua sắm vật tư triển khai nhiệm vụ công nghiệp quốc phòng, an ninh mức độ tối mật trở lên được chỉ định thầu.
-- Ông Đinh Minh Cảnh (chạy xe ôm) tăng tần suất mỗi ngày một lần kéo xe hút đinh và vật sắc nhọn trên quốc lộ 1 (đoạn qua huyện Bình Chánh, TP.HCM).
-- Đà Nẵng đang thực hiện 4 kết luận của Thanh tra Chính phủ, 3 bản án của tòa các cấp. Nhiều dự án, đất đai - nguồn lực của Đà Nẵng đang chờ tháo gỡ vướng mắc trong quá trình thực hiện các bản án, kết luận thanh tra.
-- Chiều 27-6, Bệnh viện Hữu nghị Việt - Tiệp Hải Phòng tiếp nhận 55 công nhân Nhà máy đóng tàu Sông Cấm nghi bị ngộ độc thức ăn.
-- Sau sự cố sạt lở đất khiến 1 người chết, các nhà thầu đã tập trung đôn đốc, nhắc nhở các công nhân trang bị đầy đủ bảo hộ lao động.
-- Người tham gia đấu giá, người trúng đấu giá, cá nhân, tổ chức có liên quan có hành vi vi phạm có thể bị truy cứu trách nhiệm hình sự.
-- Đi qua đường ngang dân sinh giao cắt với đường sắt ở Quảng Nam, ô tô bị tàu hỏa tông văng xa gần chục mét.
-- Các địa phương đang tích cực đào tạo, bồi dưỡng cán bộ, để chuẩn bị nhân sự nhiệm kỳ mới.
-- Tại huyện Đất Đỏ, tỉnh Bà Rịa - Vũng Tàu xảy ra vụ cháy nhà khiến đôi vợ chồng tử vong. Căn nhà bị cháy có mùi xăng bốc lên.
-- 'Nhiều doanh nghiệp, tập đoàn đang đẩy mạnh chuyển đổi xanh phục vụ ứng phó với biến đổi khí hậu và phát triển kinh tế carbon thấp, hướng tới mục tiêu Net Zero'.
-- Nam du khách Hàn Quốc trong lúc tham quan Hội An đã lạc đường hơn 100km, được công an giúp tìm người thân, người dân hỗ trợ ăn uống.
-- Các tập đoàn lớn của Trung Quốc kiến nghị đầu tư, tham gia vào dự án hạ tầng và phát triển năng lượng tái tạo tại Việt Nam.
+- Quốc hội vừa thông qua cơ chế, chính sách đặc thù phát triển Đà Nẵng, trong đó cho phép lập khu thương mại tự do với hàng loạt cơ chế ưu đãi.
+- Sáng 29-6, Quốc hội đã thông qua Luật Bảo hiểm xã hội sửa đổi, trong đó  đưa ra quy định mới về rút bảo hiểm xã hội một lần.
+- Tối 28-6, tại phố đi bộ Nguyễn Huệ, UBND TP.HCM tổ chức khai mạc chuỗi hoạt động kỷ niệm 326 năm thành lập TP Sài Gòn - Chợ Lớn - Gia Định - TP.HCM (1698-2024) và 48 năm ngày Sài Gòn - Gia Định chính thức vinh dự mang tên Chủ tịch Hồ Chí Minh.
+- Một số tin tức đáng chú ý: Sáng nay, Quốc hội chốt phương án rút bảo hiểm xã hội một lần, bế mạc kỳ họp thứ 7; Doanh nghiệp đạt gần 40% kế hoạch kinh doanh du lịch hè; Vốn đầu tư nước ngoài vào Việt Nam đạt gần 15,2 tỉ USD trong 6 tháng...
+- Hôm nay 29-6, thời tiết Nam Bộ nhiều mây, trời nắng gián đoạn, chiều tối mưa rào. Bắc Bộ đến Trung Bộ nắng nóng gay gắt.
+- Chiều 28-6, Học viện Quân y tổ chức hội nghị công bố, trao quyết định bổ nhiệm chức vụ giám đốc Bệnh viện Quân y 103 đối với đại tá, PGS.TS Lương Công Thức.
+- TP.HCM dự kiến miễn giá vé cho hành khách đi tuyến metro số 1 (Bến Thành - Suối Tiên) và 17 tuyến buýt kết nối trong 3 tháng đầu vận hành thương mại.
+- Chiều 28-6, Bộ Giao thông vận tải có thông tin về việc mở rộng thí điểm sử dụng cát biển làm cao tốc.
+- Do bức xúc các vấn đề liên quan đến môi trường xuất phát từ một trại heo, người dân ở xã Kỳ Tây (huyện Kỳ Anh) đã tụ tập trước cơ sở này phản đối và yêu cầu trại heo di dời đến địa điểm khác để tránh gây ô nhiễm cho nguồn nước.
+- 19km còn lại đoạn cao tốc Diễn Châu - Bãi Vọt thuộc tuyến cao tốc Bắc - Nam sẽ được hoàn thành, đưa vào khai thác kể từ ngày 30-6.
+- Ngoài những khoáng sản đảm bảo vì lợi ích quốc gia, an ninh, còn lại tập trung đấu giá đảm bảo khai thác, sử dụng hiệu quả và nguồn thu cao nhất từ khoáng sản.
+- Bộ Công an cho biết đã sẵn sàng các điều kiện về hạ tầng, kỹ thuật, công nghệ để đảm bảo thu nhận hồ sơ, cấp thẻ căn cước cho công dân từ ngày 1-7.
+- Thân nhân của người phụ nữ tử vong vì tai nạn giao thông kiến nghị giám định lại nồng độ cồn đối với nạn nhân.
+- Chiều 28-6, ông Phan Xuân Phúc (quận Liên Chiểu, Đà Nẵng) cho biết trong ngày phía Ngân hàng An Bình (ABBank) đã mời ông tới điểm giao dịch tại Đà Nẵng để trao đổi các thông tin liên quan đến việc tài khoản "nhảy múa".
+- Bí thư Sơn La Nguyễn Hữu Đông đã được Bộ Chính trị điều động, bổ nhiệm giữ chức phó trưởng Ban Nội chính Trung ương.
+- Bà Đinh Thị Mai, vụ trưởng Vụ Tuyên truyền, đã được Ban Bí thư bổ nhiệm làm phó trưởng Ban Tuyên giáo Trung ương.
+- Trưởng Công an phường Hải Cảng, TP Quy Nhơn (Bình Định) vừa tử vong sau khi bị xe tải tông trong lúc đi tập thể dục.
+- Ngân sách nhà nước giữ vai trò chủ đạo và quyết định để đầu tư toàn bộ hệ thống metro giai đoạn từ nay đến năm 2035.
+- Chủ tịch UBND quận 5 vừa xử phạt hành chính 130 triệu đồng đối với Công ty cổ phần Học liệu về hành vi xây lụi tại số 240 Trần Bình Trọng (quận 5, TP.HCM).
+- Ngày 28-6, Ban Chỉ đạo tìm kiếm, quy tập và xác định danh tính hài cốt liệt sĩ (Ban Chỉ đạo 515) tỉnh Tây Ninh tổ chức lễ đón hài cốt liệt sĩ tại Campuchia về nước.
+- Lãnh đạo Sở Giáo dục và Đào tạo Đắk Lắk cho biết đã báo cáo Ban chỉ đạo thi quốc gia việc lỗi mờ mã đề thi môn toán xảy ra chiều 27-6 ở một số điểm thi.
+- Thủ tướng Hàn Quốc Han Duck Soo nhấn mạnh quan hệ hai nước đang vô cùng tốt đẹp và đã phát triển mối quan hệ hợp tác mẫu mực vào loại hàng đầu thế giới.
+- Khu vực phía Bắc Biển Đông đang tồn tại một vùng mây đối lưu gây mưa dông mạnh, dự báo có khả năng mạnh lên thành vùng áp thấp.
+- Trong lúc dọn vệ sinh tại sân bay Đà Nẵng, bà Trần Thị Hường phát hiện một ba lô bên trong chứa gần 1,4 tỉ đồng.
+- Công ty cổ phần Đầu tư xây dựng và Kỹ thuật VNCN E&amp;C được giao quyền sử dụng thuộc khu B1 vùng biển tỉnh Sóc Trăng để khai thác cát biển phục vụ đường cao tốc Bắc - Nam phía Đông giai đoạn 2021 - 2025.
+- Dự án đường làm hơn 2 năm qua nhưng vẫn chưa xong. Người dân phản ánh chính quyền bồi thường chưa đúng đối tượng.
+- Đường Nguyễn Hữu Cảnh (quận Bình Thạnh, TP.HCM) dù khánh thành hơn 3 năm nhưng đến nay vẫn chưa nghiệm thu xong để bàn giao. Thời gian qua, đường này thường xuyên bị rác 'bao vây'.
+- Trạm cân mỏ đất Tân Lập (xã Hành Nhân, huyện Nghĩa Hành, Quảng Ngãi) bị 'bỏ rơi', chẳng có xe nào đi qua cân trước khi chở đất rời đi.
+- Trưa 28-6, trên quốc lộ 1 đoạn lên dốc cầu vượt An Sương (quận 12, TP.HCM) lại xuất hiện những miếng đinh hình thoi sắc nhọn.
+- Chính phủ vừa ban hành Nghị định số 71/2024 quy định cụ thể trình tự, nội dung xác định giá đất theo 4 phương pháp.
 ![New](News.png)
 ## Nhịp sống số 
 - Mới đây, F.Studio by FPT đã chính thức mở bán các sản phẩm Apple trên gian hàng TikTok Shop của hệ thống.
