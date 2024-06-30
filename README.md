@@ -1,6 +1,13 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Tại lễ tốt nghiệp diễn ra ngày 29-6, Trường đại học VinUni đã vinh danh 145 sinh viên đầu tiên của trường đại học phi lợi nhuận trẻ tuổi này.
+- Từ nhận định của các thầy cô giáo đối với đề thi các môn thi tốt nghiệp THPT 2024, có thể hình dung điểm thi tốt nghiệp THPT sẽ tăng nhẹ. Nhưng sẽ hạn chế tình trạng "mưa điểm 10".
+- Thanh tra Bộ Giáo dục và Đào tạo vừa chỉ ra những thiếu sót, vi phạm cần khắc phục tại Trường đại học Hùng Vương, Trường đại học Tài nguyên và Môi trường Hà Nội.
+- Chiều 29-6, Sở Giáo dục và Đào tạo Hà Nội công bố điểm thi vào lớp 10 năm học 2024-2025.
+- Năm 2011 - 2012 là thời kỳ Bộ GD-ĐT bắt đầu xây những "viên gạch" đầu tiên của công cuộc đổi mới chương trình giáo dục phổ thông.
+- Kỳ thi tốt nghiệp THPT 2024 đã diễn ra an toàn, nhẹ nhàng và hầu như không còn cảm giác áp lực.
+- Theo kế hoạch của Bộ GD&ĐT, kết quả kỳ thi tốt nghiệp THPT 2024 được công bố vào 8h ngày 17-7.
 - Các sĩ tử vừa trải qua kỳ thi tốt nghiệp THPT nhiều áp lực. Cả ba mẹ và con đều cần được thả lỏng và tăng kết nối ở giai đoạn này.
 - Hôm nay 28-6, các sĩ tử đã trải qua ngày thi cuối cùng của kỳ thi tốt nghiệp THPT. Những cái ôm, những cái bắt tay như những khoảnh khắc lắng đọng khép lại kỳ thi đầy cảm xúc này.
 - Ngày 28-6, ngay sau khi kết thúc môn thi cuối cùng của kỳ thi tốt nghiệp THPT 2024, Bộ Giáo dục và Đào tạo tổ chức họp báo.
@@ -25,47 +32,41 @@
 Chiều nay thí sinh sẽ thi môn cuối cùng là ngoại ngữ.
 - Mời bạn đọc tham khảo bài giải môn giáo dục công dân thi tốt nghiệp THPT 2024. Tuổi Trẻ Online liên tục cập nhật.
 - Đề thi tốt nghiệp THPT 2024 môn hóa học. Mời bạn đọc theo dõi gợi ý bài giải trên Tuổi Trẻ Online.
-- Đề thi môn vật lý thi tốt nghiệp THPT 2024. Mời bạn đọc theo dõi gợi ý bài giải trên Tuổi Trẻ Online.
-- Đã có đề thi tốt nghiệp THPT môn lịch sử. Mời các bạn đón xem gợi ý.
-- Đề thi tốt nghiệp THPT 2024 môn sinh học. Mời bạn đọc theo dõi gợi ý bài giải trên Tuổi Trẻ Online.
-- Đã có đề thi tốt nghiệp THPT môn địa lý. Mời các bạn đón xem gợi ý giải bài
-- Đã có đề thi tốt nghiệp môn giáo dục công dân. Mời bạn đón xem gợi ý làm bài.
-- Các tình nguyện viên lặng lẽ và cần mẫn, nhiều lực lượng không quản nắng hay mưa, đêm hay ngày... để thí sinh có một mùa thi tốt nghiệp thuận lợi nhất.
-- Lần thứ ba, bài thơ Đất nước của nhà thơ Nguyễn Khoa Điềm vào đề thi văn tốt nghiệp THPT (hai lần trước là năm 2017 và 2020).
 ![Edu](Edu.png)
 ## Thời Sự 
-- Quốc hội vừa thông qua cơ chế, chính sách đặc thù phát triển Đà Nẵng, trong đó cho phép lập khu thương mại tự do với hàng loạt cơ chế ưu đãi.
-- Sáng 29-6, Quốc hội đã thông qua Luật Bảo hiểm xã hội sửa đổi, trong đó  đưa ra quy định mới về rút bảo hiểm xã hội một lần.
-- Tối 28-6, tại phố đi bộ Nguyễn Huệ, UBND TP.HCM tổ chức khai mạc chuỗi hoạt động kỷ niệm 326 năm thành lập TP Sài Gòn - Chợ Lớn - Gia Định - TP.HCM (1698-2024) và 48 năm ngày Sài Gòn - Gia Định chính thức vinh dự mang tên Chủ tịch Hồ Chí Minh.
-- Một số tin tức đáng chú ý: Sáng nay, Quốc hội chốt phương án rút bảo hiểm xã hội một lần, bế mạc kỳ họp thứ 7; Doanh nghiệp đạt gần 40% kế hoạch kinh doanh du lịch hè; Vốn đầu tư nước ngoài vào Việt Nam đạt gần 15,2 tỉ USD trong 6 tháng...
-- Hôm nay 29-6, thời tiết Nam Bộ nhiều mây, trời nắng gián đoạn, chiều tối mưa rào. Bắc Bộ đến Trung Bộ nắng nóng gay gắt.
-- Chiều 28-6, Học viện Quân y tổ chức hội nghị công bố, trao quyết định bổ nhiệm chức vụ giám đốc Bệnh viện Quân y 103 đối với đại tá, PGS.TS Lương Công Thức.
-- TP.HCM dự kiến miễn giá vé cho hành khách đi tuyến metro số 1 (Bến Thành - Suối Tiên) và 17 tuyến buýt kết nối trong 3 tháng đầu vận hành thương mại.
-- Chiều 28-6, Bộ Giao thông vận tải có thông tin về việc mở rộng thí điểm sử dụng cát biển làm cao tốc.
-- Do bức xúc các vấn đề liên quan đến môi trường xuất phát từ một trại heo, người dân ở xã Kỳ Tây (huyện Kỳ Anh) đã tụ tập trước cơ sở này phản đối và yêu cầu trại heo di dời đến địa điểm khác để tránh gây ô nhiễm cho nguồn nước.
-- 19km còn lại đoạn cao tốc Diễn Châu - Bãi Vọt thuộc tuyến cao tốc Bắc - Nam sẽ được hoàn thành, đưa vào khai thác kể từ ngày 30-6.
-- Ngoài những khoáng sản đảm bảo vì lợi ích quốc gia, an ninh, còn lại tập trung đấu giá đảm bảo khai thác, sử dụng hiệu quả và nguồn thu cao nhất từ khoáng sản.
-- Bộ Công an cho biết đã sẵn sàng các điều kiện về hạ tầng, kỹ thuật, công nghệ để đảm bảo thu nhận hồ sơ, cấp thẻ căn cước cho công dân từ ngày 1-7.
-- Thân nhân của người phụ nữ tử vong vì tai nạn giao thông kiến nghị giám định lại nồng độ cồn đối với nạn nhân.
-- Chiều 28-6, ông Phan Xuân Phúc (quận Liên Chiểu, Đà Nẵng) cho biết trong ngày phía Ngân hàng An Bình (ABBank) đã mời ông tới điểm giao dịch tại Đà Nẵng để trao đổi các thông tin liên quan đến việc tài khoản "nhảy múa".
-- Bí thư Sơn La Nguyễn Hữu Đông đã được Bộ Chính trị điều động, bổ nhiệm giữ chức phó trưởng Ban Nội chính Trung ương.
-- Bà Đinh Thị Mai, vụ trưởng Vụ Tuyên truyền, đã được Ban Bí thư bổ nhiệm làm phó trưởng Ban Tuyên giáo Trung ương.
-- Trưởng Công an phường Hải Cảng, TP Quy Nhơn (Bình Định) vừa tử vong sau khi bị xe tải tông trong lúc đi tập thể dục.
-- Ngân sách nhà nước giữ vai trò chủ đạo và quyết định để đầu tư toàn bộ hệ thống metro giai đoạn từ nay đến năm 2035.
-- Chủ tịch UBND quận 5 vừa xử phạt hành chính 130 triệu đồng đối với Công ty cổ phần Học liệu về hành vi xây lụi tại số 240 Trần Bình Trọng (quận 5, TP.HCM).
-- Ngày 28-6, Ban Chỉ đạo tìm kiếm, quy tập và xác định danh tính hài cốt liệt sĩ (Ban Chỉ đạo 515) tỉnh Tây Ninh tổ chức lễ đón hài cốt liệt sĩ tại Campuchia về nước.
-- Lãnh đạo Sở Giáo dục và Đào tạo Đắk Lắk cho biết đã báo cáo Ban chỉ đạo thi quốc gia việc lỗi mờ mã đề thi môn toán xảy ra chiều 27-6 ở một số điểm thi.
-- Thủ tướng Hàn Quốc Han Duck Soo nhấn mạnh quan hệ hai nước đang vô cùng tốt đẹp và đã phát triển mối quan hệ hợp tác mẫu mực vào loại hàng đầu thế giới.
-- Khu vực phía Bắc Biển Đông đang tồn tại một vùng mây đối lưu gây mưa dông mạnh, dự báo có khả năng mạnh lên thành vùng áp thấp.
-- Trong lúc dọn vệ sinh tại sân bay Đà Nẵng, bà Trần Thị Hường phát hiện một ba lô bên trong chứa gần 1,4 tỉ đồng.
-- Công ty cổ phần Đầu tư xây dựng và Kỹ thuật VNCN E&amp;C được giao quyền sử dụng thuộc khu B1 vùng biển tỉnh Sóc Trăng để khai thác cát biển phục vụ đường cao tốc Bắc - Nam phía Đông giai đoạn 2021 - 2025.
-- Dự án đường làm hơn 2 năm qua nhưng vẫn chưa xong. Người dân phản ánh chính quyền bồi thường chưa đúng đối tượng.
-- Đường Nguyễn Hữu Cảnh (quận Bình Thạnh, TP.HCM) dù khánh thành hơn 3 năm nhưng đến nay vẫn chưa nghiệm thu xong để bàn giao. Thời gian qua, đường này thường xuyên bị rác 'bao vây'.
-- Trạm cân mỏ đất Tân Lập (xã Hành Nhân, huyện Nghĩa Hành, Quảng Ngãi) bị 'bỏ rơi', chẳng có xe nào đi qua cân trước khi chở đất rời đi.
-- Trưa 28-6, trên quốc lộ 1 đoạn lên dốc cầu vượt An Sương (quận 12, TP.HCM) lại xuất hiện những miếng đinh hình thoi sắc nhọn.
-- Chính phủ vừa ban hành Nghị định số 71/2024 quy định cụ thể trình tự, nội dung xác định giá đất theo 4 phương pháp.
+- Thủ tướng Chính phủ Phạm Minh Chính vừa ký quyết định bổ nhiệm ông Nguyễn Tri Thức, giám đốc Bệnh viện Chợ Rẫy, giữ chức thứ trưởng Bộ Y tế từ ngày 29-6.
+- Phan Văn Minh bị truy nã đặc biệt liên quan ma túy, sau đó trốn xuống TP Thủ Đức (TP.HCM) ẩn nấp. Lực lượng Công an TP Thủ Đức phối hợp Công an tỉnh Gia Lai bắt giữ người này sau nhiều giờ mật phục.
+- Tin tức đáng chú ý: Tháng 7 lương hưu, trợ cấp tăng, nhưng khi nào bắt đầu trả? Khám tầm soát bệnh tim bẩm sinh cho 2.000 trẻ em; Lần đầu tiên công diễn vở nhạc kịch "Bỉ vỏ"...
+- Hôm nay thời tiết cả nước ngày nắng, miền Bắc, miềnTrung có nơi nắng nóng gay gắt; miền Nam nắng gián đoạn, các tỉnh miền Tây  mưa rào.
+- Ngày 29-6, tỉnh Đồng Nai cho hay mới bàn giao được gần 80ha diện tích mặt bằng ở dự án cao tốc Biên Hòa - Vũng Tàu.
+- Một số hộ dân ở thị trấn Nông trường Việt Trung (Bố Trạch, Quảng Bình) đã thuê “thần đèn” từ TP.HCM ra di dời nguyên căn nhà của mình sang vị trí khác để bàn giao mặt bằng thi công cao tốc Bắc - Nam.
+- Phát hiện tài sản gồm tiền và vàng trị giá hơn 1,5 tỉ đồng được cất giấu trong 2 phuy lúa trước hiên nhà bị mất cắp, người đàn ông báo công an thì "lòi" ra nghi phạm chính là con gái của mình.
+- Liên quan đến vấn đề người dân phản ánh tình trạng một số đơn vị thu gom thu thêm tiền rác tháng 13, Tuổi Trẻ Online đã liên hệ với các đơn vị để làm rõ thêm.
+- Kết luận Thanh tra TP chỉ ra nhiều tồn tại, vi phạm trong quản lý quy hoạch, xây dựng dẫn đến việc TP.HCM không được bàn giao 110ha đất công ở Phú Mỹ Hưng.
+- Để xây dựng, vận hành trạm dừng nghỉ tại Km205+093 cao tốc Phan Thiết - Vĩnh Hảo trong 25 năm nhà đầu tư phải nộp cho Nhà nước 81 tỉ đồng.
+- Từ ngày 1-7, việc kiểm tra thông tin của một số giấy tờ liên quan đến người tham gia giao thông, thông qua căn cước điện tử, tài khoản định danh điện tử trên VNeID, cơ sở dữ liệu sẽ có giá trị như kiểm tra trực tiếp giấy tờ đó.
+- Sở Y tế TP.HCM phát hiện Công ty TNHH dịch vụ chăm sóc y tế VMEDI (đóng tại quận Bình Tân) quảng cáo và cung cấp dịch vụ truyền nước biển tại nhà trái quy định, tiềm ẩn nhiều nguy cơ.
+- Do đường đông, xe chạy khó khăn mà sản phụ trên xe đã vỡ ối, tài xế ô tô nhanh trí nhờ hai cảnh sát giao thông chạy mô tô đặc chủng mở đường.
+- Hai vợ chồng nhốt cô gái 22 tuổi trong căn nhà ở TP Thủ Đức (TP.HCM) rồi dùng đánh dã man nhiều chỗ trên cơ thể cô này.
+- Nhà đầu tư làm 2,7km đường vành đai 2 TP.HCM mong muốn các vướng mắc sớm được giải quyết dứt điểm.
+- Chỉ huy trưởng Ban chỉ huy quân sự xã Đê Ar (huyện Mang Yang, tỉnh Gia Lai) bị tạm giữ cùng một phụ nữ trong phòng làm việc nghi liên quan tới ma túy.
+- BOT Điện Bàn đi vào hoạt động nhiều năm, nhưng từ khi hình thành các khu dân cư hai bên trạm khiến lượng xe đi vòng né thu phí tăng đột xuất.
+- Xe tải chở nước tông liên hoàn với xe tập lái và xe container đi cùng chiều trên quốc lộ 13, tỉnh Bình Dương khiến tài xế xe tải thiệt mạng.
+- Ngoài cơ sở hạ tầng, Nhật sẽ chủ động đề xuất ODA cho Việt Nam trong chuyển đổi số, chuyển đổi xanh, ứng phó biến đổi khí hậu và y tế.
+- Dự kiến từ ngày 30-9, doanh nghiệp dự án cao tốc Diễn Châu - Bãi Vọt thuộc dự án thành phần cao tốc Bắc - Nam phía Đông sẽ bắt đầu thu phí.
+- Luật Bảo hiểm xã hội mới giảm thời gian đóng bảo hiểm hưởng lương hưu xuống 15 năm, tăng tỉ lệ hưởng.
+- Sau phản ánh của Tuổi Trẻ, việc nhiều tuyến đường ở TP.HCM tồn tại cây xanh bị đổ bê tông bịt kín gốc, đơn vị quản lý đã xử lý, giải cứu.
+- Hai căn nhà cấp 4 nằm bên cạnh quốc lộ 19C (xã Xuân Lãnh, huyện Đồng Xuân, tỉnh Phú Yên) giờ đây không còn tiếng cười nói của trẻ nhỏ.
+- Sau phản ánh của Tuổi Trẻ Online, lực lượng chức năng phường Trung Mỹ Tây (quận 12, TP.HCM) đã ra quân hút đinh trên quốc lộ 1.
+- Doosan Vina "bắt tay" cùng Tập đoàn Marubeni (Nhật Bản) muốn hợp tác phát triển điện gió ngoài khơi Việt Nam.
+- Sân bay Cà Mau được nâng công suất từ 200.000 khách lên 1 triệu khách/năm đến năm 2030 và nâng lên 5 triệu khách/năm đến năm 2050.
+- Nửa đầu năm 2024, Bắc Giang, Khánh Hòa, Thanh Hóa, Hà Nam và Hải Phòng dẫn đầu cả nước về tốc độ tăng trưởng kinh tế.
+- Đà Nẵng đã khảo sát và đề xuất 4 vị trí thành lập khu thương mại tự do gắn với cảng Liên Chiểu, trong đó có vị trí đề xuất lấn biển tại vịnh Đà Nẵng.
+- Dù lương hưu tăng 15% nhưng thực tế nếu cộng dồn các năm qua khi liên tục nâng theo chỉ số CPI thì cao hơn 30% so với cán bộ, công chức.
+- Mùa mưa TP.HCM có đặc trưng ngày nắng gián đoạn, trưa đến chiều tối có mưa. Tuy nhiên một số ngày mưa sớm, ban ngày lúc nắng lúc mưa.
 ![New](News.png)
 ## Nhịp sống số 
+- Nếu lỡ cài đặt bản cập nhật KB5039302 được phát hành gần đây cho Windows 11 và bị lỗi khởi động lại liên tục, bạn có thể làm gì?
 - Mới đây, F.Studio by FPT đã chính thức mở bán các sản phẩm Apple trên gian hàng TikTok Shop của hệ thống.
 - Vừa qua, Motorola Solutions đã khai trương trung tâm R&amp;D tại TP.HCM, với mục tiêu thúc đẩy nghiên cứu và phát triển phần mềm, phân tích dữ liệu và công nghệ trí tuệ nhân tạo (AI).
 - Họp trực tuyến ngày càng phổ biến vì đáp ứng nhu cầu công việc tức thời, tối ưu thời gian và chi phí.
@@ -95,5 +96,4 @@ Chiều nay thí sinh sẽ thi môn cuối cùng là ngoại ngữ.
 - Với sự xuất hiện của 6G, thế hệ băng thông mở rộng tiếp theo sẽ mang đến nhiều công năng và bất ngờ hơn.
 - Con chip này còn có thể dùng trong các hệ thống cảm biến và giám sát như trong xe tự hành hoặc để phát hiện lỗi nhỏ trong dây chuyền lắp ráp robot.
 - Galaxy Z Fold là một biểu tượng của Samsung trong công nghệ mới, khi có khả năng gập đôi và màn hình rộng gần 8 inch.
-- Để các đối tác nhà hàng, quán ăn được tiếp sức trên chặng đường đầy cạnh tranh, Gojek tiếp tục xây dựng kế hoạch hỗ trợ trong năm 2024.
 ![life](Life.png)
