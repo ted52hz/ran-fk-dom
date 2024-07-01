@@ -1,6 +1,13 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Sở Giáo dục và Đào tạo TP.HCM đã có buổi làm việc với phụ huynh và những cán bộ liên quan về vụ giám thị sai sót trong kỳ thi tốt nghiệp THPT 2024.
+- Theo kế hoạch của Sở Giáo dục và Đào tạo Hà Nội, từ ngày 1-7, các trường học sẽ tuyển sinh đầu cấp trực tuyến và trực tiếp.
+- Có tới 32% trong số 145 tân cử nhân khóa đầu tiên vừa tốt nghiệp trường ĐH VinUni được các tập đoàn toàn cầu hàng đầu mời làm việc ngay khi chưa tốt nghiệp. Trong số đó có cái tên truyền cảm hứng Giáp Vũ Nam Dương.
+- "Việc tổ chức giải bóng rổ trong mùa hè này là rất phù hợp với học sinh chúng em" - Thảo Nguyên, học sinh lớp 11 Trường THPT Tây Thạnh, TP.HCM, cho biết.
+- Theo giấy phép xây dựng cấp cho Trường tiểu học, THCS và THPT Victory, công trình là nhà để xe và giáo dục năng khiếu.
+- Sinh viên năm nhất khoa du lịch Trường đại học Nha Trang đi kiến tập ở resort, khách sạn phải làm việc 8 tiếng/ngày, liên tục trong 6 ngày.
+- Sở Giáo dục dự kiến công bố điểm chuẩn vào lớp 10 năm 2024 sớm hơn 1 tuần, tức là ngày 3-7 thay vì ngày 10-7 như thông báo trước đó.
 - Tại lễ tốt nghiệp diễn ra ngày 29-6, Trường đại học VinUni đã vinh danh 145 sinh viên đầu tiên của trường đại học phi lợi nhuận trẻ tuổi này.
 - Từ nhận định của các thầy cô giáo đối với đề thi các môn thi tốt nghiệp THPT 2024, có thể hình dung điểm thi tốt nghiệp THPT sẽ tăng nhẹ. Nhưng sẽ hạn chế tình trạng "mưa điểm 10".
 - Thanh tra Bộ Giáo dục và Đào tạo vừa chỉ ra những thiếu sót, vi phạm cần khắc phục tại Trường đại học Hùng Vương, Trường đại học Tài nguyên và Môi trường Hà Nội.
@@ -24,46 +31,38 @@
 - Nhiều thí sinh có chứng chỉ IELTS, thuộc diện được miễn thi ngoại ngữ trong xét tốt nghiệp THPT nhưng đã đăng ký dự thi môn này, nay nghĩ lại không muốn thi nữa được không?
 - Mời bạn đọc tham khảo bài giải gợi ý môn địa lý thi tốt nghiệp THPT 2024. Bài giải được cập nhật liên tục.
 - Mời bạn đọc tham khảo bài giải gợi ý môn vật lý thi tốt nghiệp THPT 2024. Tuổi Trẻ Online liên tục cập nhật.
-- Mời bạn đọc tham khảo bài giải gợi ý môn lịch sử thi tốt nghiệp THPT 2024. Bài giải được cập nhật liên tục.
-- Bài giải gợi ý môn hóa học thi tốt nghiệp THPT 2024. Tuổi Trẻ Online liên tục cập nhật.
-- Thí sinh thi tốt nghiệp THPT cho rằng đề thi giáo dục công dân, lịch sử, địa lý năm nay dễ, chỉ có vài câu hỏi phân hóa để lấy điểm cao.
-- Mời bạn đọc theo dõi bài giải môn sinh học thi tốt nghiệp THPT 2024. Tuổi Trẻ Online liên tục cập nhật.
-- Đề thi tổ hợp khoa học tự nhiên kỳ thi tốt nghiệp THPT 2024 được thí sinh nhận xét vừa sức. 
-Chiều nay thí sinh sẽ thi môn cuối cùng là ngoại ngữ.
-- Mời bạn đọc tham khảo bài giải môn giáo dục công dân thi tốt nghiệp THPT 2024. Tuổi Trẻ Online liên tục cập nhật.
-- Đề thi tốt nghiệp THPT 2024 môn hóa học. Mời bạn đọc theo dõi gợi ý bài giải trên Tuổi Trẻ Online.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Thủ tướng Chính phủ Phạm Minh Chính vừa ký quyết định bổ nhiệm ông Nguyễn Tri Thức, giám đốc Bệnh viện Chợ Rẫy, giữ chức thứ trưởng Bộ Y tế từ ngày 29-6.
-- Phan Văn Minh bị truy nã đặc biệt liên quan ma túy, sau đó trốn xuống TP Thủ Đức (TP.HCM) ẩn nấp. Lực lượng Công an TP Thủ Đức phối hợp Công an tỉnh Gia Lai bắt giữ người này sau nhiều giờ mật phục.
-- Tin tức đáng chú ý: Tháng 7 lương hưu, trợ cấp tăng, nhưng khi nào bắt đầu trả? Khám tầm soát bệnh tim bẩm sinh cho 2.000 trẻ em; Lần đầu tiên công diễn vở nhạc kịch "Bỉ vỏ"...
-- Hôm nay thời tiết cả nước ngày nắng, miền Bắc, miềnTrung có nơi nắng nóng gay gắt; miền Nam nắng gián đoạn, các tỉnh miền Tây  mưa rào.
-- Ngày 29-6, tỉnh Đồng Nai cho hay mới bàn giao được gần 80ha diện tích mặt bằng ở dự án cao tốc Biên Hòa - Vũng Tàu.
-- Một số hộ dân ở thị trấn Nông trường Việt Trung (Bố Trạch, Quảng Bình) đã thuê “thần đèn” từ TP.HCM ra di dời nguyên căn nhà của mình sang vị trí khác để bàn giao mặt bằng thi công cao tốc Bắc - Nam.
-- Phát hiện tài sản gồm tiền và vàng trị giá hơn 1,5 tỉ đồng được cất giấu trong 2 phuy lúa trước hiên nhà bị mất cắp, người đàn ông báo công an thì "lòi" ra nghi phạm chính là con gái của mình.
-- Liên quan đến vấn đề người dân phản ánh tình trạng một số đơn vị thu gom thu thêm tiền rác tháng 13, Tuổi Trẻ Online đã liên hệ với các đơn vị để làm rõ thêm.
-- Kết luận Thanh tra TP chỉ ra nhiều tồn tại, vi phạm trong quản lý quy hoạch, xây dựng dẫn đến việc TP.HCM không được bàn giao 110ha đất công ở Phú Mỹ Hưng.
-- Để xây dựng, vận hành trạm dừng nghỉ tại Km205+093 cao tốc Phan Thiết - Vĩnh Hảo trong 25 năm nhà đầu tư phải nộp cho Nhà nước 81 tỉ đồng.
-- Từ ngày 1-7, việc kiểm tra thông tin của một số giấy tờ liên quan đến người tham gia giao thông, thông qua căn cước điện tử, tài khoản định danh điện tử trên VNeID, cơ sở dữ liệu sẽ có giá trị như kiểm tra trực tiếp giấy tờ đó.
-- Sở Y tế TP.HCM phát hiện Công ty TNHH dịch vụ chăm sóc y tế VMEDI (đóng tại quận Bình Tân) quảng cáo và cung cấp dịch vụ truyền nước biển tại nhà trái quy định, tiềm ẩn nhiều nguy cơ.
-- Do đường đông, xe chạy khó khăn mà sản phụ trên xe đã vỡ ối, tài xế ô tô nhanh trí nhờ hai cảnh sát giao thông chạy mô tô đặc chủng mở đường.
-- Hai vợ chồng nhốt cô gái 22 tuổi trong căn nhà ở TP Thủ Đức (TP.HCM) rồi dùng đánh dã man nhiều chỗ trên cơ thể cô này.
-- Nhà đầu tư làm 2,7km đường vành đai 2 TP.HCM mong muốn các vướng mắc sớm được giải quyết dứt điểm.
-- Chỉ huy trưởng Ban chỉ huy quân sự xã Đê Ar (huyện Mang Yang, tỉnh Gia Lai) bị tạm giữ cùng một phụ nữ trong phòng làm việc nghi liên quan tới ma túy.
-- BOT Điện Bàn đi vào hoạt động nhiều năm, nhưng từ khi hình thành các khu dân cư hai bên trạm khiến lượng xe đi vòng né thu phí tăng đột xuất.
-- Xe tải chở nước tông liên hoàn với xe tập lái và xe container đi cùng chiều trên quốc lộ 13, tỉnh Bình Dương khiến tài xế xe tải thiệt mạng.
-- Ngoài cơ sở hạ tầng, Nhật sẽ chủ động đề xuất ODA cho Việt Nam trong chuyển đổi số, chuyển đổi xanh, ứng phó biến đổi khí hậu và y tế.
-- Dự kiến từ ngày 30-9, doanh nghiệp dự án cao tốc Diễn Châu - Bãi Vọt thuộc dự án thành phần cao tốc Bắc - Nam phía Đông sẽ bắt đầu thu phí.
-- Luật Bảo hiểm xã hội mới giảm thời gian đóng bảo hiểm hưởng lương hưu xuống 15 năm, tăng tỉ lệ hưởng.
-- Sau phản ánh của Tuổi Trẻ, việc nhiều tuyến đường ở TP.HCM tồn tại cây xanh bị đổ bê tông bịt kín gốc, đơn vị quản lý đã xử lý, giải cứu.
-- Hai căn nhà cấp 4 nằm bên cạnh quốc lộ 19C (xã Xuân Lãnh, huyện Đồng Xuân, tỉnh Phú Yên) giờ đây không còn tiếng cười nói của trẻ nhỏ.
-- Sau phản ánh của Tuổi Trẻ Online, lực lượng chức năng phường Trung Mỹ Tây (quận 12, TP.HCM) đã ra quân hút đinh trên quốc lộ 1.
-- Doosan Vina "bắt tay" cùng Tập đoàn Marubeni (Nhật Bản) muốn hợp tác phát triển điện gió ngoài khơi Việt Nam.
-- Sân bay Cà Mau được nâng công suất từ 200.000 khách lên 1 triệu khách/năm đến năm 2030 và nâng lên 5 triệu khách/năm đến năm 2050.
-- Nửa đầu năm 2024, Bắc Giang, Khánh Hòa, Thanh Hóa, Hà Nam và Hải Phòng dẫn đầu cả nước về tốc độ tăng trưởng kinh tế.
-- Đà Nẵng đã khảo sát và đề xuất 4 vị trí thành lập khu thương mại tự do gắn với cảng Liên Chiểu, trong đó có vị trí đề xuất lấn biển tại vịnh Đà Nẵng.
-- Dù lương hưu tăng 15% nhưng thực tế nếu cộng dồn các năm qua khi liên tục nâng theo chỉ số CPI thì cao hơn 30% so với cán bộ, công chức.
-- Mùa mưa TP.HCM có đặc trưng ngày nắng gián đoạn, trưa đến chiều tối có mưa. Tuy nhiên một số ngày mưa sớm, ban ngày lúc nắng lúc mưa.
+- Từ hôm nay 1-7, Luật Căn cước chính thức có hiệu lực. Căn cước công dân sẽ đổi tên thành căn cước.
+- Sáng nay (1-7), các địa phương trên cả nước sẽ ra mắt lực lượng này trên cơ sở kiện toàn ba lực lượng có sẵn.
+- Một số tin tức đáng chú ý: Không để xe rác thô sơ chạy trên đường phố TP.HCM; Tiếp tục giảm 2% thuế VAT đối với nhiều hàng hóa, dịch vụ; Sốt xuất huyết ở Hà Nội tăng 5 tuần liên tiếp...
+- Hôm nay 1-7, thời tiết cả nước ngày nắng đến nắng nóng, từ ngày mai sẽ có đợt mưa dông nhiều nơi.
+- Cả nước sẽ chính thức thực hiện cải cách chính sách tiền lương từ hôm nay 1-7, lương cơ sở tăng từ 1,8 triệu đồng lên 2,34 triệu đồng (xấp xỉ 30%).
+- Thủ tướng giao Phó thủ tướng chỉ đạo Bộ Nội vụ khẩn trương xây dựng dự thảo nghị định quy định mức lương cơ sở, chế độ tiền thưởng đối với cán bộ, công chức, viên chức và lực lượng vũ trang.
+- Ngay sau khi đến Seoul, Thủ tướng Phạm Minh Chính đã dành hai hoạt động đầu tiên cho những người bạn Hàn Quốc và cộng đồng người Việt Nam tại đây.
+- Ban Trị sự đã nhận thư sám hối và xin lỗi của đại đức Thích Nhuận Đức (cư trú tại tổ đình Hộ Pháp, thị xã Phú Mỹ, tỉnh Bà Rịa - Vũng Tàu) vì đã có những lời khiếm nhã trong một video ghi hình năm 2023 khi nói về đồng bào Khmer.
+- Ngọn lửa bùng phát gây cháy xưởng gỗ lớn tại thị xã An Nhơn (Bình Định), sau đó cháy lan ra khu vực rừng keo phía sau. Rất may, lực lượng phòng cháy chữa cháy tỉnh Bình Định đã dập tắt kịp thời.
+- Kết luận thanh tra chỉ ra tại khu đô thị Phú Mỹ Hưng vẫn còn nhiều tồn tại, vi phạm xây dựng, quy hoạch qua gần 30 năm triển khai. Đó là những công trình nào?
+- Chủ đầu tư đang thi công dự án cải tạo, nâng cấp quốc lộ 28B qua các tỉnh Bình Thuận và Lâm Đồng. Vì vậy, lái xe lưu ý khi qua đây, nhất là đoạn đèo Đại Ninh.
+- Nam tài xế N.Đ.H. đang công tác tại một cơ quan trung ương. Anh này lắp biển xanh giả và thiết bị lật biển cho chiếc Toyota Land Cruiser VX.
+- Người 75 tuổi trở lên, không hưởng lương hưu hoặc trợ cấp bảo hiểm xã hội hằng tháng, sẽ được nhận trợ cấp hưu trí xã hội từ ngân sách.
+- Người dân sống trong bán kính 2km quanh trạm BOT trên quốc lộ 19 đoạn qua xã Đak Ta Ley (huyện Mang Yang, tỉnh Gia Lai) sẽ được miễn 100% phí qua trạm.
+- Liên quan vụ người phụ nữ chết vì tai nạn, thân nhân đề nghị làm rõ vì sao trong máu nạn nhân có nồng độ cồn và hàm lượng 241mg/100ml, đã có luật sư hỗ trợ pháp lý miễn phí.
+- Đường Hoàng Hữu Nam (TP Thủ Đức, TP.HCM) được khởi công nâng cấp cách đây 9 năm nhưng chưa xong do vướng mặt bằng.
+- Luật Trật tự, an toàn giao thông đường bộ có hiệu lực từ ngày 1-1-2025 quy định xe máy sẽ phải thực hiện kiểm định khí thải.
+- Hàn Quốc tổ chức lễ đón Thủ tướng Phạm Minh Chính và phu nhân một cách trang trọng, ngay sau khi người đứng đầu Chính phủ vừa rời chuyên cơ.
+- Nhiều trạm xe buýt trên đường Võ Nguyên Giáp, TP Thủ Đức (TP.HCM) có bóng đèn nhưng không sáng, nhiều trạm không có bảng điện tử.
+- Theo giấy phép xây dựng cấp cho Trường tiểu học, THCS và THPT Victory, công trình là nhà để xe và giáo dục năng khiếu.
+- Cục Hàng không đề xuất bổ sung phương án cải tạo và kéo dài đường băng sân bay Vinh thêm 600m để đạt chiều dài 3.000m.
+- Tuần này, những ngày đầu tuần thời tiết cả nước nắng đến nắng nóng, cuối tuần nhiều nơi mưa to.
+- UBND huyện đã chỉ đạo các xã, thị trấn thành lập 16 tổ kiểm tra, xử lý vi phạm môi trường cùng với triển khai lắp đặt camera giám sát.
+- Gần hai năm nay, rừng đặc dụng núi Hòn Chông (Kiên Giang) bị xâm lấn làm nhà hàng BBQ, homestay và quán cà phê hoành tráng.
+- Lực lượng bảo vệ an ninh, trật tự tại cơ sở góp phần hỗ trợ công an cấp xã đảm bảo an ninh trật tự địa bàn, tiếp cận, bảo vệ người dân một cách nhanh chóng.
+- Công an Quảng Nam vừa phối hợp lực lượng của Bộ Công an bắt một người đàn ông quốc tịch Trung Quốc bị Bộ Công an nước này truy nã.
+- Nguyên giám đốc Trung tâm Điều dưỡng người có công với cách mạng Nghệ An chỉ đạo cấp dưới lập hồ sơ khống về đấu thầu, mua sắm trang thiết bị để rút ruột ngân sách.
+- Bình Tân là một trong những quận đầu tiên ở TP.HCM triển khai chuẩn hóa lực lượng thu gom rác dân lập và để đưa việc này vào quy củ.
+- Chuyến thăm chính thức Hàn Quốc đầu tiên của Thủ tướng Phạm Minh Chính nhận được sự kỳ vọng lớn của giới doanh nghiệp.
+- Tổng trữ lượng cát được khai thác trên 1,1 triệu m3, phục vụ thi công dự án thành phần 4 cao tốc Châu Đốc - Cần Thơ - Sóc Trăng.
 ![New](News.png)
 ## Nhịp sống số 
 - Nếu lỡ cài đặt bản cập nhật KB5039302 được phát hành gần đây cho Windows 11 và bị lỗi khởi động lại liên tục, bạn có thể làm gì?
