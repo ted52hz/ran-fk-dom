@@ -1,6 +1,15 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Trường quốc tế AISVN vẫn chưa báo cáo minh chứng thể hiện đảm bảo điều kiện hoạt động giáo dục theo quy định nên đã bị đình chỉ hoạt động.
+- Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) công bố điểm chuẩn trúng tuyển ưu tiên xét tuyển năm 2024, có ngành điểm tuyệt đối 10.
+- Chiều 1-7, Sở Giáo dục và Đào tạo Hà Nội công bố điểm chuẩn vào lớp 10 công lập không chuyên với mức điểm giảm so với năm trước.
+- Trường Marie Curie (Hà Nội) vừa công bố điểm chuẩn vào lớp 10 công lập năm học 2024-2025 là 42 điểm.
+- Những năm gần đây, xu hướng chọn ngành học của thí sinh ngày càng gắn với nhu cầu nhân lực của thị trường.
+- Sáng 1-7, Sở Giáo dục và Đào tạo Hà Nội duyệt và công bố điểm chuẩn vào lớp 10 chuyên năm học 2024-2025.
+- Ngày 1-7, Sở Giáo dục và Đào tạo Hà Nội sẽ duyệt điểm chuẩn lớp 10 công lập của khối chuyên và không chuyên năm học 2024-2025.
+- 'Chọn ngành học theo bát tự, thần số học', 'Hướng nghiệp theo số chủ đạo', 'Chọn ngành bằng bài tarot', 'Hướng nghiệp theo lá số tử vi đảm bảo chính xác 99%'...
+- Ngay sau khi hết giờ thi toán, Tuổi Trẻ công bố gợi ý bài giải và đáp án do AI thực hiện. Nhiều người ngạc nhiên vì độ nhanh, chính xác và hợp lý của bài giải.
 - Sở Giáo dục và Đào tạo TP.HCM đã có buổi làm việc với phụ huynh và những cán bộ liên quan về vụ giám thị sai sót trong kỳ thi tốt nghiệp THPT 2024.
 - Theo kế hoạch của Sở Giáo dục và Đào tạo Hà Nội, từ ngày 1-7, các trường học sẽ tuyển sinh đầu cấp trực tuyến và trực tiếp.
 - Có tới 32% trong số 145 tân cử nhân khóa đầu tiên vừa tốt nghiệp trường ĐH VinUni được các tập đoàn toàn cầu hàng đầu mời làm việc ngay khi chưa tốt nghiệp. Trong số đó có cái tên truyền cảm hứng Giáp Vũ Nam Dương.
@@ -22,47 +31,38 @@
 - Lãnh đạo Sở Giáo dục và Đào tạo Đắk Lắk cho biết đã báo cáo Ban chỉ đạo thi quốc gia việc lỗi mờ mã đề thi môn toán xảy ra chiều 27-6 ở một số điểm thi.
 - Tuổi Trẻ Online giới thiệu bài giải môn tiếng Anh kỳ thi tốt nghiệp THPT 2024 do AI thực hiện.
 - Mời bạn đọc tham khảo gợi ý bài giải môn tiếng Anh thi tốt nghiệp THPT 2024. Bài giải được cập nhật liên tục.
-- Hết giờ thi môn tiếng Anh tốt nghiệp THPT 2024, hầu hết thí sinh ra về với nụ cười tươi rói, khoe 'đề dễ'. Dẫu vậy, giáo viên nói thí sinh không dễ lấy điểm 10.
-- Một số trường đại học ở TP.HCM vừa công bố điều chỉnh đối tượng tuyển sinh, rà soát các thông tin đăng ký, minh chứng trong xét tuyển sớm và công bố điểm chuẩn xét học bạ.
-- Phát triển nguồn nhân lực chất lượng cao là bài toán khó và mô hình Đại học - Doanh nghiệp trở thành lời giải xác đáng, mang đến lợi thế vững vàng cho cả ba bên doanh nghiệp - đại học - sinh viên.
-- Hằng năm các trường đại học triển khai chính sách học bổng khác nhau để thu hút tài năng, nâng cao chất lượng sinh viên đầu vào.
-- Ghi nhận những ngày diễn ra kỳ thi tốt nghiệp THPT, nhiều thí sinh mặc quần đùi áo cộc, dép lê đi thi.
-- Tuổi Trẻ Online giới thiệu bài giải môn sinh học kỳ thi tốt nghiệp THPT 2024 do AI thực hiện.
-- Nhiều thí sinh có chứng chỉ IELTS, thuộc diện được miễn thi ngoại ngữ trong xét tốt nghiệp THPT nhưng đã đăng ký dự thi môn này, nay nghĩ lại không muốn thi nữa được không?
-- Mời bạn đọc tham khảo bài giải gợi ý môn địa lý thi tốt nghiệp THPT 2024. Bài giải được cập nhật liên tục.
-- Mời bạn đọc tham khảo bài giải gợi ý môn vật lý thi tốt nghiệp THPT 2024. Tuổi Trẻ Online liên tục cập nhật.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Từ hôm nay 1-7, Luật Căn cước chính thức có hiệu lực. Căn cước công dân sẽ đổi tên thành căn cước.
-- Sáng nay (1-7), các địa phương trên cả nước sẽ ra mắt lực lượng này trên cơ sở kiện toàn ba lực lượng có sẵn.
-- Một số tin tức đáng chú ý: Không để xe rác thô sơ chạy trên đường phố TP.HCM; Tiếp tục giảm 2% thuế VAT đối với nhiều hàng hóa, dịch vụ; Sốt xuất huyết ở Hà Nội tăng 5 tuần liên tiếp...
-- Hôm nay 1-7, thời tiết cả nước ngày nắng đến nắng nóng, từ ngày mai sẽ có đợt mưa dông nhiều nơi.
-- Cả nước sẽ chính thức thực hiện cải cách chính sách tiền lương từ hôm nay 1-7, lương cơ sở tăng từ 1,8 triệu đồng lên 2,34 triệu đồng (xấp xỉ 30%).
-- Thủ tướng giao Phó thủ tướng chỉ đạo Bộ Nội vụ khẩn trương xây dựng dự thảo nghị định quy định mức lương cơ sở, chế độ tiền thưởng đối với cán bộ, công chức, viên chức và lực lượng vũ trang.
-- Ngay sau khi đến Seoul, Thủ tướng Phạm Minh Chính đã dành hai hoạt động đầu tiên cho những người bạn Hàn Quốc và cộng đồng người Việt Nam tại đây.
-- Ban Trị sự đã nhận thư sám hối và xin lỗi của đại đức Thích Nhuận Đức (cư trú tại tổ đình Hộ Pháp, thị xã Phú Mỹ, tỉnh Bà Rịa - Vũng Tàu) vì đã có những lời khiếm nhã trong một video ghi hình năm 2023 khi nói về đồng bào Khmer.
-- Ngọn lửa bùng phát gây cháy xưởng gỗ lớn tại thị xã An Nhơn (Bình Định), sau đó cháy lan ra khu vực rừng keo phía sau. Rất may, lực lượng phòng cháy chữa cháy tỉnh Bình Định đã dập tắt kịp thời.
-- Kết luận thanh tra chỉ ra tại khu đô thị Phú Mỹ Hưng vẫn còn nhiều tồn tại, vi phạm xây dựng, quy hoạch qua gần 30 năm triển khai. Đó là những công trình nào?
-- Chủ đầu tư đang thi công dự án cải tạo, nâng cấp quốc lộ 28B qua các tỉnh Bình Thuận và Lâm Đồng. Vì vậy, lái xe lưu ý khi qua đây, nhất là đoạn đèo Đại Ninh.
-- Nam tài xế N.Đ.H. đang công tác tại một cơ quan trung ương. Anh này lắp biển xanh giả và thiết bị lật biển cho chiếc Toyota Land Cruiser VX.
-- Người 75 tuổi trở lên, không hưởng lương hưu hoặc trợ cấp bảo hiểm xã hội hằng tháng, sẽ được nhận trợ cấp hưu trí xã hội từ ngân sách.
-- Người dân sống trong bán kính 2km quanh trạm BOT trên quốc lộ 19 đoạn qua xã Đak Ta Ley (huyện Mang Yang, tỉnh Gia Lai) sẽ được miễn 100% phí qua trạm.
-- Liên quan vụ người phụ nữ chết vì tai nạn, thân nhân đề nghị làm rõ vì sao trong máu nạn nhân có nồng độ cồn và hàm lượng 241mg/100ml, đã có luật sư hỗ trợ pháp lý miễn phí.
-- Đường Hoàng Hữu Nam (TP Thủ Đức, TP.HCM) được khởi công nâng cấp cách đây 9 năm nhưng chưa xong do vướng mặt bằng.
-- Luật Trật tự, an toàn giao thông đường bộ có hiệu lực từ ngày 1-1-2025 quy định xe máy sẽ phải thực hiện kiểm định khí thải.
-- Hàn Quốc tổ chức lễ đón Thủ tướng Phạm Minh Chính và phu nhân một cách trang trọng, ngay sau khi người đứng đầu Chính phủ vừa rời chuyên cơ.
-- Nhiều trạm xe buýt trên đường Võ Nguyên Giáp, TP Thủ Đức (TP.HCM) có bóng đèn nhưng không sáng, nhiều trạm không có bảng điện tử.
-- Theo giấy phép xây dựng cấp cho Trường tiểu học, THCS và THPT Victory, công trình là nhà để xe và giáo dục năng khiếu.
-- Cục Hàng không đề xuất bổ sung phương án cải tạo và kéo dài đường băng sân bay Vinh thêm 600m để đạt chiều dài 3.000m.
-- Tuần này, những ngày đầu tuần thời tiết cả nước nắng đến nắng nóng, cuối tuần nhiều nơi mưa to.
-- UBND huyện đã chỉ đạo các xã, thị trấn thành lập 16 tổ kiểm tra, xử lý vi phạm môi trường cùng với triển khai lắp đặt camera giám sát.
-- Gần hai năm nay, rừng đặc dụng núi Hòn Chông (Kiên Giang) bị xâm lấn làm nhà hàng BBQ, homestay và quán cà phê hoành tráng.
-- Lực lượng bảo vệ an ninh, trật tự tại cơ sở góp phần hỗ trợ công an cấp xã đảm bảo an ninh trật tự địa bàn, tiếp cận, bảo vệ người dân một cách nhanh chóng.
-- Công an Quảng Nam vừa phối hợp lực lượng của Bộ Công an bắt một người đàn ông quốc tịch Trung Quốc bị Bộ Công an nước này truy nã.
-- Nguyên giám đốc Trung tâm Điều dưỡng người có công với cách mạng Nghệ An chỉ đạo cấp dưới lập hồ sơ khống về đấu thầu, mua sắm trang thiết bị để rút ruột ngân sách.
-- Bình Tân là một trong những quận đầu tiên ở TP.HCM triển khai chuẩn hóa lực lượng thu gom rác dân lập và để đưa việc này vào quy củ.
-- Chuyến thăm chính thức Hàn Quốc đầu tiên của Thủ tướng Phạm Minh Chính nhận được sự kỳ vọng lớn của giới doanh nghiệp.
-- Tổng trữ lượng cát được khai thác trên 1,1 triệu m3, phục vụ thi công dự án thành phần 4 cao tốc Châu Đốc - Cần Thơ - Sóc Trăng.
+- Chiếc xe container đang lưu thông qua địa bàn Hà Tĩnh bất ngờ bốc cháy dữ dội, cảnh sát kịp thời có mặt tại hiện trường dập lửa
+- Thu nhập thấp, chi phí sinh hoạt và thuê nhà tăng cao tại các tỉnh trọng điểm phía Nam nên nhiều người lao động chọn ở quê tìm việc  thay vì trở lại công ty.
+- Hôm nay 2-7, thời tiết cả nước ngày nắng nóng, từ chiều nay trời mưa dông, nhiều nơi mưa to.
+- Một số tin tức đáng chú ý: Đã trả lương hưu, trợ cấp bảo hiểm xã hội mới tới trên 60% người hưởng; Bất ngờ, sếp Công ty Sông Đà xin nghỉ vì 'năng lực không phù hợp'; Một số cán bộ nghỉ hưu từ 1-7-2024...
+- Một vụ sập hang động ở tỉnh Bắc Kạn đã khiến 2 nạn nhân bị mắc kẹt, hiện lực lượng cứu nạn đã giải cứu được 1 người, còn 1 nạn nhân khác chưa xác định được vị trí.
+- Tại Hàn Quốc, Thủ tướng Phạm Minh Chính đề nghị Hyundai đầu tư vào lĩnh vực bóng đá. Ông cũng nhận được cam kết từ Doosan Enerbility về việc tăng tỉ lệ nội địa hóa tại Việt Nam.
+- Chính phủ vừa có nghị định tăng mức chuẩn trợ cấp xã hội từ 360.000 đồng/tháng lên 500.000 đồng/tháng, tức tăng 38,9%, áp dụng từ ngày 1-7.
+- Từ ngày 1-7, cảnh sát giao thông trên cả nước sẽ kiểm tra và lập biên bản tạm giữ giấy phép lái xe người vi phạm trên môi trường điện tử VNeID. Vậy, cảnh sát giao thông TP.HCM thực hiện việc này như thế nào?
+- Con số được nêu ra tại hội nghị Hội đồng điều phối vùng Đồng bằng sông Cửu Long lần thứ 4 diễn ra tại Cà Mau.
+- Tại Trường Sa, Tư lệnh Hải quân Trần Thanh Nghiêm đã kiểm tra công tác huấn luyện sẵn sàng chiến đấu, kiểm tra các đảo bắn đạn thật và kiểm tra đời sống sinh hoạt của quân và dân huyện đảo.
+- Phó giám đốc Công an TP Hà Nội Nguyễn Thanh Tùng ví von như vậy khi nói về việc vi phạm các quy định về phòng cháy, chữa cháy tại Hà Nội trong buổi thảo luận tổ, thuộc chương trình kỳ họp thứ 17, HĐND TP Hà Nội khóa XVI, diễn ra chiều 1-7.
+- Đây là ý kiến của Chủ tịch UBND TP.HCM Phan Văn Mãi tại phiên họp kinh tế - xã hội thường kỳ tháng 6 diễn ra chiều 1-7.
+- 6 tháng đầu năm, TP.HCM chỉ giải ngân được khoảng 13,8%. 6 tháng còn lại, mỗi tháng TP.HCM phải giải ngân 13%, bằng giải ngân của 6 tháng đầu năm.
+- Người bán hàng rong lý giải đã nhập quả roi (miền Nam gọi là trái mận) từ siêu thị với giá khoảng 80.000 - 90.000 đồng/kg, có thời điểm tới 100.000 đồng/kg. Do vậy, bà báo 200.000 đồng/kg "để khách còn trả giá".
+- Cục Cảnh sát quản lý hành chính về trật tự xã hội đã trao thẻ căn cước, giấy chứng nhận căn cước cho 10 công dân đầu tiên là người dưới 6 tuổi, người từ 6 tuổi trở lên và người gốc Việt Nam chưa xác định được quốc tịch đang sinh sống tại Việt Nam.
+- Liên quan đến việc đóng mở đường dẫn cao tốc TP.HCM - Long Thành - Dầu Giây, Sở Giao thông vận tải TP.HCM đề nghị Công an TP.HCM lên sẵn kịch bản, điều tiết giao thông phù hợp.
+- Tăng lương không chỉ giúp người lao động cải thiện, nâng cao cuộc sống mà còn thu hút cán bộ giỏi, phòng ngừa, ngăn chặn tham nhũng, tiêu cực.
+- Ngày 1-7, HĐND tỉnh Đồng Tháp khóa X đã tổ chức kỳ họp thứ tám thông qua nhiều nghị quyết quan trong, trong đó có phương án bảo vệ, khai thác, sử dụng tài nguyên khoáng sản và quy định cụ thể 11 khu vực cấm khai thác cát.
+- Vụ người phụ nữ chết vì tai nạn, người nhà đề nghị giám định lại nồng độ cồn, cơ quan chức năng nói gì?
+- Lãnh đạo tỉnh Quảng Nam đã tuyên dương, thưởng nóng cho các tập thể, cá nhân của Công an tỉnh và Viện kiểm sát nhân dân tỉnh Quảng Nam triệt phá đường dây tổ chức đánh bạc 20 tỉ đồng/ngày do người nước ngoài điều hành.
+- Xe khách chở 48 người đổ đèo Cùi Chỏ trên quốc lộ 28 (Đắk Nông) bất ngờ mất thắng lao xuống vực.
+- Tuyến đường BOT đầy ổ voi, ổ gà như bẫy người đi đường ở tỉnh Đồng Nai sẽ được sửa chữa bằng nguồn vốn sự nghiệp.
+- Tranh thủ ngay cả giờ ăn trưa, Thủ tướng Phạm Minh Chính đã gặp các chuyên gia, nhà khoa học Hàn Quốc và nhận được nhiều ý kiến tâm huyết từ họ.
+- Theo Công ty TNHH phát triển Phú Mỹ Hưng, công ty đã bàn giao 53ha/110ha đất công cho TP.HCM, diện tích còn lại sẵn sàng giao.
+- Chạy quá lối ra khoảng 400m, một tài xế xe khách đã quay xe chạy ngược chiều trên đoạn cao tốc Diễn Châu - Bãi Vọt qua tỉnh Nghệ An.
+- Phòng cảnh sát hình sự Công an Đà Nẵng vừa phá chuyên án tổ chức đánh bạc và đánh bạc dưới hình thức cá độ bóng đá qua mạng, hoạt động liên tỉnh.
+- Dự án cao tốc Biên Hòa - Vũng Tàu qua Đồng Nai đang thi công nhưng chủ đầu tư cho hay đang lo thiếu nguồn đất đắp.
+- Ban Thường vụ Thành ủy Đà Nẵng giao ông Đoàn Duy Tân chỉ đạo, điều hành hoạt động chung của Ban Tổ chức Thành ủy cho đến khi kiện toàn chức danh trưởng Ban Tổ chức Thành ủy.
+- Theo Luật Căn cước, ngoài thông tin sinh trắc học về khuôn mặt, vân tay, cơ quan công an sẽ thu nhận thêm thông tin mống mắt với người dân khi đi làm căn cước.
+- Trong tháng 7-2024, khả năng xuất hiện 1-2 cơn bão, áp thấp nhiệt đới có thể ảnh hưởng đến khu vực đất liền nước ta.
 ![New](News.png)
 ## Nhịp sống số 
 - Nếu lỡ cài đặt bản cập nhật KB5039302 được phát hành gần đây cho Windows 11 và bị lỗi khởi động lại liên tục, bạn có thể làm gì?
