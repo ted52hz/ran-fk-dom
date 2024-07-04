@@ -1,7 +1,20 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Sáng nay 4-7, 4.301 học sinh lớp 5 ở TP.HCM đã bước vào kỳ khảo sát tuyển sinh lớp 6 của Trường Trần Đại Nghĩa. Chỉ tiêu tuyển của trường này là 350 học sinh.
+- Nếu các con bị thất bại, cha mẹ nên nói với con điều đó không phải là kết thúc mà chính là một cơ hội để học hỏi và lớn lên.
+- Mới nhìn qua bảng điểm chuẩn vào lớp 10 ở TP.HCM năm nay, nhiều người lầm tưởng rằng hầu hết các trường THPT đều giảm điểm chuẩn.
+- Không chỉ con trẻ, chính các phụ huynh cũng phải tự mình bình tĩnh, đừng so sánh con mình với con nhà người rồi tạo áp lực tâm lý.
+- Sở Giáo dục và Đào tạo TP.HCM sẽ quyết định về việc tuyển bổ sung vào lớp 10 sau ngày 31-7-2024.
+- Năm nay, Trường đại học Khoa học xã hội và Nhân văn TP.HCM lấy điểm chuẩn đánh giá năng lực từ 635-963 điểm.
+- UBND huyện Krông Bông và Phòng Giáo dục và Đào tạo huyện Krông Bông (Đắk Lắk) có công văn yêu cầu giáo viên không tập trung đông người phản đối doanh nghiệp khai thác cát, gây mất an ninh trật tự.
+- Ngành kỹ thuật phần mềm có điểm chuẩn cao nhất phương thức xét điểm thi đánh giá năng lực năm 2024 của Trường đại học Sài Gòn.
+- Bảng điểm chuẩn vào lớp 10 năm học 2024-2025 ở TP.HCM cho thấy đa số các trường top đầu giảm  nhưng vẫn có trường tăng điểm chuẩn.
+- Năm 2024, Trường đại học Khoa học sức khỏe (Khoa Y Đại học Quốc gia TP.HCM cũ) lấy điểm chuẩn đánh giá năng lực là 746 - 943.
+- Sở Giáo dục và Đào tạo TP.HCM vừa công bố điểm chuẩn vào lớp 10 năm 2024. Đa số các trường đều giảm điểm chuẩn, gồm cả các trường tốp đầu.
+- Trường đại học Công Thương TP.HCM vừa công bố điểm chuẩn học bạ, đánh giá năng lực và xét tuyển thẳng năm 2024.
 - Phải từ năm 2018 - 2019 tới nay, điểm chuẩn lớp 10 Hà Nội mới lại có biến động lớn, nhiều bất ngờ.
+- Năm 2024, Trường đại học Quốc tế Sài Gòn (SIU) tuyển sinh theo 4 phương thức với những ưu điểm riêng cùng chính sách học bổng hấp dẫn.
 - Ngày 4-9, số phát sóng cuối cùng mùa 5 chương trình Shark Tank Việt Nam gây sốt trên mạng xã hội nhờ một thương vụ ấn tượng: SeeSaw. startup mang đến bộ sản phẩm chăm sóc sức khỏe tâm lý  giành cú bắt tay 2 tỉ đồng cho 30% cổ phần.
 - Xét tuyển dựa trên kết quả kỳ thi tốt nghiệp trung học phổ thông (THPT) năm 2024 là phương thức tuyển sinh được hầu hết các đại học trên cả nước dành phần lớn chỉ tiêu để xét tuyển.
 - Hội đồng Đại học Huế vừa công nhận hiệu trưởng Trường đại học Sư phạm Huế sau hơn 1 năm trời ngôi trường này không có hiệu trưởng và hiệu phó, chỉ có hiệu phó phụ trách.
@@ -18,51 +31,38 @@
 - Năm nay điểm chuẩn vào lớp 10 Trường THPT Đoàn Kết - Hai Bà Trưng giảm sâu đến 16,25 điểm so với năm trước.
 - Tôi không nói với con về những khó khăn đang gặp phải. Tôi chọn cách đưa con đi lang thang nơi này, chốn nọ, khi thì đạp xe, lúc cùng đọc sách...
 - Từ 13h ngày 5-7 đến 7-7, thí sinh đã đủ điểm trúng tuyển vào lớp 10 ở Hà Nội bắt buộc phải làm thủ tục xác nhận nhập học.
-- Theo các thầy cô, chuyên gia, "biến số" dẫn tới việc điểm chuẩn vào lớp 10 của nhiều trường ở Hà Nội giảm nằm ở môn ngữ văn.
-- Nhiều sinh viên quốc tế chọn đến các công ty ở TP.HCM để thực tập. Đáng nói là những sinh viên này đang học tại các trường đại học danh tiếng ở châu Á.
-- Trường quốc tế AISVN vẫn chưa báo cáo minh chứng thể hiện đảm bảo điều kiện hoạt động giáo dục theo quy định nên đã bị đình chỉ hoạt động.
-- Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) công bố điểm chuẩn trúng tuyển ưu tiên xét tuyển năm 2024, có ngành điểm tuyệt đối 10.
-- Chiều 1-7, Sở Giáo dục và Đào tạo Hà Nội công bố điểm chuẩn vào lớp 10 công lập không chuyên với mức điểm giảm so với năm trước.
-- Trường Marie Curie (Hà Nội) vừa công bố điểm chuẩn vào lớp 10 công lập năm học 2024-2025 là 42 điểm.
-- Những năm gần đây, xu hướng chọn ngành học của thí sinh ngày càng gắn với nhu cầu nhân lực của thị trường.
-- Sáng 1-7, Sở Giáo dục và Đào tạo Hà Nội duyệt và công bố điểm chuẩn vào lớp 10 chuyên năm học 2024-2025.
-- Ngày 1-7, Sở Giáo dục và Đào tạo Hà Nội sẽ duyệt điểm chuẩn lớp 10 công lập của khối chuyên và không chuyên năm học 2024-2025.
-- 'Chọn ngành học theo bát tự, thần số học', 'Hướng nghiệp theo số chủ đạo', 'Chọn ngành bằng bài tarot', 'Hướng nghiệp theo lá số tử vi đảm bảo chính xác 99%'...
-- Ngay sau khi hết giờ thi toán, Tuổi Trẻ công bố gợi ý bài giải và đáp án do AI thực hiện. Nhiều người ngạc nhiên vì độ nhanh, chính xác và hợp lý của bài giải.
-- Sở Giáo dục và Đào tạo TP.HCM đã có buổi làm việc với phụ huynh và những cán bộ liên quan về vụ giám thị sai sót trong kỳ thi tốt nghiệp THPT 2024.
-- Theo kế hoạch của Sở Giáo dục và Đào tạo Hà Nội, từ ngày 1-7, các trường học sẽ tuyển sinh đầu cấp trực tuyến và trực tiếp.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Các tập đoàn công nghệ, điện tử thế giới phải nhìn nhận Việt Nam như một "cứ điểm" quan trọng trong sự chuyển dịch của chuỗi cung ứng.
-- Từ 1-7, Chính phủ tăng lương tối thiểu, kéo theo nhiều huyện, thị xã, thành phố nâng vùng tiền lương phù hợp với đà phát triển kinh tế.
-- Nơi xảy ra vụ cháy là nhà ở kết hợp kinh doanh, cao 4 tầng và 1 tum tại quận Cầu Giấy, Hà Nội.
-- Tin tức đáng chú ý: Đề xuất tiếp tục miễn thuế sử dụng đất nông nghiệp đến hết năm 2030; Áp dụng lương mới và chế độ tiền thưởng với lực lượng vũ trang như thế nào?; Ngày Quốc tế không sử dụng túi ni lông, làm gì khi Việt Nam thải 30 tỉ túi/năm?...
-- Hôm nay 3-7, thời tiết Bắc Bộ và Nam Bộ mưa dông nhiều nơi, đặc biệt các tỉnh phía Bắc có nơi mưa to đến rất to.
-- Sau khi va chạm với một ô tô khác, chiếc xe bồn nghi chở xăng bốc cháy dữ dội. Ngọn lửa bùng lên rất mạnh, bốc cao hàng chục mét, lan sang cả phía ngoài hộ lan đường cao tốc.
-- Đài dự báo khí tượng thuỷ văn khu vực Nam Bộ cho biết đêm nay TP.HCM có mưa dông nhiều nơi, bản tin cảnh báo phát lúc 21h10 ngày 2-7.
-- Trước dự báo mưa lớn từ nay đến sáng 4-7, Thủ tướng yêu cầu các tỉnh vùng núi và trung du Bắc Bộ rà soát ngay những khu vực có nguy cơ ngập lụt, lũ quét, sạt lở đất để chủ động sơ tán người dân và tài sản.
-- Chủ tịch UBND thành phố Đà Nẵng Lê Trung Chinh hỏi lãnh đạo các quận, huyện đến từng vị trí nắp cống, bờ kè.
-- Cam kết được Tổng thống Hàn Quốc Yoon Suk Yeol đưa ra trong cuộc hội kiến Thủ tướng Phạm Minh Chính chiều 2-7 tại Seoul.
-- Việc chấp thuận cho hộ dân khó khăn được trả góp căn hộ tái định cư thuộc dự án vành đai 3 TP.HCM vừa đúng quy định, vừa mang tính nhân văn.
-- Cán bộ, công chức, viên chức có dư luận gây phiền hà, sách nhiễu hoặc thụ động, chậm trễ giải quyết công việc sẽ bị thay thế.
-- Một đường dây đưa người trốn ra nước ngoài lao động trái phép dưới vỏ bọc 'nhà sư' vừa bị Công an tỉnh Hà Tĩnh bóc gỡ. Thủ đoạn này khá tinh vi và lần đầu tiên được Công an tỉnh này phát hiện, triệt phá.
-- Bảo hiểm xã hội thành phố Hà Nội cho biết có khoảng 80% người hưởng lương hưu, trợ cấp bảo hiểm xã hội mới nhận tiền qua thẻ ATM.
-- Thỏa thuận vay xây dựng cao tốc Mỹ An - Cao Lãnh, MOU thành lập khu công nghiệp tái chế tài nguyên nằm trong số 9 văn kiện được ký trước sự chứng kiến của Thủ tướng Việt Nam và Hàn Quốc.
-- Cử tri quận 3 (TP.HCM) cho rằng tăng lương cơ sở nhưng không tăng mức giảm trừ gia cảnh cũng không nhiều ý nghĩa.
-- Đây là một trong những công tác nhằm chuẩn bị phiên họp giả định Hội đồng nhân dân trẻ em năm 2024 tỉnh Long An sắp tổ chức.
-- Hiện trạng đoạn 15,3km đường Mỹ Phước - Tân Vạn trên đường vành đai 3 TP.HCM đang khai thác không đảm bảo việc đi lại, khi vành đai 3 đưa vào khai thác năm 2026. Do đó, cơ quan chức năng đang lên phương án nâng cấp.
-- Chiều 2-7, Trung tâm Quản lý giao thông công cộng TP.HCM thông tin sẽ họp với các hợp tác xã, doanh nghiệp vận tải xe buýt, chấn chỉnh hoạt động trong thời gian tới.
-- Trần Hữu Vũ điều khiển xe máy nẹt pô gây tiếng ồn được một cán bộ công an nhắc nhở nên đã bực tức, quay về nhà gọi thêm 2 người khác đến đánh cán bộ công an này bị thương tích.
-- Ngày 2-7, theo ghi nhận, ba căn nhà xây sai phép trên đường số 4, phường An Khánh, TP Thủ Đức đang tháo dỡ những phần vi phạm trên tầng thượng.
-- Nếu giao mỏ cát theo cơ chế đặc thù cho nhà thầu, thời gian thực hiện các thủ tục chỉ mất khoảng nửa tháng, nhưng tỉnh Tiền Giang vẫn giao cho các tổ chức, cá nhân.
-- Thời gian qua, Kiểm toán Nhà nước đã chuyển 40 vụ việc có dấu hiệu vi phạm pháp luật cho cơ quan điều tra các cấp. Trong đó đã xử lý, giải quyết 35 vụ.
-- Ông Nguyễn Văn Quảng, bí thư Thành ủy Đà Nẵng, cho biết Quốc hội thông qua nghị quyết về cơ chế đặc thù cho phép Đà Nẵng được vay dư nợ tới 80% so với số thu của thành phố.
-- Dự báo từ chiều nay (2-7) đến sáng 4-7, ở miền Bắc có mưa vừa, mưa to và dông, cục bộ có nơi mưa rất to.
-- Cử tri quận 1, TP.HCM cho rằng các vụ cháy xảy ra ở mặt tiền, đường rộng đã có phương tiện chữa cháy đủ mạnh nhưng các con hẻm nhỏ vẫn gặp khó khăn, cần sớm có trực thăng chữa cháy.
-- Lực lượng công an đang vào cuộc điều tra, lấy mẫu kiểm tra làm rõ nguyên nhân cá suối chết bất thường ở suối Bắc, huyện Quỳ Hợp, Nghệ An.
-- Tài xế xe buýt 2 tầng vượt đèn đỏ ở giao lộ Trần Hưng Đạo - Hàm Nghi (quận 1, TP.HCM) vừa bị cảnh sát giao thông lập biên bản xử lý.
-- Lực lượng chức năng đã tìm thấy hai bé trai 7 tuổi và 10 tuổi bị mất tích 3 ngày đang mắc kẹt ở trong mái tum tầng 3 ở Trường tiểu học Lao Chải.
-- Sáng 2-7, với 85/86 đại biểu có mặt tán thành, HĐND TP Hà Nội đã thông qua nghị quyết ban hành Đề án nâng cao năng lực và bảo đảm an toàn phòng cháy, chữa cháy và cứu nạn, cứu hộ tại Hà Nội đến năm 2025, định hướng đến 2030.
+- Theo đề xuất của Bộ Công an, cá nhân có hành vi cầm cố, nhận cầm cố, mua, bán, thuê, cho thuê căn cước công dân, căn cước... có thể bị phạt từ 4-6 triệu đồng.
+- Ông Lê Trí Thanh, nguyên chủ tịch UBND tỉnh Quảng Nam, đã được Tỉnh ủy điều động giữ chức bí thư Đảng đoàn Ủy ban Mặt trận Tổ quốc Việt Nam tỉnh Quảng Nam.
+- Ông Lê Quang Thuận - phó chủ tịch UBND huyện Hướng Hóa - bị đề nghị xem xét, xử lý kỷ luật do ký giấy tờ vi phạm pháp luật về đất đai.
+- Ô tô chạy trên đường Nguyễn Tất Thành, quận 4 (TP.HCM) có lắp đèn phía sau 'siêu sáng' khiến người đi đường chói mắt, bức xúc, sau đó quay clip đăng tải lên mạng xã hội.
+- Theo nghị định 73 của Chính phủ, từ ngày 1-7, mức lương cơ sở tăng lên. Tuy nhiên, lương tăng nhưng mức giảm trừ gia cảnh vẫn đứng yên khiến nhiều người thấy việc tăng lương chưa trọn vẹn ý nghĩa.
+- Cùng với việc tăng lương cơ sở 30% từ ngày 1-7, mức chi trả cho người bệnh có thẻ bảo hiểm y tế cũng tăng theo.
+- Một số tin tức đáng chú ý: 8 phường ở TP Thủ Đức cúp nước; Ninh Bình vào top 10 trải nghiệm cuốn hút nhất năm 2024; Hà Nội đưa bán hàng livestream vào danh mục đào tạo nghề...
+- Hôm nay 4-7, thời tiết Bắc Bộ tiếp tục mưa to nhiều nơi. Tây Nguyên và Nam Bộ mưa về chiều tối. Trung Bộ ngày nắng nóng, chiều mưa dông.
+- Giữa đêm ngọn lửa bùng phát, khói bốc cao nghi ngút trong vụ cháy nhà xưởng tại Khu công nghiệp Nam Tân Uyên ở Bình Dương.
+- Chính phủ vừa phê duyệt quy hoạch tỉnh Đồng Nai thời kỳ 2021-2030, tầm nhìn đến năm 2050, trong đó lấy sân bay Long Thành, sông Đồng Nai làm động lực mới cho phát triển đột phá.
+- Lãnh đạo nhiều doanh nghiệp bảo hiểm phi nhân thọ đề nghị giải thích rõ quy định cấm gắn bán sản phẩm bảo hiểm không bắt buộc với cung ứng sản phẩm, dịch vụ ngân hàng dưới mọi hình thức.
+- Sau phản ánh "Ớn lạnh chắn tàu tự động bất ngờ nâng lên khi đoàn tàu đang chạy đến" của Tuổi Trẻ Online, ngành đường sắt cho biết đây là sự cố ngoài ý muốn.
+- Ngày 3-7, đại diện Phòng cảnh sát giao thông (PC08) Công an TP.HCM cho biết Công an TP phát động toàn dân tham gia cung cấp thông tin, hình ảnh vi phạm giao thông trên địa bàn.
+- TP.HCM sẽ chấm dứt hợp đồng với nhà đầu tư dự án BOT đường nối Võ Văn Kiệt đến cao tốc TP.HCM - Trung Lương.
+- Hàng chục xác lợn đã bốc mùi hôi thối được vứt ngổn ngang giữa đồng ở xã Vạn Ninh (Quảng Ninh, Quảng Bình) khiến người dân rất lo lắng về dịch bệnh.
+- Trung tướng Nguyễn Hải Trung - giám đốc Công an Hà Nội - nói như vậy khi trả lời chất vấn của đại biểu liên quan kết quả thực hiện nghị quyết về tăng cường phòng cháy chữa cháy tại thủ đô của HĐND TP Hà Nội.
+- Chỉ tiêu đất công nghiệp được phân bổ hạn chế khiến Bình Phước gặp nhiều khó khăn trong việc phát triển cũng như khai thác các lợi thế của địa phương.
+- UBND tỉnh Phú Yên xử phạt vi phạm hành chính một doanh nghiệp 300 triệu đồng vì nhiều sai phạm trong khai thác khoáng sản phục vụ thi công tuyến cao tốc Bắc - Nam.
+- Chính phủ vừa có nghị định tăng chuẩn trợ cấp ưu đãi người có công từ 2,055 triệu đồng lên 2,789 triệu đồng, tức tăng 35,7%, cao hơn tăng lương cơ sở từ 1-7.
+- Dự kiến việc di dời 11 tuyến xe khách cố định sang bến xe Miền Đông mới bắt đầu từ 0h ngày 1-8.
+- Vì thiếu kinh phí hoạt động, khó khăn trong tìm nguồn tài trợ, CLB TP.HCM xin Thành ủy, UBND TP.HCM cho gắn tên nhà tài trợ vào sau tên câu lạc bộ bóng đá.
+- Chiều tối nay 3-7, mây dông mạnh gây mưa nhiều nơi tại TP.HCM, có nơi mưa to kèm gió mạnh khiến đường ngập, cây xanh bật gốc.
+- Thủ tướng Chính phủ đã phê chuẩn kết quả bầu chức vụ chủ tịch UBND tỉnh Quảng Nam đối với ông Lê Văn Dũng.
+- Chiều 3-7, Bộ Y tế tổ chức lễ công bố quyết định của Thủ tướng Chính phủ bổ nhiệm ông Nguyễn Tri Thức, giám đốc Bệnh viện Chợ Rẫy, giữ chức thứ trưởng Bộ Y tế.
+- Cơ quan chức năng tỉnh Bà Rịa - Vũng Tàu đã khởi tố vụ án, khởi tố một bị can để điều tra hành vi vi phạm IUU. Ngoài ra hiện đang tiếp tục làm rõ cũng như kiến nghị cơ quan khác xử lý.
+- Ngày 3-7, một nữ du khách đã bị cây rừng ngã đập đầu tử vong trong lúc ngồi sau xe máy vào tham quan thác K50 tại huyện Kbang (Gia Lai).
+- Bộ Tài chính đã yêu cầu Công ty Xổ số kiến thiết Quảng Nam rà soát, khắc phục những tồn tại, hạn chế trong hoạt động kinh doanh xổ số.
+- Bộ Kế hoạch và Đầu tư vừa có tờ trình gửi Thủ tướng về việc điều chỉnh chủ trương (điều chỉnh thời gian thực hiện) dự án metro số 1.
+- 2 người phụ nữ cãi nhau trên mạng xã hội. Khi họ hẹn gặp nhau giải quyết mâu thuẫn thì chồng và người yêu của họ dùng súng, dao tấn công nhau.
+- Mô hình thường trực Thành ủy đồng thời là chủ tịch Ủy ban MTTQ Việt Nam là tiền lệ và đó là mô hình tốt cho TP.HCM
 ![New](News.png)
 ## Nhịp sống số 
 - Theo cơ quan chức năng, nhà mạng cho phép thực hiện cuộc gọi lừa đảo nghĩa là đã cung cấp dịch vụ liên lạc không đúng cách và gây thiệt hại cho thuê bao.
