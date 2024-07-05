@@ -1,7 +1,17 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Chánh văn phòng Sở Giáo dục và Đào tạo TP.HCM thông tin chi tiết về việc tuyển bổ sung vào lớp 10 năm 2024.
+- Tính đến tối ngày 4-7, đã có hơn 90 đại học, trường đại học, học viện công bố điểm chuẩn xét tuyển sớm, nhiều trường công bố điểm chuẩn xét học bạ chạm mốc gần tuyệt đối.
+- Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) vừa tiếp tục công bố điểm chuẩn thêm 2 phương thức xét tuyển sớm 1 và 6.
+- Nguyễn Hoàng Khánh Nhi (học sinh lớp 8 Royal School) liên tục điền tên vào ‘top đầu’ trên bảng vàng thành tích.
+- Trưa 4-7, nhiều thí sinh đã ra khỏi phòng khảo sát (kỳ tuyển sinh vào lớp 6 Trường Trần Đại Nghĩa năm 2024) với khuôn mặt hớn hở…
+- Sinh viên theo học chương trình Co-op từ năm 2 có thể làm việc như một nhân viên chính thức tại doanh nghiệp và được trả lương.
+- Qua thanh tra đã phát hiện tổng số tiền sai phạm tại Trường THCS Học Lạc là trên 585 triệu đồng.
+- Dạy con trồng cây, tôi nhận ra những bài học quý giá từ việc nuôi dạy một đứa trẻ.
+- Năm nay tròn 90 tuổi, sức đã yếu, mắt đã mờ nhưng GS Trần Thanh Vân vẫn còn rất nhiều tâm huyết với nền khoa học, giáo dục nước nhà.
 - Sáng nay 4-7, 4.301 học sinh lớp 5 ở TP.HCM đã bước vào kỳ khảo sát tuyển sinh lớp 6 của Trường Trần Đại Nghĩa. Chỉ tiêu tuyển của trường này là 350 học sinh.
+- Sau khi thi tốt nghiệp THPT 2024, thí sinh cần lưu ý các mốc thời gian như ngày công bố điểm thi, nộp đơn phúc khảo, đăng ký, điều chỉnh nguyện vọng xét tuyển đại học...
 - Nếu các con bị thất bại, cha mẹ nên nói với con điều đó không phải là kết thúc mà chính là một cơ hội để học hỏi và lớn lên.
 - Mới nhìn qua bảng điểm chuẩn vào lớp 10 ở TP.HCM năm nay, nhiều người lầm tưởng rằng hầu hết các trường THPT đều giảm điểm chuẩn.
 - Không chỉ con trẻ, chính các phụ huynh cũng phải tự mình bình tĩnh, đừng so sánh con mình với con nhà người rồi tạo áp lực tâm lý.
@@ -21,50 +31,41 @@
 - Tối 2-7, Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) đã công bố điểm chuẩn ưu tiên xét tuyển thẳng và ưu tiên xét tuyển theo quy định của Đại học Quốc gia TP.HCM năm 2024.
 - Chiều 2-7, Trường đại học Kinh tế quốc dân chính thức công bố điểm chuẩn xét tuyển kết hợp nhóm 1, nhóm 2 và kết quả xét tuyển thẳng (xét tuyển sớm).
 - Sở Giáo dục và Đào tạo TP.HCM sẽ công bố điểm chuẩn vào lớp 10 năm 2024 vào lúc 14h ngày 3-7-2024.
-- Trường đại học Kinh tế - Luật và Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) tiếp tục công bố điểm chuẩn trúng tuyển các phương thức xét tuyển sớm, trong đó có điểm thi đánh giá năng lực.
-- Bộ Giáo dục và Đào tạo vừa công bố đáp án các môn thi tốt nghiệp THPT 2024. Bộ dự kiến đúng 8h ngày 17-7 sẽ công bố điểm thi.
-- Bà Phùng Thị Hoa, phó giám đốc Sở Tài chính Hà Giang, cùng hai cán bộ Sở Giáo dục và Đào tạo bị bắt với cáo buộc thiếu trách nhiệm trong quá trình thực hiện nhiệm vụ chương trình mục tiêu giáo dục vùng núi, vùng dân tộc thiểu số...
-- Kết luận thanh tra phát hiện một trường tiểu học đạt chuẩn quốc gia ở Đồng Nai thu chi ngoài ngân sách hàng trăm triệu đồng sai quy định.
-- Nguyễn Thị Yến Nhi, thí sinh phải nằm thi 2 môn và phải đi cấp cứu trước giờ thi môn thứ ba, đã được tuyển thẳng vào lớp 10 Trường THPT Nguyễn Hữu Cầu, TP.HCM.
-- Giám đốc Sở Giáo dục và Đào tạo tỉnh Long An cho biết dự kiến năm 2024 sẽ tiếp tục đặt hàng 2.083 sinh viên sư phạm để tạo nguồn bổ sung giáo viên.
-- Sáng 2-7, Trường đại học Quốc tế (Đại học Quốc gia TP.HCM) công bố điểm chuẩn các ngành đào tạo bậc đại học theo phương thức xét tuyển sớm.
-- Năm nay điểm chuẩn vào lớp 10 Trường THPT Đoàn Kết - Hai Bà Trưng giảm sâu đến 16,25 điểm so với năm trước.
-- Tôi không nói với con về những khó khăn đang gặp phải. Tôi chọn cách đưa con đi lang thang nơi này, chốn nọ, khi thì đạp xe, lúc cùng đọc sách...
-- Từ 13h ngày 5-7 đến 7-7, thí sinh đã đủ điểm trúng tuyển vào lớp 10 ở Hà Nội bắt buộc phải làm thủ tục xác nhận nhập học.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Theo đề xuất của Bộ Công an, cá nhân có hành vi cầm cố, nhận cầm cố, mua, bán, thuê, cho thuê căn cước công dân, căn cước... có thể bị phạt từ 4-6 triệu đồng.
-- Ông Lê Trí Thanh, nguyên chủ tịch UBND tỉnh Quảng Nam, đã được Tỉnh ủy điều động giữ chức bí thư Đảng đoàn Ủy ban Mặt trận Tổ quốc Việt Nam tỉnh Quảng Nam.
-- Ông Lê Quang Thuận - phó chủ tịch UBND huyện Hướng Hóa - bị đề nghị xem xét, xử lý kỷ luật do ký giấy tờ vi phạm pháp luật về đất đai.
-- Ô tô chạy trên đường Nguyễn Tất Thành, quận 4 (TP.HCM) có lắp đèn phía sau 'siêu sáng' khiến người đi đường chói mắt, bức xúc, sau đó quay clip đăng tải lên mạng xã hội.
-- Theo nghị định 73 của Chính phủ, từ ngày 1-7, mức lương cơ sở tăng lên. Tuy nhiên, lương tăng nhưng mức giảm trừ gia cảnh vẫn đứng yên khiến nhiều người thấy việc tăng lương chưa trọn vẹn ý nghĩa.
+- Dự thảo báo cáo mới nhất của Bộ Nội vụ cho biết tính đến ngày 30-6 đã nhận được 28/53 hồ sơ đề nghị sáp nhập đơn vị cấp huyện, xã của các tỉnh, thành phố.
 - Cùng với việc tăng lương cơ sở 30% từ ngày 1-7, mức chi trả cho người bệnh có thẻ bảo hiểm y tế cũng tăng theo.
-- Một số tin tức đáng chú ý: 8 phường ở TP Thủ Đức cúp nước; Ninh Bình vào top 10 trải nghiệm cuốn hút nhất năm 2024; Hà Nội đưa bán hàng livestream vào danh mục đào tạo nghề...
-- Hôm nay 4-7, thời tiết Bắc Bộ tiếp tục mưa to nhiều nơi. Tây Nguyên và Nam Bộ mưa về chiều tối. Trung Bộ ngày nắng nóng, chiều mưa dông.
-- Giữa đêm ngọn lửa bùng phát, khói bốc cao nghi ngút trong vụ cháy nhà xưởng tại Khu công nghiệp Nam Tân Uyên ở Bình Dương.
-- Chính phủ vừa phê duyệt quy hoạch tỉnh Đồng Nai thời kỳ 2021-2030, tầm nhìn đến năm 2050, trong đó lấy sân bay Long Thành, sông Đồng Nai làm động lực mới cho phát triển đột phá.
-- Lãnh đạo nhiều doanh nghiệp bảo hiểm phi nhân thọ đề nghị giải thích rõ quy định cấm gắn bán sản phẩm bảo hiểm không bắt buộc với cung ứng sản phẩm, dịch vụ ngân hàng dưới mọi hình thức.
-- Sau phản ánh "Ớn lạnh chắn tàu tự động bất ngờ nâng lên khi đoàn tàu đang chạy đến" của Tuổi Trẻ Online, ngành đường sắt cho biết đây là sự cố ngoài ý muốn.
-- Ngày 3-7, đại diện Phòng cảnh sát giao thông (PC08) Công an TP.HCM cho biết Công an TP phát động toàn dân tham gia cung cấp thông tin, hình ảnh vi phạm giao thông trên địa bàn.
-- TP.HCM sẽ chấm dứt hợp đồng với nhà đầu tư dự án BOT đường nối Võ Văn Kiệt đến cao tốc TP.HCM - Trung Lương.
-- Hàng chục xác lợn đã bốc mùi hôi thối được vứt ngổn ngang giữa đồng ở xã Vạn Ninh (Quảng Ninh, Quảng Bình) khiến người dân rất lo lắng về dịch bệnh.
-- Trung tướng Nguyễn Hải Trung - giám đốc Công an Hà Nội - nói như vậy khi trả lời chất vấn của đại biểu liên quan kết quả thực hiện nghị quyết về tăng cường phòng cháy chữa cháy tại thủ đô của HĐND TP Hà Nội.
-- Chỉ tiêu đất công nghiệp được phân bổ hạn chế khiến Bình Phước gặp nhiều khó khăn trong việc phát triển cũng như khai thác các lợi thế của địa phương.
-- UBND tỉnh Phú Yên xử phạt vi phạm hành chính một doanh nghiệp 300 triệu đồng vì nhiều sai phạm trong khai thác khoáng sản phục vụ thi công tuyến cao tốc Bắc - Nam.
-- Chính phủ vừa có nghị định tăng chuẩn trợ cấp ưu đãi người có công từ 2,055 triệu đồng lên 2,789 triệu đồng, tức tăng 35,7%, cao hơn tăng lương cơ sở từ 1-7.
-- Dự kiến việc di dời 11 tuyến xe khách cố định sang bến xe Miền Đông mới bắt đầu từ 0h ngày 1-8.
-- Vì thiếu kinh phí hoạt động, khó khăn trong tìm nguồn tài trợ, CLB TP.HCM xin Thành ủy, UBND TP.HCM cho gắn tên nhà tài trợ vào sau tên câu lạc bộ bóng đá.
-- Chiều tối nay 3-7, mây dông mạnh gây mưa nhiều nơi tại TP.HCM, có nơi mưa to kèm gió mạnh khiến đường ngập, cây xanh bật gốc.
-- Thủ tướng Chính phủ đã phê chuẩn kết quả bầu chức vụ chủ tịch UBND tỉnh Quảng Nam đối với ông Lê Văn Dũng.
-- Chiều 3-7, Bộ Y tế tổ chức lễ công bố quyết định của Thủ tướng Chính phủ bổ nhiệm ông Nguyễn Tri Thức, giám đốc Bệnh viện Chợ Rẫy, giữ chức thứ trưởng Bộ Y tế.
-- Cơ quan chức năng tỉnh Bà Rịa - Vũng Tàu đã khởi tố vụ án, khởi tố một bị can để điều tra hành vi vi phạm IUU. Ngoài ra hiện đang tiếp tục làm rõ cũng như kiến nghị cơ quan khác xử lý.
-- Ngày 3-7, một nữ du khách đã bị cây rừng ngã đập đầu tử vong trong lúc ngồi sau xe máy vào tham quan thác K50 tại huyện Kbang (Gia Lai).
-- Bộ Tài chính đã yêu cầu Công ty Xổ số kiến thiết Quảng Nam rà soát, khắc phục những tồn tại, hạn chế trong hoạt động kinh doanh xổ số.
-- Bộ Kế hoạch và Đầu tư vừa có tờ trình gửi Thủ tướng về việc điều chỉnh chủ trương (điều chỉnh thời gian thực hiện) dự án metro số 1.
-- 2 người phụ nữ cãi nhau trên mạng xã hội. Khi họ hẹn gặp nhau giải quyết mâu thuẫn thì chồng và người yêu của họ dùng súng, dao tấn công nhau.
-- Mô hình thường trực Thành ủy đồng thời là chủ tịch Ủy ban MTTQ Việt Nam là tiền lệ và đó là mô hình tốt cho TP.HCM
+- Ngày 4-7, chủ tịch hội đồng thành viên Tập đoàn Điện lực Việt Nam Đặng Hoàng An đã phê duyệt dự án cấp điện cho Côn Đảo từ lưới điện quốc gia. Dự án này có tổng mức đầu tư hơn 4.900 tỉ đồng.
+- Liên tiếp những vụ lắp camera quay lén bị phát giác khiến dư luận bức xúc và người bị quay lén "sống trong cảnh hoang mang", sợ những hình ảnh nhạy cảm của mình bị tung lên mạng.
+- Liên quan việc thí điểm đèn giao thông không đếm ngược ở TP.HCM, Tuổi Trẻ ghi nhận thực tế và trao đổi thông tin với cơ quan chức năng, ý kiến từ chuyên gia giao thông xung quanh việc này.
+- Một số tin tức đáng chú ý: Doanh thu phí bảo hiểm vẫn trượt dốc; Tỉ lệ chênh lệch giới tính khi sinh tại Hà Nội vẫn ở mức cao; Lương chủ tịch Xổ số TP.HCM 830 triệu đồng một năm, chưa kể thưởng...
+- Hôm nay 5-7, mưa dông tại Bắc Bộ và Nam Bộ giảm so với những ngày qua, tuy nhiên chiều tối vẫn có nơi xuất hiện mưa to.
+- Tại hiện trường vụ cháy công ty sản xuất bao bì ở Vĩnh Phúc, 'biển lửa' kèm theo cột khói đen đặc quánh, bốc cao hàng trăm mét bao trùm toàn bộ công ty.
+- Điện Kremlin xác nhận Thủ tướng Ấn Độ Narendra Modi sẽ thăm Nga vào ngày 8 và 9-7 trong chuyến thăm song phương đầu tiên sau khi ông đắc cử nhiệm kỳ thứ 3.
+- Doanh nghiệp đề xuất tuyến tàu tự lái chở khách để giảm ùn tắc cho khu vực sân bay Tân Sơn Nhất.
+- Chủ tịch HĐND TP.HCM Nguyễn Thị Lệ cho biết bà từng bị một người giả danh công an gọi lừa đảo nhưng không thành công. Cần tăng cường các biện pháp phòng chống tội phạm công nghệ cao.
+- Trước tình trạng xe dù, bến cóc lộng hành, chưa có dấu hiệu giảm, cơ quan chức năng tại TP.HCM đã dùng nhiều biện pháp để giải quyết, nhưng sự phối hợp chưa chặt chẽ.
+- Ba liệt sĩ hy sinh khi đang thực hiện nhiệm vụ trên các đảo thuộc quần đảo Trường Sa (tỉnh Khánh Hòa). Thủ tướng đã có quyết định cấp bằng "Tổ quốc ghi công".
+- Ban Văn hóa - Xã hội HĐND tỉnh Khánh Hòa kiến nghị bãi bỏ quyết định ban hành nội quy công viên bờ biển Nha Trang có quy định cấm thả diều không phù hợp quy định pháp luật.
+- Tổng bí thư Nguyễn Phú Trọng, Ủy viên Ban Thường vụ Đảng ủy Công an Trung ương, gửi nội dung phát biểu chỉ đạo, gợi mở một số ý kiến quan trọng để hội nghị tham khảo trong quá trình thảo luận.
+- Chủ tịch Quốc hội Trần Thanh Mẫn đã ký nghị quyết của Ủy ban Thường vụ Quốc hội về phân công nhiệm vụ đối với Chủ tịch, các Phó chủ tịch Quốc hội khóa XV.
+- Người dân phản ảnh khi khám chữa bệnh là phải mua sổ khám chữa bệnh rất lãng phí. Từ thực tế này, đại biểu HĐND TP Cần Thơ hỏi giám đốc Sở Y tế khi nào người dân đi khám bệnh không còn phải mua sổ khám bệnh nữa?
+- Dự án chống ngập 10.000 tỉ (nhà đầu tư là Tập đoàn Trung Nam) đã khởi công 8 năm và hoàn thành 90%. Hiện nay dự án còn nhiều vướng mắc và chờ được Chính phủ tháo gỡ.
+- Ngày 4-7, Công an Đà Nẵng cho biết vừa triệt phá đường dây tổ chức đánh bạc dưới hình thức cá độ bóng đá qua mạng, liên tỉnh trong mùa Euro, Copa America với tổng số tiền giao dịch hơn 100 tỉ đồng.
+- TP.HCM đang thí điểm đèn giao thông đếm ngược tại 4 giao lộ lớn, việc này nhận về nhiều ý kiến khác nhau. Nhiều người dân cho rằng đèn không đếm ngược dễ dừng đèn vàng đột ngột, gây tai nạn.
+- Bộ Tư pháp đề xuất bãi bỏ quy định về việc nộp giấy xác nhận tình trạng hôn nhân khi làm thủ tục đăng ký kết hôn.
+- TP Cần Thơ được trung ương ban hành nhiều chính sách phát triển, cộng thêm vị trí địa lý thuận lợi, trung tâm vùng Đồng bằng sông Cửu Long nhưng lại phát triển chưa kỳ vọng. Điều này có lãng phí "thiên thời, địa lợi, nhân hòa"?
+- 71 con sông, kênh, rạch và 12 ao, hồ, khu bảo tồn đã được Long An phê duyệt lập hành lang bảo vệ nguồn nước.
+- Chiều 4-7, tại cuộc họp báo kinh tế - xã hội, Chánh Văn phòng UBND TP.HCM Đặng Quốc Toàn đã trả lời báo chí về các tồn tại, vi phạm ở Phú Mỹ Hưng.
+- Từ năm 2023 đến nay, Bình Phước ghi nhận 94 trẻ em bị bạo lực, xâm hại. Trong nhiều hình thức xâm hại thì xâm hại tình dục trẻ em chiếm đến 75%.
+- Đường trên cao nối quốc lộ 13, đường Đinh Bộ Lĩnh, Xô Viết Nghệ Tĩnh sẽ giúp người dân đi vào trung tâm TP thuận tiện hơn.
+- Bộ Ngoại giao hoan nghênh các đánh giá của Mỹ về nỗ lực chống mua bán người ở Việt Nam, song cho rằng vẫn có sự thiếu khách quan về tình hình tự do tôn giáo.
+- Liên quan vụ án xảy ra tại khu đô thị du lịch biển Phan Thiết, Cơ quan cảnh sát điều tra Bộ Công an tiếp tục khởi tố thêm ông Nguyễn Ngọc - cựu phó chủ tịch thường trực tỉnh Bình Thuận - cùng 4 bị can khác.
+- Đồng loạt các tỉnh Tiền Giang, Long An, Đắk Lắk và nhiều địa phương đã phản hồi, đề nghị với Tập đoàn Viettel để tránh bị ngắt, gián đoạn dữ liệu đất đai.
+- UBND TP Bảo Lộc (tỉnh Lâm Đồng) đã có văn bản kiến nghị sớm kết luận sai phạm (nếu có) liên quan đến việc hiến đất mở đường để phân lô xẻ nền đất.
 ![New](News.png)
 ## Nhịp sống số 
+- Có thể thấy rằng để tối đa hóa doanh thu từ website, ứng dụng, thì nhiệm vụ là cần duy trì hiệu suất ở mức cao nhất có thể.
 - Theo cơ quan chức năng, nhà mạng cho phép thực hiện cuộc gọi lừa đảo nghĩa là đã cung cấp dịch vụ liên lạc không đúng cách và gây thiệt hại cho thuê bao.
 - Nghiên cứu mới cho thấy tiếp xúc với ánh sáng nhân tạo như bóng đèn hay điện thoại thông minh sau nửa đêm có thể làm tăng nguy cơ mắc đái tháo đường loại 2.
 - Nếu lỡ cài đặt bản cập nhật KB5039302 được phát hành gần đây cho Windows 11 và bị lỗi khởi động lại liên tục, bạn có thể làm gì?
@@ -94,5 +95,4 @@
 - Doanh nghiệp và người tiêu dùng đều cần công cụ để tự bảo vệ mình trước những hình thức gian lận mới của thanh toán số.
 - Chỉ trong một thời gian ngắn, truyền hình MyTV của VNPT đã đạt được sự tăng trưởng thần tốc, thực sự trở thành người bạn đồng hành thân thiết với các gia đình Việt mỗi ngày.
 - Kết nối Internet quốc tế gặp sự cố, chập chờn thường là cơn đau đầu của các nhà cung cấp dịch vụ trực tuyến.
-- Với sự xuất hiện của 6G, thế hệ băng thông mở rộng tiếp theo sẽ mang đến nhiều công năng và bất ngờ hơn.
 ![life](Life.png)
