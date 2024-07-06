@@ -1,6 +1,19 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Ngày 5-7, ông Phan Thanh Hải - giám đốc Sở Giáo dục và Đào tạo tỉnh Đắk Nông - cho biết đang nghiên cứu để 'nới rộng' chỉ tiêu vào lớp 10 cho học sinh trên địa bàn.
+- Theo thông báo của Bộ Công an, có 127 thí sinh trúng tuyển sớm vào 8 trường công an theo phương thức xét tuyển thẳng và xét tuyển kết hợp chứng chỉ ngoại ngữ.
+- Đáp án một câu trong đề thi toán lớp 6 ở Trường THCS Vĩnh Yên chưa chính xác, trưởng Phòng Giáo dục viết thư xin lỗi phụ huynh, học sinh.
+- Các đơn vị, trường học từ đất liền đã trao gởi những phần quà, sách vở cần thiết cho giáo viên, học sinh các trường tiểu học ở huyện đảo Trường Sa (tỉnh Khánh Hòa).
+- Thí sinh sẽ có 5 ngày để thực hành đăng ký xét tuyển đại học trên hệ thống hỗ trợ tuyển sinh chung của Bộ Giáo dục và Đào tạo.
+- Nhiều đại học trong tốp đầu thế giới về ngành nhà hàng khách sạn đang dạy thêm cho sinh viên về công nghệ, trí tuệ nhân tạo.
+- Đại học Quốc gia TP.HCM vừa có quyết định về việc chỉ định ban giám hiệu lâm thời Trường đại học Khoa học sức khỏe.
+- Điểm chuẩn hai trường đại học này dao động từ 18 đến 26,6 đối với phương thức xét học bạ THPT.
+- Chiều 5-7, Sở Giáo dục và Đào tạo TP.HCM công bố đề và đáp án kỳ khảo sát vào lớp 6 Trường Trần Đại Nghĩa năm 2024.
+- Tuyển sinh vào lớp 1, lớp 6 năm học 2024 - 2025 tại TP.HCM đang đến cuối giai đoạn 1, giai đoạn ưu tiên học sinh cư trú thực tế tại địa bàn quận, huyện.
+- Hội đồng tuyển sinh Trường đại học Cần Thơ vừa công bố kết quả xét tuyển sớm theo phương thức 5, xét điểm của kỳ thi đánh giá năng lực đầu vào (V-SAT) vào các ngành đại học chính quy năm 2024.
+- Gen Z nên điểm qua những lưu ý sau từ HUFLIT để có thể nắm chắc tấm vé vào đại học cũng như chinh phục hàng loạt các suất học bổng giá trị.
+- Ngày càng có nhiều lựa chọn học tập cho học sinh tốt nghiệp THCS và vào lớp 10 các trường THPT công lập không phải là cánh cửa duy nhất.
 - Chánh văn phòng Sở Giáo dục và Đào tạo TP.HCM thông tin chi tiết về việc tuyển bổ sung vào lớp 10 năm 2024.
 - Tính đến tối ngày 4-7, đã có hơn 90 đại học, trường đại học, học viện công bố điểm chuẩn xét tuyển sớm, nhiều trường công bố điểm chuẩn xét học bạ chạm mốc gần tuyệt đối.
 - Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) vừa tiếp tục công bố điểm chuẩn thêm 2 phương thức xét tuyển sớm 1 và 6.
@@ -18,53 +31,41 @@
 - Sở Giáo dục và Đào tạo TP.HCM sẽ quyết định về việc tuyển bổ sung vào lớp 10 sau ngày 31-7-2024.
 - Năm nay, Trường đại học Khoa học xã hội và Nhân văn TP.HCM lấy điểm chuẩn đánh giá năng lực từ 635-963 điểm.
 - UBND huyện Krông Bông và Phòng Giáo dục và Đào tạo huyện Krông Bông (Đắk Lắk) có công văn yêu cầu giáo viên không tập trung đông người phản đối doanh nghiệp khai thác cát, gây mất an ninh trật tự.
-- Ngành kỹ thuật phần mềm có điểm chuẩn cao nhất phương thức xét điểm thi đánh giá năng lực năm 2024 của Trường đại học Sài Gòn.
-- Bảng điểm chuẩn vào lớp 10 năm học 2024-2025 ở TP.HCM cho thấy đa số các trường top đầu giảm  nhưng vẫn có trường tăng điểm chuẩn.
-- Năm 2024, Trường đại học Khoa học sức khỏe (Khoa Y Đại học Quốc gia TP.HCM cũ) lấy điểm chuẩn đánh giá năng lực là 746 - 943.
-- Sở Giáo dục và Đào tạo TP.HCM vừa công bố điểm chuẩn vào lớp 10 năm 2024. Đa số các trường đều giảm điểm chuẩn, gồm cả các trường tốp đầu.
-- Trường đại học Công Thương TP.HCM vừa công bố điểm chuẩn học bạ, đánh giá năng lực và xét tuyển thẳng năm 2024.
-- Phải từ năm 2018 - 2019 tới nay, điểm chuẩn lớp 10 Hà Nội mới lại có biến động lớn, nhiều bất ngờ.
-- Năm 2024, Trường đại học Quốc tế Sài Gòn (SIU) tuyển sinh theo 4 phương thức với những ưu điểm riêng cùng chính sách học bổng hấp dẫn.
-- Ngày 4-9, số phát sóng cuối cùng mùa 5 chương trình Shark Tank Việt Nam gây sốt trên mạng xã hội nhờ một thương vụ ấn tượng: SeeSaw. startup mang đến bộ sản phẩm chăm sóc sức khỏe tâm lý  giành cú bắt tay 2 tỉ đồng cho 30% cổ phần.
-- Xét tuyển dựa trên kết quả kỳ thi tốt nghiệp trung học phổ thông (THPT) năm 2024 là phương thức tuyển sinh được hầu hết các đại học trên cả nước dành phần lớn chỉ tiêu để xét tuyển.
-- Hội đồng Đại học Huế vừa công nhận hiệu trưởng Trường đại học Sư phạm Huế sau hơn 1 năm trời ngôi trường này không có hiệu trưởng và hiệu phó, chỉ có hiệu phó phụ trách.
-- Tối 2-7, Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) đã công bố điểm chuẩn ưu tiên xét tuyển thẳng và ưu tiên xét tuyển theo quy định của Đại học Quốc gia TP.HCM năm 2024.
-- Chiều 2-7, Trường đại học Kinh tế quốc dân chính thức công bố điểm chuẩn xét tuyển kết hợp nhóm 1, nhóm 2 và kết quả xét tuyển thẳng (xét tuyển sớm).
-- Sở Giáo dục và Đào tạo TP.HCM sẽ công bố điểm chuẩn vào lớp 10 năm 2024 vào lúc 14h ngày 3-7-2024.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Dự thảo báo cáo mới nhất của Bộ Nội vụ cho biết tính đến ngày 30-6 đã nhận được 28/53 hồ sơ đề nghị sáp nhập đơn vị cấp huyện, xã của các tỉnh, thành phố.
-- Cùng với việc tăng lương cơ sở 30% từ ngày 1-7, mức chi trả cho người bệnh có thẻ bảo hiểm y tế cũng tăng theo.
-- Ngày 4-7, chủ tịch hội đồng thành viên Tập đoàn Điện lực Việt Nam Đặng Hoàng An đã phê duyệt dự án cấp điện cho Côn Đảo từ lưới điện quốc gia. Dự án này có tổng mức đầu tư hơn 4.900 tỉ đồng.
-- Liên tiếp những vụ lắp camera quay lén bị phát giác khiến dư luận bức xúc và người bị quay lén "sống trong cảnh hoang mang", sợ những hình ảnh nhạy cảm của mình bị tung lên mạng.
-- Liên quan việc thí điểm đèn giao thông không đếm ngược ở TP.HCM, Tuổi Trẻ ghi nhận thực tế và trao đổi thông tin với cơ quan chức năng, ý kiến từ chuyên gia giao thông xung quanh việc này.
-- Một số tin tức đáng chú ý: Doanh thu phí bảo hiểm vẫn trượt dốc; Tỉ lệ chênh lệch giới tính khi sinh tại Hà Nội vẫn ở mức cao; Lương chủ tịch Xổ số TP.HCM 830 triệu đồng một năm, chưa kể thưởng...
-- Hôm nay 5-7, mưa dông tại Bắc Bộ và Nam Bộ giảm so với những ngày qua, tuy nhiên chiều tối vẫn có nơi xuất hiện mưa to.
-- Tại hiện trường vụ cháy công ty sản xuất bao bì ở Vĩnh Phúc, 'biển lửa' kèm theo cột khói đen đặc quánh, bốc cao hàng trăm mét bao trùm toàn bộ công ty.
-- Điện Kremlin xác nhận Thủ tướng Ấn Độ Narendra Modi sẽ thăm Nga vào ngày 8 và 9-7 trong chuyến thăm song phương đầu tiên sau khi ông đắc cử nhiệm kỳ thứ 3.
-- Doanh nghiệp đề xuất tuyến tàu tự lái chở khách để giảm ùn tắc cho khu vực sân bay Tân Sơn Nhất.
-- Chủ tịch HĐND TP.HCM Nguyễn Thị Lệ cho biết bà từng bị một người giả danh công an gọi lừa đảo nhưng không thành công. Cần tăng cường các biện pháp phòng chống tội phạm công nghệ cao.
-- Trước tình trạng xe dù, bến cóc lộng hành, chưa có dấu hiệu giảm, cơ quan chức năng tại TP.HCM đã dùng nhiều biện pháp để giải quyết, nhưng sự phối hợp chưa chặt chẽ.
-- Ba liệt sĩ hy sinh khi đang thực hiện nhiệm vụ trên các đảo thuộc quần đảo Trường Sa (tỉnh Khánh Hòa). Thủ tướng đã có quyết định cấp bằng "Tổ quốc ghi công".
-- Ban Văn hóa - Xã hội HĐND tỉnh Khánh Hòa kiến nghị bãi bỏ quyết định ban hành nội quy công viên bờ biển Nha Trang có quy định cấm thả diều không phù hợp quy định pháp luật.
-- Tổng bí thư Nguyễn Phú Trọng, Ủy viên Ban Thường vụ Đảng ủy Công an Trung ương, gửi nội dung phát biểu chỉ đạo, gợi mở một số ý kiến quan trọng để hội nghị tham khảo trong quá trình thảo luận.
-- Chủ tịch Quốc hội Trần Thanh Mẫn đã ký nghị quyết của Ủy ban Thường vụ Quốc hội về phân công nhiệm vụ đối với Chủ tịch, các Phó chủ tịch Quốc hội khóa XV.
-- Người dân phản ảnh khi khám chữa bệnh là phải mua sổ khám chữa bệnh rất lãng phí. Từ thực tế này, đại biểu HĐND TP Cần Thơ hỏi giám đốc Sở Y tế khi nào người dân đi khám bệnh không còn phải mua sổ khám bệnh nữa?
-- Dự án chống ngập 10.000 tỉ (nhà đầu tư là Tập đoàn Trung Nam) đã khởi công 8 năm và hoàn thành 90%. Hiện nay dự án còn nhiều vướng mắc và chờ được Chính phủ tháo gỡ.
-- Ngày 4-7, Công an Đà Nẵng cho biết vừa triệt phá đường dây tổ chức đánh bạc dưới hình thức cá độ bóng đá qua mạng, liên tỉnh trong mùa Euro, Copa America với tổng số tiền giao dịch hơn 100 tỉ đồng.
-- TP.HCM đang thí điểm đèn giao thông đếm ngược tại 4 giao lộ lớn, việc này nhận về nhiều ý kiến khác nhau. Nhiều người dân cho rằng đèn không đếm ngược dễ dừng đèn vàng đột ngột, gây tai nạn.
-- Bộ Tư pháp đề xuất bãi bỏ quy định về việc nộp giấy xác nhận tình trạng hôn nhân khi làm thủ tục đăng ký kết hôn.
-- TP Cần Thơ được trung ương ban hành nhiều chính sách phát triển, cộng thêm vị trí địa lý thuận lợi, trung tâm vùng Đồng bằng sông Cửu Long nhưng lại phát triển chưa kỳ vọng. Điều này có lãng phí "thiên thời, địa lợi, nhân hòa"?
-- 71 con sông, kênh, rạch và 12 ao, hồ, khu bảo tồn đã được Long An phê duyệt lập hành lang bảo vệ nguồn nước.
-- Chiều 4-7, tại cuộc họp báo kinh tế - xã hội, Chánh Văn phòng UBND TP.HCM Đặng Quốc Toàn đã trả lời báo chí về các tồn tại, vi phạm ở Phú Mỹ Hưng.
-- Từ năm 2023 đến nay, Bình Phước ghi nhận 94 trẻ em bị bạo lực, xâm hại. Trong nhiều hình thức xâm hại thì xâm hại tình dục trẻ em chiếm đến 75%.
-- Đường trên cao nối quốc lộ 13, đường Đinh Bộ Lĩnh, Xô Viết Nghệ Tĩnh sẽ giúp người dân đi vào trung tâm TP thuận tiện hơn.
-- Bộ Ngoại giao hoan nghênh các đánh giá của Mỹ về nỗ lực chống mua bán người ở Việt Nam, song cho rằng vẫn có sự thiếu khách quan về tình hình tự do tôn giáo.
-- Liên quan vụ án xảy ra tại khu đô thị du lịch biển Phan Thiết, Cơ quan cảnh sát điều tra Bộ Công an tiếp tục khởi tố thêm ông Nguyễn Ngọc - cựu phó chủ tịch thường trực tỉnh Bình Thuận - cùng 4 bị can khác.
-- Đồng loạt các tỉnh Tiền Giang, Long An, Đắk Lắk và nhiều địa phương đã phản hồi, đề nghị với Tập đoàn Viettel để tránh bị ngắt, gián đoạn dữ liệu đất đai.
-- UBND TP Bảo Lộc (tỉnh Lâm Đồng) đã có văn bản kiến nghị sớm kết luận sai phạm (nếu có) liên quan đến việc hiến đất mở đường để phân lô xẻ nền đất.
+- Cùng công việc nhưng so với người thu gom rác công lập, thu nhập của người thu gom rác dân lập thấp hơn nhiều.
+- Mâu thuẫn khi tranh giành khách, hai tài xế xe buýt ở Nghệ An rượt đuổi, chèn ép nhau trên quốc lộ 1, bị công an tạm giữ hình sự.
+- Đề xuất trên của Bộ Tư pháp có trong tờ trình gửi Chính phủ về dự thảo nghị định sửa đổi, bổ sung một số điều của các nghị định trong lĩnh vực hộ tịch, quốc tịch, chứng thực.
+- Tin tức đáng chú ý: Phạt một công ty chứng khoán vì 'ém' thông tin trái phiếu; Khắc phục những khó khăn, vướng mắc trong ngành y tế; Cặp bưởi siêu to, sầu riêng khổng lồ sẽ xuất hiện tại Lễ hội trái cây Khánh Sơn 2024...
+- Hôm nay 6-7, thời tiết Nam Bộ ngày nắng, chiều tối mưa rào. Bắc Bộ  và Trung Bộ có nơi nắng nóng.
+- Khi mở nắp bồn chứa nước, nhân viên trạm xăng dầu ở tỉnh Bình Thuận tá hỏa phát hiện một thi thể người đàn ông trong tư thế nằm úp, nổi lên bề mặt và có dấu hiệu phân hủy.
+- Vụ tai nạn xảy ra khuya 5-7 tại Km200 trên cao tốc Vĩnh Hảo - Phan Thiết, đoạn thuộc huyện Hàm Thuận Bắc, tỉnh Bình Thuận giữa xe giường nằm với xe đầu kéo khiến 1 người chết và 4 người bị thương.
+- Ngày 5-7, tại trụ sở Chính phủ, Thủ tướng Phạm Minh Chính đã tiếp thân mật Phó thủ tướng, Ngoại trưởng Lào Saleumxay Kommasith.
+- Sau hai ngày bỏ trốn, nghi phạm Nguyễn Xuân Đạt đã đến Phòng cảnh sát hình sự đầu thú vì tham gia trong vụ bắn cô gái 22 tuổi tử vong ở quận Long Biên, Hà Nội.
+- Tài liệu gần đây hầu hết ghi liệt sĩ Đặng Thùy Trâm hy sinh ngày 22-6-1970 tại Quảng Ngãi. Gia đình trước đây làm giỗ chị ngày 20-6 âm lịch. Nhưng một báo cáo được tiết lộ gần đây lại cho biết chị hy sinh ngày 27-6-1970.
+- Trên mạng xã hội, hàng trăm bài viết rao bán chim phóng sinh, thịt chim hoang dã, các cửa hàng cũng sắp đầy các lồng với đủ loại chim. Cơ quan y tế khuyến cáo việc tiếp xúc, sử dụng thịt chim hoang dã tiềm ẩn nhiều nguy cơ nhiễm bệnh.
+- Cơ quan chức năng tỉnh Đắk Nông tìm thấy hài cốt liệt sĩ được xác định là cán bộ, chiến sĩ Đại đội 1, Tiểu đoàn 2, Trung đoàn 205, hy sinh khoảng năm 1973.
+- Nội dung trên được ông Lê Minh Triết - giám đốc Công ty TNHH MTV Đường sắt đô thị số 1 - thông tin về công tác chuẩn bị tiếp quản, vận hành, bảo trì tuyến metro số 1 (Bến Thành - Suối Tiên) trong thời gian tới.
+- UBND quận 1 vừa báo cáo UBND TP.HCM kết quả sau 50 ngày triển khai thu phí sử dụng tạm thời lòng đường, hè phố.
+- Nam nhân viên Chi nhánh Văn phòng đăng ký đất đai TP Tam Kỳ, Quảng Nam bị bắt tạm giam để điều tra hành vi nhận hối lộ.
+- Sau 5 ngày áp dụng thông tư 28/2024, việc tạm giữ giấy tờ trên môi trường điện tử đã có những kết quả tích cực ban đầu.
+- Chiều 5-7, Bệnh viện Lê Văn Thịnh (TP Thủ Đức, TP.HCM) đã thông tin tình hình sức khỏe của nam bệnh nhân N.H.B.T. (18 tuổi, Đồng Nai) bị ngộ độc xyanua.
+- Thông tin đến Tuổi Trẻ Online về kết quả xác minh vụ tài khoản khách hàng ở Đà Nẵng "nhảy múa" các giao dịch lạ, Ngân hàng ABBank cho biết lỗi xuất phát từ bảo mật thông tin, tài khoản bị chiếm quyền kiểm soát.
+- Sau 2 giờ vào nhà yến, kẻ trộm đã lấy cắp khoảng 5kg tổ yến trị giá khoảng 100 triệu đồng và làm chết nhiều yến con.
+- Dư luận xôn xao thông tin chủ tịch xã Diên Bình (huyện Đăk Tô, tỉnh Kon Tum) bị lừa đảo số tiền hàng tỉ đồng khi tham gia phân phối sản phẩm qua mạng.
+- Các nhà giàn DK1 trên vùng biển thềm lục địa phía Nam của Tổ quốc như những ‘thành đồng’ che chắn, bảo vệ chủ quyền biển đảo, đất liền từ xa.
+- Thủ trưởng đơn vị chịu trách nhiệm liên đới trước UBND TP.HCM khi để cán bộ, công chức, viên chức, người lao động vi phạm kỷ luật, kỷ cương hành chính.
+- Hiện địa phương đang tiến hành đo đạc, kiểm đếm tài sản sớm hoàn thành công tác giải phóng mặt bằng, phấn đấu khởi công cuối tháng 12-2024.
+- PGS.TS Hồ Quốc Chinh của Đại học Sydney (Úc) cho rằng TP.HCM phải giữ bí mật thiết kế các tuyến metro nếu không muốn đánh mất cơ hội làm TOD.
+- Đại sứ quán Mỹ hoan nghênh Chính phủ Việt Nam ban hành nghị định về cơ chế mua bán điện trực tiếp, đáp ứng nhu cầu dùng điện tái tạo của nhiều doanh nghiệp.
+- Tài xế thoát chết trong gang tấc khi phần đuôi của mô tô nước phát nổ tại khu vực bãi tắm Hồng Vàn, huyện Cô Tô, tỉnh Quảng Ninh.
+- Hợp đồng dự án BOT ký kết với Tập đoàn Yên Khánh chưa được xử lý dứt điểm làm ảnh hưởng tiến độ triển khai con đường nối về Long An.
+- Chủ tịch UBND tỉnh Bạc Liêu Phạm Văn Thiều cho biết đối tác ở Singapore đưa cho ông 100 gram muối làm đẹp đã qua công nghệ giá 1,8 triệu đồng/100 gram, trong khi giá bán muối Bạc Liêu chỉ 900 đồng/kg.
+- Nhiều bạn đọc phản ánh có người nhận lương hưu muộn hơn 1-2 ngày, có người vẫn chưa nhận được.
+- Thường trực Ban Bí thư Lương Cường đề nghị Ban Nội chính Trung ương tập trung tham mưu, chỉ đạo đẩy nhanh tiến độ điều tra, xử lý dứt điểm, nghiêm minh các vụ án, vụ việc tham nhũng, tiêu cực.
 ![New](News.png)
 ## Nhịp sống số 
+- Cơ quan Hàng không vũ trụ Nhật Bản (JAXA) ngày 5-7 thừa nhận đã bị rò rỉ thông tin sau một vụ tấn công mạng, may mắn không lộ thông tin tên lửa và vệ tinh.
 - Có thể thấy rằng để tối đa hóa doanh thu từ website, ứng dụng, thì nhiệm vụ là cần duy trì hiệu suất ở mức cao nhất có thể.
 - Theo cơ quan chức năng, nhà mạng cho phép thực hiện cuộc gọi lừa đảo nghĩa là đã cung cấp dịch vụ liên lạc không đúng cách và gây thiệt hại cho thuê bao.
 - Nghiên cứu mới cho thấy tiếp xúc với ánh sáng nhân tạo như bóng đèn hay điện thoại thông minh sau nửa đêm có thể làm tăng nguy cơ mắc đái tháo đường loại 2.
@@ -94,5 +95,4 @@
 - Nghiên cứu mới của ĐH Michigan (Mỹ) chỉ ra rằng cách tốt nhất để quản lý thời gian dùng điện thoại là... làm cho nó đơ ra mỗi khi xài lâu.
 - Doanh nghiệp và người tiêu dùng đều cần công cụ để tự bảo vệ mình trước những hình thức gian lận mới của thanh toán số.
 - Chỉ trong một thời gian ngắn, truyền hình MyTV của VNPT đã đạt được sự tăng trưởng thần tốc, thực sự trở thành người bạn đồng hành thân thiết với các gia đình Việt mỗi ngày.
-- Kết nối Internet quốc tế gặp sự cố, chập chờn thường là cơn đau đầu của các nhà cung cấp dịch vụ trực tuyến.
 ![life](Life.png)
