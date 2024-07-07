@@ -1,6 +1,11 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- TS Nguyễn Nhật Nguyên (tên Pháp là Arthur Nguyen) vừa được Nhà nước Pháp phong hàm giáo sư cấp quốc gia ngành khoa học quản trị đợt tháng 6-2024, khi mới ở tuổi 34.
+- Hội thảo quốc gia 'Những tiến bộ trong xây dựng, kiến trúc, kinh tế và công nghệ năm 2024' được tổ chức tại tỉnh Phú Yên.
+- Đại diện Trường EHL cho rằng ngoài kiến thức, kỹ năng, sinh viên ngành du lịch, nhà hàng, khách sạn cần mở rộng các mối quan hệ càng nhiều càng tốt.
+- Nhiều thí sinh từ các tỉnh thành Huế, Hà Tĩnh, Nghệ An, Thanh Hóa, Sơn La... đã vượt đường xa, đổ về Hà Nội, sẵn sàng tham dự kỳ thi đánh giá của Bộ Công an. Tổng số thí sinh đăng ký dự thi là gần 18.000, nhưng tổng chỉ tiêu tuyển sinh chỉ 2.150.
+- Lãnh đạo Sở Giáo dục và Đào tạo Đắk Lắk cho hay đề thi môn toán bị mờ nhưng khẳng định công tác chấm thi vẫn đảm bảo quyền lợi cho thí sinh.
 - Ngày 5-7, ông Phan Thanh Hải - giám đốc Sở Giáo dục và Đào tạo tỉnh Đắk Nông - cho biết đang nghiên cứu để 'nới rộng' chỉ tiêu vào lớp 10 cho học sinh trên địa bàn.
 - Theo thông báo của Bộ Công an, có 127 thí sinh trúng tuyển sớm vào 8 trường công an theo phương thức xét tuyển thẳng và xét tuyển kết hợp chứng chỉ ngoại ngữ.
 - Đáp án một câu trong đề thi toán lớp 6 ở Trường THCS Vĩnh Yên chưa chính xác, trưởng Phòng Giáo dục viết thư xin lỗi phụ huynh, học sinh.
@@ -26,43 +31,38 @@
 - Sáng nay 4-7, 4.301 học sinh lớp 5 ở TP.HCM đã bước vào kỳ khảo sát tuyển sinh lớp 6 của Trường Trần Đại Nghĩa. Chỉ tiêu tuyển của trường này là 350 học sinh.
 - Sau khi thi tốt nghiệp THPT 2024, thí sinh cần lưu ý các mốc thời gian như ngày công bố điểm thi, nộp đơn phúc khảo, đăng ký, điều chỉnh nguyện vọng xét tuyển đại học...
 - Nếu các con bị thất bại, cha mẹ nên nói với con điều đó không phải là kết thúc mà chính là một cơ hội để học hỏi và lớn lên.
-- Mới nhìn qua bảng điểm chuẩn vào lớp 10 ở TP.HCM năm nay, nhiều người lầm tưởng rằng hầu hết các trường THPT đều giảm điểm chuẩn.
-- Không chỉ con trẻ, chính các phụ huynh cũng phải tự mình bình tĩnh, đừng so sánh con mình với con nhà người rồi tạo áp lực tâm lý.
-- Sở Giáo dục và Đào tạo TP.HCM sẽ quyết định về việc tuyển bổ sung vào lớp 10 sau ngày 31-7-2024.
-- Năm nay, Trường đại học Khoa học xã hội và Nhân văn TP.HCM lấy điểm chuẩn đánh giá năng lực từ 635-963 điểm.
-- UBND huyện Krông Bông và Phòng Giáo dục và Đào tạo huyện Krông Bông (Đắk Lắk) có công văn yêu cầu giáo viên không tập trung đông người phản đối doanh nghiệp khai thác cát, gây mất an ninh trật tự.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Cùng công việc nhưng so với người thu gom rác công lập, thu nhập của người thu gom rác dân lập thấp hơn nhiều.
-- Mâu thuẫn khi tranh giành khách, hai tài xế xe buýt ở Nghệ An rượt đuổi, chèn ép nhau trên quốc lộ 1, bị công an tạm giữ hình sự.
-- Đề xuất trên của Bộ Tư pháp có trong tờ trình gửi Chính phủ về dự thảo nghị định sửa đổi, bổ sung một số điều của các nghị định trong lĩnh vực hộ tịch, quốc tịch, chứng thực.
-- Tin tức đáng chú ý: Phạt một công ty chứng khoán vì 'ém' thông tin trái phiếu; Khắc phục những khó khăn, vướng mắc trong ngành y tế; Cặp bưởi siêu to, sầu riêng khổng lồ sẽ xuất hiện tại Lễ hội trái cây Khánh Sơn 2024...
-- Hôm nay 6-7, thời tiết Nam Bộ ngày nắng, chiều tối mưa rào. Bắc Bộ  và Trung Bộ có nơi nắng nóng.
-- Khi mở nắp bồn chứa nước, nhân viên trạm xăng dầu ở tỉnh Bình Thuận tá hỏa phát hiện một thi thể người đàn ông trong tư thế nằm úp, nổi lên bề mặt và có dấu hiệu phân hủy.
-- Vụ tai nạn xảy ra khuya 5-7 tại Km200 trên cao tốc Vĩnh Hảo - Phan Thiết, đoạn thuộc huyện Hàm Thuận Bắc, tỉnh Bình Thuận giữa xe giường nằm với xe đầu kéo khiến 1 người chết và 4 người bị thương.
-- Ngày 5-7, tại trụ sở Chính phủ, Thủ tướng Phạm Minh Chính đã tiếp thân mật Phó thủ tướng, Ngoại trưởng Lào Saleumxay Kommasith.
-- Sau hai ngày bỏ trốn, nghi phạm Nguyễn Xuân Đạt đã đến Phòng cảnh sát hình sự đầu thú vì tham gia trong vụ bắn cô gái 22 tuổi tử vong ở quận Long Biên, Hà Nội.
-- Tài liệu gần đây hầu hết ghi liệt sĩ Đặng Thùy Trâm hy sinh ngày 22-6-1970 tại Quảng Ngãi. Gia đình trước đây làm giỗ chị ngày 20-6 âm lịch. Nhưng một báo cáo được tiết lộ gần đây lại cho biết chị hy sinh ngày 27-6-1970.
-- Trên mạng xã hội, hàng trăm bài viết rao bán chim phóng sinh, thịt chim hoang dã, các cửa hàng cũng sắp đầy các lồng với đủ loại chim. Cơ quan y tế khuyến cáo việc tiếp xúc, sử dụng thịt chim hoang dã tiềm ẩn nhiều nguy cơ nhiễm bệnh.
-- Cơ quan chức năng tỉnh Đắk Nông tìm thấy hài cốt liệt sĩ được xác định là cán bộ, chiến sĩ Đại đội 1, Tiểu đoàn 2, Trung đoàn 205, hy sinh khoảng năm 1973.
-- Nội dung trên được ông Lê Minh Triết - giám đốc Công ty TNHH MTV Đường sắt đô thị số 1 - thông tin về công tác chuẩn bị tiếp quản, vận hành, bảo trì tuyến metro số 1 (Bến Thành - Suối Tiên) trong thời gian tới.
-- UBND quận 1 vừa báo cáo UBND TP.HCM kết quả sau 50 ngày triển khai thu phí sử dụng tạm thời lòng đường, hè phố.
-- Nam nhân viên Chi nhánh Văn phòng đăng ký đất đai TP Tam Kỳ, Quảng Nam bị bắt tạm giam để điều tra hành vi nhận hối lộ.
-- Sau 5 ngày áp dụng thông tư 28/2024, việc tạm giữ giấy tờ trên môi trường điện tử đã có những kết quả tích cực ban đầu.
-- Chiều 5-7, Bệnh viện Lê Văn Thịnh (TP Thủ Đức, TP.HCM) đã thông tin tình hình sức khỏe của nam bệnh nhân N.H.B.T. (18 tuổi, Đồng Nai) bị ngộ độc xyanua.
-- Thông tin đến Tuổi Trẻ Online về kết quả xác minh vụ tài khoản khách hàng ở Đà Nẵng "nhảy múa" các giao dịch lạ, Ngân hàng ABBank cho biết lỗi xuất phát từ bảo mật thông tin, tài khoản bị chiếm quyền kiểm soát.
-- Sau 2 giờ vào nhà yến, kẻ trộm đã lấy cắp khoảng 5kg tổ yến trị giá khoảng 100 triệu đồng và làm chết nhiều yến con.
-- Dư luận xôn xao thông tin chủ tịch xã Diên Bình (huyện Đăk Tô, tỉnh Kon Tum) bị lừa đảo số tiền hàng tỉ đồng khi tham gia phân phối sản phẩm qua mạng.
-- Các nhà giàn DK1 trên vùng biển thềm lục địa phía Nam của Tổ quốc như những ‘thành đồng’ che chắn, bảo vệ chủ quyền biển đảo, đất liền từ xa.
-- Thủ trưởng đơn vị chịu trách nhiệm liên đới trước UBND TP.HCM khi để cán bộ, công chức, viên chức, người lao động vi phạm kỷ luật, kỷ cương hành chính.
-- Hiện địa phương đang tiến hành đo đạc, kiểm đếm tài sản sớm hoàn thành công tác giải phóng mặt bằng, phấn đấu khởi công cuối tháng 12-2024.
-- PGS.TS Hồ Quốc Chinh của Đại học Sydney (Úc) cho rằng TP.HCM phải giữ bí mật thiết kế các tuyến metro nếu không muốn đánh mất cơ hội làm TOD.
-- Đại sứ quán Mỹ hoan nghênh Chính phủ Việt Nam ban hành nghị định về cơ chế mua bán điện trực tiếp, đáp ứng nhu cầu dùng điện tái tạo của nhiều doanh nghiệp.
-- Tài xế thoát chết trong gang tấc khi phần đuôi của mô tô nước phát nổ tại khu vực bãi tắm Hồng Vàn, huyện Cô Tô, tỉnh Quảng Ninh.
-- Hợp đồng dự án BOT ký kết với Tập đoàn Yên Khánh chưa được xử lý dứt điểm làm ảnh hưởng tiến độ triển khai con đường nối về Long An.
-- Chủ tịch UBND tỉnh Bạc Liêu Phạm Văn Thiều cho biết đối tác ở Singapore đưa cho ông 100 gram muối làm đẹp đã qua công nghệ giá 1,8 triệu đồng/100 gram, trong khi giá bán muối Bạc Liêu chỉ 900 đồng/kg.
-- Nhiều bạn đọc phản ánh có người nhận lương hưu muộn hơn 1-2 ngày, có người vẫn chưa nhận được.
-- Thường trực Ban Bí thư Lương Cường đề nghị Ban Nội chính Trung ương tập trung tham mưu, chỉ đạo đẩy nhanh tiến độ điều tra, xử lý dứt điểm, nghiêm minh các vụ án, vụ việc tham nhũng, tiêu cực.
+- Chương trình nghệ thuật đặc biệt ở di tích Đôi bờ Hiền Lương - Bến Hải, nơi từng chứng kiến chia cắt hơn 20 năm của đất nước, kết hợp với biểu diễn drone và bắn pháo hoa mở đầu Lễ hội Vì hòa bình lần thứ nhất của tỉnh Quảng Trị.
+- Dự án xây nhà vệ sinh cho 7 trường học tại TP Bảo Lộc (tỉnh Lâm Đồng) phải dừng, chờ ý kiến của Bộ Tài nguyên và Môi trường vì chồng lấn quy hoạch khoáng sản.
+- Việc tái thu phí tham quan danh lam thắng cảnh vịnh Nha Trang, theo Thường trực HĐND tỉnh Khánh Hòa, cần phải điều chỉnh, bổ sung đầy đủ tính pháp lý của đề án UBND tỉnh đã trình.
+- Ngân hàng rao bán bất động sản nữ ‘đại gia’ ô tô Minh Nguyệt; Công chức, viên chức có thành tích đột xuất sẽ được thưởng...
+- Hôm nay 7-7, thời tiết Bắc Bộ nắng nóng nhiều nơi, về chiều tối một vài tỉnh thành mưa dông. Nam Bộ ngày nắng, chiều tối mưa rào.
+- Cải thiện lòng dẫn sông Hồng, sông Đà cần phải quyết liệt, kiểm soát chặt chẽ hoạt động khai thác cát. Từ đó tạo nguồn nước tự nhiên để hồi sinh các dòng sông "hấp hối" ở Hà Nội.
+- Vụ va chạm giữa xe tải và ô tô con trên cao tốc Nội Bài - Lào Cai khiến 1 người chết, 3 người bị thương. Nhiều xe mắc kẹt trên tuyến đường gần 2 giờ.
+- Đến năm 2030, Quảng Trị đặt mục tiêu thuộc nhóm tỉnh khá, là một tỉnh công nghiệp - dịch vụ, trung tâm hậu cần và trung chuyển hàng hóa của Đông Nam Á.
+- Vụ nổ bồn chứa mùn cưa xảy ra tại một nhà máy ở Bình Dương khiến 9 công nhân bị thương, trong đó 4 người bị bỏng nặng.
+- Tại lễ khởi công sân bay Quảng Trị, Phó thủ tướng Chính phủ Lê Thành Long kỳ vọng những chuyến bay mang theo khát vọng, hoài bão của người dân Quảng Trị sẽ cất cánh trên bầu trời vào năm 2026.
+- Các dự án nối dài metro số 1 về tỉnh Đồng Nai, Bình Dương được đề xuất ưu tiên đầu tư trong giai đoạn 2024-2035.
+- Thông tin kết quả thực hiện sinh trắc học, Phó thống đốc Ngân hàng Nhà nước Phạm Tiến Dũng cho biết tính đến hết ngày 5-7, các ngân hàng đã đối chiếu làm sạch khoảng 19 triệu tài khoản.
+- Mua 27 bánh heroin, 5kg ma túy đá và 6.000 viên ma túy tổng hợp, nhóm nghi phạm ngụy trang số ma túy này trong thùng hàng gửi xe khách đi tiêu thụ.
+- Sản phụ N.T.A.T. (ở huyện Giồng Riềng, tỉnh Kiên Giang) được cảnh sát giao thông TP Cần Thơ kịp thời hỗ trợ, đưa đến bệnh viện khi vỡ ối trên đường đi.
+- Chính quyền thừa nhận các bãi rác đã quá tải nhưng nhà máy xử lý rác đầu tư hơn 7 năm chưa... hoạt động được.
+- Thứ trưởng Bộ Nội vụ Trương Hải Long cho biết trong kỳ lương tháng 7, cán bộ, công chức, viên chức, lực lượng vũ trang, người hưởng lương hưu... sẽ được chi trả tăng lương mới.
+- Chiều 6-7, tiếp tục chuyến công tác tại Đồng bằng sông Cửu Long, tại thành phố Long Xuyên, Chủ tịch nước Tô Lâm đã có cuộc gặp mặt với lãnh đạo chủ chốt tỉnh An Giang.
+- Kiên Giang hiện có khoảng 5.311 tàu cá được cập nhật số liệu về tên chủ tàu cá, số căn cước, số điện thoại chủ tàu lên hệ thống phần mềm cơ sở dữ liệu nghề cá quốc gia (VNFishbase).
+- Lãnh đạo Sở Giáo dục và Đào tạo Đắk Lắk cho hay đề thi môn toán bị mờ nhưng khẳng định công tác chấm thi vẫn đảm bảo quyền lợi cho thí sinh.
+- Bộ trưởng Bộ Công an đã phân công Thiếu tướng Hoàng Anh Tuyên, phó chánh văn phòng Bộ Công an, làm người phát ngôn của bộ.
+- Thiếu tướng Hoàng Anh Tuyên, phó chánh văn phòng Bộ Công an, thông tin thêm về kết quả điều tra vụ Xuyên Việt Oil, Phúc Sơn, Thuận An, vụ ông Nguyễn Văn Yên.
+- Chị Muội đi khám bệnh và được bác sĩ chỉ định siêu âm, chụp CT scanner nhưng không phát hiện đang mang thai mà cho rằng bệnh nhân bị gan nhiễm mỡ và nhân sơ tử cung. Bệnh viện khẳng định đã làm đúng chuyên môn, đủ trách nhiệm.
+- Người dân kêu trời nguồn nước có dấu hiệu ô nhiễm từ khi trại heo nuôi thử nghiệm hàng chục nghìn con. Chính quyền hai tỉnh Nghệ An và Thanh Hóa cùng vào cuộc kiểm tra.
+- Thông tư 28 của Bộ Công an quy định từ 1-8, chủ xe có thể bấm biển số trên ứng dụng VNeID khi đăng ký xe lần đầu đối với xe sản xuất, lắp ráp trong nước.
+- Sáng 6-7, UBND phường 7, quận Phú Nhuận (TP.HCM) tổ chức ngày hội "Chung tay vì cộng đồng" gồm nhiều hoạt động gây quỹ, ngoài ra còn trao tặng hơn 500 triệu đồng của các nhà hảo tâm cho các hộ gia đình có hoàn cảnh khó khăn.
+- 6 tháng đầu năm 2024, số lượng học viên tham gia các khóa đào tạo lái xe và dự các kỳ sát hạch tăng.
+- Huyện ủy Đăk Tô (tỉnh Kon Tum) vừa yêu cầu Đảng ủy xã Diên Bình xác minh và báo cáo thông tin ông N.H.L. - chủ tịch UBND xã Diên Bình - bị lừa đảo qua mạng mất tiền tỉ.
+- Phòng khám thẩm mỹ Diva Sài Gòn (quận 11, TP.HCM) đã trốn tránh trách nhiệm về sự cố khách hàng bị sốc phản vệ sau khi thực hiện “thẩm mỹ vùng kín” tại đây.
+- Sau hàng chục giờ tìm kiếm, lúc 10h sáng 6-7, thi thể bé gái 9 tháng tuổi trong vụ người cha ôm con nhảy cầu Cửa Đại (Hội An) tự tử đã được tìm thấy.
+- Từ phản ảnh của bạn đọc nạn ô nhiễm, mất đất vì sạt lở, PV Tuổi Trẻ đi thực tế nhiều tháng để ghi lại "Lời cảnh báo từ những dòng sông" qua phóng sự ảnh.
 ![New](News.png)
 ## Nhịp sống số 
 - Cơ quan Hàng không vũ trụ Nhật Bản (JAXA) ngày 5-7 thừa nhận đã bị rò rỉ thông tin sau một vụ tấn công mạng, may mắn không lộ thông tin tên lửa và vệ tinh.
