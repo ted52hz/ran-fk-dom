@@ -1,6 +1,11 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Đều đặn một buổi trong tháng, các ông bà cao tuổi lại đến Trung tâm Phát triển khoa học và công nghệ trẻ (Thành Đoàn TP.HCM) để học cách sử dụng công nghệ trên thiết bị di động.
+- TS Lê Văn Lâm, trưởng phòng hợp tác quốc tế, được bổ nhiệm giữ chức vụ phó hiệu trưởng Trường đại học Cần Thơ.
+- Năm 2024, Trường đại học Quốc tế Sài Gòn (SIU) tuyển sinh chuyên ngành công nghệ thông tin y tế.
+- Trường đại học Tài chính - Marketing vừa công bố kết quả xét tuyển vào đại học chính quy năm 2024 đối với các phương thức xét tuyển sớm.
+- UBND TP.HCM đề xuất giảm học phí cho tất cả các bậc học từ mầm non đến THPT trong năm học mới.
 - Thí sinh có thể xem điểm nhanh tại https://tuoitre.vn/diem-thi.htm hoặc tại trang quản lý thi của bộ.
 - Sáng 7-7, gần 18.000 thí sinh cả nước đã tham dự kỳ thi đánh giá của Bộ Công an. Năm nay, 8 học viện và trường công an nhân dân có tổng chỉ tiêu tuyển sinh là 2.150.
 - Sau đợt 1 tuyển sinh đầu cấp thực hiện theo bản đồ GIS, nhiều phụ huynh lên tiếng con họ không được học ở trường gần nhà nhất.
@@ -26,43 +31,38 @@
 - Tuyển sinh vào lớp 1, lớp 6 năm học 2024 - 2025 tại TP.HCM đang đến cuối giai đoạn 1, giai đoạn ưu tiên học sinh cư trú thực tế tại địa bàn quận, huyện.
 - Hội đồng tuyển sinh Trường đại học Cần Thơ vừa công bố kết quả xét tuyển sớm theo phương thức 5, xét điểm của kỳ thi đánh giá năng lực đầu vào (V-SAT) vào các ngành đại học chính quy năm 2024.
 - Gen Z nên điểm qua những lưu ý sau từ HUFLIT để có thể nắm chắc tấm vé vào đại học cũng như chinh phục hàng loạt các suất học bổng giá trị.
-- Ngày càng có nhiều lựa chọn học tập cho học sinh tốt nghiệp THCS và vào lớp 10 các trường THPT công lập không phải là cánh cửa duy nhất.
-- Chánh văn phòng Sở Giáo dục và Đào tạo TP.HCM thông tin chi tiết về việc tuyển bổ sung vào lớp 10 năm 2024.
-- Tính đến tối ngày 4-7, đã có hơn 90 đại học, trường đại học, học viện công bố điểm chuẩn xét tuyển sớm, nhiều trường công bố điểm chuẩn xét học bạ chạm mốc gần tuyệt đối.
-- Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) vừa tiếp tục công bố điểm chuẩn thêm 2 phương thức xét tuyển sớm 1 và 6.
-- Nguyễn Hoàng Khánh Nhi (học sinh lớp 8 Royal School) liên tục điền tên vào ‘top đầu’ trên bảng vàng thành tích.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Luật Trật tự, an toàn giao thông đường bộ được Quốc hội thông qua sẽ có hiệu lực từ ngày 1-1-2025, quy định xe máy sẽ phải kiểm định khí thải.
-- Bộ Nội vụ kiểm tra tình hình công chức, viên chức thôi việc, bỏ việc, chấp hành kỷ cương, kỷ luật công vụ liên quan người dân, doanh nghiệp.
-- "Nhảy!" - giáo viên hô và đẩy nhẹ vai tôi. Tôi giậm chân trái lên mép sàn cửa chiếc máy bay Mi-17 rồi tung mình ra ngoài không trung.
-- Một số tin tức đáng chú ý: Nửa đầu năm 2024, trên 78.000 lao động xuất cảnh đi làm việc nước ngoài; Lãi suất tiết kiệm đến cuối năm sẽ tăng lên 5,5%; Giá sầu riêng bật tăng lại, nông dân đua trồng mới...
-- Hôm nay 8-7, thời tiết nắng nóng diễn ra diện rộng tại Bắc Bộ và Trung Bộ. Tây Nguyên và Nam Bộ mưa rào, có nơi mưa to đến rất to.
-- Chiều 7-7, tại Hưng Yên, Thủ tướng Phạm Minh Chính dự Hội nghị công bố quy hoạch thời kỳ 2021-2030, tầm nhìn đến năm 2050 và xúc tiến đầu tư tỉnh Hưng Yên năm 2024.
-- Dự báo miền Bắc và miền Trung sẽ xảy ra một đợt nắng nóng kéo dài từ nay (7-7) đến hết tuần sau (14-7).
-- Chiều 7-7, Công an huyện Bình Chánh (TP.HCM) đang điều tra làm rõ vụ cháy bãi chứa pallet gỗ ở xã Vĩnh Lộc A (huyện Bình Chánh).
-- Thủ tướng yêu cầu sau khi có mặt bằng, nhà thầu tập trung thi công đường Tân Phúc - Võng Phan '3 ca 4 kíp', làm việc xuyên ngày nghỉ, cố gắng hoàn thành dự án vào tháng 9-2025.
-- Khinh khí cầu chở 9 người phải hạ cánh xuống bãi đất trống gần tỉnh lộ 412 (Ba Vì, Hà Nội) do gặp lỗi kỹ thuật. Sự cố không gây thương vong.
-- Hơn 50 đại biểu trong cả nước đã tham dự hội thảo khoa học 'Định hướng phát triển Quy Nhơn trở thành thành phố khoa học đặc trưng của Việt Nam'.
-- Bà Trần Thu Hà, phó bí thư Thành Đoàn TP.HCM, chia sẻ trong buổi lễ phát động đóng góp chương trình ‘Tàu cấp cứu đường thủy cho Cần Giờ’, do Thành Đoàn TP.HCM và báo Tuổi Trẻ tổ chức.
-- Luật sư vừa có kiến nghị rà soát, kiểm tra lại quá trình giám định nồng độ cồn có trong mẫu máu thu từ nạn nhân.
-- Cơ quan chức năng đã hoàn thành việc khắc phục sự cố sà lan tông lệch đường ray cầu Quay, và tàu hỏa từ Hà Nội đã có thể về ga Hải Phòng.
-- Vụ tai nạn giữa xe khách và ô tô xảy ra trưa 7-7 tại Km211+200 của cao tốc Vĩnh Hảo - Phan Thiết, đoạn qua xã Thuận Minh, huyện Hàm Thuận Bắc, tỉnh Bình Thuận.
-- Trung tâm Phối hợp tìm kiếm, cứu nạn hàng hải khu vực IV (trụ sở đóng tại TP Nha Trang, Khánh Hòa) vừa cứu một thủy thủ quốc tịch Trung Quốc bị tai nạn lao động trên biển.
-- Tuần này thời tiết Bắc Bộ, Trung Bộ khả năng xuất hiện một đơt nắng nóng diện rộng; Nam Bộ có đợt mưa dông.
-- Thời gian qua, chủ đầu tư một số trạm BOT áp dụng việc miễn giảm phí qua trạm cho người dân sống gần nơi đặt trạm thu phí, được người dân đón nhận tích cực.
-- Các sở ngành tỉnh Bình Thuận vừa họp bàn, báo cáo tiến độ thực hiện tiểu dự án giải phóng mặt bằng thuộc dự án cải tạo, nâng cấp quốc lộ 28B.
-- Một sà lan chở hàng đâm biến dạng đường ray tại cầu Quay bắc qua sông Đào Hạ Lý, TP Hải Phòng, khiến tuyến đường sắt Hà Nội đến ga Hải Phòng phải tạm dừng.
-- Cảnh sát đã lập biên bản xử phạt tài xế lái xe khách loại 45 chỗ đi lùi trên cầu vượt Láng Hạ (quận Đống Đa, Hà Nội).
-- Chương trình nghệ thuật đặc biệt ở di tích Đôi bờ Hiền Lương - Bến Hải, nơi từng chứng kiến chia cắt hơn 20 năm của đất nước, kết hợp với biểu diễn drone và bắn pháo hoa mở đầu Lễ hội Vì hòa bình lần thứ nhất của tỉnh Quảng Trị.
-- Dự án xây nhà vệ sinh cho 7 trường học tại TP Bảo Lộc (tỉnh Lâm Đồng) phải dừng, chờ ý kiến của Bộ Tài nguyên và Môi trường vì chồng lấn quy hoạch khoáng sản.
-- Việc tái thu phí tham quan danh lam thắng cảnh vịnh Nha Trang, theo Thường trực HĐND tỉnh Khánh Hòa, cần phải điều chỉnh, bổ sung đầy đủ tính pháp lý của đề án UBND tỉnh đã trình.
-- Ngân hàng rao bán bất động sản nữ ‘đại gia’ ô tô Minh Nguyệt; Công chức, viên chức có thành tích đột xuất sẽ được thưởng...
-- Hôm nay 7-7, thời tiết Bắc Bộ nắng nóng nhiều nơi, về chiều tối một vài tỉnh thành mưa dông. Nam Bộ ngày nắng, chiều tối mưa rào.
-- Cải thiện lòng dẫn sông Hồng, sông Đà cần phải quyết liệt, kiểm soát chặt chẽ hoạt động khai thác cát. Từ đó tạo nguồn nước tự nhiên để hồi sinh các dòng sông "hấp hối" ở Hà Nội.
-- Vụ va chạm giữa xe tải và ô tô con trên cao tốc Nội Bài - Lào Cai khiến 1 người chết, 3 người bị thương. Nhiều xe mắc kẹt trên tuyến đường gần 2 giờ.
-- Đến năm 2030, Quảng Trị đặt mục tiêu thuộc nhóm tỉnh khá, là một tỉnh công nghiệp - dịch vụ, trung tâm hậu cần và trung chuyển hàng hóa của Đông Nam Á.
-- Vụ nổ bồn chứa mùn cưa xảy ra tại một nhà máy ở Bình Dương khiến 9 công nhân bị thương, trong đó 4 người bị bỏng nặng.
+- Xảy ra tai nạn, lực lượng chức năng đóng cao tốc TP.HCM - Long Thành để xử lý khiến đường Võ Chí Công, Mai Chí Thọ... kẹt cứng sáng 9-7.
+- Những ngày qua, người dân vùng miệt thứ phấn khởi, vui mừng khi nghe thông tin Kiên Giang sẽ làm cầu vượt biển vịnh Rạch Giá hơn 3.900 tỉ đồng.
+- Giải pháp nào kéo giảm tai nạn giao thông, nâng cao ý thức và kỹ năng lái xe an toàn của người dân sẽ được thảo luận tại buổi tọa đàm kết hợp tập huấn 'Lái xe an toàn: Vì mình - vì gia đình' diễn ra vào chiều nay 9-7.
+- Tin tức đáng chú ý: Hà Nội sốt xuất huyết, ho gà, viêm não đều tăng; Tích cực phòng chống bạch hầu; Đề nghị gia hạn thời gian thí điểm buýt điện ở TP.HCM đến hết quý 1-2025...
+- Hôm nay 9-7, cả nước thời tiết ngày nắng, các tỉnh Bắc Bộ tới Trung Bộ nắng nóng, chiều tối trời chuyển mưa rào đến mưa to.
+- Người dân, du khách ở TP Nha Trang (Khánh Hòa) đã thưởng thức trọn vẹn đêm nhạc sôi động, đặc sắc, hấp dẫn đến từ ban nhạc tàu USS Blue Ridge của Hải quân Hoa Kỳ.
+- Công an tỉnh Gia Lai đang tạm giữ hình sự 6 người để điều tra liên quan đường dây cá độ bóng đá mùa Euro quy mô 40 tỉ đồng.
+- Theo giám đốc Công an TP Hà Nội, qua công tác kiểm tra, rà soát phòng cháy, chữa cháy, Công an Hà Nội đã yêu cầu 16.479 nhà trọ và 22 chung cư mini trên địa bàn phải dừng hoạt động.
+- Giải ngân vốn đầu tư công 6 tháng đầu năm quận Bình Tân, TP.HCM đạt 70,42%, hơn gấp đôi so với tỉ lệ TP giao đến quý 2 là 30%.
+- Sau một tuần thực hiện quy định mới, cảnh sát giao thông cả nước đã kiểm tra 26.961 trường hợp thông qua ứng dụng VNeID, đồng thời tước 499 bằng lái của người vi phạm trên môi trường điện tử.
+- Tại họp báo Bộ Công an chiều 8-7, đại diện các cục nghiệp vụ của bộ đã thông tin về vụ án xảy ra tại Công ty TNHH cây xanh Công Minh, vụ án Tập đoàn Phúc Sơn.
+- Chủ tịch nước Tô Lâm, Thủ tướng Phạm Minh Chính, Thường trực Ban Bí thư Lương Cường đã cùng tham dự Hội nghị Quân ủy Trung ương lần thứ 10.
+- Tuyến quốc lộ 50B có vai trò quan trọng trong việc tăng cường kết nối giao thông liên vùng, giảm tải cho quốc lộ 50.
+- Theo Bảo hiểm xã hội Việt Nam, trong 15 năm qua, quỹ bảo hiểm y tế đã chi trả gần 1 triệu tỉ đồng cho khám chữa bệnh bảo hiểm y tế.
+- Thông tư 07/2024 của Bộ Nội vụ hướng dẫn thực hiện mức lương cơ sở với các đối tượng hưởng lương, phụ cấp trong các cơ quan, tổ chức, đơn vị sự nghiệp công lập.
+- Tổng bí thư khái quát các nội dung Quân ủy Trung ương cần tập trung lãnh đạo, chỉ đạo thực hiện trong 6 tháng cuối năm với tinh thần "5 quyết tâm, 5 chủ động".
+- Lào và Campuchia là hai điểm đến đầu tiên của Chủ tịch nước Tô Lâm trên cương vị mới.
+- Đó là trường hợp tréo ngoe bắt nguồn từ vụ án hình sự xử Vũ 'nhôm'. Sau bản án, cả người phải thi hành lẫn bên liên quan đều kêu cứu.
+- Tòa án nhân dân TP.HCM vừa thông báo thời gian xét xử sơ thẩm vụ án vi phạm quy định về đấu thầu, đưa - nhận hối lộ... xảy ra tại Sở Kế hoạch và Đầu tư TP.HCM, Công ty AIC, Trung tâm Công nghệ sinh học TP.HCM.
+- Ngày 8-7, Cục Y tế dự phòng (Bộ Y tế) có văn bản đề nghị các địa phương tăng cường công tác phòng, chống bệnh bạch hầu, đặc biệt tại các địa phương đang ghi nhận ca bệnh.
+- Công an tỉnh Sơn La đang điều tra nguyên nhân một nam thanh niên tử vong tại trụ sở Công an xã Tân Lập (huyện Mộc Châu), sau khi được đưa về để làm rõ vụ xô xát ở quán nhậu trên địa bàn.
+- Tàu USS Blue Ridge của hải quân Hoa Kỳ và tàu Waesche của lực lượng tuần duyên Hoa Kỳ đã cập Cảng quốc tế Cam Ranh.
+- Chủ tịch UBND tỉnh Bắc Giang vừa có công văn khẩn về phòng chống bệnh bạch hầu, sau khi phát hiện ca dương tính tại huyện Hiệp Hòa.
+- Tập đoàn Viettel sẽ tiếp tục cung cấp miễn phí vận hành hệ thống dữ liệu đất đai cho các tỉnh thành đến hạn cuối 30-9-2024.
+- Đoàn điều tra, giám sát công tác phòng chống dịch bạch hầu ở Nghệ An đã xác định 119 người có tiếp xúc với cô gái 18 tuổi tử vong do bạch hầu.
+- Thủ tướng Phạm Minh Chính chủ trì phiên họp thứ nhất của Ban Chỉ đạo rà soát, xử lý vướng mắc trong hệ thống văn bản quy phạm pháp luật.
+- Bí thư Thành ủy TP.HCM cho biết ngoài dự án biểu tượng metro số 1, tiềm năng hợp tác giữa thành phố và Nhật trong nhiều lĩnh vực còn rất lớn.
+- Bộ sẽ tham mưu sửa Luật tổ chức Chính phủ, Luật tổ chức chính quyền địa phương, Luật cán bộ, công chức và Luật viên chức vào năm 2025.
+- Ông Phan Đình Trạc lưu ý Ban chỉ đạo cấp tỉnh tập trung chỉ đạo xử lý dứt điểm các vụ việc liên quan Việt Á, AIC, FLC, Vạn Thịnh Phát, đăng kiểm.
+- Cục Đường bộ tạm dừng hệ thống DAT để nâng cấp trong thời gian dài, gây khó khăn cho các địa phương quản lý đào tạo, sát hạch lái xe.
 ![New](News.png)
 ## Nhịp sống số 
 - Cơ quan Hàng không vũ trụ Nhật Bản (JAXA) ngày 5-7 thừa nhận đã bị rò rỉ thông tin sau một vụ tấn công mạng, may mắn không lộ thông tin tên lửa và vệ tinh.
