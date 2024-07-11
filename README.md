@@ -1,6 +1,21 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Xung quanh tuyến bài 'Cấu kết sản xuất bài báo khoa học quốc tế' trên Tuổi Trẻ ngày 9 và 10-7, các chuyên gia cho rằng có nhiều vấn đề được đặt ra.
+- Năm nay là năm đầu tiên thí sinh đoạt giải học sinh giỏi quốc gia các môn ngữ văn, lịch sử, địa lý được xét tuyển thẳng vào Trường đại học Y Hà Nội.
+- Trường ĐH Sư phạm TP.HCM vừa công bố kết quả xét tuyển đại học, cao đẳng ngành giáo dục mầm non chính quy năm 2024 diện tuyển thẳng và điểm chuẩn các phương thức xét tuyển sớm.
+- Với 96,5/100 điểm, Nguyễn Thiên Phúc, lớp 5/6 Trường tiểu học Nguyễn Thái Học, quận 1, TP.HCM, là thủ khoa kỳ khảo sát lớp 6 Trường THCS - THPT Trần Đại Nghĩa năm 2024.
+- Năm nay là năm đầu tiên 17 học viện, trường quân đội xét tuyển sớm dựa vào kết quả bài thi đánh giá năng lực, 15/17 trường xét kết quả học bạ.
+- Các phương thức xét tuyển sớm nhà trường công bố điểm chuẩn gồm xét tuyển thẳng và ưu tiên, xét kết quả thi đánh giá năng lực, xét chứng chỉ quốc tế SAT.
+- Với thành tích triệt phá đường dây sản xuất sách giáo khoa giả có quy mô đặc biệt lớn tại Đà Nẵng và TP.HCM, Công an Đà Nẵng được bộ trưởng Bộ Giáo dục và Đào tạo tặng bằng khen.
+- Chiều 10-7, Trường đại học Tôn Đức Thắng công bố điểm chuẩn các phương thức xét tuyển sớm năm 2024.
+- Em N.H.B.T., 18 tuổi, nam sinh bị cô ruột đầu độc bằng xyanua, được đặc cách tốt nghiệp THPT năm 2024.
+- Hiệu trưởng Trường mầm non Dào San (huyện Phong Thổ, Lai Châu) chỉ đạo cấp dưới cắt giảm khẩu phần ăn của học sinh so với định mức hỗ trợ, lấy tiền dư thừa dùng vào mục đích cá nhân.
+- Mỗi chiều hằng ngày, lớp học bơi miễn phí tại hồ bơi của Trung tâm Hoạt động thanh thiếu nhi tỉnh Gia Lai đông kín các học viên nhí.
+- Bà Anastasia Long, phụ trách bộ phận truyền thông Nhà xuất bản Frontiers, cho biết đã xóa tên các thành viên ban biên tập có liên quan những bài báo khoa học quốc tế vừa bị gỡ bỏ.
+- Ngành có điểm chuẩn cao nhất tại Trường đại học Giao thông vận tải TP.HCM là khoa học dữ liệu, tại Trường đại học Đà Lạt là sư phạm toán.
+- Điểm chuẩn vào lớp 6 Trường Trần Đại Nghĩa năm nay tăng 2,75 điểm so với năm 2023.
+- Dữ liệu có dấu hiệu bất thường nhưng nhờ mối quan hệ giữa các tác giả, phản biện và biên tập viên nên bài báo khoa học vẫn được chấp nhận công bố.
 - Sở Giáo dục và Đào tạo TP.HCM vừa công bố điểm thi vào lớp 6 Trường Trần Đại Nghĩa năm 2024. Điểm chuẩn vào trường năm nay là 67,5.
 - Trường đại học Dược Hà Nội và Trường đại học Y tế công cộng vừa chính thức công bố điểm chuẩn xét tuyển sớm, trong đó có phương thức xét học bạ.
 - Tối 9-7, Trường đại học Công nghiệp TP.HCM công bố kết quả xét tuyển và điểm chuẩn của các phương thức xét tuyển sớm đại học chính quy năm 2024.
@@ -16,55 +31,42 @@
 - TS Lê Văn Lâm, trưởng phòng hợp tác quốc tế, được bổ nhiệm giữ chức vụ phó hiệu trưởng Trường đại học Cần Thơ.
 - Năm 2024, Trường đại học Quốc tế Sài Gòn (SIU) tuyển sinh chuyên ngành công nghệ thông tin y tế.
 - Trường đại học Tài chính - Marketing vừa công bố kết quả xét tuyển vào đại học chính quy năm 2024 đối với các phương thức xét tuyển sớm.
-- UBND TP.HCM đề xuất giảm học phí cho tất cả các bậc học từ mầm non đến THPT trong năm học mới.
-- Thí sinh có thể xem điểm nhanh tại https://tuoitre.vn/diem-thi.htm hoặc tại trang quản lý thi của bộ.
-- Sáng 7-7, gần 18.000 thí sinh cả nước đã tham dự kỳ thi đánh giá của Bộ Công an. Năm nay, 8 học viện và trường công an nhân dân có tổng chỉ tiêu tuyển sinh là 2.150.
-- Sau đợt 1 tuyển sinh đầu cấp thực hiện theo bản đồ GIS, nhiều phụ huynh lên tiếng con họ không được học ở trường gần nhà nhất.
-- Những trường hợp học sinh được phân bổ trường xa nhà, không hợp lý cần liên hệ phòng giáo dục và đào tạo quận, huyện để được giải quyết.
-- Trong ngày thi chính thức kỳ thi đánh giá của Bộ Công an tổ chức sáng 7-7, có gần 18.000 thí sinh dự thi, đạt tỉ lệ 99%
-- Đan Mạch vừa chính thức nới lỏng thời gian làm việc bán thời gian cho du học sinh tại đây.
-- Ông Nguyễn Tấn Thành chậm rãi lên lễ đài nhận học bổng thạc sĩ trong sự thán phục và ngưỡng mộ của nhiều người trong buổi khai giảng.
-- Gần 18.000 thí sinh dự thi đánh giá của Bộ Công an, trong khi tổng chỉ tiêu tuyển sinh vào các học viện, trường công an nhân dân là hơn 2.100. Nhiều phụ huynh hồi hộp 'đứng ngồi không yên'.
-- TS Nguyễn Nhật Nguyên (tên Pháp là Arthur Nguyen) vừa được Nhà nước Pháp phong hàm giáo sư cấp quốc gia ngành khoa học quản trị đợt tháng 6-2024, khi mới ở tuổi 34.
-- Hội thảo quốc gia 'Những tiến bộ trong xây dựng, kiến trúc, kinh tế và công nghệ năm 2024' được tổ chức tại tỉnh Phú Yên.
-- Đại diện Trường EHL cho rằng ngoài kiến thức, kỹ năng, sinh viên ngành du lịch, nhà hàng, khách sạn cần mở rộng các mối quan hệ càng nhiều càng tốt.
-- Nhiều thí sinh từ các tỉnh thành Huế, Hà Tĩnh, Nghệ An, Thanh Hóa, Sơn La... đã vượt đường xa, đổ về Hà Nội, sẵn sàng tham dự kỳ thi đánh giá của Bộ Công an. Tổng số thí sinh đăng ký dự thi là gần 18.000, nhưng tổng chỉ tiêu tuyển sinh chỉ 2.150.
-- Lãnh đạo Sở Giáo dục và Đào tạo Đắk Lắk cho hay đề thi môn toán bị mờ nhưng khẳng định công tác chấm thi vẫn đảm bảo quyền lợi cho thí sinh.
-- Ngày 5-7, ông Phan Thanh Hải - giám đốc Sở Giáo dục và Đào tạo tỉnh Đắk Nông - cho biết đang nghiên cứu để 'nới rộng' chỉ tiêu vào lớp 10 cho học sinh trên địa bàn.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Ngày 9-7, trong văn bản gửi UBND tỉnh Bình Phước và các sở ngành liên quan, Hội Điều tỉnh Bình Phước đã đề nghị phải có giải pháp bảo vệ thương hiệu điều Bình Phước.
-- Ông Nguyễn Quang Tuấn, cựu giám đốc Bệnh viện Bạch Mai, Bệnh viện Tim Hà Nội, sau khi chấp hành án đã xin thực hành tại Bệnh viện Hữu Nghị (Hà Nội) để được xin cấp giấy phép hành nghề.
-- Ông Phan Thái Bình, phó bí thư Ban cán sự Đảng UBND tỉnh Quảng Nam, được phân công làm phó chủ tịch thường trực UBND tỉnh này.
-- Quốc hội vừa thông qua Luật Bảo hiểm xã hội sửa đổi, vậy lương hưu mới, tuổi nhận trợ cấp xã hội, mức trợ cấp mới, các chế độ phúc lợi xã hội... sẽ thay đổi thế nào?
-- Một số tin tức đáng chú ý: Khai mạc phiên họp 35 của Ủy ban Thường vụ Quốc hội; Đại gia bất động sản tăng vay nợ ngân hàng; TP.HCM sẽ công bố các cơ sở tiêm chủng không đảm bảo an toàn...
-- Tháng 1-2022, tại tỉnh Bà Rịa - Vũng Tàu xảy ra vụ án mạng rúng động khi người con gái lên chợ Kim Biên (TP.HCM) mua xyanua về đầu độc cha rồi giấu xác, đốt nhà để che giấu tội ác. Vụ việc mới nhất tại tỉnh Đồng Nai là lời cảnh báo đáng sợ.
-- Hôm nay 10-7, Bắc Bộ và Trung Bộ nắng nóng diện rộng, thời tiết oi bức. Nam Bộ trời nhiều mây, nắng yếu, chiều tối mưa dông.
-- Khu vực thi công hầm chui nút giao Nguyễn Văn Linh - Nguyễn Hữu Thọ tồn tại một số bất cập gây mất an toàn giao thông.
-- Sau hàng loạt văn bản đôn đốc, Sở Giao thông vận tải TP.HCM cho biết tiến độ thực hiện thu phí vỉa hè của một số quận, huyện vẫn còn chậm so với kế hoạch.
-- Bộ Y tế đề xuất các cặp vợ chồng có quyền quyết định thời gian sinh con, số con và khoảng cách giữa các lần sinh phù hợp với tình trạng sức khỏe, thu nhập…
-- Công an tỉnh Lâm Đồng đã rà soát phản ánh của người dân liên quan đến việc vay 270 triệu phải trả hơn 4 tỉ và xác định đây không phải cho vay lãi nặng.
-- Hơn 50.000 sản phẩm gồm kem đánh răng trẻ em, mỹ phẩm hết hạn sử dụng đang được tẩy hạn sử dụng để dập hạn sử dụng mới đã bị thu giữ tại Hà Nội.
-- Ngày 9-7, báo Tuổi Trẻ tổ chức tọa đàm kết hợp tập huấn “Lái xe an toàn: Vì mình - vì gia đình” cùng thảo luận nguyên nhân, giải pháp kéo giảm tai nạn để nâng cao an toàn giao thông tại TP.HCM.
-- Tháo gỡ vướng mắc, điều chỉnh để dự án bất động sản tiếp tục triển khai nhưng không được hợp thức hóa sai phạm.
-- Ông Ngô Thanh Cường - cục trưởng Cục Thi hành án dân sự tỉnh Thừa Thiên Huế - bị kỷ luật khiển trách về mặt Đảng khi đã để xảy ra nhiều vi phạm.
-- Vụ sạt lở xảy ra lúc nửa đêm, khi mọi người đang ngủ làm hư hại 9 căn nhà, trong đó có 4 căn sạt lở hoàn toàn, ước thiệt hại ban đầu khoảng 1 tỉ đồng.
-- Nhóm 7 người từ Thanh Hóa vào Đắk Nông hoạt động 'tín dụng đen', cho vay lãi nặng lên hơn 550%/năm.
-- Ngày 9-7, tại xã vùng cao Tân Dân thuộc TP Hạ Long, tỉnh Quảng Ninh diễn ra chương trình khám mắt, cấp phát thuốc miễn phí cho 80 trẻ có hoàn cảnh khó khăn.
-- Cơ quan chức năng đã cưỡng chế khách sạn xây trái phép, từ 6 tầng thành 11 tầng, trong hẻm Nguyễn Thiện Thuật (TP Nha Trang, tỉnh Khánh Hòa).
-- Sở ngành phối hợp 'tệ', dẫn đến chậm nạo vét luồng lạch cảng, giám đốc Sở Nông nghiệp và Phát triển nông thôn bị UBND tỉnh Quảng Ngãi yêu cầu rút kinh nghiệm.
-- Đang trong thời gian bị kỷ luật, giám đốc Sở Y tế Đắk Lắk vẫn được bổ nhiệm lại khiến dư luận thắc mắc.
-- Theo báo cáo mới nhất của Sở Tài nguyên và Môi trường TP.HCM về chất lượng môi trường nước, trong đó hệ thống kênh rạch nội thành TP.HCM đang ở mức kém đến ô nhiễm rất nặng.
-- Xây dựng vành đai công nghiệp là biện pháp bảo vệ hệ sinh thái đô thị và là tiền đề cho việc xây dựng vành đai nông nghiệp và thực phẩm cho TP.HCM.
-- Trong năm 2024, tỉnh Khánh Hòa cần 9.012 căn nhà ở xã hội, 24.926 căn nhà ở thương mại...
-- Cô gái ở Nghệ An mắc bệnh bạch hầu điều trị tại Bệnh viện Bệnh nhiệt đới trung ương đã ổn định, được chuyển về địa phương tiếp tục cách ly, theo dõi.
-- Toàn TP Đà Lạt có 60 công trình trong diện nguy cơ sạt trượt, nghiêng lún, cần theo dõi để chủ động ứng phó và đảm bảo an toàn trong mùa mưa.
-- Bộ Công Thương mới ban hành quyết định về việc phân công nhiệm vụ trong lãnh đạo Bộ Công Thương, trong đó đáng chú ý nhất là mảng năng lượng được phân công cho một tân thứ trưởng phụ trách.
-- Cơ quan chức năng tiến hành quan trắc môi trường và cung cấp số điện thoại đường dây nóng tiếp nhận phản ánh của người dân liên quan đến bãi rác Khánh Sơn (Đà Nẵng).
-- Bé trai khoảng 3 - 5 ngày tuổi được phát hiện bị bỏ rơi trước cổng một tịnh xá lúc rạng sáng, hiện được một gia đình tạm nhận nuôi dưỡng.
-- Ông Lê Trí Thanh, bí thư Đảng đoàn Ủy ban Mặt trận Tổ quốc Việt Nam tỉnh Quảng Nam, giữ chức vụ chủ tịch Ủy ban Mặt trận Tổ quốc Việt Nam tỉnh này.
+- Các dự án điện mặt trời và điện gió không có sai phạm, đã khắc phục vi phạm nếu đáp ứng các quy định pháp luật, tiêu chí an toàn hệ thống, hiệu quả kinh tế - xã hội sẽ có cơ hội được tháo gỡ và đưa vào kế hoạch triển khai Quy hoạch điện 8.
+- Sáng 11-7, Chủ tịch nước Tô Lâm lên chuyên cơ rời Hà Nội, hướng đến Vientiane của Lào trong chuyến công du nước ngoài đầu tiên của ông trên cương vị mới.
+- Trong báo cáo đánh giá tác động dự án Luật Dân số đang được lấy ý kiến, Bộ Y tế cho hay mức sinh thay thế đang giảm nhiều nhất trong 12 năm trở lại đây và dự báo tiếp tục giảm trong những năm tiếp theo.
+- Đa số tiệm cầm đồ đều té nước theo mưa, nhân cơ hội mùa banh đang nóng rực mà 'siết cổ' kẻ sa cơ lỡ vận gặp sao quả tạ rớt ngay đầu.
+- Một số tin tức đáng chú ý: Phạt PGBank vì công bố không đầy đủ giao dịch với Petrolimex; Giá chung cư cũ Hà Nội tiếp tục tăng nhưng bớt 'nóng'; Đường sắt bắt đầu mở bán vé tàu dịp lễ 2-9...
+- Hôm nay 11-7, thời tiết Bắc Bộ ngày nắng, có nơi nắng nóng. Nam Bộ trời nhiều mây, nắng gián đoạn, chiều tối mưa rào và dông.
+- Cháy nhà trong hẻm ở quận 12 (TP.HCM) khiến một phụ nữ tử vong. Vụ việc đang được công an điều tra làm rõ.
+- Tôm hùm, cá nuôi ở tỉnh Phú Yên gần đây chết hàng loạt gây thiệt hại rất lớn cho người nuôi có nguyên nhân là quy hoạch nuôi trồng thủy sản bị phá vỡ, quy hoạch mới chưa có.
+- Chủ nhiệm Ủy ban Kiểm tra Trung ương Trần Cẩm Tú cho hay, trong 6 tháng đầu năm, qua kiểm tra, kết luận đã kiến nghị cho thôi giữ chức vụ với 5 cán bộ cấp cao của Đảng, Nhà nước.
+- HĐND tỉnh Bắc Ninh thông qua nghị quyết miễn nhiệm chức danh chủ tịch UBND tỉnh đối với bà Nguyễn Hương Giang để nhận nhiệm vụ mới.
+- Cơ quan chức năng tỉnh Quảng Bình đã tiêu hủy hai chiếc siêu xe Lamborghini và Mercedes-AMG G63 vì đây đều là xe nhập lậu.
+- Công ty cổ phần Tập đoàn Thuận An vừa xin rút khỏi liên danh (gồm 4 công ty) thi công gói thầu xây dựng một đoạn đường (10km) cao tốc Khánh Hòa - Buôn Ma Thuột, có giá trị hợp đồng hơn 2.078 tỉ đồng.
+- Sau khi việc trùng tu cơ bản đã hoàn thành, di tích Hải Vân Quan dự kiến mở cửa đón khách du lịch đến tham quan miễn phí trong tháng 8.
+- Các chuyên gia về y tế cho rằng đề xuất của Bộ Y tế mới đây về việc các cặp vợ chồng tự quyết định sinh bao nhiêu con hoàn toàn phù hợp với thực trạng già hóa dân số hiện nay.
+- Chào mừng 80 năm Ngày thành lập Quân đội nhân dân, Quân ủy Trung ương, Bộ Quốc phòng phát động trong toàn quân đợt thi đua cao điểm, chủ đề “Tự hào truyền thống - Viết tiếp chiến công - Xứng danh Bộ đội Cụ Hồ”.
+- Bật đèn pha không đúng cách sẽ dễ trở thành 'kẻ thủ ác' thầm lặng.
+- Đội phản ứng nhanh của ngành y tế Nghệ An đã điều tra, giám sát hướng dẫn, chỉ đạo triển khai các biện pháp phòng chống và kiểm soát bệnh bạch hầu tại huyện Kỳ Sơn.
+- Ông Lê Thanh Vân, đại biểu Quốc hội khóa XV, bị công an khởi tố, bắt tạm giam với cáo buộc lợi dụng chức vụ, quyền hạn gây ảnh hưởng đối với người khác để trục lợi.
+- Chủ tịch UBND tỉnh Phú Yên nói rằng khi chuẩn bị tới đại hội đảng các cấp, có nơi, có lúc nhiều cán bộ, công chức có tư tưởng né việc, ngại va chạm.
+- Sở Thông tin và Truyền thông TP.HCM vừa có đề xuất UBND TP.HCM chấp thuận chủ trương thuê dịch vụ dữ liệu đất đai, với kinh phí khái toán hơn 69 tỉ đồng/3 năm.
+- Dự án đường Chu Văn An nằm giữa trung tâm thành phố Quảng Ngãi chỉ dài 876m, nhưng sau 9 năm thi công mới xong 150m.
+- Đại biểu Quốc hội Nguyễn Minh Đức cho biết sẽ đề nghị UBND TP xem xét quá trình thí điểm bỏ đèn đếm ngược. Nếu được người dân ủng hộ sẽ tiếp tục áp dụng, nhưng không trái quy định của luật và nghị định.
+- Thủ tướng Phạm Minh Chính phân công thượng tướng Lương Tam Quang chủ trì làm việc với Đà Nẵng và Hưng Yên về tình hình, giải pháp thúc đẩy sản xuất kinh doanh, xây dựng hạ tầng, tháo gỡ về nhà ở xã hội, bất động sản.
+- Trong 6 năm qua, Quảng Trị đã chi 850 tỉ đồng làm kè chống sạt lở bờ sông. Tuy nhiên, sạt lở bờ sông vẫn đe dọa nghiêm trọng đến cuộc sống của người dân, khiến cử tri ăn ngủ không yên.
+- Ủy ban Thường vụ Quốc hội đã thông qua nghị quyết đồng ý việc khởi tố bị can, bắt tạm giam, khám xét nơi ở, nơi làm việc đối với đại biểu Quốc hội Lê Thanh Vân.
+- Ba nước không chỉ gần gũi về địa lý mà ba đảng lãnh đạo ở ba nước có chung một nguồn gốc là Đảng Cộng sản Đông Dương, Thứ trưởng Bộ Ngoại giao Đỗ Hùng Việt trả lời trước chuyến thăm của Chủ tịch nước Tô Lâm.
+- Tương tự ông Nguyễn Quang Tuấn, bất kỳ bác sĩ nào không hành nghề và không cập nhật kiến thức y khoa trong 2 năm sẽ phải thực hành lại trong vòng 12 tháng để làm thủ tục cấp giấy phép hành nghề.
+- Công ty cổ phần Thuận Thảo của "bông hồng vàng" Võ Thị Thanh đang nợ thuế tổng cộng gần 185 tỉ đồng và bà Thanh bị ngành thuế quyết định tạm hoãn xuất cảnh.
+- Những ngày qua rác thải sinh hoạt không có người thu gom nên gây mất mỹ quan và bốc mùi hôi ô nhiễm nơi người dân ở.
+- 6 tháng đầu năm, Ủy ban Kiểm tra Trung ương đã kiểm tra, giám sát việc kê khai tài sản, thu nhập đối với 39 trường hợp. Trong đó đề nghị Bộ Chính trị, Ban Bí thư kỷ luật 4 trường hợp.
 ![New](News.png)
 ## Nhịp sống số 
+- Nhiều người dùng Facebook và Messenger bỗng dưng bị thông báo có thể vi phạm tiêu chuẩn cộng đồng, bị thoát khỏi tài khoản, thậm chí bị chặn không cho ‘lướt' thông tin mới…
+- Kinh tế số ước đạt tăng trưởng 22,4%, chiếm tỉ trọng 18,3% trong GDP. Doanh thu lĩnh vực công nghệ thông tin (kinh tế số ICT) ước đạt trên 1,92 triệu tỉ đồng trong 6 tháng đầu năm.
 - Cơ quan Hàng không vũ trụ Nhật Bản (JAXA) ngày 5-7 thừa nhận đã bị rò rỉ thông tin sau một vụ tấn công mạng, may mắn không lộ thông tin tên lửa và vệ tinh.
 - Có thể thấy rằng để tối đa hóa doanh thu từ website, ứng dụng, thì nhiệm vụ là cần duy trì hiệu suất ở mức cao nhất có thể.
 - Theo cơ quan chức năng, nhà mạng cho phép thực hiện cuộc gọi lừa đảo nghĩa là đã cung cấp dịch vụ liên lạc không đúng cách và gây thiệt hại cho thuê bao.
@@ -93,6 +95,4 @@
 - Ngày 22-5, Cục An toàn thông tin (Bộ Thông tin và Truyền thông) phối hợp với báo VietNamNet tổ chức tọa đàm "Tiêu chuẩn an toàn thông tin mạng cơ bản cho camera giám sát".
 - Nhiều người thường ngại ngùng khi bắt chuyện lại với người bạn đã lâu không liên lạc. Các nhà khoa học đã có cách giúp họ.
 - Nghiên cứu mới của ĐH Michigan (Mỹ) chỉ ra rằng cách tốt nhất để quản lý thời gian dùng điện thoại là... làm cho nó đơ ra mỗi khi xài lâu.
-- Doanh nghiệp và người tiêu dùng đều cần công cụ để tự bảo vệ mình trước những hình thức gian lận mới của thanh toán số.
-- Chỉ trong một thời gian ngắn, truyền hình MyTV của VNPT đã đạt được sự tăng trưởng thần tốc, thực sự trở thành người bạn đồng hành thân thiết với các gia đình Việt mỗi ngày.
 ![life](Life.png)
