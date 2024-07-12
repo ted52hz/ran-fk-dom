@@ -1,6 +1,14 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Học viện Hành chính Quốc gia là đơn vị sự nghiệp công lập hạng đặc biệt trực thuộc Bộ Nội vụ, đào tạo nguồn nhân lực cho nền công vụ, ngành Nội vụ và cho xã hội.
+- Từ hàng ngàn hồ sơ đề cử những học sinh xuất sắc trên toàn cầu, ĐH Toronto - xếp hạng 1 tại Canada - chọn ra 37 cái tên để trao học bổng toàn phần "Lester B. Pearson International Scholarship".
+- Ngày 11-7, Phòng Giáo dục và Đào tạo quận 7 thông báo tuyển sinh bổ sung lớp 6 vào Trường THCS Nguyễn Hữu Thọ (quận 7, TP.HCM).
+- Ngày 11-7, Sở Giáo dục vào Đào tạo TP.HCM ra thông báo tuyển bổ sung chỉ tiêu lớp 10 tích hợp tại 9 trường THPT trên địa bàn thành phố với 166 chỉ tiêu.
+- UBND TP Buôn Ma Thuột (tỉnh Đắk Lắk) quyết định xử phạt hành chính chủ nhóm giữ trẻ tát trẻ 3 tuổi khi cho ăn, buộc xin lỗi công khai.
+- Sáng 11-7, buổi giao lưu ra mắt cuốn hồi ký "Đã là thuyền phải ra khơi" của cố giáo sư Trần Hồng Quân đã được tổ chức tại TP.HCM.
+- Trường đại học Văn Hiến sẽ đến với khán giả chương trình Khám phá trường học của báo Tuổi Trẻ lúc 19h tối nay 11-7.
+- Thống đốc bang Virginia của Mỹ đã ban hành sắc lệnh hạn chế hoặc cấm sử dụng điện thoại di động đối với khoảng 1,2 triệu học sinh trường công lập.
 - Xung quanh tuyến bài 'Cấu kết sản xuất bài báo khoa học quốc tế' trên Tuổi Trẻ ngày 9 và 10-7, các chuyên gia cho rằng có nhiều vấn đề được đặt ra.
 - Năm nay là năm đầu tiên thí sinh đoạt giải học sinh giỏi quốc gia các môn ngữ văn, lịch sử, địa lý được xét tuyển thẳng vào Trường đại học Y Hà Nội.
 - Trường ĐH Sư phạm TP.HCM vừa công bố kết quả xét tuyển đại học, cao đẳng ngành giáo dục mầm non chính quy năm 2024 diện tuyển thẳng và điểm chuẩn các phương thức xét tuyển sớm.
@@ -23,48 +31,41 @@
 - Peng Chun Sheng (Đài Loan, Trung Quốc) là một trong 6 học viên đầu tiên tốt nghiệp ngành thạc sĩ báo chí khóa 1 Trường đại học Khoa học xã hội và Nhân văn (Đại học Quốc gia TP.HCM).
 - Các sĩ quan, thủy thủ tàu USS Blue Ridge của hải quân Hoa Kỳ và tàu Waesche của lực lượng tuần duyên Hoa Kỳ đã có buổi giao lưu văn hóa, ngôn ngữ với sinh viên Trường đại học Khánh Hòa.
 - Ngoài chính sách học bổng, Trường Đại học Kinh tế - Tài chính TP.HCM (UEF) còn thực hiện nhiều chính sách khuyến khích khác.
-- Giáo viên bức xúc vì sau hơn 3 tháng gửi đơn phản ánh đến Sở Giáo dục và Đào tạo tỉnh Đồng Tháp về thu chi tài chính năm 2023 tại Trường THPT Lai Vung 2 vẫn chưa nhận được phản hồi, Thanh tra nói đang tổng hợp kết quả trình lãnh đạo.
-- Ba ngành - gồm toán tin, khoa học máy tính và thông tin, khoa học dữ liệu - cùng lấy điểm chuẩn đánh giá năng lực 145/200 điểm.
-- Điểm chuẩn trúng tuyển vào các ngành cử nhân sư phạm của Trường đại học Sư phạm Hà Nội 2 dao động từ 27,8 - 29,8 điểm.
-- Một số nhà khoa học Việt Nam vừa bị phát hiện có mối quan hệ với một nhóm nhà khoa học ở nước ngoài để tự phản biện và duyệt bài báo khoa học cho nhau rồi đăng trên nhiều tạp chí quốc tế.
-- Đều đặn một buổi trong tháng, các ông bà cao tuổi lại đến Trung tâm Phát triển khoa học và công nghệ trẻ (Thành Đoàn TP.HCM) để học cách sử dụng công nghệ trên thiết bị di động.
-- TS Lê Văn Lâm, trưởng phòng hợp tác quốc tế, được bổ nhiệm giữ chức vụ phó hiệu trưởng Trường đại học Cần Thơ.
-- Năm 2024, Trường đại học Quốc tế Sài Gòn (SIU) tuyển sinh chuyên ngành công nghệ thông tin y tế.
-- Trường đại học Tài chính - Marketing vừa công bố kết quả xét tuyển vào đại học chính quy năm 2024 đối với các phương thức xét tuyển sớm.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Các dự án điện mặt trời và điện gió không có sai phạm, đã khắc phục vi phạm nếu đáp ứng các quy định pháp luật, tiêu chí an toàn hệ thống, hiệu quả kinh tế - xã hội sẽ có cơ hội được tháo gỡ và đưa vào kế hoạch triển khai Quy hoạch điện 8.
-- Sáng 11-7, Chủ tịch nước Tô Lâm lên chuyên cơ rời Hà Nội, hướng đến Vientiane của Lào trong chuyến công du nước ngoài đầu tiên của ông trên cương vị mới.
-- Trong báo cáo đánh giá tác động dự án Luật Dân số đang được lấy ý kiến, Bộ Y tế cho hay mức sinh thay thế đang giảm nhiều nhất trong 12 năm trở lại đây và dự báo tiếp tục giảm trong những năm tiếp theo.
-- Đa số tiệm cầm đồ đều té nước theo mưa, nhân cơ hội mùa banh đang nóng rực mà 'siết cổ' kẻ sa cơ lỡ vận gặp sao quả tạ rớt ngay đầu.
-- Một số tin tức đáng chú ý: Phạt PGBank vì công bố không đầy đủ giao dịch với Petrolimex; Giá chung cư cũ Hà Nội tiếp tục tăng nhưng bớt 'nóng'; Đường sắt bắt đầu mở bán vé tàu dịp lễ 2-9...
-- Hôm nay 11-7, thời tiết Bắc Bộ ngày nắng, có nơi nắng nóng. Nam Bộ trời nhiều mây, nắng gián đoạn, chiều tối mưa rào và dông.
-- Cháy nhà trong hẻm ở quận 12 (TP.HCM) khiến một phụ nữ tử vong. Vụ việc đang được công an điều tra làm rõ.
-- Tôm hùm, cá nuôi ở tỉnh Phú Yên gần đây chết hàng loạt gây thiệt hại rất lớn cho người nuôi có nguyên nhân là quy hoạch nuôi trồng thủy sản bị phá vỡ, quy hoạch mới chưa có.
-- Chủ nhiệm Ủy ban Kiểm tra Trung ương Trần Cẩm Tú cho hay, trong 6 tháng đầu năm, qua kiểm tra, kết luận đã kiến nghị cho thôi giữ chức vụ với 5 cán bộ cấp cao của Đảng, Nhà nước.
-- HĐND tỉnh Bắc Ninh thông qua nghị quyết miễn nhiệm chức danh chủ tịch UBND tỉnh đối với bà Nguyễn Hương Giang để nhận nhiệm vụ mới.
-- Cơ quan chức năng tỉnh Quảng Bình đã tiêu hủy hai chiếc siêu xe Lamborghini và Mercedes-AMG G63 vì đây đều là xe nhập lậu.
-- Công ty cổ phần Tập đoàn Thuận An vừa xin rút khỏi liên danh (gồm 4 công ty) thi công gói thầu xây dựng một đoạn đường (10km) cao tốc Khánh Hòa - Buôn Ma Thuột, có giá trị hợp đồng hơn 2.078 tỉ đồng.
-- Sau khi việc trùng tu cơ bản đã hoàn thành, di tích Hải Vân Quan dự kiến mở cửa đón khách du lịch đến tham quan miễn phí trong tháng 8.
-- Các chuyên gia về y tế cho rằng đề xuất của Bộ Y tế mới đây về việc các cặp vợ chồng tự quyết định sinh bao nhiêu con hoàn toàn phù hợp với thực trạng già hóa dân số hiện nay.
-- Chào mừng 80 năm Ngày thành lập Quân đội nhân dân, Quân ủy Trung ương, Bộ Quốc phòng phát động trong toàn quân đợt thi đua cao điểm, chủ đề “Tự hào truyền thống - Viết tiếp chiến công - Xứng danh Bộ đội Cụ Hồ”.
-- Bật đèn pha không đúng cách sẽ dễ trở thành 'kẻ thủ ác' thầm lặng.
-- Đội phản ứng nhanh của ngành y tế Nghệ An đã điều tra, giám sát hướng dẫn, chỉ đạo triển khai các biện pháp phòng chống và kiểm soát bệnh bạch hầu tại huyện Kỳ Sơn.
-- Ông Lê Thanh Vân, đại biểu Quốc hội khóa XV, bị công an khởi tố, bắt tạm giam với cáo buộc lợi dụng chức vụ, quyền hạn gây ảnh hưởng đối với người khác để trục lợi.
-- Chủ tịch UBND tỉnh Phú Yên nói rằng khi chuẩn bị tới đại hội đảng các cấp, có nơi, có lúc nhiều cán bộ, công chức có tư tưởng né việc, ngại va chạm.
-- Sở Thông tin và Truyền thông TP.HCM vừa có đề xuất UBND TP.HCM chấp thuận chủ trương thuê dịch vụ dữ liệu đất đai, với kinh phí khái toán hơn 69 tỉ đồng/3 năm.
-- Dự án đường Chu Văn An nằm giữa trung tâm thành phố Quảng Ngãi chỉ dài 876m, nhưng sau 9 năm thi công mới xong 150m.
-- Đại biểu Quốc hội Nguyễn Minh Đức cho biết sẽ đề nghị UBND TP xem xét quá trình thí điểm bỏ đèn đếm ngược. Nếu được người dân ủng hộ sẽ tiếp tục áp dụng, nhưng không trái quy định của luật và nghị định.
-- Thủ tướng Phạm Minh Chính phân công thượng tướng Lương Tam Quang chủ trì làm việc với Đà Nẵng và Hưng Yên về tình hình, giải pháp thúc đẩy sản xuất kinh doanh, xây dựng hạ tầng, tháo gỡ về nhà ở xã hội, bất động sản.
-- Trong 6 năm qua, Quảng Trị đã chi 850 tỉ đồng làm kè chống sạt lở bờ sông. Tuy nhiên, sạt lở bờ sông vẫn đe dọa nghiêm trọng đến cuộc sống của người dân, khiến cử tri ăn ngủ không yên.
-- Ủy ban Thường vụ Quốc hội đã thông qua nghị quyết đồng ý việc khởi tố bị can, bắt tạm giam, khám xét nơi ở, nơi làm việc đối với đại biểu Quốc hội Lê Thanh Vân.
-- Ba nước không chỉ gần gũi về địa lý mà ba đảng lãnh đạo ở ba nước có chung một nguồn gốc là Đảng Cộng sản Đông Dương, Thứ trưởng Bộ Ngoại giao Đỗ Hùng Việt trả lời trước chuyến thăm của Chủ tịch nước Tô Lâm.
-- Tương tự ông Nguyễn Quang Tuấn, bất kỳ bác sĩ nào không hành nghề và không cập nhật kiến thức y khoa trong 2 năm sẽ phải thực hành lại trong vòng 12 tháng để làm thủ tục cấp giấy phép hành nghề.
-- Công ty cổ phần Thuận Thảo của "bông hồng vàng" Võ Thị Thanh đang nợ thuế tổng cộng gần 185 tỉ đồng và bà Thanh bị ngành thuế quyết định tạm hoãn xuất cảnh.
-- Những ngày qua rác thải sinh hoạt không có người thu gom nên gây mất mỹ quan và bốc mùi hôi ô nhiễm nơi người dân ở.
-- 6 tháng đầu năm, Ủy ban Kiểm tra Trung ương đã kiểm tra, giám sát việc kê khai tài sản, thu nhập đối với 39 trường hợp. Trong đó đề nghị Bộ Chính trị, Ban Bí thư kỷ luật 4 trường hợp.
+- Thông qua các đối tượng người nước ngoài, Thoại tạo các giao dịch ảo, đồng thời quảng bá đồng tiền ảo được giao dịch trên một số trang web về tiền ảo trên thế giới.
+- Tại cơ quan điều tra, Đinh Xuân Sáng - người nổ súng bắn chết cô gái 22 tuổi - cho biết "rất ăn năn, hối hận, sự việc chỉ là mâu thuẫn nhỏ nhưng để xảy ra hậu quả nghiêm trọng".
+- Hôm nay 12-7, thời tiết Bắc Bộ nắng nóng ngày cuối trước khi giảm nhiệt, trong khi đó Nam Bộ mưa dông gia tăng và xảy ra diện rộng.
+- Tin tức đáng chú ý:  Công đoàn Dệt may Việt Nam cho biết thu nhập bình quân của công nhân ngành này gần 10 triệu/tháng; Nhiều quận, huyện ở TP.HCM chậm triển khai thu phí vỉa hè; Cần 868 tỉ đồng để "xóa nghẽn" đường Đỗ Xuân Hợp, TP Thủ Đức...
+- Nhân dịp sắp kết thúc nhiệm kỳ, ngày 11-7, Đại sứ Trung Quốc tại Việt Nam Hùng Ba đã đến chào từ biệt Thủ tướng Phạm Minh Chính.
+- Từ vụ đậu xe giữa đường để tranh cãi dẫn đến tai nạn, chuyên gia cho rằng các hành vi như chuyển làn không bật đèn xi nhan, không giữ khoảng cách an toàn, đi lùi... thể hiện hiểu biết cực kỳ thấp của tài xế khi lái xe trên đường cao tốc.
+- Liên hoan nghệ thuật quần chúng lực lượng vũ trang và thanh niên, sinh viên lần thứ 10 với chủ đề '80 năm vang mãi bản hùng ca' là sự kiện quy mô lớn chào mừng 80 năm Ngày thành lập Quân đội nhân dân Việt Nam.
+- Trong khuôn khổ chuyến thăm Lào, ngày 11-7, Chủ tịch nước Tô Lâm đã gặp Thủ tướng, Chủ tịch Quốc hội, Chủ tịch Mặt trận Lào xây dựng đất nước và một số nguyên lãnh đạo cấp cao.
+- Trước thông tin tàu cao tốc TP.HCM - Côn Đảo dừng đột ngột, Sở Giao thông vận tải TP.HCM lý giải lý do và các biện pháp để doanh nghiệp hoạt động trở lại.
+- Ngày 11-7, Phó Thủ tướng Chính phủ Trần Lưu Quang đã ký Công điện 66/CĐ-TTg về khắc phục hậu quả vụ tai nạn giao thông nghiêm trọng trên cao tốc Hà Nội - Hải Phòng, đoạn qua tỉnh Hải Dương.
+- Người đàn ông đi ô tô trên đường số 9, phường Linh Chiểu, TP Thủ Đức bất ngờ xuống xe đánh tới tấp nam thanh niên. Công an đang củng cố chứng cứ, xử lý nghiêm người này theo quy định.
+- Hình ảnh hai con cá voi xuất hiện trên vùng biển Cù Lao Mái Nhà (thôn Phước Đồng, xã An Hòa Hải, huyện Tuy An, tỉnh Phú Yên) được một người dân chụp lại khiến nhiều người ngỡ ngàng.
+- Trong 6 tháng đầu năm, vốn chương trình mục tiêu quốc gia của Quảng Nam mới chỉ giải ngân 13%, thuộc nhóm thấp của cả nước.
+- Kiểm lâm đã chuyển hồ sơ vụ chặt hạ 13 cây gỗ nghiến tại rừng phòng hộ do xã Cà Dy quản lý qua cơ quan công an tiếp tục điều tra.
+- Cơ quan chức năng TP.HCM điều chỉnh đèn đếm ngược tại giao lộ Mai Chí Thọ - Tố Hữu theo hướng không có giây đếm ngược đèn đỏ.
+- HCDC đánh giá nguy cơ lan truyền bạch hầu đến TP.HCM là có thể do thành phố có mật độ dân cư đông đúc, giao thông thuận lợi...
+- Ngày 11-7, một trận mưa lớn kèm gió giật mạnh đã làm tốc mái 17 căn nhà và gãy 2 trụ điện trên quốc lộ 54, đoạn qua xã Phong Hòa, huyện Lai Vung, tỉnh Đồng Tháp. Sự cố làm kẹt xe khoảng 60 phút.
+- Cục Cảnh sát hình sự (Bộ Công an Việt Nam) và Cục Điều tra hình sự (Bộ Công an Trung Quốc) sẽ phối hợp, mở cuộc trấn áp tội phạm mua bán người qua biên giới hai nước.
+- Đà Nẵng có tỉ lệ hồ sơ nộp trực tuyến đối với các dịch vụ công đạt 67%, bỏ xa bình quân chung cấp tỉnh, thành phố là 17%.
+- Chiều 11-7, Trung tâm Quốc tế khoa học và giáo dục liên ngành (ICISE) tổ chức lễ kỷ niệm 60 năm thành lập Trung tâm vật lý lý thuyết quốc tế Abdus Salam (ICTP).
+- Cầu Trà Khúc 1 được xây dựng từ 60 năm trước, giờ xuống cấp, trụ cầu như 'răng rụng' nhưng mỗi ngày vẫn phải gánh hàng chục ngàn lượt xe qua lại.
+- Mưa lớn đúng giờ tan tầm chiều nay 11-7 khiến một số tuyến đường tại Hà Nội ngập sâu, người dân bì bõm lội nước, nhiều xe chết máy.
+- Ngày 11-7, Công an tỉnh Kiên Giang đã nhận được công hàm của Đại sứ quán Trung Quốc tại Việt Nam cảm ơn sâu sắc về việc hỗ trợ Zheng Huanyi (công dân Trung Quốc) bị lưu lạc ở Giồng Riềng về nước ngày 26-6.
+- Từ ngày 1-1-2025, khi giải quyết án hành chính, tòa án sẽ không chờ các cơ quan chức năng, địa phương hay đương sự cung cấp thông tin, tài liệu, chứng cứ như trước nay.
+- Với các chương trình bình ổn thị trường mang tính bền vững, hệ thống phân phối phủ khắp nên khó có việc cá nhân, doanh nghiệp lợi dụng việc tăng lương để té nước theo mưa, tăng giá bất hợp lý.
+- Kiểm tra vụ cá suối chết bất thường ở thủ phủ mỏ khoáng sản huyện Quỳ Hợp, Sở Tài nguyên và Môi trường Nghệ An chỉ ra một số sai phạm của công ty khai thác mỏ thiếc.
+- Theo UBND quận Bình Tân, việc thu tiền rác, trung chuyển rác theo đề án mới chuẩn bị triển khai nên chưa đủ cơ sở để đánh giá toàn diện. Quận đang điều chỉnh thời gian để bắt đầu thí điểm ở phường Bình Trị Đông B từ ngày 1-9.
+- Chiều 11-7, mây dông đen kịt từ ngoại thành Hà Nội kéo về trung tâm thành phố, bầu trời tối sầm lại. Cơ quan khí tượng cảnh báo mưa dông, lốc, sét.
+- Mới đây, Sở Giao thông vận tải TP.HCM đề xuất nâng cấp, mở rộng đường Xô Viết Nghệ Tĩnh và Đinh Bộ Lĩnh (quận Bình Thạnh) với tổng vốn gần 10.000 tỉ đồng. Kế hoạch này ưu tiên làm từ nay đến năm 2030.
+- Bộ Nội vụ đã thông báo danh sách 10 thí sinh xuất sắc đủ điều kiện, tiêu chuẩn dự tuyển vòng 2 vào các vị trí chuyên viên một số đơn vị thuộc bộ.
 ![New](News.png)
 ## Nhịp sống số 
+- Các nhà nghiên cứu tại Cybernews đã phát hiện vụ rò rỉ mật khẩu lớn nhất trong lịch sử, trong đó gần 10 tỉ mật khẩu đã bị lộ.
 - Nhiều người dùng Facebook và Messenger bỗng dưng bị thông báo có thể vi phạm tiêu chuẩn cộng đồng, bị thoát khỏi tài khoản, thậm chí bị chặn không cho ‘lướt' thông tin mới…
 - Kinh tế số ước đạt tăng trưởng 22,4%, chiếm tỉ trọng 18,3% trong GDP. Doanh thu lĩnh vực công nghệ thông tin (kinh tế số ICT) ước đạt trên 1,92 triệu tỉ đồng trong 6 tháng đầu năm.
 - Cơ quan Hàng không vũ trụ Nhật Bản (JAXA) ngày 5-7 thừa nhận đã bị rò rỉ thông tin sau một vụ tấn công mạng, may mắn không lộ thông tin tên lửa và vệ tinh.
@@ -94,5 +95,4 @@
 - Đừng để mình 'lấm lem' trên mạng chỉ vì một phút ham vui theo trào lưu hoặc mắc vạ miệng chỉ vì những bức xúc cá nhân.
 - Ngày 22-5, Cục An toàn thông tin (Bộ Thông tin và Truyền thông) phối hợp với báo VietNamNet tổ chức tọa đàm "Tiêu chuẩn an toàn thông tin mạng cơ bản cho camera giám sát".
 - Nhiều người thường ngại ngùng khi bắt chuyện lại với người bạn đã lâu không liên lạc. Các nhà khoa học đã có cách giúp họ.
-- Nghiên cứu mới của ĐH Michigan (Mỹ) chỉ ra rằng cách tốt nhất để quản lý thời gian dùng điện thoại là... làm cho nó đơ ra mỗi khi xài lâu.
 ![life](Life.png)
