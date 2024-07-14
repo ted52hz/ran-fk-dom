@@ -1,6 +1,12 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Áp lực trước việc nuôi dạy con, một số bậc cha mẹ đăng ký các lớp học để trở thành cha mẹ thông thái. Nhưng trước một rừng khóa học cùng những khuyến mãi, cha mẹ không biết đâu mà lần.
+- Trường đại học Giáo dục có 5 ngành sư phạm cùng lấy điểm chuẩn xét điểm đánh giá năng lực là 106 điểm; Trường đại học Luật có 1.140 chỉ tiêu trúng tuyển sớm.
+- Ngày 13-7, Bộ Giáo dục và Đào tạo tổ chức lễ công bố quyết định công nhận hiệu trưởng Trường đại học Quy Nhơn nhiệm kỳ 2020 - 2025.
+- Hàng trăm phụ huynh cầm hồ sơ xét tuyển vào lớp 10 đến Trường THPT Đoàn Kết - Hai Bà Trưng tìm cơ hội vào công lập cho con em.
+- Phòng Giáo dục và Đào tạo TP Thủ Đức, TP.HCM vừa có thông báo về tuyển sinh đầu cấp đợt 2 năm học 2024-2025.
+- Hơn 100 trường đại học đã công bố điểm chuẩn các phương thức xét tuyển sớm năm 2024, hàng loạt kỷ lục về điểm chuẩn đã bị xô đổ.
 - Sở Giáo dục và Đào tạo Hà Nội vừa duyệt điểm chuẩn tuyển sinh bổ sung vào lớp 10 năm học 2024-2025.
 - Do chưa phê duyệt chỉ tiêu tuyển sinh vào lớp 10 năm học 2024-2025 nên lịch tuyển sinh, công bố điểm chuẩn tại tỉnh Nghệ An phải lùi lại so với kế hoạch ban đầu vào ngày 12-7.
 - Theo Bộ Giáo dục và Thể thao Lào, Việt Nam là quốc gia đào tạo cho lưu học sinh Lào nhiều nhất thế giới.
@@ -25,46 +31,41 @@
 - Với thành tích triệt phá đường dây sản xuất sách giáo khoa giả có quy mô đặc biệt lớn tại Đà Nẵng và TP.HCM, Công an Đà Nẵng được bộ trưởng Bộ Giáo dục và Đào tạo tặng bằng khen.
 - Chiều 10-7, Trường đại học Tôn Đức Thắng công bố điểm chuẩn các phương thức xét tuyển sớm năm 2024.
 - Em N.H.B.T., 18 tuổi, nam sinh bị cô ruột đầu độc bằng xyanua, được đặc cách tốt nghiệp THPT năm 2024.
-- Hiệu trưởng Trường mầm non Dào San (huyện Phong Thổ, Lai Châu) chỉ đạo cấp dưới cắt giảm khẩu phần ăn của học sinh so với định mức hỗ trợ, lấy tiền dư thừa dùng vào mục đích cá nhân.
-- Mỗi chiều hằng ngày, lớp học bơi miễn phí tại hồ bơi của Trung tâm Hoạt động thanh thiếu nhi tỉnh Gia Lai đông kín các học viên nhí.
-- Bà Anastasia Long, phụ trách bộ phận truyền thông Nhà xuất bản Frontiers, cho biết đã xóa tên các thành viên ban biên tập có liên quan những bài báo khoa học quốc tế vừa bị gỡ bỏ.
-- Ngành có điểm chuẩn cao nhất tại Trường đại học Giao thông vận tải TP.HCM là khoa học dữ liệu, tại Trường đại học Đà Lạt là sư phạm toán.
-- Điểm chuẩn vào lớp 6 Trường Trần Đại Nghĩa năm nay tăng 2,75 điểm so với năm 2023.
-- Dữ liệu có dấu hiệu bất thường nhưng nhờ mối quan hệ giữa các tác giả, phản biện và biên tập viên nên bài báo khoa học vẫn được chấp nhận công bố.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Chiếc xe khách 15 chỗ chở 16 hành khách khi đi đến Km 10+900 quốc lộ 34 Hà Giang - Bắc Mê bất ngờ bị đất đá sạt lở vùi lấp, khiến 5 người chết.
-- Tàu cao tốc từ Rạch Giá, Hà Tiên đi Phú Quốc, và ngược lại cùng tuyến Rạch Giá đi Nam Du đều tạm ngưng chạy do ảnh hưởng thời tiết xấu.
-- Hôm nay 13-7, gió tây nam tại Nam Bộ hoạt động mạnh khiến thời tiết có mưa rào, mưa to đến rất to. Bắc Bộ và Trung Bộ ngày nắng, chiều tối có mưa.
-- Một số tin tức đáng chú ý: Mua chui cổ phiếu, 2 sếp Fideco và người thân bị phạt 740 triệu; TP.HCM đề nghị bộ ngành hướng dẫn khai thác bãi giữ xe trong công viên; Điện Mặt trời Trung Nam bị phạt...
-- Thường trực Ban Bí thư Lương Cường vừa ký ban hành chỉ thị số 37 của Ban Bí thư về đổi mới công tác đào tạo nghề cho lao động nông thôn, đáp ứng yêu cầu công nghiệp hóa, hiện đại hóa nông nghiệp, nông thôn.
-- Nam thanh niên chạy xe máy băng qua đường sắt đoạn thôn Tân Thủy, xã Ninh Lộc, thị xã Ninh Hòa, Khánh Hòa va chạm với tàu hỏa, tử vong.
-- Kết luận của Ban Bí thư do Thường trực Ban Bí thư Lương Cường ký nêu rõ việc cần có chính sách đặc thù trong phát triển dược liệu, nhất là các dược liệu quý, giá trị kinh tế cao.
-- Chủ tịch nước Tô Lâm và Chủ tịch Đảng Nhân dân Campuchia, Chủ tịch Thượng viện Campuchia Hun Sen nhắc lại sự đoàn kết giữa hai nước, kiên quyết không để các thế lực thù địch xuyên tạc, chia rẽ tình hữu nghị.
-- Liên quan đến vụ 3 công nhân chết trong hầm thủy điện Nậm Cuổi 1, Công an tỉnh Lai Châu cho biết đang phối hợp cùng các ngành liên quan làm rõ nguyên nhân, trách nhiệm của các cá nhân, tổ chức liên quan, xử lý nghiêm nếu có vi phạm.
-- 6 tháng đầu năm, Cục Thuế TP.HCM nhận 174.478 hồ sơ đề nghị hoàn thuế thu nhập cá nhân, thế nhưng 52.049 hồ sơ bị trả về, tăng tới 71% so với cùng kỳ. Vì sao?
-- Thông điệp trên được Chủ tịch nước Tô Lâm đưa ra trong cuộc hội kiến với Quốc vương Campuchia Norodom Sihamoni ngay sau lễ đón trọng thể tại Phnom Penh chiều 12-7.
-- Chiều 12-7, ngay sau khi đến Phnom Penh, Chủ tịch nước Tô Lâm đã dự lễ đón chính thức tại Hoàng cung Campuchia dưới sự chủ trì của Quốc vương Norodom Sihamoni.
-- TP.HCM đang tính toán các phương án để thu hồi 355 tỉ đồng từ nhà đầu tư dự án đường dẫn cầu Phú Mỹ.
-- Chiều 12-7, Ủy ban Kiểm tra Thành ủy TP.HCM tổ chức hội nghị về phối hợp kiểm tra, giám sát việc lãnh đạo, chỉ đạo và tổ chức thực hiện các giải pháp ngăn ngừa vi phạm trong đảng viên lực lượng vũ trang.
-- UBND tỉnh Lâm Đồng bất ngờ có công văn đưa khoảng 30ha đất rừng phòng hộ tại dự án trên Đồi Cù Đà Lạt ra khỏi diện rừng phòng hộ trong khi công trình trái phép này đang chờ tháo dỡ.
-- Chủ tịch Quốc hội Trần Thanh Mẫn giao các cơ quan của Quốc hội chuẩn bị kỹ, tổ chức thành công hai diễn đàn lần đầu tiên của Quốc hội gồm diễn đàn giám sát và diễn đàn pháp luật; nỗ lực gấp đôi, gấp ba để hoàn thành tốt nhiệm vụ 6 tháng cuối năm.
-- Kỳ họp Hội đồng nhân dân tỉnh Nghệ An diễn ra trong hai ngày với nhiều đổi mới: không trang trí hoa, không giấy tờ tài liệu, không sử dụng chai nhựa.
-- Dự báo khoảng ngày 13 đến 14-7, trên Biển Đông khả năng hình thành một vùng áp thấp sau đó mạnh lên thành áp thấp nhiệt đới.
-- Do chưa phê duyệt chỉ tiêu tuyển sinh vào lớp 10 năm học 2024-2025 nên lịch tuyển sinh, công bố điểm chuẩn tại tỉnh Nghệ An phải lùi lại so với kế hoạch ban đầu vào ngày 12-7.
-- UBND TP Hà Nội quyết định kỷ luật khiển trách ông Lê Tuấn Định - chủ tịch UBND quận Đống Đa và ông Mai Xuân Vinh - phó tổng giám đốc Tổng công ty HANDICO - vì những vi phạm trong công tác.
-- Chủ tịch TP Cam Ranh, tỉnh Khánh Hòa vừa quyết định kỷ luật, giáng chức ba cán bộ là trưởng Phòng Tài nguyên và Môi trường, giám đốc và phó giám đốc Trung tâm Phát triển quỹ đất TP Cam Ranh.
-- Chủ tịch UBND tỉnh Cà Mau Huỳnh Quốc Việt được Bộ Chính trị phân công giữ chức vụ phó bí thư Tỉnh ủy Bạc Liêu nhiệm kỳ 2020-2025.
-- Theo Bộ Giáo dục và Thể thao Lào, Việt Nam là quốc gia đào tạo cho lưu học sinh Lào nhiều nhất thế giới.
-- Sau khi lãnh đạo Công ty cổ phần Tập đoàn Phúc Sơn bị khởi tố, tiến độ của nhiều dự án giao thông ở Khánh Hòa phải tạm dừng do không có kinh phí bồi thường, hồ sơ bồi thường không có chữ ký của chủ đầu tư.
-- Bãi biển dọc theo khu phố 6, khu phố 9 (phường Dương Đông, TP Phú Quốc, tỉnh Kiên Giang) thời gian qua bị sạt lở do sóng biển vỗ mạnh. Người dân sống trong lo sợ.
-- Cơ quan cảnh sát điều tra Công an tỉnh An Giang khởi tố nhóm 4 cựu cán bộ ngân hàng gây thiệt hại hơn 600 tỉ đồng.
-- Ông Lê Quang Thuận - phó chủ tịch huyện Hướng Hóa - bị bắt vì sai phạm đất đai, gây thiệt hại cho Nhà nước gần 7 tỉ đồng.
-- Ông Trương Minh Huy Vũ - phó viện trưởng Viện Nghiên cứu và phát triển TP.HCM - được phân công làm tổ trưởng tổ công tác và tổ giúp việc của Tổ công tác tham mưu UBND TP.HCM chương trình “Vì một Cần Giờ xanh”.
-- Ba công nhân vào công trình xây dựng hầm thủy điện Nậm Cuổi 1 (huyện Nậm Nhùn, Lai Châu) để vận chuyển vật liệu thì bị ngạt khí dẫn tới tử vong.
-- Theo chủ đầu tư metro số 1, công tác đào tạo thực tế sẽ kết thúc trước tháng 9-2024, vận hành thử nghiệm vào tháng 10 và 11-2024.
+- UBND tỉnh Lâm Đồng vừa đưa gần 30ha Đồi Cù Đà Lạt ra khỏi rừng phòng hộ khiến dư luận xôn xao khi hầu hết đều nghĩ đây là việc hợp thức hóa cho sai phạm của chủ đầu tư Công ty CP Hoàng Gia ĐL.
+- Đám cháy bùng phát mạnh tại căn nhà trong hẻm đường Thống Nhất, phường 16, quận Gò Vấp, TP.HCM khiến 3 người chết. Hiện công an đang khám nghiệm, điều tra nguyên nhân.
+- Một số tin tức đáng chú ý: Tiếp tục hạ tuổi và nâng mức hưởng chính sách cho người cao tuổi; Việt Nam giành 3 huy chương vàng Olympic sinh học quốc tế 2024; Một doanh nghiệp lãnh phạt cả tỉ đồng vì mua 'chui' cả triệu cổ phiếu KOS...
+- Từ chiều tối nay 14-7, thời tiết cả nước mưa dông diện rộng, nguyên nhân do ảnh hưởng từ xa của áp thấp nhiệt đới.
+- Vụ tai nạn giữa mô tô phân khối lớn và xe máy xảy ra trên quốc lộ 14, đoạn khu phố Xuân Đồng (phường Tân Thiện, thành phố Đồng Xoài, Bình Phước) khiến hai mẹ con chết tại chỗ.
+- Theo Bộ trưởng Bộ Ngoại giao Bùi Thanh Sơn, chuyến thăm Lào và Campuchia của Chủ tịch nước Tô Lâm còn là 'dấu ấn mới' trong triển khai chính sách đối ngoại.
+- Dự báo trong 24 giờ tới, áp thấp nhiệt đới trên Biển Đông hướng đến vùng biển ngoài khơi phía đông các tỉnh thành Đà Nẵng - Quảng Ngãi. Từ đêm mai 14-7, nhiều khu vực trên cả nước mưa lớn.
+- Du khách chen kín đường Trần Phú, bãi biển để ngắm nhìn hàng ngàn drone thắp sáng bầu trời TP Nha Trang.
+- Khi bị đất đá đè trúng sau vụ sạt lở, anh Vừ Mí Sính chỉ thò được đầu lên trên rồi cố lấy tay cào bớt đất để thở...
+- Chủ tịch nước Tô Lâm khẳng định Đảng và Nhà nước thấu hiểu và chia sẻ với khó khăn của bà con, sau đó trao tặng 200 phần quà cho các hoàn cảnh khó khăn và 20.000 USD cho Hội Khmer - Việt Nam.
+- Chủ tịch UBND TP.HCM Phan Văn Mãi cho biết từ nay tới tháng 8, nếu không có đủ cát gia tải thì khó đảm bảo tiến độ dự án vành đai 3.
+- Khánh Hòa là địa phương có số vụ ném đá lên tàu hỏa đang chạy nhiều nhất cả nước. Hiện các ngành chức năng đang đưa ra nhiều giải pháp nhằm ngăn chặn việc này.
+- Nhóm thanh niên ở Quảng Nam gây ra hàng loạt vụ trộm tiền công đức ở nhiều ngôi chùa tại Quảng Nam và Quảng Ngãi.
+- Khi đang làm việc tại công trường ở Bắc Giang, anh Ji.Q.C. (quốc tịch Trung Quốc) bất ngờ bị một khung sắt nặng 1 tấn rơi trúng, chấn thương nghiêm trọng.
+- Sở Công Thương TP.HCM vừa có văn bản hướng dẫn các doanh nghiệp xăng dầu về quy định liên quan khi lắp đặt trạm sạc xe điện.
+- Thủ tướng Campuchia Hun Manet cam kết với Chủ tịch nước Tô Lâm việc sẽ tiếp tục hỗ trợ, bảo vệ các nhà đầu tư Việt Nam, xem đây là mục tiêu quan trọng.
+- Hai bé trai sơ sinh bị bỏ rơi ở bụi cỏ ven đường tại Bình Dương đang được chăm sóc, chờ tìm người nhà.
+- Hơn 10 ngày trôi qua từ thời điểm ghi nhận trường hợp tử vong do bệnh bạch hầu, Nghệ An không ghi nhận ca nhiễm mới.
+- Chiều tối nay (13-7), vùng áp thấp trên khu vực giữa Biển Đông đã mạnh lên thành áp thấp nhiệt đới.
+- Thủ tướng Phạm Minh Chính nhấn mạnh quyết tâm trong nhiệm kỳ này hoàn thành 600km cao tốc tại ĐBSCL, sau đó hoàn thành 600km nữa.
+- Chiều 13-7, UBND tỉnh Lâm Đồng có thông cáo báo chí, trong đó có nội dung yêu cầu chủ đầu tư tòa nhà câu lạc bộ golf Đồi Cù Đà Lạt nghiêm túc chấp hành tháo dỡ công trình vi phạm.
+- Dự Luật Quảng cáo sửa đổi đề xuất bổ sung các quy định nhằm siết việc người nổi tiếng, có ảnh hưởng quảng cáo sản phẩm tràn lan trên mạng.
+- Hàng chục hộ dân kéo ra đường chặn xe tải chở cánh quạt vào nhà máy điện gió để đòi bồi thường, vì cho rằng dự án ảnh hưởng đất sản xuất.
+- Từ 15-7 đến 14-9, cầu Trà Khúc 2 - cây cầu huyết mạch trên quốc lộ 1 - sẽ cấm xe để sửa chữa cầu hỏng.
+- Chủ tịch Quốc hội Campuchia Khuon Sudary thông báo Nhà Quốc hội mới của nước này do Việt Nam tặng sẽ sớm khánh thành.
+- Bộ trưởng Bộ Y tế Đào Hồng Lan trả lời kiến nghị của cử tri Đồng Tháp gửi trước kỳ họp thứ 7 về giải quyết thiếu thuốc, vật tư y tế tại các bệnh viện.
+- Các lực lượng chức năng khẩn trương tìm kiếm, cứu hộ các nạn nhân trong vụ sạt lở đất đá tại Km 10+ 900 quốc lộ 34 Hà Giang.
+- Mùa Euro, không khó bắt gặp những tấm lịch thi đấu được dán khắp nơi, có mã QR, đường link và tên các trang web cá độ bóng đá.
+- Thủ tướng yêu cầu tỉnh Hà Giang xác định cụ thể nguyên nhân xảy ra sự cố sạt lở để rút kinh nghiệm, tránh xảy ra các sự cố sạt lở tương tự.
+- Đường Rừng Sác chạy dọc huyện Cần Giờ, TP.HCM và 8 cây cầu trên tuyến được đề xuất nâng cấp, mở rộng với kinh phí dự kiến 3.850 tỉ đồng.
 ![New](News.png)
 ## Nhịp sống số 
+- Trước Đại hội toàn quốc Đảng Cộng hòa, Meta thông báo sẽ dỡ bỏ các hạn chế với tài khoản Facebook và Instagram của cựu tổng thống Donald Trump.
 - Các nhà nghiên cứu tại Cybernews đã phát hiện vụ rò rỉ mật khẩu lớn nhất trong lịch sử, trong đó gần 10 tỉ mật khẩu đã bị lộ.
 - Nhiều người dùng Facebook và Messenger bỗng dưng bị thông báo có thể vi phạm tiêu chuẩn cộng đồng, bị thoát khỏi tài khoản, thậm chí bị chặn không cho ‘lướt' thông tin mới…
 - Kinh tế số ước đạt tăng trưởng 22,4%, chiếm tỉ trọng 18,3% trong GDP. Doanh thu lĩnh vực công nghệ thông tin (kinh tế số ICT) ước đạt trên 1,92 triệu tỉ đồng trong 6 tháng đầu năm.
@@ -94,5 +95,4 @@
 - Đó là khẳng định của bà Loredana Crisan, phó chủ tịch phụ trách Messenger toàn cầu của Hãng Meta, trong cuộc phỏng vấn độc quyền với báo Tuổi Trẻ. Bà khẳng định Việt Nam là một trong những thị trường lớn nhất - nơi hãng không ngừng đầu tư.
 - Đừng để mình 'lấm lem' trên mạng chỉ vì một phút ham vui theo trào lưu hoặc mắc vạ miệng chỉ vì những bức xúc cá nhân.
 - Ngày 22-5, Cục An toàn thông tin (Bộ Thông tin và Truyền thông) phối hợp với báo VietNamNet tổ chức tọa đàm "Tiêu chuẩn an toàn thông tin mạng cơ bản cho camera giám sát".
-- Nhiều người thường ngại ngùng khi bắt chuyện lại với người bạn đã lâu không liên lạc. Các nhà khoa học đã có cách giúp họ.
 ![life](Life.png)
