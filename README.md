@@ -1,6 +1,9 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Ngày hội lựa chọn nguyện vọng xét tuyển đại học 2024 sẽ diễn ra ngày 20-7, trước 10 ngày thí sinh phải chốt nguyện vọng xét tuyển đại học.
+- Lãnh đạo Trường tiểu học A Mỹ Phú, huyện Châu Phú, tỉnh An Giang bị tố cắt xén tiền dạy tăng tiết dư dôi của giáo viên năm học 2022-2023 để cấp cho hiệu phó.
+- Mẹ mong muốn con học ngành y, cha lại muốn con học kinh tế nhưng Phạm Thị Huê chọn ngành kỹ thuật cơ khí động lực của ĐH Bách khoa Hà Nội. Cả lớp chỉ mình Huê là nữ.
 - Áp lực trước việc nuôi dạy con, một số bậc cha mẹ đăng ký các lớp học để trở thành cha mẹ thông thái. Nhưng trước một rừng khóa học cùng những khuyến mãi, cha mẹ không biết đâu mà lần.
 - Trường đại học Giáo dục có 5 ngành sư phạm cùng lấy điểm chuẩn xét điểm đánh giá năng lực là 106 điểm; Trường đại học Luật có 1.140 chỉ tiêu trúng tuyển sớm.
 - Ngày 13-7, Bộ Giáo dục và Đào tạo tổ chức lễ công bố quyết định công nhận hiệu trưởng Trường đại học Quy Nhơn nhiệm kỳ 2020 - 2025.
@@ -28,41 +31,38 @@
 - Với 96,5/100 điểm, Nguyễn Thiên Phúc, lớp 5/6 Trường tiểu học Nguyễn Thái Học, quận 1, TP.HCM, là thủ khoa kỳ khảo sát lớp 6 Trường THCS - THPT Trần Đại Nghĩa năm 2024.
 - Năm nay là năm đầu tiên 17 học viện, trường quân đội xét tuyển sớm dựa vào kết quả bài thi đánh giá năng lực, 15/17 trường xét kết quả học bạ.
 - Các phương thức xét tuyển sớm nhà trường công bố điểm chuẩn gồm xét tuyển thẳng và ưu tiên, xét kết quả thi đánh giá năng lực, xét chứng chỉ quốc tế SAT.
-- Với thành tích triệt phá đường dây sản xuất sách giáo khoa giả có quy mô đặc biệt lớn tại Đà Nẵng và TP.HCM, Công an Đà Nẵng được bộ trưởng Bộ Giáo dục và Đào tạo tặng bằng khen.
-- Chiều 10-7, Trường đại học Tôn Đức Thắng công bố điểm chuẩn các phương thức xét tuyển sớm năm 2024.
-- Em N.H.B.T., 18 tuổi, nam sinh bị cô ruột đầu độc bằng xyanua, được đặc cách tốt nghiệp THPT năm 2024.
 ![Edu](Edu.png)
 ## Thời Sự 
-- UBND tỉnh Lâm Đồng vừa đưa gần 30ha Đồi Cù Đà Lạt ra khỏi rừng phòng hộ khiến dư luận xôn xao khi hầu hết đều nghĩ đây là việc hợp thức hóa cho sai phạm của chủ đầu tư Công ty CP Hoàng Gia ĐL.
-- Đám cháy bùng phát mạnh tại căn nhà trong hẻm đường Thống Nhất, phường 16, quận Gò Vấp, TP.HCM khiến 3 người chết. Hiện công an đang khám nghiệm, điều tra nguyên nhân.
-- Một số tin tức đáng chú ý: Tiếp tục hạ tuổi và nâng mức hưởng chính sách cho người cao tuổi; Việt Nam giành 3 huy chương vàng Olympic sinh học quốc tế 2024; Một doanh nghiệp lãnh phạt cả tỉ đồng vì mua 'chui' cả triệu cổ phiếu KOS...
-- Từ chiều tối nay 14-7, thời tiết cả nước mưa dông diện rộng, nguyên nhân do ảnh hưởng từ xa của áp thấp nhiệt đới.
-- Vụ tai nạn giữa mô tô phân khối lớn và xe máy xảy ra trên quốc lộ 14, đoạn khu phố Xuân Đồng (phường Tân Thiện, thành phố Đồng Xoài, Bình Phước) khiến hai mẹ con chết tại chỗ.
-- Theo Bộ trưởng Bộ Ngoại giao Bùi Thanh Sơn, chuyến thăm Lào và Campuchia của Chủ tịch nước Tô Lâm còn là 'dấu ấn mới' trong triển khai chính sách đối ngoại.
-- Dự báo trong 24 giờ tới, áp thấp nhiệt đới trên Biển Đông hướng đến vùng biển ngoài khơi phía đông các tỉnh thành Đà Nẵng - Quảng Ngãi. Từ đêm mai 14-7, nhiều khu vực trên cả nước mưa lớn.
-- Du khách chen kín đường Trần Phú, bãi biển để ngắm nhìn hàng ngàn drone thắp sáng bầu trời TP Nha Trang.
-- Khi bị đất đá đè trúng sau vụ sạt lở, anh Vừ Mí Sính chỉ thò được đầu lên trên rồi cố lấy tay cào bớt đất để thở...
-- Chủ tịch nước Tô Lâm khẳng định Đảng và Nhà nước thấu hiểu và chia sẻ với khó khăn của bà con, sau đó trao tặng 200 phần quà cho các hoàn cảnh khó khăn và 20.000 USD cho Hội Khmer - Việt Nam.
-- Chủ tịch UBND TP.HCM Phan Văn Mãi cho biết từ nay tới tháng 8, nếu không có đủ cát gia tải thì khó đảm bảo tiến độ dự án vành đai 3.
-- Khánh Hòa là địa phương có số vụ ném đá lên tàu hỏa đang chạy nhiều nhất cả nước. Hiện các ngành chức năng đang đưa ra nhiều giải pháp nhằm ngăn chặn việc này.
-- Nhóm thanh niên ở Quảng Nam gây ra hàng loạt vụ trộm tiền công đức ở nhiều ngôi chùa tại Quảng Nam và Quảng Ngãi.
-- Khi đang làm việc tại công trường ở Bắc Giang, anh Ji.Q.C. (quốc tịch Trung Quốc) bất ngờ bị một khung sắt nặng 1 tấn rơi trúng, chấn thương nghiêm trọng.
-- Sở Công Thương TP.HCM vừa có văn bản hướng dẫn các doanh nghiệp xăng dầu về quy định liên quan khi lắp đặt trạm sạc xe điện.
-- Thủ tướng Campuchia Hun Manet cam kết với Chủ tịch nước Tô Lâm việc sẽ tiếp tục hỗ trợ, bảo vệ các nhà đầu tư Việt Nam, xem đây là mục tiêu quan trọng.
-- Hai bé trai sơ sinh bị bỏ rơi ở bụi cỏ ven đường tại Bình Dương đang được chăm sóc, chờ tìm người nhà.
-- Hơn 10 ngày trôi qua từ thời điểm ghi nhận trường hợp tử vong do bệnh bạch hầu, Nghệ An không ghi nhận ca nhiễm mới.
-- Chiều tối nay (13-7), vùng áp thấp trên khu vực giữa Biển Đông đã mạnh lên thành áp thấp nhiệt đới.
-- Thủ tướng Phạm Minh Chính nhấn mạnh quyết tâm trong nhiệm kỳ này hoàn thành 600km cao tốc tại ĐBSCL, sau đó hoàn thành 600km nữa.
-- Chiều 13-7, UBND tỉnh Lâm Đồng có thông cáo báo chí, trong đó có nội dung yêu cầu chủ đầu tư tòa nhà câu lạc bộ golf Đồi Cù Đà Lạt nghiêm túc chấp hành tháo dỡ công trình vi phạm.
-- Dự Luật Quảng cáo sửa đổi đề xuất bổ sung các quy định nhằm siết việc người nổi tiếng, có ảnh hưởng quảng cáo sản phẩm tràn lan trên mạng.
-- Hàng chục hộ dân kéo ra đường chặn xe tải chở cánh quạt vào nhà máy điện gió để đòi bồi thường, vì cho rằng dự án ảnh hưởng đất sản xuất.
-- Từ 15-7 đến 14-9, cầu Trà Khúc 2 - cây cầu huyết mạch trên quốc lộ 1 - sẽ cấm xe để sửa chữa cầu hỏng.
-- Chủ tịch Quốc hội Campuchia Khuon Sudary thông báo Nhà Quốc hội mới của nước này do Việt Nam tặng sẽ sớm khánh thành.
-- Bộ trưởng Bộ Y tế Đào Hồng Lan trả lời kiến nghị của cử tri Đồng Tháp gửi trước kỳ họp thứ 7 về giải quyết thiếu thuốc, vật tư y tế tại các bệnh viện.
-- Các lực lượng chức năng khẩn trương tìm kiếm, cứu hộ các nạn nhân trong vụ sạt lở đất đá tại Km 10+ 900 quốc lộ 34 Hà Giang.
-- Mùa Euro, không khó bắt gặp những tấm lịch thi đấu được dán khắp nơi, có mã QR, đường link và tên các trang web cá độ bóng đá.
-- Thủ tướng yêu cầu tỉnh Hà Giang xác định cụ thể nguyên nhân xảy ra sự cố sạt lở để rút kinh nghiệm, tránh xảy ra các sự cố sạt lở tương tự.
-- Đường Rừng Sác chạy dọc huyện Cần Giờ, TP.HCM và 8 cây cầu trên tuyến được đề xuất nâng cấp, mở rộng với kinh phí dự kiến 3.850 tỉ đồng.
+- Các dòng sông cũng như huyết mạch trong cơ thể con người, nếu bị tắc mà không được cứu chữa kịp thời sẽ gây ra bao hậu quả khôn lường.
+- Trên những tuyến đường Lê Thánh Tôn, Hàm Nghi, Hải Triều… (quận 1) dễ dàng bắt gặp hình ảnh xe máy được xếp gọn gàng trong vạch kẻ, người đi bộ thong dong đi trên vỉa hè. Tổng thu phí lòng đường, vỉa hè sau 2 tháng vừa qua là 3 tỉ đồng.
+- Thủ tướng yêu cầu phòng chống tích cực 2 loại dịch bệnh; Năng suất giảm 50-70% do thời tiết nên giá nhiều loại rau củ neo cao.
+- Hôm nay 15-7, áp thấp nhiệt đới tiến vào vùng biển miền Trung, thời tiết nhiều nơi mưa to, có nơi mưa rất to.
+- 78 vùng bị hạn chế, không cấp phép cho thăm dò, khoan giếng, khai thác nước ngầm nằm rải gần khắp địa bàn 5 huyện, TP của Khánh Hòa.
+- Cơ quan khí tượng dự báo trong 24 giờ tới áp thấp nhiệt đới sẽ đi vào vùng biển Quảng Bình - Quảng Ngãi. Từ đêm nay nhiều nơi trên cả nước có mưa to.
+- Dự án CRUS1 có hạng mục làm cống bao dẫn nước thải về cho Nhà máy Tham Lương - Bến Cát xử lý.
+- Sở Kế hoạch và Đầu tư có văn bản gửi UBND tỉnh Quảng Ngãi đề xuất dừng khởi công cầu Trà Khúc 1 để cân đối ngân sách.
+- Nhiều ô tô chở đá hộc ra vào điểm sạt lở để khắc phục sự cố, sau khi tỉnh Phú Thọ công bố tình huống khẩn cấp về thiên tai ở vị trí cạnh cầu Trung Hà.
+- Đại biểu Bùi Hoài Sơn nhấn mạnh vươn lên từ bùn lầy, hoa sen xứng đáng là quốc hoa, thể hiện tinh thần kiên cường, bất khuất, cao cả của người Việt Nam.
+- Luật thay đổi, 41 dự án ở Khu kinh tế Dung Quất bị vướng, Ban quản lý Khu kinh tế Dung Quất và các khu công nghiệp tỉnh Quảng Ngãi đang vận động nhà đầu tư tự nguyện chấm dứt dự án để đấu thầu theo đúng quy định.
+- Phó chủ tịch UBND TP.HCM Bùi Xuân Cường vừa ký tờ trình xin ý kiến Ban cán sự đảng về chủ trương thuê dịch vụ dữ liệu đất đai, với kinh phí khái toán 69 tỉ đồng/3 năm.
+- Chiếc xe con màu đen bị nổ lốp, mất lái tông thẳng vào đuôi xe khác ở làn dừng khẩn cấp cao tốc Hà Nội - Hải Phòng.
+- "Mặc dù điểm sạt lở có địa hình dốc, nước vẫn chảy nhiều từ trên núi xuống, nhưng nhờ sự nỗ lực không ngừng nghỉ của lực lượng chức năng, hiện điểm sạt lở đã thông tuyến, xe cộ có thể đi qua", chủ tịch UBND huyện Bắc Mê cho biết.
+- Hiện nay có khoảng 450 nhà nuôi chim yến, tương đương 55% số nhà yến tại Khánh Hòa nằm trong vùng không được phép nuôi.
+- Liên quan vụ dân đổ ra đường chặn đầu xe tải chở cánh quạt điện gió vào nhà máy, chính quyền đã yêu cầu tạm dừng vận chuyển để chủ đầu tư làm việc với dân.
+- Mua cát từ Campuchia là một trong những phương án để đảm bảo tiến độ dự án vành đai 3 TP.HCM.
+- Do ảnh hưởng áp thấp nhiệt đới, sáng nay nhiều nơi ở miền Trung đã bắt đầu có mưa. Tỉnh Thừa Thiên Huế đã cấm tàu thuyền ra khơi từ chiều nay.
+- Tại kỳ họp lần 17, HĐND khóa X, dự kiến diễn ra từ ngày 15-7, UBND TP.HCM sẽ trình bày đề án phát triển hệ thống đường sắt đô thị TP.HCM (metro) theo kết luận 49 của Bộ Chính trị.
+- TP.HCM bảo mật thông tin cá nhân cho người dân qua các biện pháp nào khi đồng bộ hóa dữ liệu? Cử tri TP trăn trở vấn đề này tại chương trình Dân hỏi - Chính quyền trả lời sáng 14-7.
+- Luật Bảo hiểm xã hội mới có hiệu lực từ ngày 1-7-2025, người lao động đóng bảo hiểm xã hội tối thiểu 15 năm được hưởng lương hưu, vậy tỉ lệ hưởng có thay đổi?
+- Người dân TP.HCM liên tục phản ánh hiện trạng hai tuyến đường Phạm Văn Sáng (xã Vĩnh Lộc A, huyện Bình Chánh) và đường Muồng Tím (TP Thủ Đức) bị xuống cấp, hư hỏng nặng khiến việc đi lại khó khăn.
+- Khi đất đá bắt đầu ập xuống quốc lộ 34 (Hà Giang), thấy bé gái chừng 7-8 tuổi đứng một mình kêu khóc, anh Nguyễn Đức Tài vội kéo cháu bé bỏ chạy.
+- Chuyến thăm Lào và Campuchia của Chủ tịch nước Tô Lâm khép lại ngày 13-7 nhưng mở ra nhiều cơ hội thắt chặt hơn nữa tình đoàn kết giữa ba nước qua các hợp tác thực chất.
+- Người dân, người đi đường rất bức xúc trước thực trạng nhiều tài xế đỗ xe container trên vỉa hè, đè lên hệ thống cống bên dưới.
+- Tiếp xúc cử tri Cần Thơ, Thủ tướng Phạm Minh Chính nêu quyết tâm cùng nhau thực hiện cho bằng được đề án 1 triệu héc ta lúa chất lượng cao, phát thải thấp ở Đồng bằng sông Cửu Long.
+- Các cơ quan chức năng đã hoàn tất công tác rà soát số người trên xe khách bị vùi lấp trong vụ sạt lở, qua đó xác minh có một hành khách đã xuống xe dọc đường, về nhà ở TP Hà Giang an toàn.
+- UBND TP.HCM vừa báo cáo Bộ Kế hoạch và Đầu tư về tình hình vận động, quản lý và sử dụng vốn ODA, vốn vay ưu đãi 6 tháng đầu năm 2024.
+- Bộ trưởng Bộ Y tế Đào Hồng Lan đã trả lời kiến nghị của cử tri về thông tuyến khám, chữa bệnh từ huyện đến trung ương và bổ sung thuốc danh mục bảo hiểm y tế.
+- Gần 200 công trình cấp nước tập trung ở Đắk Nông được đầu tư hàng trăm tỉ đồng xây dựng, nhưng chỉ sau thời gian ngắn sử dụng hoặc chưa kịp bàn giao, đưa vào sử dụng thì công trình đã xuống cấp, hư hỏng.
 ![New](News.png)
 ## Nhịp sống số 
 - Trước Đại hội toàn quốc Đảng Cộng hòa, Meta thông báo sẽ dỡ bỏ các hạn chế với tài khoản Facebook và Instagram của cựu tổng thống Donald Trump.
