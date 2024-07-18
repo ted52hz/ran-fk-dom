@@ -1,6 +1,28 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) và Trường đại học Công Thương TP.HCM vừa công bố điểm sàn xét tuyển dựa trên điểm thi tốt nghiệp THPT năm 2024.
+- Ngày 17-7, Sở Giáo dục và Đào tạo tỉnh Gia Lai cho biết hai thí sinh đặc biệt là các thầy giáo U50 người Jarai đã đậu tốt nghiệp THPT.
+- Có kết quả thi tốt nghiệp THPT, thí sinh phải đưa ra quyết định phù hợp khi đăng ký, điều chỉnh nguyện vọng xét tuyển đại học.
+- Điểm chuẩn trúng tuyển vào Trường đại học Khoa học xã hội và Nhân văn năm 2024 phương thức xét điểm thi tốt nghiệp THPT dự kiến giữ ổn định, hoặc có thể tăng nhẹ so với năm ngoái.
+- Mức điểm sàn nhận hồ sơ xét tuyển vào Đại học Quốc gia Hà Nội là 20 điểm, chưa nhân hệ số, đã bao gồm điểm ưu tiên khu vực và đối tượng.
+- Thi tốt nghiệp THPT để lấy điểm xét tuyển đại học, nữ sinh tỉnh Vĩnh Phúc 'sốc' khi biết mình trở thành thủ khoa toàn quốc khối D01 với 28,75 điểm.
+- 'Em không đi học thêm ở ngoài, chỉ học ở trên lớp và tự học ở nhà. Hôm thi tốt nghiệp, môn văn em làm 12 trang giấy', nữ sinh được 10 điểm môn văn chia sẻ.
+- Vĩnh Phúc có điểm thi đứng đầu ở 4 môn thi, Tuyên Quang đứng đầu 2 môn. TP.HCM, Nam Định, Ninh Bình mỗi địa phương đứng đầu một môn thi.
+- Học bổng  Chắp cánh ước mơ không chỉ là nguồn động viên về vật chất, mà còn là món quà lớn về tinh thần giúp con đường học tập của các em bớt đi sự gập ghềnh.
+- Một lớp có bốn thủ khoa toàn quốc khối C; có nữ sinh đang làm công nhân trong nhà xưởng nhận tin đạt thủ khoa... 13/19 thủ khoa toàn quốc khối C tại Bắc Ninh là ai?
+- 'Em la hét rất lớn khiến bố tưởng là em bị làm sao. Còn mẹ thì vui đến mức không đứng được một chỗ, cứ đi đi lại lại liên tục', thủ khoa Nguyễn Hà Nhi chia sẻ.
+- Sở Giáo dục và Đào tạo TP.HCM vừa công bố phổ điểm thi tốt nghiệp THPT 2024.
+- Đinh Thị Bích Ngọc, một trong hai thủ khoa toàn quốc kỳ thi tốt nghiệp THPT 2024, mong làm cô giáo dạy ngoại ngữ cho những em học sinh không có môi trường học tốt.
+- Sau khi Bộ Giáo dục và Đào tạo công bố điểm thi tốt nghiệp THPT vào sáng nay, từ ngày mai 18-7, thí sinh bắt đầu đăng ký nguyện vọng xét tuyển đại học 2024 trên hệ thống tuyển sinh của bộ.
+- TP.HCM, Bình Dương, Bà Rịa - Vũng Tàu, Hà Nội, Đà Nẵng là 5 địa phương có điểm thi trung bình môn ngoại ngữ cao nhất cả nước.
+- Thủ khoa toàn quốc khối A1 (toán - lý - Anh) trong kỳ thi tốt nghiệp THPT 2024 là Nguyễn Hạo Thiên, TP.HCM, với 29,6 điểm.
+- Vĩnh Phúc có điểm thi tốt nghiệp THPT 2024 trung bình cao nhất cả nước. Thấp nhất là Hà Giang. TP.HCM thứ 20, rớt 9 bậc so với năm trước.
+- Thí sinh Bắc Ninh chiếm ưu thế trên các bảng xếp hạng tổng điểm thi theo những tổ hợp môn A, B, C, D.
+- Hội đồng Đại học Kinh tế TP.HCM vừa miễn nhiệm ông Trần Ngọc Thuận - thành viên Hội đồng Đại học Kinh tế TP.HCM nhiệm kỳ 2020-2025.
+- Trong số 19 thí sinh cùng đạt 29,75 điểm khối C00 (văn, sử, địa) có 13 thí sinh cùng là thủ khoa khối này tại Bắc Ninh. Năm ngoái, Bắc Ninh cũng có thủ khoa khối C00 của cả nước với 29,5 điểm.
+- Kỳ thi tốt nghiệp THPT 2024, môn toán và ngữ văn không có thí sinh ở TP.HCM được điểm 10. Các môn còn lại đều có thí sinh đạt điểm 10.
+- Thủ khoa kỳ thi tốt nghiệp THPT 2024 là hai thí sinh đến từ Hà Nội và Ninh Bình, cùng đạt 57,85 điểm.
 - Phổ điểm một số tổ hợp xét tuyển truyền thống dựa trên kết quả thi tốt nghiệp THPT 2024 vừa được Bộ Giáo dục và Đào tạo công bố.
 - Ngày 17-7, Bộ Giáo dục và Đào tạo công bố phổ điểm thi tốt nghiệp THPT 2024. Môn văn có 2 điểm 10 nhưng môn toán không có điểm 10 nào.
 - Bộ Giáo dục và Đào tạo vừa công bố điểm thi tốt nghiệp THPT 2024. Thống kê sơ bộ, năm nay môn toán không có điểm 10.
@@ -9,60 +31,38 @@
 - Sau khi có kết quả thi tốt nghiệp THPT 2024, thí sinh đăng ký, điều chỉnh, bổ sung nguyện vọng xét tuyển trên Cổng thông tin tuyển sinh của Bộ GD&ĐT để chốt chọn ngành và trường.
 - Từ 8h sáng nay 17-7, thí sinh có thể tra cứu điểm thi tốt nghiệp THPT 2024 trên trang điểm thi của Tuổi Trẻ Online, cổng tuyển sinh của Bộ Giáo dục và Đào tạo và website các sở.
 - Trẻ mầm non 5 tuổi được miễn học phí từ năm học 2024-2025. Học sinh THCS được miễn học phí từ năm học 2025-2026.
-- Theo dự thảo Luật Nhà giáo, giấy phép hành nghề dạy học chỉ có thời hạn 5 năm và sẽ bị thu hồi khi nhà giáo có 2 năm liên tục không hoàn thành nhiệm vụ hoặc ba trường hợp khác.
-- Sở Giáo dục và Đào tạo tỉnh Khánh Hòa vừa có công văn hướng dẫn việc không tổ chức tuyển sinh các lớp thực hiện chương trình song ngữ tiếng Pháp kể từ năm học 2024 - 2025.
-- Các trường THPT ở Nghệ An bắt đầu công bố điểm chuẩn nguyện vọng 1 vào lớp 10 công lập, trong đó mức điểm chuẩn cao nhất là 23,5 điểm.
-- Việc xây dựng các phòng thí nghiệm, trang bị các công cụ AI là vô cùng cần thiết và cấp bách trong đào tạo truyền thông hiện nay.
-- Tiến sĩ L.T.A.H., trưởng một đơn vị nghiên cứu khoa học thuộc Trung tâm Bảo tồn di tích cố đô Huế, bị tố đạo văn, mắc nhiều lỗi trong luận án tiến sĩ được thực hiện vào năm 2018.
-- Nhiều phụ huynh lo lắng và cấm đoán trẻ sử dụng Internet. Điều này được cho là hạn chế sự phát triển của trẻ.
-- Chi phí học tập, sinh hoạt chiếm một phần không nhỏ trong ngân sách khiến các gia đình phải tính toán, lựa chọn cánh cửa đại học phù hợp nhất cho con.
-- Ngày hội lựa chọn nguyện vọng xét tuyển đại học, cao đẳng 2024 sẽ diễn ra đồng thời tại Hà Nội và TP.HCM từ 7h30 ngày 20-7 sẽ giải đáp mọi thắc mắc của thí sinh về xét tuyển nguyện vọng.
-- Hiện nay, Khánh Hòa đã công bố kết quả điểm thi nhưng chưa có điểm chuẩn tuyển sinh lớp 10.
-- Trường THCS Trần Quốc Toản 1, TP Thủ Đức, TP.HCM sẽ tuyển bổ sung học sinh vào lớp 6.
-- Chiều 15-7, UBND TP.HCM tổ chức lễ trao quyết định cán bộ, bổ nhiệm ông Trần Văn Mạnh giữ chức phó tổng biên tập tạp chí Giáo Dục TP.HCM.
-- Bộ Lao động - Thương binh và Xã hội đề nghị các trường nghề phối hợp với doanh nghiệp tuyển dụng, trả tiền lương cho học sinh, sinh viên tốt nghiệp dựa vào kỹ năng và năng lực hành nghề.
-- UBND quận Tân Bình, TP.HCM vừa có quyết định thành lập 3 trường công lập mới. Đó là Trường THCS Mạc Đĩnh Chi; Trường tiểu học Hùng Vương và Trường mầm non Sơn Ca.
-- Từ 8h ngày 17-7, thí sinh có thể tra cứu điểm thi tốt nghiệp THPT 2024 trên Tuổi Trẻ Online.
-- Nhiều thí sinh đã đủ điều kiện trúng tuyển sớm vào các trường đại học đang bối rối, khi trường yêu cầu phải đăng ký nguyện vọng 1 trên hệ thống của bộ.
-- Sáng 15-7, Hội nghị quốc tế 'Nghiên cứu, giảng dạy và ứng dụng toán học' diễn ra tại Trường đại học Nguyễn Tất Thành. Hội thảo có 65 nhà khoa học tham gia, trong đó có 18 người từ nước ngoài.
-- Ngày hội lựa chọn nguyện vọng xét tuyển đại học 2024 sẽ diễn ra ngày 20-7, trước 10 ngày thí sinh phải chốt nguyện vọng xét tuyển đại học.
-- Lãnh đạo Trường tiểu học A Mỹ Phú, huyện Châu Phú, tỉnh An Giang bị tố cắt xén tiền dạy tăng tiết dư dôi của giáo viên năm học 2022-2023 để cấp cho hiệu phó.
-- Mẹ mong muốn con học ngành y, cha lại muốn con học kinh tế nhưng Phạm Thị Huê chọn ngành kỹ thuật cơ khí động lực của ĐH Bách khoa Hà Nội. Cả lớp chỉ mình Huê là nữ.
-- Áp lực trước việc nuôi dạy con, một số bậc cha mẹ đăng ký các lớp học để trở thành cha mẹ thông thái. Nhưng trước một rừng khóa học cùng những khuyến mãi, cha mẹ không biết đâu mà lần.
-- Trường đại học Giáo dục có 5 ngành sư phạm cùng lấy điểm chuẩn xét điểm đánh giá năng lực là 106 điểm; Trường đại học Luật có 1.140 chỉ tiêu trúng tuyển sớm.
-- Ngày 13-7, Bộ Giáo dục và Đào tạo tổ chức lễ công bố quyết định công nhận hiệu trưởng Trường đại học Quy Nhơn nhiệm kỳ 2020 - 2025.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Công an TP Thủ Đức vừa phát hiện nam thanh niên bị truy nã vì say xỉn lái xe gây tai nạn chết người ở Long An.
-- Nút giao thông nguy hiểm ngay đầu cầu Quán Trường, TP Nha Trang có từ khi đoạn dự án BT đường vành đai 2 của Tập đoàn Phúc Sơn lưu thông tạm.
-- Hôm nay 17-7, thời tiết cả nước tiếp tục mưa diện rộng, nhiều nơi mưa to làm mực nước sông, suối lên cao, độ ẩm đất cũng bão hòa.
-- Một số tin tức đáng chú ý: Lương cơ sở tăng, quyền lợi khám chữa bệnh bảo hiểm y tế tăng thế nào?; TP.HCM nâng cao các tiêu chí đánh giá hộ nghèo, hộ cận nghèo; 6 tháng đầu năm, TP.HCM giảm sâu số người chết vì tai nạn giao thông...
-- Hay tin con dâu cùng ba cháu nội qua đời do bị xe tải đè, ông Nguyễn Trọng Thành khuỵu xuống sàn nhà, lắp bắp vài câu rồi bật khóc.
-- Liên quan thông tin bị lừa đảo qua mạng số tiền lớn, vị chủ tịch xã tại tỉnh Kon Tum nói số tiền chưa bị mất và đang nhờ bạn bè ở Nga làm việc để lấy lại.
-- Lãnh đạo Công an TP Thủ Đức đã có cảnh báo và thông tin về hình thức xử lý đối với hành vi dán quảng cáo web cá độ bóng đá "đội lốt" lịch thi đấu Euro.
-- Đang chạy xe máy trên đường, người phụ nữ bỗng dừng lại, dùng hai chai nhựa đựng chất lỏng tưới lên người mình rồi bốc cháy dữ dội.
-- Thông tin từ Cục Đăng kiểm cho biết chiếc xe ben trong vụ tai nạn liên hoàn tại Hà Nội khiến 4 mẹ con thiệt mạng có tem kiểm định khác biển số và quá hạn kiểm định hơn 20 ngày.
-- Trung tâm Đổi mới sáng tạo quốc gia (NIC) đang phối hợp với Tập đoàn Qorvo và Cadence của Mỹ đào tạo kỹ sư bán dẫn.
-- Nằm ở vị trí rất đẹp ven biển dưới chân đèo Hải Vân, dự án khu vực Làng Vân (phường Hòa Hiệp Bắc, quận Liên Chiểu, Đà Nẵng) vẫn nằm im.
-- Phó thủ tướng Trần Hồng Hà giao tỉnh Trà Vinh chỉ đạo Công ty Nhiệt điện Duyên Hải thí điểm sử dụng tro xỉ để làm vật liệu san lấp đối với một số dự án đường giao thông của địa phương.
-- Việc thi hành án liên quan đến khu Happyland với hơn 2.173 tỉ đồng và hơn 5,1 triệu USD vẫn đang gặp nhiều khó khăn.
-- Ủy ban Kiểm tra Trung ương đã khai trừ Đảng với ông Lê Thanh Vân và kỷ luật nhiều cán bộ tại các tỉnh An Giang, Bình Thuận, Vĩnh Phúc.
-- Ngày 16-7, TP Thủ Đức tổ chức hội nghị lấy ý kiến cộng đồng dân cư nơi thực hiện dự án xây dựng vành đai 2 (đoạn 1 từ Phú Hữu đến đường Võ Nguyên Giáp).
-- Trong số 8 nạn nhân trong vụ nổ tại quán ăn sắp khai trương ở Vĩnh Phúc, có 3 người phải thở máy, bị bỏng đường hô hấp...
-- Chủ tịch Quốc hội Trần Thanh Mẫn tin tưởng cuốn sách của Tổng bí thư Nguyễn Phú Trọng sẽ góp phần quan trọng hoàn thiện hệ thống lý luận, cơ sở thực tiễn xây dựng chủ nghĩa xã hội và con đường đi lên chủ nghĩa xã hội của nước ta.
-- Trước thực tế bệnh viện ở TP.HCM còn dùng sổ khám bệnh, Sở Y tế TP nêu điều khó khăn khi tạo lập hồ sơ sức khỏe điện tử là phải căn cứ vào các nguồn dữ liệu sẵn có, đảm bảo nguyên tắc “đúng - đủ - sạch - sống”.
-- Trước đây nghề truyền thống của thôn Xà Cầu (xã Quảng Phú Cầu, huyện Ứng Hòa, Hà Nội) vốn làm hương đen, nhưng ngày nay các hộ dân đã chuyển sang làm phế liệu và “biến” Xà Cầu thành “thủ phủ phế liệu” lớn tại Hà Nội.
-- UBND tỉnh Lâm Đồng phê bình chủ tịch UBND huyện Bảo Lâm và chủ tịch UBND xã Lộc Phú, sau vụ hai chị em 8 tuổi và 5 tuổi chết đuối dưới ao tưới cà phê.
-- Chủ tịch UBND TP.HCM Phan Văn Mãi báo cáo đại biểu HĐND và cử tri TP về những kết quả đạt được sau một năm thực hiện nghị quyết 98.
-- Sẽ đấu giá 10 lô đất lớn tại thành phố Đà Nẵng, trong đó có lô giá khởi điểm chỉ hơn 68.000 đồng/m²/năm.
-- Theo Tập đoàn Anh Vinh, các dự án bị chậm tiến độ do ảnh hưởng nhiều yếu tố khách quan, trong đó có mất thiết bị, tài sản quan trọng.
-- HĐND tỉnh Khánh Hòa vừa thông qua nghị quyết phê duyệt chủ trương đầu tư dự án xây dựng nơi ăn, nghỉ, kho, bến, bãi, khu vực neo đậu tàu thuyền cho Hải đội dân quân thường trực tỉnh Khánh Hòa.
-- Từ tin báo người dân, qua 1,5 tháng, Đoàn kinh tế quốc phòng 337 đã tìm kiếm, cất bốc 10 hài cốt liệt sĩ từ vườn nhà dân.
-- Ngày 16-7, Cơ quan cảnh sát điều tra Công an Đà Nẵng khởi tố, bắt tạm giam Trần Thanh Hải (29 tuổi, nhân viên tín dụng một chi nhánh ngân hàng ở quận Liên Chiểu, Đà Nẵng) để điều tra về hành vi lừa đảo chiếm đoạt tài sản.
-- Sở Y tế TP.HCM đã tổng hợp danh mục thuốc từ các trung tâm y tế với hơn 400 loại. Dự kiến đến tháng 9-2024 sẽ có kết quả lựa chọn nhà thầu để bắt đầu cung ứng thuốc cho các trung tâm y tế, trạm y tế.
-- UBND TP.HCM đề xuất HĐND TP bố trí 713 tỉ đồng để phân bổ cho phường xã, quận huyện làm công trình dân sinh. Đây là lời cảm ơn của TP.HCM với người dân.
-- Khoảng 700 khách du lịch bị mắc kẹt ở đảo Nam Du (huyện Kiên Hải) đã về đến TP Rạch Giá (Kiên Giang) chiều 16-7.
-- Sở Giao thông vận tải TP.HCM đề xuất miễn giảm phí hạ tầng cảng biển cho nhiều loại hàng hóa. Đặc biệt là hàng hóa ra vào Tân Cảng - Phú Hữu và cảng SP-ITC (TP Thủ Đức).
+- Cùng với các căn cứ tại Luật Cán bộ, công chức, trong dự thảo nghị định sửa đổi, Bộ Nội vụ đề xuất 5 trường hợp xem xét tạm đình chỉ công tác với công chức.
+- Tuyên bố nhấn mạnh việc nộp đệ trình nhằm bảo đảm các quyền hợp pháp của Việt Nam đối với phần thềm lục địa mở rộng.
+- Tin tức đáng chú ý: Cuối tháng 7 Hà Nội cho chạy đoạn trên cao tuyến đường sắt Nhổn - ga Hà Nội; 11 mặt hàng xuất khẩu chính sang Indonesia, gạo là "quán quân"...
+- Hôm nay 18-7, nhiễu động vẫn tồn tại gây mưa khắp cả nước, có nơi mưa vừa, mưa to, trên biển thời tiết xấu, biển động, sóng cao.
+- Thủ tướng Phạm Minh Chính vừa ký công điện số 69/CĐ-TTg ngày 17-7 về vụ việc 4 du khách người Việt Nam tử vong ở Bangkok, Thái Lan.
+- Dù các ngân hàng đã có thêm biện pháp bảo vệ bằng xác thực sinh trắc học khi chuyển tiền trên 10 triệu đồng, những kẻ lừa đảo vẫn không ngừng tung chiêu trò hòng chiếm đoạt tiền trong tài khoản của người dùng.
+- Metro số 5 giai đoạn 1 dài khoảng 8,9km đi qua các quận: Tân Bình, Phú Nhuận, Bình Thạnh.
+- Bộ Tài chính đề xuất cân nhắc việc giảm mức thu lệ phí trước bạ đối với ô tô sản xuất, lắp ráp trong nước, lo ngại việc này có thể vi phạm cam kết quốc tế.
+- Bộ trưởng Bộ Giao thông vận tải kiểm điểm Ban quản lý dự án 6 vì chưa làm hết trách nhiệm khi thi công cao tốc Bắc - Nam, đoạn Bùng - Vạn Ninh.
+- Nhiều hoạt động về nguồn tri ân các gia đình chính sách, học sinh nghèo trong chương trình 'Thắp sáng ngọn lửa tri ân' do Hội Nhà báo Việt Nam tổ chức tại Nghệ An.
+- Chiều 17-7, cầu Bến Rừng kết nối Hải Phòng - Quảng Ninh với tổng vốn đầu tư gần 2.000 tỉ đồng chính thức thông xe kỹ thuật.
+- Tài xế xe ben Đàm Văn Lương dương tính với ma túy. Người này bị khởi tố để điều tra về hành vi vi phạm quy định về tham gia giao thông đường bộ.
+- Mưa dông những ngày qua làm 34 căn nhà ở Kiên Giang bị sập và tốc mái, ước tổng thiệt hại khoảng 1,1 tỉ đồng.
+- Phan Xuân Hải và Phạm Quang Dương là cán bộ công an nhưng cấu kết buôn bán ma túy, dẫn đến bị bắt và lãnh án tù.
+- Bà Bùi Thị Minh Hoài nói như vậy khi phát biểu nhận nhiệm vụ bí thư Thành ủy Hà Nội nhiệm kỳ 2020-2025.
+- Cầu Nhơn Trạch 2 nối TP.HCM và Đồng Nai được đề xuất đầu tư bằng nguồn vốn ODA.
+- Gần 1 năm nay ở Đắk Nông vẫn không tìm ra nguyên nhân, chưa rõ trách nhiệm thuộc về ai.
+- Theo ông Lê Văn Quảng - giám đốc Bệnh viện K, bệnh viện này đã có đề nghị và được TP Hà Nội cơ bản chấp thuận cấp đất xây dựng Bệnh viện K4, địa chỉ ở Hữu Hòa, Thanh Trì, Hà Nội.
+- Tại dự thảo nghị định mới, Bộ Nội vụ đã đề xuất sửa đổi, bổ sung quy định liên quan chế độ, chính sách đối với công chức lãnh đạo, quản lý từ chức, miễn nhiệm.
+- Trong 6 tháng đầu năm 2024, tỉnh Bình Thuận đón 4,59 triệu lượt khách, tăng khoảng 5% so với cùng kỳ. Tuy nhiên lượng khách đến không đồng đều, chủ yếu khách trong nước.
+- Em bé chào đời mang theo chiếc vòng tránh thai của mẹ trước sự ngỡ ngàng của các y bác sĩ và gia đình.
+- Thấy ngôi nhà của một bệnh binh đã quá dột nát không che nổi nắng mưa, những bạn trẻ thuộc Xã Đoàn Xuân Trạch đã nghĩ ra cách thực tế nhất để tri ân.
+- Bà Bùi Thị Minh Hoài - trưởng Ban Dân vận Trung ương - được Bộ Chính trị điều động, phân công giữ chức Bí thư Thành ủy Hà Nội.
+- Làm làn đường xe đạp thế nào để an toàn và hiệu quả? Bạn đọc gợi ý TP Huế nên tham khảo cách làm của các quốc gia khác.
+- Bà Nguyễn Hương Giang vừa được Ban Thường vụ Tỉnh ủy Bắc Ninh phân công làm phó bí thư thường trực Tỉnh ủy Bắc Ninh.
+- Bí thư Tỉnh ủy Quảng Nam ra 'tối hậu thư' cho Công ty cổ phần Bách Đạt An, chủ đầu tư 3 dự án khu đô thị có 1.000 người vạ lây nhiều năm qua.
+- Một bé trai khoảng 15-20 ngày tuổi, nặng 3,5kg được phát hiện bỏ rơi trước nhà dân ở huyện miền núi Hương Khê (Hà Tĩnh).
+- Đây là lời nhắn nhủ của Chủ tịch Quốc hội Trần Thanh Mẫn khi về dự kỳ họp thứ 18, HĐND TP Hải Phòng khóa XVI trong ngày 17-7.
+- Do ảnh hưởng thời tiết xấu, mưa và sóng to nên 5 ngày qua (tính từ ngày 13 đến ngày 17-7) các tour ca nô đi tham quan các đảo Phú Quốc bị hủy nhiều. Khách du lịch chuyển sang tham quan các điểm du lịch khác.
+- 6 tháng, Kiên Giang đã xảy ra 537 vụ tội phạm trật tự xã hội. Nóng nhất là tình trạng lừa đảo, nhận hối lộ xảy ra tại TP Phú Quốc.
 ![New](News.png)
 ## Nhịp sống số 
 - Đầu tuần này, giới công nghệ xôn xao với thông tin Alphabet, công ty mẹ của Google, đang sắp hoàn tất thương vụ 'khủng' mua lại công ty khởi nghiệp an ninh mạng Wiz với giá 23 tỉ USD.
