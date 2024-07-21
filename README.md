@@ -1,6 +1,18 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Dù là năm đầu tiên tuyển sinh ngành tâm lý học, Trường đại học Y Hà Nội dự báo điểm chuẩn khối C và D01 vào ngành này sẽ rất cạnh tranh.
+- Trường đại học Thương mại công bố điểm chuẩn gồm tuyển kết hợp chứng chỉ quốc tế với kết quả thi tốt nghiệp THPT năm 2024 từ 19 - 24 điểm.
+- Ngày 20-7, Trường đại học Y Dược Cần Thơ thông báo điểm sàn xét tuyển đại học hệ chính quy. Tất cả các ngành học của trường chỉ có một phương thức là dựa vào kết quả kỳ thi tốt nghiệp THPT năm 2024.
+- Tối 20-7, Trường đại học Khoa học xã hội và Nhân văn (Đại học Quốc gia TP.HCM) công bố điểm sàn phương thức xét tuyển dựa vào kết quả kỳ thi tốt nghiệp THPT năm 2024.
+- Ngày 20-7, hội đồng tuyển sinh Trường đại học Cần Thơ công bố điểm sàn đối với phương thức xét tuyển dựa vào kết quả thi tốt nghiệp THPT năm 2024.
+- Chiều 20-7, Sở Giáo dục và Đào tạo tỉnh Khánh Hòa công bố điểm chuẩn vào lớp 10 THPT công lập năm học 2024 - 2025.
+- Nhiều phụ huynh vẫn rất lo lắng khi các trường đại học yêu cầu thí sinh đã đủ điều kiện trúng tuyển sớm phải đăng ký nguyện vọng 1 trên hệ thống của bộ.
+- Một cách làm mới của huyện Hòa Vang, TP Đà Nẵng để khuyến khích học tập cho con em quê nhà là vinh danh những học trò giỏi ngay tại buổi lễ giữa cánh đồng.
+- Sau khi có trả lời từ Bộ Giáo dục và Đào tạo, 164 giáo viên huyện biên giới Buôn Đôn, Đắk Lắk sẽ được truy lĩnh phụ cấp thâm niên sau hàng chục năm đứng trên bục giảng.
+- Nguyện vọng 1 có được ưu tiên hơn các nguyện vọng sau đó không? Chứng chỉ IELTS còn giá trị ở thời điểm này không? Trượt năm nay, năm sau xét tuyển thế nào?...
+- Nếu không nắm rõ quy định và mắc sai lầm khi thực hiện quy trình đăng ký xét tuyển đại học, thí sinh có thể rơi vào tình huống đậu thành rớt.
+- Sáng 20-7, đông đảo phụ huynh đã cùng con đến Ngày tư vấn xét tuyển đại học, cao đẳng 2024 tại Hà Nội và TP.HCM để nghe tư vấn xét tuyển đại học.
 - Bộ Công an chính thức công bố điểm kỳ thi đánh giá của Bộ Công an năm 2024.
 - Trường đại học Kinh tế đang là trường có điểm sàn cao nhất trong các trường thành viên trực thuộc Đại học Quốc gia Hà Nội, với mức điểm 23,5.
 - Tính đến tối 19-7, đã có hơn 70 đại học, trường đại học, học viện công bố điểm sàn xét tuyển dựa vào kết quả thi tốt nghiệp THPT.
@@ -19,52 +31,42 @@
 - Đó là đề nghị của Thứ trưởng Bộ Khoa học và Công nghệ Hoàng Minh tại hội thảo “Phát triển nguồn nhân lực khoa học, công nghệ và đổi mới sáng tạo trình độ quốc tế”, tổ chức tại Cần Thơ ngày 19-7.
 - Sở Giáo dục và Đào tạo tỉnh Bắc Ninh vừa có thông tin chính thức về điểm thi tốt nghiệp THPT 2024, sau khi tỉnh này đạt kết quả rất cao, đặc biệt là các môn khối C.
 - Sáng 19-7, Trường đại học Kiến trúc TP.HCM và Trường đại học FPT công bố điểm sàn xét tuyển theo phương thức điểm thi tốt nghiệp THPT.
-- Thí sinh đăng ký dự tuyển và theo học tại trụ sở chính của Trường đại học Luật Hà Nội theo khối C (văn, sử, địa) phải có điểm sàn xét tuyển từ 20 điểm trở lên.
-- Năm 2024, số thí sinh có điểm thi khối C đạt 28 điểm tăng 6 lần, 29 điểm tăng hơn 10 lần, 30 điểm tăng 54 lần so với năm 2023.
-- Trường đại học Ngoại thương vừa công bố điểm sàn phương thức xét điểm thi tốt nghiệp THPT và xét kết hợp điểm thi tốt nghiệp với chứng chỉ ngoại ngữ quốc tế.
-- Hôm qua 18-7, thí sinh đã bắt đầu đăng ký xét tuyển đại học năm 2024. Thí sinh cần cân nhắc nhiều yếu tố để chọn đúng ngành học mong muốn.
-- Ngành khoa học máy tính, kỹ thuật máy tính, khoa học dữ liệu và trí tuệ nhân tạo tại Đại học Bách khoa Hà Nội dự kiến có điểm chuẩn trên 28.
-- Sáng 19-7, Trường đại học Kinh tế - Luật (Đại học Quốc gia TP.HCM) công bố điểm sàn nhận hồ sơ xét tuyển đại học 2024. Nhiều trường đại học tư thục cũng công bố điểm sàn các phương thức xét tuyển.
-- Trường đại học Giao thông vận tải công bố điểm sàn từ 16 - 23. Tại Trường đại học Công đoàn, thí sinh đạt từ 5 điểm/môn có thể đăng ký xét tuyển.
-- Đến tối nay 18-7, nhiều trường đại học lớn tại TP.HCM đã công bố điểm sàn phương thức xét tuyển bằng điểm thi tốt nghiệp THPT năm 2024.
-- Lực lượng chức năng tỉnh Hậu Giang phát hiện, thu giữ gần 80.000 cuốn sách giáo khoa từ lớp 1 đến lớp 12 có dấu hiệu giả mạo nhãn, bao bì hàng hóa.
-- Ngoài đạt ngưỡng điểm sàn quy định, thí sinh xét tuyển vào Học viện Báo chí và Tuyên truyền phải có học lực 5 kỳ đạt từ 6,5 và hạnh kiểm khá trở lên.
-- Sáng nay 18-7, đông đảo thí sinh đã có mặt tại Trường Đại học Công nghệ TP.HCM (HUTECH) để tìm hiểu thông tin xét tuyển và chốt nguyện vọng 1 vào trường.
-- Elle Bùi hiện đang cùng lúc vận hành hai nhãn hiệu F&amp;B kinh doanh trà và cà phê, và làm freelancer chuyên tư vấn xây dựng thực đơn cho các doanh nghiệp F&amp;B khác.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Dự báo trong hôm nay (20-7), áp thấp nhiệt đới trên Biển Đông có khả năng mạnh lên thành bão, nhiều khu vực trên cả nước có mưa vừa đến mưa to.
-- Ông Nguyễn Thế Kỷ, chủ tịch Hội đồng Lý luận phê bình văn học nghệ thuật Trung ương, bày tỏ niềm xúc động và thương tiếc khi hay tin Tổng bí thư Nguyễn Phú Trọng qua đời.
-- Trao đổi với Tuổi Trẻ, ông Phạm Quang Nghị, nguyên bí thư Thành ủy Hà Nội, đã xúc động nhắc về những kỷ niệm sâu sắc với Tổng bí thư Nguyễn Phú Trọng.
-- Một số tin tức đáng chú ý: Hai 'đại gia' năng lượng, bất động sản chậm trả món nợ trái phiếu nghìn tỉ; Tỉnh Bắc Ninh cấp nhà tiền tỉ để thu hút giáo viên ngành bán dẫn...
-- Hôm nay 20-7, thời tiết Bắc Bộ giảm mưa, mưa chủ yếu xảy ra vào đêm và sáng. Nam Bộ vẫn còn mưa to, trên biển có áp thấp nhiệt đới.
-- Tối 19-7, không lâu sau khi có thông tin chính thức Tổng bí thư Nguyễn Phú Trọng từ trần, lãnh đạo Lào, Trung Quốc, Campuchia, Cuba và Nga đã gửi điện, thư chia buồn.
-- Ở tuổi 90, giáo sư Hà Minh Đức vẫn rất minh mẫn, nhắc lại những ấn tượng về người học trò Nguyễn Phú Trọng, nam sinh viên khoa văn Trường đại học Tổng hợp Hà Nội ngày ấy...
-- Cơ quan khí tượng nhận định áp thấp nhiệt đới trên Biển Đông có khả năng mạnh lên thành bão trong 24 giờ tới.
-- "Tôi chứng kiến và luôn ghi nhớ về một người bạn, một tấm gương về sự liêm khiết, luôn vì cái chung, chưa từng suy nghĩ cục bộ, lợi ích riêng".
-- Tuổi Trẻ Online xin trân trọng giới thiệu bài viết: "Tổng bí thư Nguyễn Phú Trọng - nhà lãnh đạo lỗi lạc, trọn đời vì nước, vì dân" của Đại tướng Tô Lâm, Ủy viên Bộ Chính trị, Chủ tịch nước Cộng hòa xã hội chủ nghĩa Việt Nam.
-- Tỉnh Khánh Hòa lần đầu tiên ra mắt mô hình xe chữa cháy lưu động, đặc biệt các thành viên của lực lượng tham gia bảo vệ an ninh, trật tự cơ sở trực tiếp vận hành.
-- Do sớm chuyển sang hệ thống máy tính dự phòng, nên các sân bay của Việt Nam không bị ảnh hưởng về khai thác bởi sự cố liên quan đến dịch vụ đám mây của Microsoft.
-- Thông tin Tổng bí thư Nguyễn Phú Trọng từ trần vừa được công bố, người dân khắp mọi miền Tổ quốc đã bày tỏ sự kính trọng và niềm tiếc thương vô hạn, khi phải tiễn biệt một nhân cách lớn của dân tộc.
-- Phó thủ tướng Chính phủ Lê Minh Khái đề nghị Bộ Công Thương nghiên cứu việc thành lập sàn giao dịch xăng dầu.
-- HĐND tỉnh Bình Thuận khóa XI vừa thông qua nghị quyết sắp xếp một số đơn vị hành chính cấp huyện, xã giai đoạn 2023-2025, trong đó gộp 5 phường ở Phan Thiết còn 2.
-- Đảng, Nhà nước đã trang trọng tổ chức trao Huân chương Sao vàng tặng Tổng bí thư Nguyễn Phú Trọng, để ghi nhận những công lao to lớn, đặc biệt xuất sắc đối với sự nghiệp cách mạng của Đảng, dân tộc.
-- Theo thông tin từ Hội đồng chuyên môn bảo vệ sức khỏe cán bộ Trung ương, Tổng bí thư Nguyễn Phú Trọng đã từ trần vào 13 giờ 38 phút ngày 19-7-2024 tại Bệnh viện Trung ương Quân đội 108.
-- Thanh tra Sở Giao thông vận tải Khánh Hòa vừa kết luận thanh tra 15 công ty vận tải hàng hóa, hành khách, xử phạt vi phạm đối với 9 công ty.
-- Lực lượng chức năng Quảng Ngãi đang phối hợp làm rõ việc hai người mặc quân phục bộ đội và quân hàm thượng tướng, đại tá ra đảo Lý Sơn.
-- Ngày 19-7, Công an tỉnh Hà Tĩnh phối hợp huyện Nghi Xuân tổ chức lễ công bố quyết định của Chủ tịch nước và Thủ tướng Chính phủ về việc truy tặng Huân chương Bảo vệ Tổ quốc hạng ba và Bằng Tổ quốc ghi công đối với liệt sĩ Trần Trung Hiếu.
-- Sở Giao thông vận tải TP.HCM sẽ tham mưu UBND TP.HCM bố trí vốn mở rộng đường Nguyễn Thị Tú (quận Bình Tân), thực hiện trong giai đoạn năm 2026-2030.
-- Cầu Bưng (quận Tân Phú - Bình Tân, TP.HCM) đã thông xe vào năm 2022, đến nay các đơn vị vẫn đang tập trung nghiệm thu, hoàn thành đường dân sinh...
-- Cơ quan cảnh sát điều tra đã ra quyết định khởi tố bị can, lệnh bắt tạm giam bà Nguyễn Thị Như Loan, tổng giám đốc Công ty CP Quốc Cường Gia Lai, trong vụ án xảy ra tại Tập đoàn Công nghiệp cao su Việt Nam.
-- 70 năm đã trôi qua nhưng ý nghĩa lịch sử và các bài học rút ra từ Hiệp định Geneve vẫn mang hơi thở của thời đại hôm nay, là mốc son của nền ngoại giao Việt Nam trong buổi đầu non trẻ.
-- Ông Lê Hữu Đức - giám đốc Công ty Điện lực Tiền Giang, cho biết: "Ngành điện cam đoan không bị thiếu điện mà chỉ bị quá tải máy biến áp".
-- Mưa lớn trong đêm gây sạt lở đất xuống nhà phó chủ tịch HĐND xã Đại Sơn (huyện Văn Yên, Yên Bái), 4 người trong gia đình vừa chạy ra ngoài thì tường phòng ngủ sập xuống.
-- Xin chừa các ô trống xung quanh nhà để vận chuyển vật liệu phục vụ thi công xong, chủ nhà "tận dụng"  trổ đến 17 cửa sổ chiếu thẳng vào nhà hàng xóm.
-- Tòa án nhân dân tỉnh Lâm Đồng hủy bỏ biện pháp khẩn cấp tạm thời mà đơn vị này ban hành đối với công trình xây dựng không phép tòa nhà câu lạc bộ golf Đồi Cù Đà Lạt.
-- Năm 2013 Công ty CP Quốc Cường Gia Lai đã mua 100% vốn góp của chủ đầu tư dự án 39-39B Bến Vân Đồn, trong khi bên bán đã bị cơ quan điều tra bắt trước đó.
-- Hai đường dây buôn lậu vàng vừa bị Tòa án nhân dân TP.HCM tuyên các mức hình phạt từ 4 - 18 năm tù về tội buôn lậu.
+- Sáng sớm nay 21-7, tại khu vực huyện Ngọc Lặc, tỉnh Thanh Hóa xảy ra một trận động đất mạnh 4,1 độ.
+- Sáng 21-7, áp thấp nhiệt đới ở trên Biển Đông đã mạnh lên thành bão (cơn bão số 2).
+- Ngày 20-7 là ngày đầu tiên Cuba để tang Tổng bí thư Đảng Cộng sản Việt Nam Nguyễn Phú Trọng. Toàn bộ các phương tiện truyền thông chính thống của Cuba đều đăng tải các tin bài về sự yên nghỉ của một người anh em, người bạn lớn của nhân dân Cuba.
+- Hôm nay 21-7, thời tiết cả nước tiếp tục mưa to diện rộng, riêng Nam Bộ mưa rất to vào chiều tối đến đêm.
+- Tin tức đáng chú ý: Việt Nam đoạt 6 huy chương và bằng khen tại Olympic toán quốc tế năm 2024; TP.HCM dán biển cảnh báo đỏ các cơ sở cung cấp dịch vụ y tế đang bị đình chỉ hoạt động...
+- 13 năm trên cương vị lãnh đạo cao nhất của đất nước, Tổng bí thư Nguyễn Phú Trọng đã để lại những định hướng lớn, quan trọng trong phát triển kinh tế đất nước.
+- Hình ảnh cùng thông tin về sự ra đi của Tổng bí thư Nguyễn Phú Trọng liên tục xuất hiện trên báo, đài quốc tế, với nhiều nhận định về vai trò và di sản của ông.
+- Tối 20-7, tại nghĩa trang Hàng Dương (Côn Đảo), Thành Đoàn TP.HCM phối hợp Sở Lao động - Thương binh và Xã hội tổ chức lễ thắp nến tri ân các anh hùng liệt sĩ, nhân kỷ niệm 77 năm Ngày Thương binh - Liệt sĩ.
+- Ngày 20-7, Đồn biên phòng Dào San, Bộ đội biên phòng Lai Châu cho biết đơn vị và chính quyền địa phương kịp thời đưa đi cấp cứu một người dân bị rơi xuống vực trong rừng cách đó 4 ngày.
+- Tổng bí thư Nguyễn Phú Trọng không chỉ được nhớ đến là người lĩnh xướng và nâng tầm lý luận ngoại giao cây tre Việt Nam. Ông còn được nhiều nhà ngoại giao khắc ghi vào lòng như một người anh, người thầy…
+- Tuổi Trẻ Online xin trân trọng giới thiệu tiểu sử Tổng bí thư Ban Chấp hành Trung ương Đảng Cộng sản Việt Nam Nguyễn Phú Trọng.
+- Những ngày qua có mưa nhiều nên tỉnh Kiên Giang yêu cầu phà, tàu cao tốc cần đảm bảo an toàn vận chuyển khách du lịch từ đất liền ra các đảo Phú Quốc, Nam Du.
+- Nhà lãnh đạo Trung Quốc nghiêng mình trước di ảnh của Tổng bí thư Nguyễn Phú Trọng và ghi vào sổ tang những dòng cảm xúc, nhấn mạnh mối quan hệ cá nhân hơn 10 năm qua.
+- Vụ sạt lở xảy ra ngay địa điểm đã sạt lở trước đó 5 ngày ở xã Đạ K'Nàng (huyện Đam Rông, tỉnh Lâm Đồng).
+- Tang lễ đồng chí Nguyễn Phú Trọng - Tổng bí thư Ban Chấp hành Trung ương Đảng Cộng sản Việt Nam - được tổ chức theo nghi thức Quốc tang. Trong hai ngày Quốc tang (25-7 và 26-7), các cơ quan, công sở, nơi công cộng treo cờ rủ.
+- Tỉnh Khánh Hòa vừa có thông báo về định giá đất các dự án, trong đó có Khu nghỉ dưỡng cao cấp Bảo Đại, TP Nha Trang gây nhiều dư luận.
+- Lễ tang Tổng bí thư Nguyễn Phú Trọng được tổ chức theo nghi thức Quốc tang diễn ra từ ngày 25 đến 26-7.
+- Ban Chấp hành Trung ương Đảng Cộng sản Việt Nam, Quốc hội nước Cộng hòa XHCN Việt Nam, Chủ tịch nước Cộng hòa XHCN Việt Nam, Chính phủ nước Cộng hòa XHCN Việt Nam, Ủy ban Trung ương Mặt trận Tổ quốc Việt Nam và gia đình vô cùng thương tiếc báo tin:
+- Người châu Á, trong đó có Việt Nam, có mức độ béo bụng cao hơn người châu Âu, khác với những suy nghĩ lâu nay.
+- Đồn biên phòng Cù Lao Chàm đã kịp thời huy động 7 cán bộ chiến sĩ biên phòng, dân quân, phối hợp với 2 ca nô của các doanh nghiệp tham gia cứu nạn 23 thuyền viên và hành khách bị chìm ca nô.
+- Tổng thống Mỹ Joe Biden ca ngợi tầm nhìn của Tổng bí thư Nguyễn Phú Trọng, đồng thời bày tỏ tiếc thương trước sự ra đi của người đứng đầu Đảng Cộng sản Việt Nam.
+- Sở Kế hoạch và Đầu tư tỉnh Lâm Đồng cho biết đã đình chỉ kinh doanh khách sạn Dalat Prince tại Đà Lạt vì hoạt động sai mục tiêu đầu tư.
+- Cơ quan chức năng đã cho cắt tỉa những nhánh cây che khuất biển báo, sau phản ánh của báo Tuổi Trẻ Online.
+- UBND TP Đà Lạt vừa phê duyệt phương án đấu giá quyền thuê 10 năm đối với khu nhà hàng Thủy Tạ, trong đó quy định người đăng ký tham gia đấu giá phải đặt trước 729 triệu đồng.
+- Đà Nẵng vừa mở đợt cho thuê chung cư số lượng lớn với hơn 250 căn hộ có giá từ 2,5 triệu đồng/căn.
+- Được tin đồng chí Nguyễn Phú Trọng, Tổng bí thư Ban Chấp hành Trung ương Đảng Cộng sản Việt Nam từ trần, lãnh đạo các nước gửi điện, thư, thông điệp chia buồn.
+- Cùng với niềm tiếc thương, nhiều bạn trẻ tâm sự Tổng bí thư Nguyễn Phú Trọng là tấm gương về tính mẫu mực, tiên phong để họ tự soi và răn mình.
+- Chủ tịch Quốc hội Trần Thanh Mẫn nhấn mạnh Tổng bí thư Nguyễn Phú Trọng đã dành cả cuộc đời mình vì lý tưởng cao đẹp của Đảng, là tấm gương sáng ngời, mẫu mực về đạo đức cách mạng của người chiến sĩ cộng sản.
+- Hướng về Tổ quốc, từ khắp nơi trên thế giới, kiều bào bày tỏ niềm tiếc thương vô hạn với sự ra đi của Tổng bí thư Nguyễn Phú Trọng.
+- Bộ Nội vụ trình Chính phủ dự thảo nghị định mới, trong đó sửa đổi, bổ sung nhiều quy định về luân chuyển công chức lãnh đạo, quản lý, biệt phái công chức.
 ![New](News.png)
 ## Nhịp sống số 
+- Cơ quan tình báo mạng của Úc cảnh báo một số trang web độc hại và mã không chính thức đang được phát tán sau sự cố sập dịch vụ đám mây của Microsoft.
+- Công ty phần mềm an ninh mạng CrowdStrike thông báo đã tìm được nguyên nhân vụ sập hệ thống máy tính toàn cầu.
 - Thực hiện chủ trương tắt sóng 2G của Bộ Thông tin và Truyền thông vào tháng 9-2024, VinaPhone triển khai loạt ưu đãi khách hàng nâng cấp lên điện thoại 4G miễn phí và nhiều ưu đãi hấp dẫn khác để duy trì liên lạc mà không phải lo lắng về chi phí.
 - Với gần một nửa dân số Úc bị ảnh hưởng, vụ tấn công mạng MediSecure là một trong những vụ xâm phạm dữ liệu lớn nhất trong lịch sử quốc gia này.
 - Đầu tuần này, giới công nghệ xôn xao với thông tin Alphabet, công ty mẹ của Google, đang sắp hoàn tất thương vụ 'khủng' mua lại công ty khởi nghiệp an ninh mạng Wiz với giá 23 tỉ USD.
@@ -93,6 +95,4 @@
 - 7 thí sinh Việt Nam đều đoạt giải Olympic tin học châu Á, trong đó có 1 huy chương vàng, 6 huy chương bạc.
 - Các cuộc tấn công mạng, lừa đảo trực tuyến sẽ ngày càng tăng theo cấp số nhân, và ngày càng tinh vi vì có AI hỗ trợ.
 - Mới đây, Huawei chính thức cho ra mắt đồng hồ thông minh mới HUAWEI WATCH FIT 3.
-- Sau đại dịch, ngành dược đã nhận thấy những cơ hội phát triển mạnh mẽ từ việc thúc đẩy ứng dụng công nghệ nhiều hơn.
-- Số người thừa nhận lạm dụng tình dục trực tuyến trẻ em ở Anh cho thấy mức độ đáng báo động của vấn nạn này.
 ![life](Life.png)
