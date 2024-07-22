@@ -1,6 +1,15 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- 36 trường THPT công lập ở TP.HCM sẽ tuyển 2.203 học sinh trong đợt tuyển bổ sung, nộp hồ sơ trực tiếp tại trường từ ngày 22-7.
+- Thông báo về điểm chuẩn tuyển sinh lớp 10, có  nhiều trường quy định tiêu chí phụ xét thêm điểm trung bình lớp 9.
+- Ở tuổi 61, ông Kato Mitsuru, quốc tịch Nhật Bản, đăng ký học thạc sĩ khu vực học định hướng Việt Nam học, tại Trường đại học Việt Nhật và trở thành học viên "đặc biệt" nhất khóa VII.
+- Sinh viên được tiếp nhận vào ký túc xá Cỏ May sẽ được ở miễn phí, chu cấp tiền ăn hằng tháng và học phí.
+- Vốn có đam mê với bọ cánh cứng, bươm bướm, bạn Nguyễn Kim Long (sinh viên năm 3) đã mở cửa hàng trưng bày và dạy làm tiêu bản.
+- Làm thế nào để nâng cao tính tự học cho sinh viên, cách nào để xu thế quốc tế hóa giáo dục đại học được nhân rộng?...
+- Xét tuyển kết hợp là thế nào? Chọn ngành lấy điểm chuẩn thấp sẽ khó kiếm việc làm?
+- Sáng 20-7, đông đảo phụ huynh đã cùng con đến Ngày tư vấn xét tuyển đại học, cao đẳng 2024 tại TP.HCM để được tư vấn xét tuyển đại học.
+- Đăng ký nguyện vọng thế nào là nỗi băn khoăn lớn của nhiều phụ huynh, thí sinh đến với Ngày tư vấn xét tuyển ĐH, CĐ 2024 tại Hà Nội.
 - Dù là năm đầu tiên tuyển sinh ngành tâm lý học, Trường đại học Y Hà Nội dự báo điểm chuẩn khối C và D01 vào ngành này sẽ rất cạnh tranh.
 - Trường đại học Thương mại công bố điểm chuẩn gồm tuyển kết hợp chứng chỉ quốc tế với kết quả thi tốt nghiệp THPT năm 2024 từ 19 - 24 điểm.
 - Ngày 20-7, Trường đại học Y Dược Cần Thơ thông báo điểm sàn xét tuyển đại học hệ chính quy. Tất cả các ngành học của trường chỉ có một phương thức là dựa vào kết quả kỳ thi tốt nghiệp THPT năm 2024.
@@ -22,49 +31,43 @@
 - Tối 19-7, Đại học Kinh tế TP.HCM đã công bố điểm sàn đối với phương thức xét tuyển dựa vào kết quả thi tốt nghiệp THPT năm 2024.
 - Trường đại học Y Dược TP.HCM vừa công bố điểm sàn xét tuyển đại học hệ chính quy năm 2024, trong đó có 2 ngành có mức điểm cao hơn năm ngoái.
 - Trường đại học Luật TP.HCM và Trường đại học Quốc tế (Đại học Quốc gia TP.HCM) công bố điểm sàn phương thức xét điểm thi tốt nghiệp THPT năm 2024.
-- Lần đầu tiên mạng lưới đại học ASEAN (AUN) tổ chức trại hè AUN cho sinh viên 10 nước giao lưu và học tập về chủ đề biến biến đổi khí hậu tại Việt Nam.
-- Chiều 19-7, Sở Giáo dục và Đào tạo TP.HCM đã có thông báo chính thức về tuyển sinh bổ sung lớp 10 năm 2024.
-- Bộ Giáo dục và Đào tạo vừa công bố ngưỡng điểm đảm bảo chất lượng đầu vào (điểm sàn) ở khối đào tạo sức khỏe và giáo viên.
-- Trong kỳ thi tốt nghiệp THPT 2024, Bắc Ninh đứng thứ 5 toàn quốc và vượt lên 21 bậc so với bốn năm về trước.
-- Chương trình học bổng toàn phần được ĐH Kinh tế TP.HCM dành riêng phát triển các nhân tài vùng Mekong - Đồng bằng sông Cửu Long.
-- Nhiều thí sinh cho biết không thể gửi tin nhắn hoặc gửi được nhưng không có mã OTP trả về để hoàn thành đăng ký nguyện vọng xét tuyển.
-- Đó là đề nghị của Thứ trưởng Bộ Khoa học và Công nghệ Hoàng Minh tại hội thảo “Phát triển nguồn nhân lực khoa học, công nghệ và đổi mới sáng tạo trình độ quốc tế”, tổ chức tại Cần Thơ ngày 19-7.
-- Sở Giáo dục và Đào tạo tỉnh Bắc Ninh vừa có thông tin chính thức về điểm thi tốt nghiệp THPT 2024, sau khi tỉnh này đạt kết quả rất cao, đặc biệt là các môn khối C.
-- Sáng 19-7, Trường đại học Kiến trúc TP.HCM và Trường đại học FPT công bố điểm sàn xét tuyển theo phương thức điểm thi tốt nghiệp THPT.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Dự báo khoảng trưa nay, bão số 2 (bão Prapiroon) vào vịnh Bắc Bộ và hướng vào Quảng Ninh - Hải Phòng. Từ hôm nay, Bắc Bộ và Thanh Hóa mưa to.
+- Nhà thơ Hữu Thỉnh và những kỷ niệm về sự quan tâm của Tổng bí thư Nguyễn Phú Trọng đến sự nghiệp phát triển văn học nghệ thuật nước nhà.
+- Một số tin tức đáng chú ý: Lãi suất liên ngân hàng tăng; Một công ty chứng khoán bị đình chỉ giao dịch 4 tháng; Sắp có ngân hàng gene liệt sĩ và thân nhân liệt sĩ...
+- Hôm nay thời tiết Nam Bộ, Trung Bộ mưa to về chiều tối. Bắc Bộ ngày nắng trước khi bắt đầu đợt mưa nhiều ngày, trên biển bão đang hướng về vịnh Bắc Bộ.
+- Sau khi vượt qua đảo Hải Nam, dự báo đêm nay (22-7) và rạng sáng mai (23-7), bão số 2 sẽ đi vào vịnh Bắc Bộ, cường độ bão mạnh cấp 8, giật cấp 10.
+- Nguyên Phó chủ tịch Quốc hội Nguyễn Đức Kiên chia sẻ những ấn tượng sâu sắc về Tổng bí thư Nguyễn Phú Trọng trong quãng thời gian làm việc cùng người "anh cả" tại Quốc hội.
+- Tối nay 21-7, bão số 2 (bão Prapiroon) mạnh lên cấp 8-9 (62-88km/h), giật cấp 11 và đang tiến gần đảo Hải Nam, Trung Quốc.
+- Nhà vua Anh Charles III vẫn ấn tượng về lần gặp Tổng bí thư Nguyễn Phú Trọng năm 2013. Nhiều lãnh đạo các nước, đảng cầm quyền cũng nhắc lại kỷ niệm trong các điện, thư chia buồn khi hay tin Tổng bí thư từ trần.
+- Chỉ trong vòng chưa đầy một tuần, tại Bạc Liêu đã xảy ra hai vụ cây ngã đè người dân đang chạy xe trên đường khiến nạn nhân trọng thương.
+- Ảnh hưởng áp thấp nhiệt đới và bão số 2 nên mấy ngày qua Kiên Giang có mưa dông gây sập nhà, sạt lở đá núi và chìm hai tàu cá của người dân địa phương, ước thiệt hại gần 500 triệu đồng.
+- Dự báo chiều mai (21-7), bão số 2 (bão Prapiroon) đi vào vịnh Bắc Bộ với cường độ mạnh cấp 8, giật cấp 10. Từ đêm mai đến 24-7, miền Bắc có mưa lớn.
+- Một số cầu thủ lứa U của Câu lạc bộ Sông Lam Nghệ An được dư luận quan tâm nghi vấn gian lận tuổi đang tham gia các giải đấu.
+- Bộ Nông nghiệp và Phát triển nông thôn bố trí 400 tỉ đồng để mở rộng cảng cá Tịnh Hòa, Quảng Ngãi. Qua 6 tháng không giải ngân được, bộ xem xét ngừng cấp vốn năm 2025 nếu tiếp tục giải ngân ì ạch.
+- Tổng bí thư Nguyễn Phú Trọng luôn đặc biệt quan tâm và dành nhiều tâm huyết cho sự nghiệp xây dựng và phát triển nền văn hóa dân tộc.
+- 6 tháng, Quảng Ngãi có gần 1.400 trường hợp vi phạm luật giao thông là thiếu niên, học sinh.
+- UBND tỉnh Khánh Hòa đang tổ chức triển khai thực hiện nhiệm vụ quy hoạch 7 phân khu chức năng tại Khu kinh tế Vân Phong.
+- Sau việc hủy lễ khởi công dự án mở rộng sân bay Đồng Hới, chuyển toàn bộ chi phí của lễ này cho quỹ khuyến học, nhiều bạn đọc ủng hộ.
+- Dự báo bão số 2 (bão Prapiroon) đổ bộ vào đảo Hải Nam (Trung Quốc), sau đó đi vào vịnh Bắc Bộ rồi đi vào đất liền Hải Phòng - Quảng Ninh.
+- Do ảnh hưởng xa của rãnh áp thấp và bão số 2, gió tây nam hoạt động trung bình tới mạnh nên thời tiết Nam Bộ mưa còn kéo dài nhiều ngày tới.
+- Trên nhiều tuyến đường, giao lộ, biển báo giao thông được lắp dày đặc khiến người đi đường hoa mắt.
+- Một nhóm Ironman, vận động viên SEA Games đã khai sinh dự án "Nhái" dạy bơi sinh tồn miễn phí cho trẻ em vùng rốn lũ Quảng Trị.
+- Sáng 21-7, cảng hàng không quốc tế Đà Nẵng xác nhận thông tin một du khách nước ngoài đột ngột tử vong tại sân bay.
+- "Việc tổ chức hoạt động nêu trên sẽ được tiến hành vào thời điểm phù hợp trong thời gian tới", Bộ Lao động - Thương binh và Xã hội thông tin.
+- Nam sinh lớp 9 đi bộ trên cầu đường sắt, do không chú ý quan sát nên bị đoàn tàu khách ngược chiều tông tử vong.
+- Phim phát vào tối 19-7, sau khi Tổng bí thư qua đời, nhằm tri ân và tôn vinh những cống hiến của ông với Đảng, Nhà nước và dân tộc.
+- Tuần này thời tiết Nam Bộ, Bắc Bộ tiếp tục có mưa, có nơi mưa to, riêng Trung Bộ xuất hiện đợt nắng nóng.
+- Những chuyến đi của Tổng bí thư đến khắp nẻo đường đất nước tạo ra động lực mới, phát triển mới, những quyết sách mới cho đất nước phát triển.
 - Sáng sớm nay 21-7, tại khu vực huyện Ngọc Lặc, tỉnh Thanh Hóa xảy ra một trận động đất mạnh 4,1 độ.
 - Sáng 21-7, áp thấp nhiệt đới ở trên Biển Đông đã mạnh lên thành bão (cơn bão số 2).
 - Ngày 20-7 là ngày đầu tiên Cuba để tang Tổng bí thư Đảng Cộng sản Việt Nam Nguyễn Phú Trọng. Toàn bộ các phương tiện truyền thông chính thống của Cuba đều đăng tải các tin bài về sự yên nghỉ của một người anh em, người bạn lớn của nhân dân Cuba.
-- Hôm nay 21-7, thời tiết cả nước tiếp tục mưa to diện rộng, riêng Nam Bộ mưa rất to vào chiều tối đến đêm.
-- Tin tức đáng chú ý: Việt Nam đoạt 6 huy chương và bằng khen tại Olympic toán quốc tế năm 2024; TP.HCM dán biển cảnh báo đỏ các cơ sở cung cấp dịch vụ y tế đang bị đình chỉ hoạt động...
-- 13 năm trên cương vị lãnh đạo cao nhất của đất nước, Tổng bí thư Nguyễn Phú Trọng đã để lại những định hướng lớn, quan trọng trong phát triển kinh tế đất nước.
-- Hình ảnh cùng thông tin về sự ra đi của Tổng bí thư Nguyễn Phú Trọng liên tục xuất hiện trên báo, đài quốc tế, với nhiều nhận định về vai trò và di sản của ông.
-- Tối 20-7, tại nghĩa trang Hàng Dương (Côn Đảo), Thành Đoàn TP.HCM phối hợp Sở Lao động - Thương binh và Xã hội tổ chức lễ thắp nến tri ân các anh hùng liệt sĩ, nhân kỷ niệm 77 năm Ngày Thương binh - Liệt sĩ.
-- Ngày 20-7, Đồn biên phòng Dào San, Bộ đội biên phòng Lai Châu cho biết đơn vị và chính quyền địa phương kịp thời đưa đi cấp cứu một người dân bị rơi xuống vực trong rừng cách đó 4 ngày.
-- Tổng bí thư Nguyễn Phú Trọng không chỉ được nhớ đến là người lĩnh xướng và nâng tầm lý luận ngoại giao cây tre Việt Nam. Ông còn được nhiều nhà ngoại giao khắc ghi vào lòng như một người anh, người thầy…
-- Tuổi Trẻ Online xin trân trọng giới thiệu tiểu sử Tổng bí thư Ban Chấp hành Trung ương Đảng Cộng sản Việt Nam Nguyễn Phú Trọng.
-- Những ngày qua có mưa nhiều nên tỉnh Kiên Giang yêu cầu phà, tàu cao tốc cần đảm bảo an toàn vận chuyển khách du lịch từ đất liền ra các đảo Phú Quốc, Nam Du.
-- Nhà lãnh đạo Trung Quốc nghiêng mình trước di ảnh của Tổng bí thư Nguyễn Phú Trọng và ghi vào sổ tang những dòng cảm xúc, nhấn mạnh mối quan hệ cá nhân hơn 10 năm qua.
-- Vụ sạt lở xảy ra ngay địa điểm đã sạt lở trước đó 5 ngày ở xã Đạ K'Nàng (huyện Đam Rông, tỉnh Lâm Đồng).
-- Tang lễ đồng chí Nguyễn Phú Trọng - Tổng bí thư Ban Chấp hành Trung ương Đảng Cộng sản Việt Nam - được tổ chức theo nghi thức Quốc tang. Trong hai ngày Quốc tang (25-7 và 26-7), các cơ quan, công sở, nơi công cộng treo cờ rủ.
-- Tỉnh Khánh Hòa vừa có thông báo về định giá đất các dự án, trong đó có Khu nghỉ dưỡng cao cấp Bảo Đại, TP Nha Trang gây nhiều dư luận.
-- Lễ tang Tổng bí thư Nguyễn Phú Trọng được tổ chức theo nghi thức Quốc tang diễn ra từ ngày 25 đến 26-7.
-- Ban Chấp hành Trung ương Đảng Cộng sản Việt Nam, Quốc hội nước Cộng hòa XHCN Việt Nam, Chủ tịch nước Cộng hòa XHCN Việt Nam, Chính phủ nước Cộng hòa XHCN Việt Nam, Ủy ban Trung ương Mặt trận Tổ quốc Việt Nam và gia đình vô cùng thương tiếc báo tin:
-- Người châu Á, trong đó có Việt Nam, có mức độ béo bụng cao hơn người châu Âu, khác với những suy nghĩ lâu nay.
-- Đồn biên phòng Cù Lao Chàm đã kịp thời huy động 7 cán bộ chiến sĩ biên phòng, dân quân, phối hợp với 2 ca nô của các doanh nghiệp tham gia cứu nạn 23 thuyền viên và hành khách bị chìm ca nô.
-- Tổng thống Mỹ Joe Biden ca ngợi tầm nhìn của Tổng bí thư Nguyễn Phú Trọng, đồng thời bày tỏ tiếc thương trước sự ra đi của người đứng đầu Đảng Cộng sản Việt Nam.
-- Sở Kế hoạch và Đầu tư tỉnh Lâm Đồng cho biết đã đình chỉ kinh doanh khách sạn Dalat Prince tại Đà Lạt vì hoạt động sai mục tiêu đầu tư.
-- Cơ quan chức năng đã cho cắt tỉa những nhánh cây che khuất biển báo, sau phản ánh của báo Tuổi Trẻ Online.
-- UBND TP Đà Lạt vừa phê duyệt phương án đấu giá quyền thuê 10 năm đối với khu nhà hàng Thủy Tạ, trong đó quy định người đăng ký tham gia đấu giá phải đặt trước 729 triệu đồng.
-- Đà Nẵng vừa mở đợt cho thuê chung cư số lượng lớn với hơn 250 căn hộ có giá từ 2,5 triệu đồng/căn.
-- Được tin đồng chí Nguyễn Phú Trọng, Tổng bí thư Ban Chấp hành Trung ương Đảng Cộng sản Việt Nam từ trần, lãnh đạo các nước gửi điện, thư, thông điệp chia buồn.
-- Cùng với niềm tiếc thương, nhiều bạn trẻ tâm sự Tổng bí thư Nguyễn Phú Trọng là tấm gương về tính mẫu mực, tiên phong để họ tự soi và răn mình.
-- Chủ tịch Quốc hội Trần Thanh Mẫn nhấn mạnh Tổng bí thư Nguyễn Phú Trọng đã dành cả cuộc đời mình vì lý tưởng cao đẹp của Đảng, là tấm gương sáng ngời, mẫu mực về đạo đức cách mạng của người chiến sĩ cộng sản.
-- Hướng về Tổ quốc, từ khắp nơi trên thế giới, kiều bào bày tỏ niềm tiếc thương vô hạn với sự ra đi của Tổng bí thư Nguyễn Phú Trọng.
-- Bộ Nội vụ trình Chính phủ dự thảo nghị định mới, trong đó sửa đổi, bổ sung nhiều quy định về luân chuyển công chức lãnh đạo, quản lý, biệt phái công chức.
 ![New](News.png)
 ## Nhịp sống số 
+- Ngày 19-7, thế giới đã chứng kiến hàng loạt hệ thống mạng vận hành sân bay, bệnh viện, ngân hàng... ở khắp nơi bị tê liệt.
+- Các chuyên gia cho biết điều tồi tệ nhất trong sự cố CrowdStrike đã qua nhưng cảnh báo sẽ còn những sự cố trong tương lai nếu không tìm ra cách khắc phục.
+- Hàng không Nga không bị ảnh hưởng bởi sự cố CrowdStrike vì các sân bay nước này sử dụng phần mềm bảo mật Astra, do chính doanh nghiệp Nga phát triển.
 - Cơ quan tình báo mạng của Úc cảnh báo một số trang web độc hại và mã không chính thức đang được phát tán sau sự cố sập dịch vụ đám mây của Microsoft.
 - Công ty phần mềm an ninh mạng CrowdStrike thông báo đã tìm được nguyên nhân vụ sập hệ thống máy tính toàn cầu.
 - Thực hiện chủ trương tắt sóng 2G của Bộ Thông tin và Truyền thông vào tháng 9-2024, VinaPhone triển khai loạt ưu đãi khách hàng nâng cấp lên điện thoại 4G miễn phí và nhiều ưu đãi hấp dẫn khác để duy trì liên lạc mà không phải lo lắng về chi phí.
@@ -92,7 +95,4 @@
 - Ngày 4-6-2024, các doanh nghiệp viễn thông và dịch vụ trung tâm dữ liệu hàng đầu khu vực đã công bố chính thức thành lập liên minh AseanConnect.One.
 - TikTok từng vấp phải sự lên án của cả ông Trump lẫn ông Biden, nhưng giờ đây lại trở thành một trong những nhân tố tác động trực tiếp đến bầu cử Mỹ.
 - Công nghệ tạo ra những công ty có năng suất cao, buộc các đối thủ phải ‘bứt tốc’ để cạnh tranh.
-- 7 thí sinh Việt Nam đều đoạt giải Olympic tin học châu Á, trong đó có 1 huy chương vàng, 6 huy chương bạc.
-- Các cuộc tấn công mạng, lừa đảo trực tuyến sẽ ngày càng tăng theo cấp số nhân, và ngày càng tinh vi vì có AI hỗ trợ.
-- Mới đây, Huawei chính thức cho ra mắt đồng hồ thông minh mới HUAWEI WATCH FIT 3.
 ![life](Life.png)
