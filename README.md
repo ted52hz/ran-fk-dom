@@ -1,6 +1,17 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Trường đại học Nguyễn Tất Thành vừa có thông tin chính thức về việc cách chức TS Võ Nguyễn Đại Việt và cho rút khỏi hội đồng khoa học và đào tạo nhà trường.
+- Trường đại học Kinh tế quốc dân vừa công bố điểm chuẩn xét tuyển kết hợp chứng chỉ tiếng Anh quốc tế với điểm thi tốt nghiệp THPT.
+- Bằng tất cả lòng biết ơn, sự kính trọng, bức chân dung Tổng bí thư Nguyễn Phú Trọng được vẽ bằng phấn màu của thầy giáo ở Hà Tĩnh đã gây xúc động cho người xem.
+- Học sinh ở đảo Cù Lao Xanh sẽ được hỗ trợ tiền học phí, tiền ăn, tiền thuê trọ, chi phí học tập và tiền đò khi đi học tại Quy Nhơn.
+- Sở Giáo dục và Đào tạo tỉnh Khánh Hòa vừa có thông báo bổ sung về điểm chuẩn tuyển sinh lớp 10 năm học 2024-2025.
+- Ngành sư phạm toán có điểm sàn 24,5 điểm, kế đến là sư phạm tiếng Anh 23 điểm.
+- Trường đại học Y Hà Nội công bố điểm sàn xét điểm thi tốt nghiệp THPT cao nhất 24 điểm, Học viện Ngân hàng điểm sàn bình quân 7 điểm/môn.
+- Nhiều chính sách đang thay đổi nhanh chóng tại các thị trường du học lớn khiến học sinh buộc phải lên kế hoạch và chuẩn bị hồ sơ du học từ sớm.
+- 6 giảng viên từ 3 trường đại học ở Thái Lan bị sa thải vì gian lận bài báo khoa học, đối mặt cáo buộc hình sự.
+- Thí sinh xét điểm thi tốt nghiệp THPT vào Học viện Ngoại giao năm nay bằng khối C (văn, sử, địa) phải có điểm sàn xét tuyển từ 23,5 điểm.
+- Chỉ còn 8 ngày nữa sẽ kết thúc thời hạn đăng ký nguyện vọng xét tuyển nhưng không ít thí sinh vẫn lúng túng, chưa chốt được ngành học.
 - 36 trường THPT công lập ở TP.HCM sẽ tuyển 2.203 học sinh trong đợt tuyển bổ sung, nộp hồ sơ trực tiếp tại trường từ ngày 22-7.
 - Thông báo về điểm chuẩn tuyển sinh lớp 10, có  nhiều trường quy định tiêu chí phụ xét thêm điểm trung bình lớp 9.
 - Ở tuổi 61, ông Kato Mitsuru, quốc tịch Nhật Bản, đăng ký học thạc sĩ khu vực học định hướng Việt Nam học, tại Trường đại học Việt Nhật và trở thành học viên "đặc biệt" nhất khóa VII.
@@ -20,49 +31,38 @@
 - Một cách làm mới của huyện Hòa Vang, TP Đà Nẵng để khuyến khích học tập cho con em quê nhà là vinh danh những học trò giỏi ngay tại buổi lễ giữa cánh đồng.
 - Sau khi có trả lời từ Bộ Giáo dục và Đào tạo, 164 giáo viên huyện biên giới Buôn Đôn, Đắk Lắk sẽ được truy lĩnh phụ cấp thâm niên sau hàng chục năm đứng trên bục giảng.
 - Nguyện vọng 1 có được ưu tiên hơn các nguyện vọng sau đó không? Chứng chỉ IELTS còn giá trị ở thời điểm này không? Trượt năm nay, năm sau xét tuyển thế nào?...
-- Nếu không nắm rõ quy định và mắc sai lầm khi thực hiện quy trình đăng ký xét tuyển đại học, thí sinh có thể rơi vào tình huống đậu thành rớt.
-- Sáng 20-7, đông đảo phụ huynh đã cùng con đến Ngày tư vấn xét tuyển đại học, cao đẳng 2024 tại Hà Nội và TP.HCM để nghe tư vấn xét tuyển đại học.
-- Bộ Công an chính thức công bố điểm kỳ thi đánh giá của Bộ Công an năm 2024.
-- Trường đại học Kinh tế đang là trường có điểm sàn cao nhất trong các trường thành viên trực thuộc Đại học Quốc gia Hà Nội, với mức điểm 23,5.
-- Tính đến tối 19-7, đã có hơn 70 đại học, trường đại học, học viện công bố điểm sàn xét tuyển dựa vào kết quả thi tốt nghiệp THPT.
-- Nhiều trường đại học tiếp tục công bố điểm sàn phương thức xét tuyển điểm thi tốt nghiệp THPT.
-- Bốn học sinh Trường chuyên Lê Hồng Phong, TP.HCM đã cùng thực hiện dự án thiện nguyện về AI trong mùa hè năm 2024.
-- Một tiến sĩ người Việt vừa bị các tạp chí gỡ bỏ 3 bài báo vì quy trình bình duyệt bị thao túng nhưng vẫn được mời làm diễn giả một khóa học.
-- Tối 19-7, Đại học Kinh tế TP.HCM đã công bố điểm sàn đối với phương thức xét tuyển dựa vào kết quả thi tốt nghiệp THPT năm 2024.
-- Trường đại học Y Dược TP.HCM vừa công bố điểm sàn xét tuyển đại học hệ chính quy năm 2024, trong đó có 2 ngành có mức điểm cao hơn năm ngoái.
-- Trường đại học Luật TP.HCM và Trường đại học Quốc tế (Đại học Quốc gia TP.HCM) công bố điểm sàn phương thức xét điểm thi tốt nghiệp THPT năm 2024.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Dự báo khoảng trưa nay, bão số 2 (bão Prapiroon) vào vịnh Bắc Bộ và hướng vào Quảng Ninh - Hải Phòng. Từ hôm nay, Bắc Bộ và Thanh Hóa mưa to.
-- Nhà thơ Hữu Thỉnh và những kỷ niệm về sự quan tâm của Tổng bí thư Nguyễn Phú Trọng đến sự nghiệp phát triển văn học nghệ thuật nước nhà.
-- Một số tin tức đáng chú ý: Lãi suất liên ngân hàng tăng; Một công ty chứng khoán bị đình chỉ giao dịch 4 tháng; Sắp có ngân hàng gene liệt sĩ và thân nhân liệt sĩ...
-- Hôm nay thời tiết Nam Bộ, Trung Bộ mưa to về chiều tối. Bắc Bộ ngày nắng trước khi bắt đầu đợt mưa nhiều ngày, trên biển bão đang hướng về vịnh Bắc Bộ.
-- Sau khi vượt qua đảo Hải Nam, dự báo đêm nay (22-7) và rạng sáng mai (23-7), bão số 2 sẽ đi vào vịnh Bắc Bộ, cường độ bão mạnh cấp 8, giật cấp 10.
-- Nguyên Phó chủ tịch Quốc hội Nguyễn Đức Kiên chia sẻ những ấn tượng sâu sắc về Tổng bí thư Nguyễn Phú Trọng trong quãng thời gian làm việc cùng người "anh cả" tại Quốc hội.
-- Tối nay 21-7, bão số 2 (bão Prapiroon) mạnh lên cấp 8-9 (62-88km/h), giật cấp 11 và đang tiến gần đảo Hải Nam, Trung Quốc.
-- Nhà vua Anh Charles III vẫn ấn tượng về lần gặp Tổng bí thư Nguyễn Phú Trọng năm 2013. Nhiều lãnh đạo các nước, đảng cầm quyền cũng nhắc lại kỷ niệm trong các điện, thư chia buồn khi hay tin Tổng bí thư từ trần.
-- Chỉ trong vòng chưa đầy một tuần, tại Bạc Liêu đã xảy ra hai vụ cây ngã đè người dân đang chạy xe trên đường khiến nạn nhân trọng thương.
-- Ảnh hưởng áp thấp nhiệt đới và bão số 2 nên mấy ngày qua Kiên Giang có mưa dông gây sập nhà, sạt lở đá núi và chìm hai tàu cá của người dân địa phương, ước thiệt hại gần 500 triệu đồng.
-- Dự báo chiều mai (21-7), bão số 2 (bão Prapiroon) đi vào vịnh Bắc Bộ với cường độ mạnh cấp 8, giật cấp 10. Từ đêm mai đến 24-7, miền Bắc có mưa lớn.
-- Một số cầu thủ lứa U của Câu lạc bộ Sông Lam Nghệ An được dư luận quan tâm nghi vấn gian lận tuổi đang tham gia các giải đấu.
-- Bộ Nông nghiệp và Phát triển nông thôn bố trí 400 tỉ đồng để mở rộng cảng cá Tịnh Hòa, Quảng Ngãi. Qua 6 tháng không giải ngân được, bộ xem xét ngừng cấp vốn năm 2025 nếu tiếp tục giải ngân ì ạch.
-- Tổng bí thư Nguyễn Phú Trọng luôn đặc biệt quan tâm và dành nhiều tâm huyết cho sự nghiệp xây dựng và phát triển nền văn hóa dân tộc.
-- 6 tháng, Quảng Ngãi có gần 1.400 trường hợp vi phạm luật giao thông là thiếu niên, học sinh.
-- UBND tỉnh Khánh Hòa đang tổ chức triển khai thực hiện nhiệm vụ quy hoạch 7 phân khu chức năng tại Khu kinh tế Vân Phong.
-- Sau việc hủy lễ khởi công dự án mở rộng sân bay Đồng Hới, chuyển toàn bộ chi phí của lễ này cho quỹ khuyến học, nhiều bạn đọc ủng hộ.
-- Dự báo bão số 2 (bão Prapiroon) đổ bộ vào đảo Hải Nam (Trung Quốc), sau đó đi vào vịnh Bắc Bộ rồi đi vào đất liền Hải Phòng - Quảng Ninh.
-- Do ảnh hưởng xa của rãnh áp thấp và bão số 2, gió tây nam hoạt động trung bình tới mạnh nên thời tiết Nam Bộ mưa còn kéo dài nhiều ngày tới.
-- Trên nhiều tuyến đường, giao lộ, biển báo giao thông được lắp dày đặc khiến người đi đường hoa mắt.
-- Một nhóm Ironman, vận động viên SEA Games đã khai sinh dự án "Nhái" dạy bơi sinh tồn miễn phí cho trẻ em vùng rốn lũ Quảng Trị.
-- Sáng 21-7, cảng hàng không quốc tế Đà Nẵng xác nhận thông tin một du khách nước ngoài đột ngột tử vong tại sân bay.
-- "Việc tổ chức hoạt động nêu trên sẽ được tiến hành vào thời điểm phù hợp trong thời gian tới", Bộ Lao động - Thương binh và Xã hội thông tin.
-- Nam sinh lớp 9 đi bộ trên cầu đường sắt, do không chú ý quan sát nên bị đoàn tàu khách ngược chiều tông tử vong.
-- Phim phát vào tối 19-7, sau khi Tổng bí thư qua đời, nhằm tri ân và tôn vinh những cống hiến của ông với Đảng, Nhà nước và dân tộc.
-- Tuần này thời tiết Nam Bộ, Bắc Bộ tiếp tục có mưa, có nơi mưa to, riêng Trung Bộ xuất hiện đợt nắng nóng.
-- Những chuyến đi của Tổng bí thư đến khắp nẻo đường đất nước tạo ra động lực mới, phát triển mới, những quyết sách mới cho đất nước phát triển.
-- Sáng sớm nay 21-7, tại khu vực huyện Ngọc Lặc, tỉnh Thanh Hóa xảy ra một trận động đất mạnh 4,1 độ.
-- Sáng 21-7, áp thấp nhiệt đới ở trên Biển Đông đã mạnh lên thành bão (cơn bão số 2).
-- Ngày 20-7 là ngày đầu tiên Cuba để tang Tổng bí thư Đảng Cộng sản Việt Nam Nguyễn Phú Trọng. Toàn bộ các phương tiện truyền thông chính thống của Cuba đều đăng tải các tin bài về sự yên nghỉ của một người anh em, người bạn lớn của nhân dân Cuba.
+- Ở nhiều nước, các quỹ bảo hiểm ngắn hạn như bảo hiểm thai sản, bảo hiểm thất nghiệp khá nhiều và chi trả cho chồng khi vợ sinh con; trả bảo hiểm thất nghiệp đủ sống trong thời gian tìm công việc mới.
+- Sáng 23-7, sau khi áp sát bờ biển Quảng Ninh - Hải Phòng gây thiệt hại ban đầu ở một số địa phương, bão số 2 đã suy yếu thành áp thấp nhiệt đới.
+- Tỉnh Đồng Nai dự kiến đấu giá 18 khu đất tạo vốn đầu tư các dự án hạ tầng giao thông, nhưng đến nay vẫn chưa đấu giá được.
+- Theo Trung tâm Dự báo khí tượng thủy văn quốc gia lúc 7h sáng 23-7, tâm bão số 2 đang ở trên vùng bờ biển khu vực Quảng Ninh - Hải Phòng. Cường độ bão mạnh cấp 8-9 (62 - 88km/h), giật cấp 11.
+- Hôm nay, bão số 2 đổ bộ đất liền khu vực Đông Bắc Bộ, thời tiết Bắc Bộ mưa to đến rất to kèm dông gió rất mạnh, các nơi khác mưa rào đến mưa to.
+- Nghị quyết 54 ra đời có dấu ấn quyết sách của Tổng bí thư Nguyễn Phú Trọng.
+- Một số tin tức đáng chú ý: Ngân hàng xiết nợ ông chủ dự án thung lũng hoa Đà Lạt; Tỉ giá sẽ bớt áp lực?; Hà Nội hỗ trợ đóng bảo hiểm xã hội cho người bảo vệ an ninh, trật tự ở cơ sở...
+- Do ảnh hưởng của bão số 2 (bão Prapiroon), tại Vân Đồn (Quảng Ninh) đang có mưa, bắt đầu xuất hiện những cơn gió mạnh.
+- Ghi chép của bà Nguyễn Thị Kim Tiến, nguyên bộ trưởng Bộ Y tế, về những ngày được chăm sóc sức khỏe cho Tổng bí thư Nguyễn Phú Trọng.
+- Được tin Tổng bí thư Nguyễn Phú Trọng từ trần, các nước đã gửi điện/thư/thông điệp chia buồn tới Đảng, Nhà nước, nhân dân Việt Nam và gia quyến đồng chí Nguyễn Phú Trọng.
+- Ngày 22-7, Sở Thông tin và Truyền thông Hà Nội tổ chức hội thảo trao đổi về ứng dụng trí tuệ nhân tạo (AI) trong hoạt động của các cơ quan nhà nước TP Hà Nội và giải quyết các vấn đề bức thiết tại thủ đô.
+- Lợi dụng là nhân viên ngân hàng tại TP Phú Quốc, Nguyễn Đình Tuấn đã huy động vốn cho vay đáo hạn ngân hàng nhằm lừa đảo chiếm đoạt tài sản hơn 5 tỉ đồng, để tiêu xài cá nhân.
+- Việc thêm doanh nghiệp tham gia thí điểm xe buýt hai tầng nhằm góp phần nâng cao chất lượng phục vụ và tránh sự độc quyền.
+- Chiều 22-7, Tòa án nhân dân tỉnh Bình Thuận tuyên phạt bị cáo Trần Văn Thăng - nguyên quyền đội trưởng Đội quản lý thị trường số 2, thuộc Cục Quản lý thị trường tỉnh Bình Thuận - mức án 7 năm 6 tháng tù về tội nhận hối lộ.
+- Thủ tướng Phạm Minh Chính yêu cầu hoàn thành đường dây 500kV mạch 3 dịp kỷ niệm 79 năm Cách mạng Tháng Tám và Quốc khánh 2-9.
+- Chiều 22-7, ngư dân hối hả đưa tàu thuyền vào các cảng cá ở Quảng Ninh để tránh bão số 2.
+- Chủ tịch nước lưu ý việc cải thiện đời sống người có công, đảm bảo được hưởng chế độ, chính sách đầy đủ nhất.
+- Ông Nguyễn Linh Ngọc, nguyên thứ trưởng Bộ Tài nguyên và Môi trường, bị khởi tố, bắt tạm giam với cáo buộc có sai phạm liên quan vụ án xảy ra tại Công ty CP Tập đoàn Thái Dương và các đơn vị liên quan.
+- Chiều nay 22-7, bão số 2 (bão Prapiroon) mạnh cấp 10 (89-102km/h), giật cấp 13 đang cách vùng biển Quảng Ninh - Hải Phòng khoảng 170km.
+- Đoàn đại biểu TP.HCM do Chủ tịch UBND TP.HCM Phan Văn Mãi dẫn đầu đã thực hiện nghi thức an vị Phòng tưởng niệm Chủ tịch Tôn Đức Thắng tại Bảo tàng Tôn Đức Thắng.
+- PGS.TS, nhà văn Nguyễn Ngọc Thiện chia sẻ câu chuyện về người anh, người bạn học chung lớp đại học của mình: Tổng bí thư Nguyễn Phú Trọng.
+- Để có nguồn lực phát triển hạ tầng, tỉnh Bình Dương lên kế hoạch bán đấu giá nhiều khu đất lớn, đồng thời xây dựng đề án khai thác các quỹ đất với quy mô hàng chục ngàn ha.
+- Sở Tài nguyên và Môi trường TP.HCM vừa có văn bản gửi UBND TP.HCM kiến nghị chính sách bồi thường, hỗ trợ, tái định cư với dự án thu hồi đất, di dời nhà trên và ven kênh rạch.
+- Trên đường đi làm về, khi đang dừng xe chờ đèn đỏ tại ngã tư thì nam thanh niên bị nhóm ba người tấn công bất tỉnh rồi cướp tài sản.
+- Do nước suối dâng cao sau đợt mưa lớn nên người thân của người phụ nữ chết đuối ở huyện Anh Sơn, Nghệ An phải khiêng quan tài vượt suối đi an táng.
+- Cầu Đại Ngãi vượt sông Hậu ở tỉnh Trà Vinh và Sóc Trăng được lùi tiến độ hoàn thành vào năm 2027, khai thác đồng bộ năm 2028 thay vì năm 2026.
+- Mâu thuẫn trong việc giành micro hát karaoke di động ở quán nhậu, nam thanh niên dùng dao đâm một người chết tại chỗ.
+- Đơn vị quản lý bãi rác An Hiệp (Bến Tre) thuê drone phun xịt hóa chất toàn phần trong khuôn viên bãi rác để giảm mùi hôi.
+- Cục Hàng không quyết định áp dụng biện pháp kiểm soát an ninh hàng không tăng cường cấp độ 1 trong thời gian tổ chức tang lễ Tổng bí thư.
+- Sở Giao thông vận tải duy trì hệ thống đèn tín hiệu giao thông hiện hữu, không tắt đèn số đếm ngược tại các giao lộ.
 ![New](News.png)
 ## Nhịp sống số 
 - Ngày 19-7, thế giới đã chứng kiến hàng loạt hệ thống mạng vận hành sân bay, bệnh viện, ngân hàng... ở khắp nơi bị tê liệt.
