@@ -1,6 +1,14 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Nhiều thí sinh tá hỏa vì không thấy các mã trường cao đẳng ở đâu.
+- Có trường đại học công bố điểm sàn từ 14 điểm, có trường điểm sàn cao nhất 24,5. Chưa tới 5 điểm/môn thí sinh đã có thể xét tuyển vào nhóm ngành "hot" của một số trường đại học.
+- Với nhiệt huyết dành cho việc bảo tồn đa dạng sinh học, ThS Huỳnh Ngọc Thái Anh và cộng sự đã nghiên cứu ứng dụng trí tuệ nhân tạo để nhận dạng loài chim quý hiếm tại rừng ngập mặn Cần Giờ (TP.HCM).
+- Chỉ tiêu khối ngành sư phạm ở hàng loạt trường đại học bị cắt giảm mạnh. Có ngành bị cắt đến 90% chỉ tiêu so với đăng ký của trường.
+- Trường đại học Y khoa Phạm Ngọc Thạch (TP.HCM) công bố điểm sàn xét tuyển đại học hệ chính quy năm 2024 với 4 mức điểm.
+- Thí sinh trúng tuyển vào nhóm ngành sư phạm toán và khoa học tự nhiên, sư phạm ngữ văn, lịch sử, địa lý, phải có chứng chỉ IELTS 7.5 và tổng điểm 2 môn trong tổ hợp xét tuyển đạt từ 14 điểm trở lên.
+- Năm học 2022-2023, Trường đại học Thủ Dầu Một (Bình Dương) có doanh thu gần 400 tỉ đồng, là một trong số ít trường đại học trực thuộc UBND tỉnh sớm tự chủ tài chính.
+- Một trong số giáo viên bị cáo buộc đã biên soạn đề thi tuyển sinh đại học và bán cho một trường luyện thi tư thục với giá khoảng 250 triệu won (180.151 USD) trong suốt 4 năm.
 - Trường đại học Nguyễn Tất Thành vừa có thông tin chính thức về việc cách chức TS Võ Nguyễn Đại Việt và cho rút khỏi hội đồng khoa học và đào tạo nhà trường.
 - Trường đại học Kinh tế quốc dân vừa công bố điểm chuẩn xét tuyển kết hợp chứng chỉ tiếng Anh quốc tế với điểm thi tốt nghiệp THPT.
 - Bằng tất cả lòng biết ơn, sự kính trọng, bức chân dung Tổng bí thư Nguyễn Phú Trọng được vẽ bằng phấn màu của thầy giáo ở Hà Tĩnh đã gây xúc động cho người xem.
@@ -23,48 +31,42 @@
 - Đăng ký nguyện vọng thế nào là nỗi băn khoăn lớn của nhiều phụ huynh, thí sinh đến với Ngày tư vấn xét tuyển ĐH, CĐ 2024 tại Hà Nội.
 - Dù là năm đầu tiên tuyển sinh ngành tâm lý học, Trường đại học Y Hà Nội dự báo điểm chuẩn khối C và D01 vào ngành này sẽ rất cạnh tranh.
 - Trường đại học Thương mại công bố điểm chuẩn gồm tuyển kết hợp chứng chỉ quốc tế với kết quả thi tốt nghiệp THPT năm 2024 từ 19 - 24 điểm.
-- Ngày 20-7, Trường đại học Y Dược Cần Thơ thông báo điểm sàn xét tuyển đại học hệ chính quy. Tất cả các ngành học của trường chỉ có một phương thức là dựa vào kết quả kỳ thi tốt nghiệp THPT năm 2024.
-- Tối 20-7, Trường đại học Khoa học xã hội và Nhân văn (Đại học Quốc gia TP.HCM) công bố điểm sàn phương thức xét tuyển dựa vào kết quả kỳ thi tốt nghiệp THPT năm 2024.
-- Ngày 20-7, hội đồng tuyển sinh Trường đại học Cần Thơ công bố điểm sàn đối với phương thức xét tuyển dựa vào kết quả thi tốt nghiệp THPT năm 2024.
-- Chiều 20-7, Sở Giáo dục và Đào tạo tỉnh Khánh Hòa công bố điểm chuẩn vào lớp 10 THPT công lập năm học 2024 - 2025.
-- Nhiều phụ huynh vẫn rất lo lắng khi các trường đại học yêu cầu thí sinh đã đủ điều kiện trúng tuyển sớm phải đăng ký nguyện vọng 1 trên hệ thống của bộ.
-- Một cách làm mới của huyện Hòa Vang, TP Đà Nẵng để khuyến khích học tập cho con em quê nhà là vinh danh những học trò giỏi ngay tại buổi lễ giữa cánh đồng.
-- Sau khi có trả lời từ Bộ Giáo dục và Đào tạo, 164 giáo viên huyện biên giới Buôn Đôn, Đắk Lắk sẽ được truy lĩnh phụ cấp thâm niên sau hàng chục năm đứng trên bục giảng.
-- Nguyện vọng 1 có được ưu tiên hơn các nguyện vọng sau đó không? Chứng chỉ IELTS còn giá trị ở thời điểm này không? Trượt năm nay, năm sau xét tuyển thế nào?...
 ![Edu](Edu.png)
 ## Thời Sự 
-- Ở nhiều nước, các quỹ bảo hiểm ngắn hạn như bảo hiểm thai sản, bảo hiểm thất nghiệp khá nhiều và chi trả cho chồng khi vợ sinh con; trả bảo hiểm thất nghiệp đủ sống trong thời gian tìm công việc mới.
-- Sáng 23-7, sau khi áp sát bờ biển Quảng Ninh - Hải Phòng gây thiệt hại ban đầu ở một số địa phương, bão số 2 đã suy yếu thành áp thấp nhiệt đới.
-- Tỉnh Đồng Nai dự kiến đấu giá 18 khu đất tạo vốn đầu tư các dự án hạ tầng giao thông, nhưng đến nay vẫn chưa đấu giá được.
-- Theo Trung tâm Dự báo khí tượng thủy văn quốc gia lúc 7h sáng 23-7, tâm bão số 2 đang ở trên vùng bờ biển khu vực Quảng Ninh - Hải Phòng. Cường độ bão mạnh cấp 8-9 (62 - 88km/h), giật cấp 11.
-- Hôm nay, bão số 2 đổ bộ đất liền khu vực Đông Bắc Bộ, thời tiết Bắc Bộ mưa to đến rất to kèm dông gió rất mạnh, các nơi khác mưa rào đến mưa to.
-- Nghị quyết 54 ra đời có dấu ấn quyết sách của Tổng bí thư Nguyễn Phú Trọng.
-- Một số tin tức đáng chú ý: Ngân hàng xiết nợ ông chủ dự án thung lũng hoa Đà Lạt; Tỉ giá sẽ bớt áp lực?; Hà Nội hỗ trợ đóng bảo hiểm xã hội cho người bảo vệ an ninh, trật tự ở cơ sở...
-- Do ảnh hưởng của bão số 2 (bão Prapiroon), tại Vân Đồn (Quảng Ninh) đang có mưa, bắt đầu xuất hiện những cơn gió mạnh.
-- Ghi chép của bà Nguyễn Thị Kim Tiến, nguyên bộ trưởng Bộ Y tế, về những ngày được chăm sóc sức khỏe cho Tổng bí thư Nguyễn Phú Trọng.
-- Được tin Tổng bí thư Nguyễn Phú Trọng từ trần, các nước đã gửi điện/thư/thông điệp chia buồn tới Đảng, Nhà nước, nhân dân Việt Nam và gia quyến đồng chí Nguyễn Phú Trọng.
-- Ngày 22-7, Sở Thông tin và Truyền thông Hà Nội tổ chức hội thảo trao đổi về ứng dụng trí tuệ nhân tạo (AI) trong hoạt động của các cơ quan nhà nước TP Hà Nội và giải quyết các vấn đề bức thiết tại thủ đô.
-- Lợi dụng là nhân viên ngân hàng tại TP Phú Quốc, Nguyễn Đình Tuấn đã huy động vốn cho vay đáo hạn ngân hàng nhằm lừa đảo chiếm đoạt tài sản hơn 5 tỉ đồng, để tiêu xài cá nhân.
-- Việc thêm doanh nghiệp tham gia thí điểm xe buýt hai tầng nhằm góp phần nâng cao chất lượng phục vụ và tránh sự độc quyền.
-- Chiều 22-7, Tòa án nhân dân tỉnh Bình Thuận tuyên phạt bị cáo Trần Văn Thăng - nguyên quyền đội trưởng Đội quản lý thị trường số 2, thuộc Cục Quản lý thị trường tỉnh Bình Thuận - mức án 7 năm 6 tháng tù về tội nhận hối lộ.
-- Thủ tướng Phạm Minh Chính yêu cầu hoàn thành đường dây 500kV mạch 3 dịp kỷ niệm 79 năm Cách mạng Tháng Tám và Quốc khánh 2-9.
-- Chiều 22-7, ngư dân hối hả đưa tàu thuyền vào các cảng cá ở Quảng Ninh để tránh bão số 2.
-- Chủ tịch nước lưu ý việc cải thiện đời sống người có công, đảm bảo được hưởng chế độ, chính sách đầy đủ nhất.
-- Ông Nguyễn Linh Ngọc, nguyên thứ trưởng Bộ Tài nguyên và Môi trường, bị khởi tố, bắt tạm giam với cáo buộc có sai phạm liên quan vụ án xảy ra tại Công ty CP Tập đoàn Thái Dương và các đơn vị liên quan.
-- Chiều nay 22-7, bão số 2 (bão Prapiroon) mạnh cấp 10 (89-102km/h), giật cấp 13 đang cách vùng biển Quảng Ninh - Hải Phòng khoảng 170km.
-- Đoàn đại biểu TP.HCM do Chủ tịch UBND TP.HCM Phan Văn Mãi dẫn đầu đã thực hiện nghi thức an vị Phòng tưởng niệm Chủ tịch Tôn Đức Thắng tại Bảo tàng Tôn Đức Thắng.
-- PGS.TS, nhà văn Nguyễn Ngọc Thiện chia sẻ câu chuyện về người anh, người bạn học chung lớp đại học của mình: Tổng bí thư Nguyễn Phú Trọng.
-- Để có nguồn lực phát triển hạ tầng, tỉnh Bình Dương lên kế hoạch bán đấu giá nhiều khu đất lớn, đồng thời xây dựng đề án khai thác các quỹ đất với quy mô hàng chục ngàn ha.
-- Sở Tài nguyên và Môi trường TP.HCM vừa có văn bản gửi UBND TP.HCM kiến nghị chính sách bồi thường, hỗ trợ, tái định cư với dự án thu hồi đất, di dời nhà trên và ven kênh rạch.
-- Trên đường đi làm về, khi đang dừng xe chờ đèn đỏ tại ngã tư thì nam thanh niên bị nhóm ba người tấn công bất tỉnh rồi cướp tài sản.
-- Do nước suối dâng cao sau đợt mưa lớn nên người thân của người phụ nữ chết đuối ở huyện Anh Sơn, Nghệ An phải khiêng quan tài vượt suối đi an táng.
-- Cầu Đại Ngãi vượt sông Hậu ở tỉnh Trà Vinh và Sóc Trăng được lùi tiến độ hoàn thành vào năm 2027, khai thác đồng bộ năm 2028 thay vì năm 2026.
-- Mâu thuẫn trong việc giành micro hát karaoke di động ở quán nhậu, nam thanh niên dùng dao đâm một người chết tại chỗ.
-- Đơn vị quản lý bãi rác An Hiệp (Bến Tre) thuê drone phun xịt hóa chất toàn phần trong khuôn viên bãi rác để giảm mùi hôi.
-- Cục Hàng không quyết định áp dụng biện pháp kiểm soát an ninh hàng không tăng cường cấp độ 1 trong thời gian tổ chức tang lễ Tổng bí thư.
-- Sở Giao thông vận tải duy trì hệ thống đèn tín hiệu giao thông hiện hữu, không tắt đèn số đếm ngược tại các giao lộ.
+- Mưa lớn kéo dài khiến nhiều tuyến đường ở Hà Nội ngập và ùn tắc từ chiều tới đêm 23-7. Nhiều tài xế mắc kẹt trên đường, vật vã tìm lối về nhà.
+- Cơn mưa lớn rạng sáng nay khiến nước từ nhiều nơi đổ về một khu vực, một số tuyến đường ở thành phố Sơn La (tỉnh Sơn La) ngập sâu, nước chảy như sông.
+- Khăn gói vội vàng lên đường đến Việt Nam ngay sau khi hay tin Tổng bí thư Nguyễn Phú Trọng từ trần, ông Cho Chul Hyeon đã rơi nước mắt tại Hà Nội.
+- Phó thủ tướng Trần Lưu Quang vừa ký quyết định phê chuẩn miễn nhiệm chức danh chủ tịch UBND tỉnh Bắc Ninh nhiệm kỳ 2021 - 2026 với bà Nguyễn Hương Giang.
+- Từ nơi sâu thẳm giữa núi rừng Tây Nguyên, bà con đồng bào Ba Na những ngày này nhớ về chuyến thăm xã nghèo Ayun, huyện Chư Sê (Gia Lai) của Tổng bí thư Nguyễn Phú Trọng vào tháng 4-2017.
+- Hôm nay dù bão đã tan nhưng lại suy yếu thành vùng áp thấp khiến thời tiết Bắc Bộ duy trì mưa to, các tỉnh Tây Nguyên, Nam Bộ mưa rào chiều tối.
+- Trong suốt quá trình điều trị tại Bệnh viện Trung ương quân đội 108, Tổng bí thư Nguyễn Phú Trọng vẫn làm việc cho đến khi trút hơi thở cuối cùng.
+- Tin tức đáng chú ý: 9 quận huyện của TP.HCM không còn hộ nghèo đa chiều; Xử lý nghiêm cơ sở thẩm mỹ vi phạm; Đại học Quốc gia Hà Nội trong nhóm 100 cơ sở giáo dục hàng đầu châu Á về tiêu chí Mức độ ảnh hưởng...
+- Ô tô trọng tải trên 10 tấn và xe khách 40 chỗ trở lên (trừ xe thực thi công vụ) sẽ bị cấm đi vào các tuyến giao thông hướng về trung tâm Hà Nội trong thời gian diễn ra lễ Quốc tang.
+- Chủ tịch Quốc hội Trần Thanh Mẫn nêu rõ Tổng bí thư Nguyễn Phú Trọng luôn dành sự quan tâm đặc biệt, sự lãnh đạo, chỉ đạo toàn diện, khách quan, khoa học, rất cụ thể, sâu sắc đối với tổ chức, hoạt động của Quốc hội.
+- Từ ngày 27-7, các loại xe tải trên 5 tấn, container sẽ bị cấm đi lên cầu vượt thép ngã tư Thủ Đức để xây dựng cầu đi bộ (thuộc tuyến metro số 1).
+- Một quán cơm nằm trên quốc lộ 1 đoạn qua xã Vạn Thắng (huyện Vạn Ninh, Khánh Hòa) bị khách tố “chặt chém”, thậm chí quán này không có biển hiệu rõ ràng, địa chỉ và tên trên Google Maps.
+- Văn phòng Chính phủ vừa có văn bản gửi Bộ trưởng Bộ Y tế về việc khẩn trương giải quyết, tháo gỡ khó khăn, vướng mắc tại hai dự án cơ sở 2 Bệnh viện Bạch Mai và Bệnh viện Hữu nghị Việt Đức.
+- Liên quan việc tàu cao tốc TP.HCM đi Côn Đảo tạm dừng chạy vào cuối tháng 7-2024, các sở ngành sẽ tìm giải pháp để khuyến khích, hỗ trợ doanh nghiệp.
+- Mưa kéo dài từ sáng đến tối 23-7 khiến nhiều tuyến đường tại Hà Nội ngập sâu trong biển nước, giao thông hỗn loạn.
+- Đoàn do Thủ tướng Hàn Quốc Han Duck Soo dẫn đầu sẽ ở Việt Nam trong hai ngày để dự tang lễ Tổng bí thư Nguyễn Phú Trọng, theo Đại sứ quán nước này.
+- Tòa án nhân dân TP Thủ Đức (TP.HCM) hủy bỏ biện pháp ngăn chặn khẩn cấp tạm thời đã áp dụng đối với công trình không phép trong Đồi Cù Đà Lạt.
+- 5 hài cốt liệt sĩ cùng nhiều di vật được tìm thấy ở rừng tràm tại huyện Hải Lăng. Cùng thời điểm, 2 hài cốt liệt sĩ khác được tìm thấy ở vườn cà phê tại huyện Hướng Hóa, Quảng Trị.
+- Từ 22h đêm nay (23-7), hồ thủy điện Hòa Bình mở cửa xả đáy thứ 3 (hay còn gọi xả lũ) để đưa về mực nước cao nhất trước lũ trong thời kỳ lũ chính vụ.
+- Nhiều thân nhân liệt sĩ từ miền Bắc, Bắc Trung Bộ không nén được cảm xúc tại buổi truy điệu, an táng 3 hài cốt liệt sĩ vừa tìm thấy tại huyện Khánh Vĩnh (Khánh Hòa), vì dù chưa xác định được danh tính nhưng đó có thể là hài cốt người thân của họ.
+- UBND TP Cà Mau cho biết đang phối hợp cơ quan chuyên môn thực hiện quy trình cưỡng chế và xử lý các bước tiếp theo đối với căn biệt thự 'đẹp nhất Cà Mau', theo tinh thần quyết định đã ban hành.
+- Bộ Tài nguyên và Môi trường chưa thông qua báo cáo đánh giá tác động môi trường, việc hoàn thành dự án hồ Ka Pét như đúng tiến độ ban đầu là rất khó.
+- Sau hai ngày xét xử, chiều 23-7, TAND TP Đà Nẵng tuyên án các bị cáo trong vụ sai phạm xảy ra tại Trường đại học Bách khoa Đà Nẵng.
+- Hoàn lưu bão số 2 tiếp tục gây mưa lớn ở Bắc Bộ, Thanh Hóa, Nghệ An và kéo dài đến đêm mai, nguy cơ xảy ra lũ quét, sạt lở đất ở vùng núi và ngập lụt ở đô thị.
+- Sau khi ăn bữa cơm trưa do đơn vị bên ngoài cung cấp, hơn 60 công nhân tại Bình Phước phải nhập viện cấp cứu khẩn cấp.
+- Việc xử lý nghiêm các xe khách, xe container... vi phạm tốc độ qua dữ liệu GPS góp phần giảm tai nạn giao thông.
+- Nhiều tuyến đường ở Quảng Ninh, Bắc Giang, Sơn La... đang ngập sâu và bị sạt lở do mưa lớn, ảnh hưởng từ hoàn lưu bão số 2.
+- Căn phòng bệnh gần 20 mét vuông tại Bệnh viện Trung ương Quân đội 108 là nơi Tổng bí thư Nguyễn Phú Trọng gắn bó khi điều trị bệnh.
+- Đà Nẵng dự kiến sắp xếp 17 đơn vị hành chính cấp phường, giảm 9 phường. Dự kiến dôi dư hơn 100 cán bộ, công chức thì giải quyết chế độ ra sao?
+- Dự án tái định cư kéo dài hơn 10 năm rồi không thực hiện, nhưng người dân lại phải tiếp tục mòn mỏi chờ hủy… dự án treo.
 ![New](News.png)
 ## Nhịp sống số 
+- Thay vì loại bỏ cookie của bên thứ ba, Google sẽ giới thiệu trải nghiệm mới trên Chrome.
+- Trung tâm Giám sát an toàn không gian mạng quốc gia phát hiện thêm 68 website giả mạo thương hiệu của các cơ quan, tổ chức, ngân hàng để lừa đảo người dân.
 - Ngày 19-7, thế giới đã chứng kiến hàng loạt hệ thống mạng vận hành sân bay, bệnh viện, ngân hàng... ở khắp nơi bị tê liệt.
 - Các chuyên gia cho biết điều tồi tệ nhất trong sự cố CrowdStrike đã qua nhưng cảnh báo sẽ còn những sự cố trong tương lai nếu không tìm ra cách khắc phục.
 - Hàng không Nga không bị ảnh hưởng bởi sự cố CrowdStrike vì các sân bay nước này sử dụng phần mềm bảo mật Astra, do chính doanh nghiệp Nga phát triển.
@@ -93,6 +95,4 @@
 - Ngày 15-5, Công ty TNHH Sản phẩm công nghiệp Toshiba Asia đã tổ chức ngày hội đối tác kinh doanh ‘Business Partners Day 2024’ tại GEM Center, TP.HCM.
 - Sáng 4-6, hệ thống công nghệ thông tin của Tổng công ty Bưu điện Việt Nam (Vietnam Post) đã bị tấn công bất hợp pháp bằng mã độc tống tiền (ransomware).
 - Ngày 4-6-2024, các doanh nghiệp viễn thông và dịch vụ trung tâm dữ liệu hàng đầu khu vực đã công bố chính thức thành lập liên minh AseanConnect.One.
-- TikTok từng vấp phải sự lên án của cả ông Trump lẫn ông Biden, nhưng giờ đây lại trở thành một trong những nhân tố tác động trực tiếp đến bầu cử Mỹ.
-- Công nghệ tạo ra những công ty có năng suất cao, buộc các đối thủ phải ‘bứt tốc’ để cạnh tranh.
 ![life](Life.png)
