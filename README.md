@@ -1,6 +1,12 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Nhiều học sinh TP.HCM dù đậu vào lớp 10 trường THPT công lập nhưng vẫn chọn học trường tư thục để dễ hiện thực hóa mục tiêu nghề nghiệp trong tương lai hơn.
+- Thi xong, Đức Mạnh cũng như nhiều bạn bè của mình không khỏi lo lắng: lo không làm được bài, lo điểm thấp… Nhưng hơn một tuần sau đó, bạn tỉnh táo gác lại những âu lo bởi biết mình vẫn còn những cơ hội khác.
+- Năm nay, ngành quan hệ công chúng của Trường đại học Khoa học xã hội và Nhân văn dẫn đầu điểm chuẩn phương thức xét kết hợp chứng chỉ tiếng Anh quốc tế với điểm thi tốt nghiệp THPT.
+- Đều đặn mỗi sáng trong hè, chùa Lập Thạch bên bờ sông Thạch Hãn rộn tiếng cười nói của học trò các lớp học hè từ lớp 1 đến lớp 9, vừa học chữ vừa rèn đạo đức.
+- Viện trưởng Viện Nghiên cứu kinh tế nhịp cầu tri thức vừa có thông tin chính thức về việc miễn nhiệm các chức vụ của TS Bạch Quang Vũ tại viện này.
+- Trong số 265 thành viên các hội đồng giáo sư ngành, liên ngành năm 2024 của Hội đồng Giáo sư nhà nước có 4 nhà khoa học 8X.
 - Nhiều thí sinh tá hỏa vì không thấy các mã trường cao đẳng ở đâu.
 - Có trường đại học công bố điểm sàn từ 14 điểm, có trường điểm sàn cao nhất 24,5. Chưa tới 5 điểm/môn thí sinh đã có thể xét tuyển vào nhóm ngành "hot" của một số trường đại học.
 - Với nhiệt huyết dành cho việc bảo tồn đa dạng sinh học, ThS Huỳnh Ngọc Thái Anh và cộng sự đã nghiên cứu ứng dụng trí tuệ nhân tạo để nhận dạng loài chim quý hiếm tại rừng ngập mặn Cần Giờ (TP.HCM).
@@ -25,46 +31,42 @@
 - Ở tuổi 61, ông Kato Mitsuru, quốc tịch Nhật Bản, đăng ký học thạc sĩ khu vực học định hướng Việt Nam học, tại Trường đại học Việt Nhật và trở thành học viên "đặc biệt" nhất khóa VII.
 - Sinh viên được tiếp nhận vào ký túc xá Cỏ May sẽ được ở miễn phí, chu cấp tiền ăn hằng tháng và học phí.
 - Vốn có đam mê với bọ cánh cứng, bươm bướm, bạn Nguyễn Kim Long (sinh viên năm 3) đã mở cửa hàng trưng bày và dạy làm tiêu bản.
-- Làm thế nào để nâng cao tính tự học cho sinh viên, cách nào để xu thế quốc tế hóa giáo dục đại học được nhân rộng?...
-- Xét tuyển kết hợp là thế nào? Chọn ngành lấy điểm chuẩn thấp sẽ khó kiếm việc làm?
-- Sáng 20-7, đông đảo phụ huynh đã cùng con đến Ngày tư vấn xét tuyển đại học, cao đẳng 2024 tại TP.HCM để được tư vấn xét tuyển đại học.
-- Đăng ký nguyện vọng thế nào là nỗi băn khoăn lớn của nhiều phụ huynh, thí sinh đến với Ngày tư vấn xét tuyển ĐH, CĐ 2024 tại Hà Nội.
-- Dù là năm đầu tiên tuyển sinh ngành tâm lý học, Trường đại học Y Hà Nội dự báo điểm chuẩn khối C và D01 vào ngành này sẽ rất cạnh tranh.
-- Trường đại học Thương mại công bố điểm chuẩn gồm tuyển kết hợp chứng chỉ quốc tế với kết quả thi tốt nghiệp THPT năm 2024 từ 19 - 24 điểm.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Mưa lớn kéo dài khiến nhiều tuyến đường ở Hà Nội ngập và ùn tắc từ chiều tới đêm 23-7. Nhiều tài xế mắc kẹt trên đường, vật vã tìm lối về nhà.
-- Cơn mưa lớn rạng sáng nay khiến nước từ nhiều nơi đổ về một khu vực, một số tuyến đường ở thành phố Sơn La (tỉnh Sơn La) ngập sâu, nước chảy như sông.
-- Khăn gói vội vàng lên đường đến Việt Nam ngay sau khi hay tin Tổng bí thư Nguyễn Phú Trọng từ trần, ông Cho Chul Hyeon đã rơi nước mắt tại Hà Nội.
-- Phó thủ tướng Trần Lưu Quang vừa ký quyết định phê chuẩn miễn nhiệm chức danh chủ tịch UBND tỉnh Bắc Ninh nhiệm kỳ 2021 - 2026 với bà Nguyễn Hương Giang.
-- Từ nơi sâu thẳm giữa núi rừng Tây Nguyên, bà con đồng bào Ba Na những ngày này nhớ về chuyến thăm xã nghèo Ayun, huyện Chư Sê (Gia Lai) của Tổng bí thư Nguyễn Phú Trọng vào tháng 4-2017.
-- Hôm nay dù bão đã tan nhưng lại suy yếu thành vùng áp thấp khiến thời tiết Bắc Bộ duy trì mưa to, các tỉnh Tây Nguyên, Nam Bộ mưa rào chiều tối.
-- Trong suốt quá trình điều trị tại Bệnh viện Trung ương quân đội 108, Tổng bí thư Nguyễn Phú Trọng vẫn làm việc cho đến khi trút hơi thở cuối cùng.
-- Tin tức đáng chú ý: 9 quận huyện của TP.HCM không còn hộ nghèo đa chiều; Xử lý nghiêm cơ sở thẩm mỹ vi phạm; Đại học Quốc gia Hà Nội trong nhóm 100 cơ sở giáo dục hàng đầu châu Á về tiêu chí Mức độ ảnh hưởng...
-- Ô tô trọng tải trên 10 tấn và xe khách 40 chỗ trở lên (trừ xe thực thi công vụ) sẽ bị cấm đi vào các tuyến giao thông hướng về trung tâm Hà Nội trong thời gian diễn ra lễ Quốc tang.
-- Chủ tịch Quốc hội Trần Thanh Mẫn nêu rõ Tổng bí thư Nguyễn Phú Trọng luôn dành sự quan tâm đặc biệt, sự lãnh đạo, chỉ đạo toàn diện, khách quan, khoa học, rất cụ thể, sâu sắc đối với tổ chức, hoạt động của Quốc hội.
-- Từ ngày 27-7, các loại xe tải trên 5 tấn, container sẽ bị cấm đi lên cầu vượt thép ngã tư Thủ Đức để xây dựng cầu đi bộ (thuộc tuyến metro số 1).
-- Một quán cơm nằm trên quốc lộ 1 đoạn qua xã Vạn Thắng (huyện Vạn Ninh, Khánh Hòa) bị khách tố “chặt chém”, thậm chí quán này không có biển hiệu rõ ràng, địa chỉ và tên trên Google Maps.
-- Văn phòng Chính phủ vừa có văn bản gửi Bộ trưởng Bộ Y tế về việc khẩn trương giải quyết, tháo gỡ khó khăn, vướng mắc tại hai dự án cơ sở 2 Bệnh viện Bạch Mai và Bệnh viện Hữu nghị Việt Đức.
-- Liên quan việc tàu cao tốc TP.HCM đi Côn Đảo tạm dừng chạy vào cuối tháng 7-2024, các sở ngành sẽ tìm giải pháp để khuyến khích, hỗ trợ doanh nghiệp.
-- Mưa kéo dài từ sáng đến tối 23-7 khiến nhiều tuyến đường tại Hà Nội ngập sâu trong biển nước, giao thông hỗn loạn.
-- Đoàn do Thủ tướng Hàn Quốc Han Duck Soo dẫn đầu sẽ ở Việt Nam trong hai ngày để dự tang lễ Tổng bí thư Nguyễn Phú Trọng, theo Đại sứ quán nước này.
-- Tòa án nhân dân TP Thủ Đức (TP.HCM) hủy bỏ biện pháp ngăn chặn khẩn cấp tạm thời đã áp dụng đối với công trình không phép trong Đồi Cù Đà Lạt.
-- 5 hài cốt liệt sĩ cùng nhiều di vật được tìm thấy ở rừng tràm tại huyện Hải Lăng. Cùng thời điểm, 2 hài cốt liệt sĩ khác được tìm thấy ở vườn cà phê tại huyện Hướng Hóa, Quảng Trị.
-- Từ 22h đêm nay (23-7), hồ thủy điện Hòa Bình mở cửa xả đáy thứ 3 (hay còn gọi xả lũ) để đưa về mực nước cao nhất trước lũ trong thời kỳ lũ chính vụ.
-- Nhiều thân nhân liệt sĩ từ miền Bắc, Bắc Trung Bộ không nén được cảm xúc tại buổi truy điệu, an táng 3 hài cốt liệt sĩ vừa tìm thấy tại huyện Khánh Vĩnh (Khánh Hòa), vì dù chưa xác định được danh tính nhưng đó có thể là hài cốt người thân của họ.
-- UBND TP Cà Mau cho biết đang phối hợp cơ quan chuyên môn thực hiện quy trình cưỡng chế và xử lý các bước tiếp theo đối với căn biệt thự 'đẹp nhất Cà Mau', theo tinh thần quyết định đã ban hành.
-- Bộ Tài nguyên và Môi trường chưa thông qua báo cáo đánh giá tác động môi trường, việc hoàn thành dự án hồ Ka Pét như đúng tiến độ ban đầu là rất khó.
-- Sau hai ngày xét xử, chiều 23-7, TAND TP Đà Nẵng tuyên án các bị cáo trong vụ sai phạm xảy ra tại Trường đại học Bách khoa Đà Nẵng.
-- Hoàn lưu bão số 2 tiếp tục gây mưa lớn ở Bắc Bộ, Thanh Hóa, Nghệ An và kéo dài đến đêm mai, nguy cơ xảy ra lũ quét, sạt lở đất ở vùng núi và ngập lụt ở đô thị.
-- Sau khi ăn bữa cơm trưa do đơn vị bên ngoài cung cấp, hơn 60 công nhân tại Bình Phước phải nhập viện cấp cứu khẩn cấp.
-- Việc xử lý nghiêm các xe khách, xe container... vi phạm tốc độ qua dữ liệu GPS góp phần giảm tai nạn giao thông.
-- Nhiều tuyến đường ở Quảng Ninh, Bắc Giang, Sơn La... đang ngập sâu và bị sạt lở do mưa lớn, ảnh hưởng từ hoàn lưu bão số 2.
-- Căn phòng bệnh gần 20 mét vuông tại Bệnh viện Trung ương Quân đội 108 là nơi Tổng bí thư Nguyễn Phú Trọng gắn bó khi điều trị bệnh.
-- Đà Nẵng dự kiến sắp xếp 17 đơn vị hành chính cấp phường, giảm 9 phường. Dự kiến dôi dư hơn 100 cán bộ, công chức thì giải quyết chế độ ra sao?
-- Dự án tái định cư kéo dài hơn 10 năm rồi không thực hiện, nhưng người dân lại phải tiếp tục mòn mỏi chờ hủy… dự án treo.
+- Một dự án bất động sản tại Đà Nẵng chưa đủ điều kiện nhưng đã rao bán rầm rộ trên mạng xã hội, thậm chí có một số trang còn giới thiệu đã phân phối thu về hàng trăm tỉ đồng.
+- Nhà ở riêng lẻ có mục đích cho thuê trọ ở TP.HCM sẽ được hỗ trợ vay vốn, giá điện nước để xây dựng, cải tạo thành nhà trọ an toàn, bảo đảm diện tích tối thiểu.
+- Từ sáng sớm 25-7, nhiều người dân đã về làng Lại Đà, xã Đông Hội, huyện Đông Anh, Hà Nội - quê hương Tổng bí thư Nguyễn Phú Trọng, để chuẩn bị vào viếng.
+- Sáng nay 25-7, Lễ Quốc tang Tổng bí thư Nguyễn Phú Trọng khu vực miền Nam diễn ra tại Hội trường Thống Nhất, TP.HCM.
+- Sáng nay 25-7, cờ rủ được kéo lên tại quảng trường Ba Đình (Hà Nội) cùng dải băng đen. Quốc tang Tổng bí thư Nguyễn Phú Trọng diễn ra trong 2 ngày.
+- Một số tin tức đáng chú ý: Kiểm kê đất đai cả nước từ ngày 1-8-2024; FLC bị cưỡng chế hơn 822 tỉ đồng tiền thuế; Nhân viên y tế công lập ở TP.HCM phải luân chuyển tuyến dưới...
+- Hôm nay, trong ngày đầu tiên lễ Quốc tang Tổng bí thư Nguyễn Phú Trọng, chúng ta cùng tưởng nhớ về một nhân cách lớn.
+- Hôm nay 25-7, mưa dông đã giảm ở Bắc Bộ, ban ngày trời nắng gián đoạn, có lúc mưa rào. Nam Bộ mưa tập trung về chiều tối.
+- Đang thực hiện nhiệm vụ gìn giữ hòa bình Liên Hiệp Quốc ở phái bộ Abyei, nghe tin Tổng bí thư Nguyễn Phú Trọng từ trần, cán bộ, chiến sĩ 'mũ nồi xanh' Việt Nam bày tỏ niềm tiếc thương vô hạn.
+- Sáng nay (25-7), lễ Quốc tang Tổng bí thư Nguyễn Phú Trọng được tổ chức tại Nhà tang lễ quốc gia số 5 Trần Thánh Tông, TP Hà Nội.
+- "Một người nhỏ bé, hiền lành, hòa nhã nhưng để lại cho đời một di sản đồ sộ đáng kính trọng", GS.TSKH Vũ Minh Giang nói.
+- Sáng nay 25-7, Lễ Quốc tang Tổng bí thư Nguyễn Phú Trọng được tổ chức tại Nhà tang lễ quốc gia, số 5 Trần Thánh Tông, thành phố Hà Nội.
+- Tổng bí thư Nguyễn Phú Trọng đã từ trần vào ngày 19-7-2024 tại Bệnh viện Trung ương Quân đội 108. Sổ tang điện tử sẽ là nơi bạn đọc thể hiện sự tiếc thương với nhà lãnh đạo lỗi lạc vì dân vì nước.
+- Chủ tịch nước Tô Lâm xúc động khi Cuba là một trong những nước đầu tiên thông báo cử đoàn tới chia buồn và dự lễ tang Tổng bí thư Nguyễn Phú Trọng.
+- Công ty cổ phần Đường sắt Hà Nội và Công ty cổ phần Đường sắt Sài Gòn đều có doanh thu hàng trăm tỉ nhưng lợi nhuận quý 2-2024 đạt được chỉ vài tỉ đồng.
+- Thủ tướng yêu cầu tỉnh Sơn La tổ chức kiểm tra, rà soát, đánh giá nguyên nhân sạt lở đất, ngập lụt tại thành phố Sơn La để có giải pháp khắc phục, hạn chế thiệt hại.
+- Từng trực tiếp tham gia biên tập hơn 20 cuốn sách của Tổng bí thư Nguyễn Phú Trọng, phó giám đốc, phó tổng biên tập Nhà xuất bản Chính trị Quốc gia Sự thật đã học được rất nhiều bài học vô giá.
+- Chủ tịch nước yêu cầu quan tâm đặc biệt, nhanh chóng hơn nữa đến thương binh, bệnh binh, người có công, tương xứng với sự phát triển của đất nước.
+- Trì hoãn chuyển tiền thi hành án với số tiền 158 tỉ đồng, Ngân hàng SHB chi nhánh Phú Nhuận (TP.HCM) đã bị lập biên bản vi phạm hành chính để xử phạt.
+- Từ kinh nghiệm quốc tế đến thực tiễn tại Việt Nam cho thấy việc tăng thuế thuốc lá không làm tăng buôn lậu thuốc lá.
+- Đất đắp cho cao tốc Biên Hòa - Vũng Tàu đã được gỡ khó khi chiều nay 24-7, các đơn vị liên quan đã đồng ý hướng khai thác.
+- Tại thời điểm này, công tác chuẩn bị lễ Quốc tang Tổng bí thư Nguyễn Phú Trọng đã cơ bản hoàn thành. TP.HCM công bố sổ tang điện tử để người dân chia sẻ tình cảm với Tổng bí thư Nguyễn Phú Trọng.
+- Ông Trần Duy Đông, thứ trưởng Bộ Kế hoạch và Đầu tư, được Ban Bí thư điều động, chỉ định giữ chức vụ phó bí thư Tỉnh ủy Vĩnh Phúc nhiệm kỳ 2020-2025.
+- Tổng giám đốc Liên doanh Việt - Nga Vietsovpetro cho biết sẽ xử lý nghiêm các cá nhân thuộc doanh nghiệp này nếu họ đi chơi golf trong giờ làm việc như phản ánh.
+- Lâm Đồng đưa vụ xây dựng trái phép Tòa nhà câu lạc bộ golf Đồi Cù  vào diện theo dõi của BCĐ phòng, chống tham nhũng tiêu cực.
+- Chủ tịch nước đã quyết định truy tặng Huân chương Bảo vệ Tổ quốc hạng ba cho trung tá Trần Duy Hùng - phó trưởng công an phường ở Huế hy sinh trong lúc làm nhiệm vụ.
+- TP.HCM sẽ ban hành quy định buộc nhà ở riêng lẻ có mục đích cho thuê trọ phải bảo đảm diện tích tối thiểu (dự kiến 5m2 sàn/người) và an toàn phòng cháy.
+- Chủ biệt thự “đẹp nhất Cà Mau” cho hay không đủ 10 tỉ đóng tiền chuyển đổi mục đích sử dụng đất nên rao bán biệt thự này.
+- Lực lượng công an xã Mường Bú và huyện Mường La (Sơn La) giải cứu thành công 5 người dân bị mắc kẹt giữa dòng lũ.
+- Ngày 24-7, Chủ tịch nước Tô Lâm, Thường trực Ban Bí thư Lương Cường cùng đoàn đã đi kiểm tra công tác chuẩn bị lễ Quốc tang Tổng bí thư Nguyễn Phú Trọng.
 ![New](News.png)
 ## Nhịp sống số 
+- CrowdStrike thừa nhận sự cố sập hệ thống vi tính toàn cầu là do lỗi trong quá trình kiểm soát chất lượng các bản cập nhật phần mềm của công ty này.
+- Việc Google giữ cookie đồng nghĩa dữ liệu cá nhân của 3 tỉ người dùng Chrome vẫn đang bị các trang mạng theo dõi.
 - Thay vì loại bỏ cookie của bên thứ ba, Google sẽ giới thiệu trải nghiệm mới trên Chrome.
 - Trung tâm Giám sát an toàn không gian mạng quốc gia phát hiện thêm 68 website giả mạo thương hiệu của các cơ quan, tổ chức, ngân hàng để lừa đảo người dân.
 - Ngày 19-7, thế giới đã chứng kiến hàng loạt hệ thống mạng vận hành sân bay, bệnh viện, ngân hàng... ở khắp nơi bị tê liệt.
@@ -93,6 +95,4 @@
 - Người dùng có thể sử dụng công cụ ChatGPT trên các thiết bị iPhone, iPad, Macbook để tạo nội dung văn bản và hình ảnh mà không cần tải ứng dụng riêng.
 - Lần đầu tiên, một cuộc thi được dành riêng cho các tác phẩm ảnh và video dành cho lĩnh vực công nghệ.
 - Ngày 15-5, Công ty TNHH Sản phẩm công nghiệp Toshiba Asia đã tổ chức ngày hội đối tác kinh doanh ‘Business Partners Day 2024’ tại GEM Center, TP.HCM.
-- Sáng 4-6, hệ thống công nghệ thông tin của Tổng công ty Bưu điện Việt Nam (Vietnam Post) đã bị tấn công bất hợp pháp bằng mã độc tống tiền (ransomware).
-- Ngày 4-6-2024, các doanh nghiệp viễn thông và dịch vụ trung tâm dữ liệu hàng đầu khu vực đã công bố chính thức thành lập liên minh AseanConnect.One.
 ![life](Life.png)
