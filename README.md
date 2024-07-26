@@ -1,6 +1,12 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Nhiều thí sinh có kết quả học tập khá tốt đã chọn theo học nghề tại các trường cao đẳng, trung cấp.
+- Thời điểm thí sinh tham gia đăng ký nguyện vọng xét tuyển theo quy định, nhiều trường đại học, cao đẳng triển khai nhiều hoạt động tương tác để thí sinh tham gia tìm hiểu, tham quan, lắng nghe.
+- Ban tuyển sinh quân sự Bộ Quốc phòng thông báo điểm sàn nhận hồ sơ xét tuyển đại học, cao đẳng các trường quân đội năm 2024 dao động từ 14 - 24 điểm.
+- Bộ Công an vừa công bố ngưỡng điểm đảm bảo chất lượng đầu vào trình độ đại học và trung cấp của khối trường công an.
+- Trường đại học Nha Trang (tỉnh Khánh Hòa) nhập sai mức thu học phí tín chỉ của hàng chục sinh viên sắp tốt nghiệp. Sau khi phát hiện sai sót, trường yêu cầu sinh viên đóng thêm số tiền còn thiếu, có sinh viên phải đóng bổ sung đến hơn 15 triệu đồng.
+- Nhiều thí sinh chốt chọn nguyện vọng 1 tại Trường Đại học Công nghệ TP.HCM (HUTECH) để vừa trúng tuyển vừa sở hữu suất học bổng trị giá 50% học phí.
 - Nhiều học sinh TP.HCM dù đậu vào lớp 10 trường THPT công lập nhưng vẫn chọn học trường tư thục để dễ hiện thực hóa mục tiêu nghề nghiệp trong tương lai hơn.
 - Thi xong, Đức Mạnh cũng như nhiều bạn bè của mình không khỏi lo lắng: lo không làm được bài, lo điểm thấp… Nhưng hơn một tuần sau đó, bạn tỉnh táo gác lại những âu lo bởi biết mình vẫn còn những cơ hội khác.
 - Năm nay, ngành quan hệ công chúng của Trường đại học Khoa học xã hội và Nhân văn dẫn đầu điểm chuẩn phương thức xét kết hợp chứng chỉ tiếng Anh quốc tế với điểm thi tốt nghiệp THPT.
@@ -25,44 +31,38 @@
 - Nhiều chính sách đang thay đổi nhanh chóng tại các thị trường du học lớn khiến học sinh buộc phải lên kế hoạch và chuẩn bị hồ sơ du học từ sớm.
 - 6 giảng viên từ 3 trường đại học ở Thái Lan bị sa thải vì gian lận bài báo khoa học, đối mặt cáo buộc hình sự.
 - Thí sinh xét điểm thi tốt nghiệp THPT vào Học viện Ngoại giao năm nay bằng khối C (văn, sử, địa) phải có điểm sàn xét tuyển từ 23,5 điểm.
-- Chỉ còn 8 ngày nữa sẽ kết thúc thời hạn đăng ký nguyện vọng xét tuyển nhưng không ít thí sinh vẫn lúng túng, chưa chốt được ngành học.
-- 36 trường THPT công lập ở TP.HCM sẽ tuyển 2.203 học sinh trong đợt tuyển bổ sung, nộp hồ sơ trực tiếp tại trường từ ngày 22-7.
-- Thông báo về điểm chuẩn tuyển sinh lớp 10, có  nhiều trường quy định tiêu chí phụ xét thêm điểm trung bình lớp 9.
-- Ở tuổi 61, ông Kato Mitsuru, quốc tịch Nhật Bản, đăng ký học thạc sĩ khu vực học định hướng Việt Nam học, tại Trường đại học Việt Nhật và trở thành học viên "đặc biệt" nhất khóa VII.
-- Sinh viên được tiếp nhận vào ký túc xá Cỏ May sẽ được ở miễn phí, chu cấp tiền ăn hằng tháng và học phí.
-- Vốn có đam mê với bọ cánh cứng, bươm bướm, bạn Nguyễn Kim Long (sinh viên năm 3) đã mở cửa hàng trưng bày và dạy làm tiêu bản.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Một dự án bất động sản tại Đà Nẵng chưa đủ điều kiện nhưng đã rao bán rầm rộ trên mạng xã hội, thậm chí có một số trang còn giới thiệu đã phân phối thu về hàng trăm tỉ đồng.
-- Nhà ở riêng lẻ có mục đích cho thuê trọ ở TP.HCM sẽ được hỗ trợ vay vốn, giá điện nước để xây dựng, cải tạo thành nhà trọ an toàn, bảo đảm diện tích tối thiểu.
-- Từ sáng sớm 25-7, nhiều người dân đã về làng Lại Đà, xã Đông Hội, huyện Đông Anh, Hà Nội - quê hương Tổng bí thư Nguyễn Phú Trọng, để chuẩn bị vào viếng.
-- Sáng nay 25-7, Lễ Quốc tang Tổng bí thư Nguyễn Phú Trọng khu vực miền Nam diễn ra tại Hội trường Thống Nhất, TP.HCM.
-- Sáng nay 25-7, cờ rủ được kéo lên tại quảng trường Ba Đình (Hà Nội) cùng dải băng đen. Quốc tang Tổng bí thư Nguyễn Phú Trọng diễn ra trong 2 ngày.
-- Một số tin tức đáng chú ý: Kiểm kê đất đai cả nước từ ngày 1-8-2024; FLC bị cưỡng chế hơn 822 tỉ đồng tiền thuế; Nhân viên y tế công lập ở TP.HCM phải luân chuyển tuyến dưới...
-- Hôm nay, trong ngày đầu tiên lễ Quốc tang Tổng bí thư Nguyễn Phú Trọng, chúng ta cùng tưởng nhớ về một nhân cách lớn.
-- Hôm nay 25-7, mưa dông đã giảm ở Bắc Bộ, ban ngày trời nắng gián đoạn, có lúc mưa rào. Nam Bộ mưa tập trung về chiều tối.
-- Đang thực hiện nhiệm vụ gìn giữ hòa bình Liên Hiệp Quốc ở phái bộ Abyei, nghe tin Tổng bí thư Nguyễn Phú Trọng từ trần, cán bộ, chiến sĩ 'mũ nồi xanh' Việt Nam bày tỏ niềm tiếc thương vô hạn.
-- Sáng nay (25-7), lễ Quốc tang Tổng bí thư Nguyễn Phú Trọng được tổ chức tại Nhà tang lễ quốc gia số 5 Trần Thánh Tông, TP Hà Nội.
-- "Một người nhỏ bé, hiền lành, hòa nhã nhưng để lại cho đời một di sản đồ sộ đáng kính trọng", GS.TSKH Vũ Minh Giang nói.
-- Sáng nay 25-7, Lễ Quốc tang Tổng bí thư Nguyễn Phú Trọng được tổ chức tại Nhà tang lễ quốc gia, số 5 Trần Thánh Tông, thành phố Hà Nội.
-- Tổng bí thư Nguyễn Phú Trọng đã từ trần vào ngày 19-7-2024 tại Bệnh viện Trung ương Quân đội 108. Sổ tang điện tử sẽ là nơi bạn đọc thể hiện sự tiếc thương với nhà lãnh đạo lỗi lạc vì dân vì nước.
-- Chủ tịch nước Tô Lâm xúc động khi Cuba là một trong những nước đầu tiên thông báo cử đoàn tới chia buồn và dự lễ tang Tổng bí thư Nguyễn Phú Trọng.
-- Công ty cổ phần Đường sắt Hà Nội và Công ty cổ phần Đường sắt Sài Gòn đều có doanh thu hàng trăm tỉ nhưng lợi nhuận quý 2-2024 đạt được chỉ vài tỉ đồng.
-- Thủ tướng yêu cầu tỉnh Sơn La tổ chức kiểm tra, rà soát, đánh giá nguyên nhân sạt lở đất, ngập lụt tại thành phố Sơn La để có giải pháp khắc phục, hạn chế thiệt hại.
-- Từng trực tiếp tham gia biên tập hơn 20 cuốn sách của Tổng bí thư Nguyễn Phú Trọng, phó giám đốc, phó tổng biên tập Nhà xuất bản Chính trị Quốc gia Sự thật đã học được rất nhiều bài học vô giá.
-- Chủ tịch nước yêu cầu quan tâm đặc biệt, nhanh chóng hơn nữa đến thương binh, bệnh binh, người có công, tương xứng với sự phát triển của đất nước.
-- Trì hoãn chuyển tiền thi hành án với số tiền 158 tỉ đồng, Ngân hàng SHB chi nhánh Phú Nhuận (TP.HCM) đã bị lập biên bản vi phạm hành chính để xử phạt.
-- Từ kinh nghiệm quốc tế đến thực tiễn tại Việt Nam cho thấy việc tăng thuế thuốc lá không làm tăng buôn lậu thuốc lá.
-- Đất đắp cho cao tốc Biên Hòa - Vũng Tàu đã được gỡ khó khi chiều nay 24-7, các đơn vị liên quan đã đồng ý hướng khai thác.
-- Tại thời điểm này, công tác chuẩn bị lễ Quốc tang Tổng bí thư Nguyễn Phú Trọng đã cơ bản hoàn thành. TP.HCM công bố sổ tang điện tử để người dân chia sẻ tình cảm với Tổng bí thư Nguyễn Phú Trọng.
-- Ông Trần Duy Đông, thứ trưởng Bộ Kế hoạch và Đầu tư, được Ban Bí thư điều động, chỉ định giữ chức vụ phó bí thư Tỉnh ủy Vĩnh Phúc nhiệm kỳ 2020-2025.
-- Tổng giám đốc Liên doanh Việt - Nga Vietsovpetro cho biết sẽ xử lý nghiêm các cá nhân thuộc doanh nghiệp này nếu họ đi chơi golf trong giờ làm việc như phản ánh.
-- Lâm Đồng đưa vụ xây dựng trái phép Tòa nhà câu lạc bộ golf Đồi Cù  vào diện theo dõi của BCĐ phòng, chống tham nhũng tiêu cực.
-- Chủ tịch nước đã quyết định truy tặng Huân chương Bảo vệ Tổ quốc hạng ba cho trung tá Trần Duy Hùng - phó trưởng công an phường ở Huế hy sinh trong lúc làm nhiệm vụ.
-- TP.HCM sẽ ban hành quy định buộc nhà ở riêng lẻ có mục đích cho thuê trọ phải bảo đảm diện tích tối thiểu (dự kiến 5m2 sàn/người) và an toàn phòng cháy.
-- Chủ biệt thự “đẹp nhất Cà Mau” cho hay không đủ 10 tỉ đóng tiền chuyển đổi mục đích sử dụng đất nên rao bán biệt thự này.
-- Lực lượng công an xã Mường Bú và huyện Mường La (Sơn La) giải cứu thành công 5 người dân bị mắc kẹt giữa dòng lũ.
-- Ngày 24-7, Chủ tịch nước Tô Lâm, Thường trực Ban Bí thư Lương Cường cùng đoàn đã đi kiểm tra công tác chuẩn bị lễ Quốc tang Tổng bí thư Nguyễn Phú Trọng.
+- Sở Xây dựng TP.HCM vừa trình UBND TP đề cương quản lý, hỗ trợ nhà ở riêng lẻ có mục đích cho thuê trọ tại TP.HCM.
+- Sáng sớm 26-7, thêm vụ cháy xe điện xảy ra tại thành phố Hội An, Quảng Nam. Trong ít phút, 21 xe điện bị thiêu rụi.
+- Trong ngày có rất nhiều đoàn đại biểu các cơ quan Trung ương, bộ, ngành, tỉnh, thành phố, tổ chức, đơn vị... đã vào kính viếng Tổng Bí thư Nguyễn Phú Trọng.
+- Trong chuyến thăm và làm việc với huyện A Lưới (tỉnh Thừa Thiên Huế) vào năm 2014, Tổng Bí thư Nguyễn Phú Trọng đã chỉ đạo dành nguồn lực xây cho bà con nghèo ở xã Hồng Hạ hai công trình đặc biệt.
+- Sáng 25-7, lễ viếng Tổng Bí thư Nguyễn Phú Trọng đã được tổ chức theo nghi thức Quốc tang tại Nhà tang lễ quốc gia; quê nhà xã Đông Hội, huyện Đông Anh, TP Hà Nội và Hội trường Thống Nhất, TP.HCM.
+- Ngay trong ngày đầu tiên Quốc tang 25-7, lễ viếng Tổng Bí thư Nguyễn Phú Trọng tại Nhà tang lễ quốc gia ở Hà Nội đã chứng kiến nhiều khoảnh khắc xúc động đến từ các đoàn khách quốc tế.
+- Trong lúc đào giếng tưới cà phê, mối nối dây điện bị hở khiến hai thợ đào giếng bị điện giật tử vong tại chỗ.
+- Từ sáng sớm 26-7, hàng ngàn người dân xếp hàng chờ vào viếng Tổng Bí thư Nguyễn Phú Trọng tại Nhà tang lễ Quốc gia, Hà Nội và Hội trường Thống Nhất, TP.HCM.
+- Sinh thời, Tổng Bí thư Nguyễn Phú Trọng dành nhiều tình cảm, quan tâm văn nghệ sĩ cũng như chỉ đạo việc phát triển công nghiệp văn hóa ở Việt Nam.
+- Một số tin tức đáng chú ý: Giá bán lên gần 500 triệu đồng/m2, giao dịch nhà liền thổ TP.HCM 'ì ạch'; Lợi nhuận đại gia bất động sản tăng trở lại; Nhiều tổ chức nâng dự báo tăng trưởng GDP năm nay của Việt Nam...
+- Bạn nghĩ gì mỗi lần nhìn thấy các bạn trẻ, các bác hưu trí đi bóc gỡ các mẩu quảng cáo ở bờ tường, cột điện? Tôi thấy phẫn nộ thật sự những người dán quảng cáo kiểu này.
+- Hôm nay thời tiết Bắc Bộ giảm hẳn mưa vào ban ngày, nhiều nơi có nắng nóng, chiều tối mưa rào, Nam Bộ trời nhiều mây, mưa rào tới mưa to.
+- Mưa lớn kèm theo lốc xoáy khiến hàng loạt trụ điện dọc đường ĐT 741 ngã đổ xuống đường gây mất điện diện rộng.
+- Bé trai 3 tuổi từ trường mầm non tư thục ở Khánh Hòa về nhà thì lên cơn co giật, nôn ói được gia đình đưa vào bệnh viện cấp cứu, sau đó được chuyển vào điều trị tại Bệnh viện Nhi đồng TP.HCM nhưng tiên lượng rất nặng.
+- Trời Hà Nội đang nắng bỏng rát bỗng chốc đổ cơn mưa lớn, lực lượng tình nguyện viên thủ đô vẫn bám các nút giao, hỗ trợ phân luồng và phục vụ nhân dân vào viếng Tổng Bí thư Nguyễn Phú Trọng.
+- Đang đi giao hàng qua cầu Thạch Bích, TP Quảng Ngãi, thấy một phụ nữ dừng xe nhảy xuống sông Trà Khúc tự tử, không chút do dự, chàng shipper cũng dừng xe nhảy theo, cố hết sức cứu người.
+- Dự án đường liên tuyến kết nối vùng N8-787B-789 được phê duyệt đầu tư năm 2021 với tổng vốn 3.416 tỉ đồng. Hiện Tây Ninh đang nỗ lực đưa dự án về đích, giúp người dân đi lại thuận lợi hơn.
+- Liên quan việc Tòa án nhân dân tỉnh Đồng Nai có quyết định mở thủ tục phá sản, Công ty LDG đã thông tin về vụ việc và khẳng định đang đề nghị tòa xem xét hủy bỏ quyết định này.
+- Trận lũ sáng 24-7 tràn về xã Tông Cọ (Thuận Châu, Sơn La) quá nhanh, người dân dỡ nóc nhà leo lên mái chờ cứu.
+- Trong ngày Quốc tang, hàng ngàn người dân từ khắp mọi miền Tổ quốc đã về Hà Nội để viếng Tổng Bí thư Nguyễn Phú Trọng; cờ rủ được treo khắp nơi, màn hình LED chiếu tư liệu về Tổng Bí thư để tưởng nhớ những đóng góp to lớn của ông cho đất nước.
+- Cơ quan chức năng vừa có buổi kiểm tra quán ăn tại xã Vạn Thắng (huyện Vạn Ninh, Khánh Hòa) bị khách tố “chặt chém”, nhưng trong ngày kiểm tra chủ cơ sở vắng mặt.
+- Tại cuộc gặp Chủ tịch nước Tô Lâm, Chủ tịch Đảng Nhân dân Campuchia, Chủ tịch Thượng viện Campuchia Hun Sen khẳng định nước này sẽ luôn giữ gìn và vun đắp mối quan hệ hai bên ngày càng phát triển.
+- Liên quan vụ hơn 60 công nhân nhập viện nghi ngộ độc sau bữa cơm trưa, Sở Y tế Bình Phước đề nghị tạm đình chỉ cơ sở bán suất ăn cho công nhân.
+- Trong tương lai, TP Cam Ranh (tỉnh Khánh Hòa) sẽ là trung tâm kinh tế, văn hóa, giáo dục, khoa học kỹ thuật của khu vực phía nam tỉnh Khánh Hòa và là đô thị du lịch - logistics của khu vực này.
+- Trường đại học Nha Trang (tỉnh Khánh Hòa) nhập sai mức thu học phí tín chỉ của hàng chục sinh viên sắp tốt nghiệp. Sau khi phát hiện sai sót, trường yêu cầu sinh viên đóng thêm số tiền còn thiếu, có sinh viên phải đóng bổ sung đến hơn 15 triệu đồng.
+- Ba cầu trên đường tỉnh 827E qua sông Cần Giuộc, sông Vàm Cỏ Đông, sông Vàm Cỏ Tây sẽ hình thành tuyến đường xuyên suốt từ TP.HCM qua Long An đến Tiền Giang.
+- Dự án cao tốc Cần Thơ - Cà Mau có chiều dài tuyến chính hơn 110km qua địa bàn 5 tỉnh và thành phố, với tổng mức đầu tư hơn 27.500 tỉ đồng đang dần hình thành và dự kiến hoàn thành vào cuối năm tới.
+- Khán phòng nơi viết sổ tang Tổng Bí thư Nguyễn Phú Trọng có nhiều người trẻ lưu lại, xúc động ghi chia sẻ với người lãnh đạo đáng kính, "thần tượng" như một số bạn ghi trong sổ tang. Có thời điểm 24 bàn ghi sổ tang đều là các bạn trẻ cặm cụi viết.
+- Sau nhiều ngày nghị án, Tòa án nhân dân tỉnh An Giang tuyên phạt hai cựu phó chủ tịch UBND huyện Chợ Mới cùng mức án 11 năm tù về tội tham ô tài sản.
+- Dự báo những ngày cuối tháng 7, ở miền Bắc sẽ xuất hiện một đợt mưa vừa, mưa to trên diện rộng.
 ![New](News.png)
 ## Nhịp sống số 
 - CrowdStrike thừa nhận sự cố sập hệ thống vi tính toàn cầu là do lỗi trong quá trình kiểm soát chất lượng các bản cập nhật phần mềm của công ty này.
