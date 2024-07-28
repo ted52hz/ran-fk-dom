@@ -1,6 +1,10 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Với 100% học sinh dự thi đoạt huy chương, đoàn Việt Nam nằm trong nhóm các nước có kết quả cao nhất tại kỳ thi Olympic vật lý quốc tế 2024.
+- Bộ Giáo dục và Đào tạo vừa có thông báo giao chỉ tiêu thêm 6 ngành sư phạm, tăng chỉ tiêu 9 ngành sư phạm khác cho Trường đại học Sài Gòn.
+- Theo dự báo của các chuyên gia, điểm chuẩn đại học phương thức xét điểm thi tốt nghiệp THPT năm 2024 sẽ tăng nhẹ hoặc giữ nguyên so với năm ngoái.
+- Cụm từ tiếng Anh "technology vehicles" sân bay Tân Sơn Nhất dịch là "xe công nghệ" gây khó hiểu. Tại sao?
 - Với những bạn trẻ, đại học không chỉ có giảng đường đào tạo kiến thức hay kỹ năng nghề nghiệp mà phải có một chân trời rực rỡ - nơi có đa dạng hoạt động ngoại khóa hấp dẫn để thả mình và phát triển kỹ năng.
 - Từ năm học 2024 - 2025, trường này sẽ cấp học bổng toàn phần đối với sinh viên là con, cháu (cả cháu nội và cháu ngoại) của thương binh, liệt sĩ các thời kỳ.
 - Công an quận 1, TP.HCM vừa ra quyết định bắt tạm giam cựu kế toán Trường THPT Ernst Thälmann (quận 1, TP.HCM) về hành vi lừa đảo chiếm đoạt tài sản.
@@ -27,42 +31,38 @@
 - Năm học 2022-2023, Trường đại học Thủ Dầu Một (Bình Dương) có doanh thu gần 400 tỉ đồng, là một trong số ít trường đại học trực thuộc UBND tỉnh sớm tự chủ tài chính.
 - Một trong số giáo viên bị cáo buộc đã biên soạn đề thi tuyển sinh đại học và bán cho một trường luyện thi tư thục với giá khoảng 250 triệu won (180.151 USD) trong suốt 4 năm.
 - Trường đại học Nguyễn Tất Thành vừa có thông tin chính thức về việc cách chức TS Võ Nguyễn Đại Việt và cho rút khỏi hội đồng khoa học và đào tạo nhà trường.
-- Trường đại học Kinh tế quốc dân vừa công bố điểm chuẩn xét tuyển kết hợp chứng chỉ tiếng Anh quốc tế với điểm thi tốt nghiệp THPT.
-- Bằng tất cả lòng biết ơn, sự kính trọng, bức chân dung Tổng bí thư Nguyễn Phú Trọng được vẽ bằng phấn màu của thầy giáo ở Hà Tĩnh đã gây xúc động cho người xem.
-- Học sinh ở đảo Cù Lao Xanh sẽ được hỗ trợ tiền học phí, tiền ăn, tiền thuê trọ, chi phí học tập và tiền đò khi đi học tại Quy Nhơn.
-- Sở Giáo dục và Đào tạo tỉnh Khánh Hòa vừa có thông báo bổ sung về điểm chuẩn tuyển sinh lớp 10 năm học 2024-2025.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Sau trận lũ quét kinh hoàng vào đêm 24 và rạng sáng 25-7, người dân xã Mường Pồn, huyện Điện Biên (tỉnh Điện Biên) chưa hết bàng hoàng.
-- Công an tỉnh Thái Nguyên xử phạt chị Nguyễn Thị N., người tung tin đồn cô gái lây HIV cho nhiều nam giới tại Khu công nghiệp Samsung Thái Nguyên.
-- Lạc nội mạc tử cung gây ảnh hưởng rất lớn đến chất lượng cuộc sống của phụ nữ trong độ tuổi sinh đẻ, cũng như khả năng làm mẹ.
-- Tròn 70 năm kể từ chiến thắng Đak Pơ, nơi chôn cất 147 liệt sĩ Trung đoàn 96 sau trận đánh bi hùng tới nay vẫn còn là bí ẩn trong nỗi đau khôn nguôi của gia đình và đồng đội.
-- Những ngày tháng 7, trời biên giới đang nắng bỏng rát bỗng chốc mưa ào ào trút xuống. Bất kể trời nắng hay mưa, đêm hay ngày, những người lính biên phòng vẫn cần mẫn, thầm lặng canh giấc ngủ cho các anh hùng liệt sĩ.
-- Quán cơm Bắc Trung Nam (nằm trên quốc lộ 1, xã Vạn Thắng, huyện Vạn Ninh, Khánh Hòa) bị khách tố 'chặt chém' đã bị cơ quan chức năng xử phạt 1,5 triệu đồng.
-- Kết quả phân tích mẫu nước có một số thông số vượt quy chuẩn cho phép là một trong các nguồn đã làm ô nhiễm nguồn nước mặt khe suối, khiến cá suối chết ở huyện Quỳ Hợp, tỉnh Nghệ An.
-- Tin tức đáng chú ý: Phó thủ tướng Trần Lưu Quang vừa ký ban hành kế hoạch kiểm soát quyền lực, phòng chống tham nhũng trong điều tra, truy tố, xét xử; Sẽ tổng rà soát các "điểm đen", "điểm tiềm ẩn" tai nạn giao thông...
-- Ngày 26-7, gia đình, lãnh đạo Đảng, Nhà nước, bạn bè quốc tế, nhân dân đã tiễn đưa linh cữu Tổng Bí thư Nguyễn Phú Trọng về với đất mẹ tại nghĩa trang Mai Dịch (Hà Nội).
-- Hôm nay 27-7, thời tiết Bắc Bộ và Trung Bộ nắng nóng gay gắt, còn Nam Bộ, Tây Nguyên mưa rào đến mưa to về chiều tối.
-- Số hóa bia mộ liệt sĩ nghĩa trang liệt sĩ TP.HCM (giai đoạn 2) và thu thập, số hóa thông tin chiến sĩ TP.HCM tại các nghĩa trang liệt sĩ trong cả nước là công trình từ tấm lòng tri ân thế hệ cha anh.
-- Đến thăm bà Bùi Thị Vân (75 tuổi), người hoạt động kháng chiến bị nhiễm chất độc hóa học, Chủ tịch UBND TP.HCM Phan Văn Mãi ân cần thăm hỏi sức khỏe, gửi lời động viên và kính chúc bà luôn sống vui khỏe, mãi là tấm gương cho thế hệ sau.
-- Nhiều người bày tỏ sự kính trọng, khâm phục với Phu nhân Ngô Thị Mận và các thành viên gia đình trong hai ngày diễn ra lễ Quốc tang Tổng Bí thư Nguyễn Phú Trọng.
-- Hành khách Nguyễn Thanh Ph. bị Cục Hàng không Việt Nam cấm bay một năm vì tung tin có lựu đạn trong vali khiến chuyến bay từ Đà Nẵng đi TP.HCM bị chậm 50 phút.
-- Bộ trưởng Bộ Công an Lương Tam Quang đã có thư khen Cục An ninh mạng và phòng chống tội phạm sử dụng công nghệ cao, Công an tỉnh Phú Yên triệt phá đường dây cá độ bóng đá qua mạng 1.000 tỉ đồng.
-- Tuổi Trẻ Online xin được chia sẻ những khoảnh khắc đầy cảm xúc trong hai ngày Quốc tang Tổng Bí thư Nguyễn Phú Trọng (25 và 26-7).
-- Huyện Hóc Môn (TP.HCM) dự kiến có bảng giá đất tăng cao nhất (gấp 50 lần) so với giá hiện tại kể từ ngày 1-8. Một người dân sốc khi dự kiến phải đóng đến 17 tỉ đồng để làm sổ.
-- Dự báo từ 28 đến 31-7, ở miền Bắc xảy ra một đợt mưa lớn, có nơi mưa trên 250mm, nguy cơ xảy ra lũ quét, sạt lở đất và ngập lụt.
-- Một căn nhà bị sập và tám căn nhà của người dân ở xã Vĩnh Trạch, thành phố Bạc Liêu bị tốc mái do mưa lớn kém lốc xoáy vào sáng cùng ngày.
-- Chia sẻ về việc đuổi theo chiếc xe máy để cứu bé trai 2 tuổi tím tái, ngưng thở vì đuối nước, bác sĩ Nhân Hậu nói rằng đó là thiên chức cao quý của những người thầy thuốc.
-- Sau khoảng 30 phút khởi hành, tàu cao tốc Phú Quốc Express 9 chạy đến khu vực vùng biển huyện Kiên Hải (Kiên Giang) bị vướng rác vào chân vịt nên đã phải quay lại đất liền.
-- Ban Lễ tang Nhà nước và gia đình trân trọng cảm ơn tình cảm đặc biệt của đồng bào, đồng chí, chiến sĩ cả nước, đồng bào ta ở nước ngoài và bạn bè quốc tế đối với Tổng Bí thư Nguyễn Phú Trọng.
-- Quảng Ngãi đã hoàn thành giải phóng mặt bằng 100%, bàn giao cho đơn vị thi công, giờ phải gỡ vướng đường điện, cáp viễn thông để đẩy tiến độ thi công cao tốc Quảng Ngãi - Hoài Nhơn.
-- Không phân loại rác sinh hoạt, không sử dụng bao bì chứa chất thải rắn sinh hoạt sẽ bị xử phạt từ 500.000 đến 1 triệu đồng.
-- Sau cuộc đối thoại của bí thư và chủ tịch tỉnh Quảng Nam, 2 doanh nghiệp là Công ty CP đầu tư Hoàng Nhất Nam (Đà Nẵng) và Công ty CP Bách Đạt An trong vụ tranh chấp bất động sản lớn nhất miền Trung đã đàm phán.
-- Theo các chuyên gia và sở ngành, việc mở cửa cho các doanh nghiệp tham gia xe buýt hai tầng sẽ tạo điều kiện cạnh tranh, nâng cao chất lượng.
-- Lời điếu do Chủ tịch nước Tô Lâm - Ủy viên Bộ Chính trị, Trưởng Ban Lễ tang - đọc tại Lễ Truy điệu Tổng Bí thư Nguyễn Phú Trọng ngày 26-7.
-- 'Tôi đưa con đến đây với mong muốn con biết rằng khi sống trong một đất nước, mình cần có sự đóng góp cho xã hội và Tổng Bí thư Nguyễn Phú Trọng là một tấm gương sáng ngời để thế hệ trẻ noi gương'.
-- Sáng 26-7, UBND TP Đà Nẵng tổ chức diễn tập ứng phó sự cố bức xạ, sự cố hạt nhân cấp thành phố tại Trung tâm Nghiên cứu và triển khai công nghệ bức xạ Vinagamma Đà Nẵng.
-- Công an huyện Đắk Mil (Đắk Nông) đã tạm giữ tài xế xe container lao vào nhà dân khiến ba người tử vong.
+- Theo Luật Nhà ở (có hiệu lực từ 1-8), đã có thêm chủ thể tham gia xây dựng nhà ở, đó là Tổng liên đoàn Lao động Việt Nam.
+- Với 6 làn xe và dài khoảng 3km, đường trục chính Đông Tây kết nối tỉnh Bình Dương với bến xe miền Đông mới (Thủ Đức) đã hoàn thiện cơ bản.
+- Một số tin tức đáng chú ý: Triển khai thu nhận mẫu ADN thân nhân anh hùng, liệt sĩ; Khung giờ bắt buộc bật đèn xe theo luật mới; Giá nhà liền thổ ở Hà Nội tăng mạnh...
+- Hôm nay 28-7, thời tiết Bắc Bộ và Trung Bộ ngày nắng, từ chiều tối nay Bắc Bộ bắt đầu mưa. Nam Bộ trời nhiều mây, mưa rào từ chiều tối.
+- Ngoại trưởng Mỹ Antony Blinken đã chuyển đến Chủ tịch nước Tô Lâm lá thư chia buồn của Tổng thống Joe Biden trước sự ra đi của Tổng Bí thư Nguyễn Phú Trọng.
+- Tối 27-7, sau khi tới Việt Nam, Ngoại trưởng Mỹ Antony Blinken đã đến nhà công vụ số 5 Thiền Quang (Hà Nội) để thắp hương và chia buồn với gia đình Tổng Bí thư Nguyễn Phú Trọng.
+- Tại Lễ kỷ niệm 120 năm ngày sinh Mẹ Việt Nam anh hùng Nguyễn Thị Thứ, chủ tịch UBND tỉnh Quảng Nam đã xúc động đọc tên 12 liệt sĩ là con, cháu của Mẹ.
+- Phó thủ tướng Trần Hồng Hà ký quyết định số 11 của Thủ tướng về tiêu chuẩn diện tích và định mức trang thiết bị nội thất nhà ở công vụ.
+- Nhà cửa, ruộng đồng tan hoang vì lũ quét, hàng trăm người dân Mường Pồn (Điện Biên) chật vật lo miếng ăn, sống nhờ hàng cứu trợ.
+- Tuổi Trẻ trân trọng giới thiệu bài viết của Ủy viên Bộ Chính trị, Thủ tướng Chính phủ Phạm Minh Chính: 'Đất nước ta chưa bao giờ có được cơ đồ tiềm lực, vị thế và uy tín quốc tế như ngày nay'.
+- Tỉnh Quảng Ngãi đã khuyết chức danh chủ tịch UBND gần 5 tháng nay.
+- Quá trình thi công cống thoát nước chống ngập khiến nhiều nhà dân bị ảnh hưởng, sụt lún, nứt tường, bong tróc nền nhà.
+- Thủ tướng Phạm Minh Chính nhấn mạnh Chính phủ sẽ tiếp tục quan tâm để nâng cao đời sống vật chất, tinh thần của người có công.
+- Hai nam thanh niên người Pháp và New Zealand bị Công an quận 1, TP.HCM phát hiện vẽ bậy đã bị xử phạt vi phạm hành chính và trục xuất khỏi Việt Nam.
+- Người dân ở xã Thổ Sơn (huyện Hòn Đất, Kiên Giang) lo vì bờ đê nuôi tôm cua bị xói mòn, sạt lở dù đã có kè chắn sóng.
+- Sau nhiều vụ cây xanh ngã đổ đè người đi đường, lãnh đạo UBND tỉnh Bạc Liêu yêu cầu rà soát nhằm đề phòng sự cố tương tự trong mùa mưa bão.
+- Sau thời gian tạm hoãn, chương trình bế mạc Lễ hội Vịnh ánh sáng quốc tế Nha Trang 2024 với phần thi drone của hai đội Pháp - UAE sẽ diễn ra tối 3-8.
+- Đó là thông tin được tiết lộ tại Hội nghị quốc tế về phẫu thuật cột sống ít xâm lấn khu vực Đông Nam Á lần thứ 9, diễn ra từ ngày 25 đến 27-7 tại TP Đà Nẵng.
+- Chiều 27-7, mạng xã hội lan truyền clip tài xế xe buýt xô xát với một nhóm người đi ô tô và bị đánh gãy răng. Sự việc xảy ra tại TP.HCM.
+- Mực nước lũ đầu nguồn vùng ĐBSCL cao hơn cùng kỳ năm 2023. Cá linh non đầu mùa lũ về, có giá 300.000 đồng/kg.
+- Sơ bộ tổng mức đầu tư dự án đường cao tốc Mỹ Thuận - Cần Thơ sẽ tăng từ 4.827 tỉ đồng lên 5.826 tỉ đồng, tăng gần 999 tỉ đồng khi bổ sung nút giao và đường gom.
+- Công nhân chui vào hộp dầm, làm việc trong thời tiết ngột ngạt, không gian chật hẹp. Ai cũng vã mồ hôi khi sửa chữa cầu Trà Khúc 2.
+- 'Ông lớn' taxi Ánh Dương (Vinasun) mua dàn xe mới nhưng chưa phát huy hiệu quả, lợi nhuận giảm do 'hỗ trợ anh em tài xế'.
+- Phái đoàn đại diện tổng thống Mỹ do Ngoại trưởng Antony Blinken dẫn đầu đến Việt Nam trong ngày 27-7 để bày tỏ lòng tôn kính trước sự ra đi của Tổng Bí thư Nguyễn Phú Trọng.
+- Dự Luật Chuyển đổi giới tính đề xuất người chuyển giới sẽ nghỉ hưu ở tuổi 55, và chuyển từ nữ sang nam nếu mang thai được hưởng chế độ thai sản như lao động nữ.
+- Ngân hàng thực phẩm Việt Nam phối hợp cùng Hội Chữ thập đỏ tỉnh Vĩnh Long ra mắt ngân hàng thực phẩm hỗ trợ người yếu thế thứ 3 tại miền Tây.
+- Tình trạng người dân chăn thả bò hai bên cao tốc Vĩnh Hảo - Phan Thiết, tỉnh Bình Thuận vẫn nhức nhối, gây nguy hiểm cho tài xế chạy qua đây.
+- Nằm ở vị trí giao đường vào cảng Cát Lái và Võ Chí Công (TP Thủ Đức), vòng xoay Mỹ Thủy là điểm đen giao thông tồn tại dai dẳng cả chục năm.
+- Hơn 200kg ma túy được một nghi phạm người Lào vận chuyển đến tập kết tại khu vực giáp huyện Hương Sơn (Hà Tĩnh) thì bị lực lượng chức năng bắt giữ.
+- Cơn mưa lớn khiến cát đỏ tràn xuống, gây chia cắt đường Nguyễn Thông - một trong những đường hướng từ TP Phan Thiết đến các resort Hàm Tiến - Mũi Né…
 ![New](News.png)
 ## Nhịp sống số 
 - Gần một tuần sau sự cố sập mạng toàn cầu, CrowdStrike cho biết 97% máy tính sử dụng hệ điều hành Windows bị ảnh hưởng đã hoạt động trở lại.
