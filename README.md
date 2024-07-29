@@ -1,6 +1,17 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Sau khi chốt thứ tự nguyện vọng trên cổng thông tin của Bộ Giáo dục và Đào tạo vào ngày 30-7, thí sinh có thể tiếp tục đăng ký xét tuyển học bạ đợt 4 tại HUFLIT đến hết ngày 10-8.
+- Với phương thức xét kết hợp điểm thi tốt nghiệp THPT với chứng chỉ tiếng Anh quốc tế, thí sinh phải có IELTS từ 8.0 trở lên mới trúng tuyển sớm ngành y khoa của Trường đại học Y Dược, Đại học Quốc gia Hà Nội.
+- Lễ khai mạc Hội khỏe Phù Đổng toàn quốc lần thứ X năm 2024 với chủ đề “Sức trẻ Phù Đổng - Vững bước tương lai” diễn ra tối 28-7 tại sân vận động Lạch Tray, TP Hải Phòng.
+- Thấy người dân chưa có nhiều cơ hội để tiếp cận kiến thức về sơ cấp cứu ban đầu, nhóm sinh viên lớp cấp cứu ngoại viện (Trường đại học Y khoa Phạm Ngọc Thạch) đã biên soạn cuốn cẩm nang sơ cấp cứu gửi tặng miễn phí cho cộng đồng.
+- Từ hàng trăm sinh viên đăng ký, cuộc thi sẽ tìm ra 10 thí sinh bước vào vòng chung kết để giành lấy những giải thưởng hấp dẫn.
+- Ý tưởng khởi nghiệp sản xuất và phân phối các sản phẩm gắn với giá trị truyền thống như tre, nước mắm và cả bẹ chuối gây ấn tượng mạnh.
+- Những video trên mạng tư vấn 'học đại học mất thời gian' hay 'bằng đại học là vô dụng' để lại hệ lụy đáng lo ngại cho giới trẻ.
+- Clip học sinh lớp 12A Trường THPT Ninh Thạnh Lợi (huyện Hồng Dân, tỉnh Bạc Liêu) thể hiện ước mơ của mình được chia sẻ nhiều trên mạng xã hội.
+- Bộ Giáo dục và Đào tạo chia thí sinh 63 địa phương thành 6 nhóm nộp lệ phí xét tuyển. Mỗi nhóm nộp lệ phí trong 1 ngày.
+- Dù chưa kết thúc xét tuyển, nhiều trường đại học đã mời thí sinh đóng tiền giữ chỗ học bổng, đến trường xác nhận nhập học...
+- Môi trường giáo dục quốc tế tuân theo các tiêu chuẩn quốc tế về chất lượng, chương trình đào tạo, phương pháp giảng dạy, đội ngũ giảng viên, cơ sở vật chất, trải nghiệm người học.
 - Với 100% học sinh dự thi đoạt huy chương, đoàn Việt Nam nằm trong nhóm các nước có kết quả cao nhất tại kỳ thi Olympic vật lý quốc tế 2024.
 - Bộ Giáo dục và Đào tạo vừa có thông báo giao chỉ tiêu thêm 6 ngành sư phạm, tăng chỉ tiêu 9 ngành sư phạm khác cho Trường đại học Sài Gòn.
 - Theo dự báo của các chuyên gia, điểm chuẩn đại học phương thức xét điểm thi tốt nghiệp THPT năm 2024 sẽ tăng nhẹ hoặc giữ nguyên so với năm ngoái.
@@ -20,19 +31,30 @@
 - Thi xong, Đức Mạnh cũng như nhiều bạn bè của mình không khỏi lo lắng: lo không làm được bài, lo điểm thấp… Nhưng hơn một tuần sau đó, bạn tỉnh táo gác lại những âu lo bởi biết mình vẫn còn những cơ hội khác.
 - Năm nay, ngành quan hệ công chúng của Trường đại học Khoa học xã hội và Nhân văn dẫn đầu điểm chuẩn phương thức xét kết hợp chứng chỉ tiếng Anh quốc tế với điểm thi tốt nghiệp THPT.
 - Đều đặn mỗi sáng trong hè, chùa Lập Thạch bên bờ sông Thạch Hãn rộn tiếng cười nói của học trò các lớp học hè từ lớp 1 đến lớp 9, vừa học chữ vừa rèn đạo đức.
-- Viện trưởng Viện Nghiên cứu kinh tế nhịp cầu tri thức vừa có thông tin chính thức về việc miễn nhiệm các chức vụ của TS Bạch Quang Vũ tại viện này.
-- Trong số 265 thành viên các hội đồng giáo sư ngành, liên ngành năm 2024 của Hội đồng Giáo sư nhà nước có 4 nhà khoa học 8X.
-- Nhiều thí sinh tá hỏa vì không thấy các mã trường cao đẳng ở đâu.
-- Có trường đại học công bố điểm sàn từ 14 điểm, có trường điểm sàn cao nhất 24,5. Chưa tới 5 điểm/môn thí sinh đã có thể xét tuyển vào nhóm ngành "hot" của một số trường đại học.
-- Với nhiệt huyết dành cho việc bảo tồn đa dạng sinh học, ThS Huỳnh Ngọc Thái Anh và cộng sự đã nghiên cứu ứng dụng trí tuệ nhân tạo để nhận dạng loài chim quý hiếm tại rừng ngập mặn Cần Giờ (TP.HCM).
-- Chỉ tiêu khối ngành sư phạm ở hàng loạt trường đại học bị cắt giảm mạnh. Có ngành bị cắt đến 90% chỉ tiêu so với đăng ký của trường.
-- Trường đại học Y khoa Phạm Ngọc Thạch (TP.HCM) công bố điểm sàn xét tuyển đại học hệ chính quy năm 2024 với 4 mức điểm.
-- Thí sinh trúng tuyển vào nhóm ngành sư phạm toán và khoa học tự nhiên, sư phạm ngữ văn, lịch sử, địa lý, phải có chứng chỉ IELTS 7.5 và tổng điểm 2 môn trong tổ hợp xét tuyển đạt từ 14 điểm trở lên.
-- Năm học 2022-2023, Trường đại học Thủ Dầu Một (Bình Dương) có doanh thu gần 400 tỉ đồng, là một trong số ít trường đại học trực thuộc UBND tỉnh sớm tự chủ tài chính.
-- Một trong số giáo viên bị cáo buộc đã biên soạn đề thi tuyển sinh đại học và bán cho một trường luyện thi tư thục với giá khoảng 250 triệu won (180.151 USD) trong suốt 4 năm.
-- Trường đại học Nguyễn Tất Thành vừa có thông tin chính thức về việc cách chức TS Võ Nguyễn Đại Việt và cho rút khỏi hội đồng khoa học và đào tạo nhà trường.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Sau 21 trận động đất xảy ở huyện Kon Plông trong ngày 28-7, dự báo động đất ở Kon Tum vẫn sẽ tiếp diễn, nhưng khó có khả năng hơn 5,5 độ.
+- Một số tin tức đáng chú ý: Cảnh báo lũ trên sông Đồng Nai và La Ngà; Giá giống sầu riêng tăng gấp đôi; Ca mắc sốt xuất huyết tại Hà Nội, TP.HCM tăng...
+- Hôm nay 29-7, thời tiết Bắc Bộ và Nam Bộ tiếp tục mưa rào đến mưa to. Trung Bộ ngày nắng nóng, chiều tối mưa rào.
+- Xe bán tải băng ngang đường ray khi gác chắn đã đóng trong lúc tàu hỏa đang lao tới. Vụ tai nạn làm 2 người chết, 3 người bị thương.
+- Trong 1 ngày có 13 trận động đất liên tiếp xảy ra tại huyện Kon Plông, tỉnh Kon Tum khiến người dân rất lo sợ sạt lở, sập nhà khi khu vực đang vào mùa mưa.
+- Theo Viện Vật lý địa cầu, tính từ trưa tới 20h tối nay, khu vực huyện Kon Plông, Kon Tum đã hứng chịu 13 trận động đất.
+- Vết nứt dài khoảng 20m xuất hiện trên mặt đường đèo Prenn Đà Lạt sau đợt mưa kéo dài và đang tiếp tục lan rộng.
+- Theo chuyên gia Viện Vật lý địa cầu, nguyên nhân gây ra trận động đất mạnh 5 độ ở Kon Plông, Kon Tum trưa 28-7 là do động đất kích thích - từ hoạt động của con người mà ra.
+- Do bị chủ nhà bắt dọn bãi nôn nên Bình đã cự cãi rồi dùng dao đâm chết bạn nhậu.
+- Trường học và trạm y tế tại huyện Kon Plông, tỉnh Kon Tum, bị nứt tường sau khi hứng chịu liên tiếp những trận động đất trong sáng 28-7.
+- Tàu SE11 di chuyển từ ga Lăng Cô (Thừa Thiên Huế) vào ga Đà Nẵng thì bị trật bánh ở hai toa, làm đường sắt Bắc - Nam tạm thời tê liệt.
+- Bảng giá đất tại TP.HCM sau ngày 1-8 dự kiến tăng phổ biến từ 10-30 lần so với hiện tại. Người dân phải nộp tiền sử dụng đất ra sao?
+- Chuyện một doanh nghiệp kiến nghị TP.HCM cân nhắc không mở thêm tuyến xe buýt hai tầng, theo nhiều bạn đọc là không hợp lý. Tại sao?
+- Lãnh đạo UBND huyện Kon Plông, tỉnh Kon Tum, nói đang chỉ đạo các xã rà soát kiểm tra thiệt hại sau trận động đất 5 độ trưa cùng ngày.
+- Ý tưởng khởi nghiệp sản xuất và phân phối các sản phẩm gắn với giá trị truyền thống như tre, nước mắm và cả bẹ chuối gây ấn tượng mạnh.
+- Động đất xảy ra ở Kon Tum song nguời dân ở Quảng Nam, Đà Nẵng và Huế cảm nhận được rung lắc mạnh, có người bỏ chạy ra đường
+- Tổng Liên đoàn Lao động Việt Nam tổ chức lễ trao Giải thưởng Nguyễn Văn Linh cho 10 cán bộ công đoàn có thành tích xuất sắc tiêu biểu.
+- Những khu đất nằm trong quy hoạch ở phường Hóa An, Biên Hòa (Đồng Nai) đã bị một số cá nhân rao bán, thu tiền tỉ.
+- Tuần này thời tiết Bắc Bộ sẽ có đợt mưa to vào đầu tuần, Nam Bộ duy trì mưa rào về chiều tối, Trung Bộ  nắng nóng.
+- Dự thảo thông tư quy định quy trình tuần tra, kiểm soát, xử lý vi phạm hành chính về trật tự, an toàn giao thông đường bộ của cảnh sát giao thông.
+- Giá cả hàng hóa, chi phí liên tục tăng trong khi mức giảm trừ gia cảnh bốn năm qua vẫn "đứng yên một chỗ".
+- Người dân kêu giá cả tăng ảnh hưởng đến cuộc sống, do vậy cần tăng mức giảm trừ gia cảnh để giảm thuế thu nhập cá nhân phải nộp.
 - Theo Luật Nhà ở (có hiệu lực từ 1-8), đã có thêm chủ thể tham gia xây dựng nhà ở, đó là Tổng liên đoàn Lao động Việt Nam.
 - Với 6 làn xe và dài khoảng 3km, đường trục chính Đông Tây kết nối tỉnh Bình Dương với bến xe miền Đông mới (Thủ Đức) đã hoàn thiện cơ bản.
 - Một số tin tức đáng chú ý: Triển khai thu nhận mẫu ADN thân nhân anh hùng, liệt sĩ; Khung giờ bắt buộc bật đèn xe theo luật mới; Giá nhà liền thổ ở Hà Nội tăng mạnh...
@@ -41,28 +63,6 @@
 - Tối 27-7, sau khi tới Việt Nam, Ngoại trưởng Mỹ Antony Blinken đã đến nhà công vụ số 5 Thiền Quang (Hà Nội) để thắp hương và chia buồn với gia đình Tổng Bí thư Nguyễn Phú Trọng.
 - Tại Lễ kỷ niệm 120 năm ngày sinh Mẹ Việt Nam anh hùng Nguyễn Thị Thứ, chủ tịch UBND tỉnh Quảng Nam đã xúc động đọc tên 12 liệt sĩ là con, cháu của Mẹ.
 - Phó thủ tướng Trần Hồng Hà ký quyết định số 11 của Thủ tướng về tiêu chuẩn diện tích và định mức trang thiết bị nội thất nhà ở công vụ.
-- Nhà cửa, ruộng đồng tan hoang vì lũ quét, hàng trăm người dân Mường Pồn (Điện Biên) chật vật lo miếng ăn, sống nhờ hàng cứu trợ.
-- Tuổi Trẻ trân trọng giới thiệu bài viết của Ủy viên Bộ Chính trị, Thủ tướng Chính phủ Phạm Minh Chính: 'Đất nước ta chưa bao giờ có được cơ đồ tiềm lực, vị thế và uy tín quốc tế như ngày nay'.
-- Tỉnh Quảng Ngãi đã khuyết chức danh chủ tịch UBND gần 5 tháng nay.
-- Quá trình thi công cống thoát nước chống ngập khiến nhiều nhà dân bị ảnh hưởng, sụt lún, nứt tường, bong tróc nền nhà.
-- Thủ tướng Phạm Minh Chính nhấn mạnh Chính phủ sẽ tiếp tục quan tâm để nâng cao đời sống vật chất, tinh thần của người có công.
-- Hai nam thanh niên người Pháp và New Zealand bị Công an quận 1, TP.HCM phát hiện vẽ bậy đã bị xử phạt vi phạm hành chính và trục xuất khỏi Việt Nam.
-- Người dân ở xã Thổ Sơn (huyện Hòn Đất, Kiên Giang) lo vì bờ đê nuôi tôm cua bị xói mòn, sạt lở dù đã có kè chắn sóng.
-- Sau nhiều vụ cây xanh ngã đổ đè người đi đường, lãnh đạo UBND tỉnh Bạc Liêu yêu cầu rà soát nhằm đề phòng sự cố tương tự trong mùa mưa bão.
-- Sau thời gian tạm hoãn, chương trình bế mạc Lễ hội Vịnh ánh sáng quốc tế Nha Trang 2024 với phần thi drone của hai đội Pháp - UAE sẽ diễn ra tối 3-8.
-- Đó là thông tin được tiết lộ tại Hội nghị quốc tế về phẫu thuật cột sống ít xâm lấn khu vực Đông Nam Á lần thứ 9, diễn ra từ ngày 25 đến 27-7 tại TP Đà Nẵng.
-- Chiều 27-7, mạng xã hội lan truyền clip tài xế xe buýt xô xát với một nhóm người đi ô tô và bị đánh gãy răng. Sự việc xảy ra tại TP.HCM.
-- Mực nước lũ đầu nguồn vùng ĐBSCL cao hơn cùng kỳ năm 2023. Cá linh non đầu mùa lũ về, có giá 300.000 đồng/kg.
-- Sơ bộ tổng mức đầu tư dự án đường cao tốc Mỹ Thuận - Cần Thơ sẽ tăng từ 4.827 tỉ đồng lên 5.826 tỉ đồng, tăng gần 999 tỉ đồng khi bổ sung nút giao và đường gom.
-- Công nhân chui vào hộp dầm, làm việc trong thời tiết ngột ngạt, không gian chật hẹp. Ai cũng vã mồ hôi khi sửa chữa cầu Trà Khúc 2.
-- 'Ông lớn' taxi Ánh Dương (Vinasun) mua dàn xe mới nhưng chưa phát huy hiệu quả, lợi nhuận giảm do 'hỗ trợ anh em tài xế'.
-- Phái đoàn đại diện tổng thống Mỹ do Ngoại trưởng Antony Blinken dẫn đầu đến Việt Nam trong ngày 27-7 để bày tỏ lòng tôn kính trước sự ra đi của Tổng Bí thư Nguyễn Phú Trọng.
-- Dự Luật Chuyển đổi giới tính đề xuất người chuyển giới sẽ nghỉ hưu ở tuổi 55, và chuyển từ nữ sang nam nếu mang thai được hưởng chế độ thai sản như lao động nữ.
-- Ngân hàng thực phẩm Việt Nam phối hợp cùng Hội Chữ thập đỏ tỉnh Vĩnh Long ra mắt ngân hàng thực phẩm hỗ trợ người yếu thế thứ 3 tại miền Tây.
-- Tình trạng người dân chăn thả bò hai bên cao tốc Vĩnh Hảo - Phan Thiết, tỉnh Bình Thuận vẫn nhức nhối, gây nguy hiểm cho tài xế chạy qua đây.
-- Nằm ở vị trí giao đường vào cảng Cát Lái và Võ Chí Công (TP Thủ Đức), vòng xoay Mỹ Thủy là điểm đen giao thông tồn tại dai dẳng cả chục năm.
-- Hơn 200kg ma túy được một nghi phạm người Lào vận chuyển đến tập kết tại khu vực giáp huyện Hương Sơn (Hà Tĩnh) thì bị lực lượng chức năng bắt giữ.
-- Cơn mưa lớn khiến cát đỏ tràn xuống, gây chia cắt đường Nguyễn Thông - một trong những đường hướng từ TP Phan Thiết đến các resort Hàm Tiến - Mũi Né…
 ![New](News.png)
 ## Nhịp sống số 
 - Gần một tuần sau sự cố sập mạng toàn cầu, CrowdStrike cho biết 97% máy tính sử dụng hệ điều hành Windows bị ảnh hưởng đã hoạt động trở lại.
