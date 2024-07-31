@@ -1,6 +1,13 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Những mảng tường rêu phong, cũ kỹ ở TP Tuy Hòa (tỉnh Phú Yên) đã được các sinh viên Trường đại học Kiến trúc TP.HCM 'khoác áo mới' thành những bức tranh cảnh quan du lịch đầy màu sắc, đẹp mắt.
+- Nhiều bạn đọc quan tâm đến học bổng toàn phần Trường Quản trị và Kinh doanh cấp cho sinh viên là con, cháu của thương binh, liệt sĩ.
+- Tính đến thời điểm khóa cổng đăng ký xét tuyển trực tuyến, có hơn 733.000 thí sinh đã nhập nguyện vọng đăng ký xét tuyển, tương đương 68,5% so với số thí sinh đăng ký dự thi tốt nghiệp THPT năm 2024.
+- Hai học sinh được tuyên dương là Đặng Tuấn Anh (lớp 12) đoạt huy chương vàng sinh học quốc tế 2024, và Huỳnh Triệu Điền (lớp 5) cứu một em nhỏ đuối nước.
+- Đà Nẵng vừa thông qua nghị quyết hỗ trợ học phí cho trẻ em, học sinh từ mầm non đến lớp 12. Đại biểu đề nghị các năm tới sẽ xét đối tượng cụ thể, không thực hiện đại trà.
+- Năm 2024 có trên 10 trường đại học mở ngành thiết kế vi mạch, bán dẫn. Học phí dao động từ 30 đến 86 triệu đồng/năm.
+- Liên quan vụ điểm thi vào lớp 10 của nhiều thí sinh chênh lệch lớn sau phúc khảo, tỉnh Thái Bình chỉ đạo thanh tra đột xuất.
 - Doanh nghiệp Nhật tích cực tìm ứng viên từ Ngày hội Triển lãm công nghệ và Tuyển dụng Japan Job Fair 2024 diễn ra tại Trường đại học Công nghệ TP.HCM (HUTECH).
 - Theo Bộ Giáo dục và Đào tạo, đoàn học sinh Việt Nam đứng thứ nhì, đồng hạng với Hoa Kỳ tại Olympic hóa học quốc tế năm nay.
 - Điểm sàn đại học của xét điểm thi THPT năm nay tương đương năm ngoái (từ 14 đến 24,5 điểm) nhưng biến động mạnh ở nhiều ngành. Thí sinh cần tỉnh táo, tránh "sập bẫy" điểm sàn.
@@ -24,47 +31,41 @@
 - Cụm từ tiếng Anh "technology vehicles" sân bay Tân Sơn Nhất dịch là "xe công nghệ" gây khó hiểu. Tại sao?
 - Với những bạn trẻ, đại học không chỉ có giảng đường đào tạo kiến thức hay kỹ năng nghề nghiệp mà phải có một chân trời rực rỡ - nơi có đa dạng hoạt động ngoại khóa hấp dẫn để thả mình và phát triển kỹ năng.
 - Từ năm học 2024 - 2025, trường này sẽ cấp học bổng toàn phần đối với sinh viên là con, cháu (cả cháu nội và cháu ngoại) của thương binh, liệt sĩ các thời kỳ.
-- Công an quận 1, TP.HCM vừa ra quyết định bắt tạm giam cựu kế toán Trường THPT Ernst Thälmann (quận 1, TP.HCM) về hành vi lừa đảo chiếm đoạt tài sản.
-- Mong muốn tận dụng phế phẩm nông nghiệp tạo ra sản phẩm thân thiện với môi trường, hai học sinh Trường THPT Hồng Ngự 3 (Đồng Tháp) đã làm ra vải sinh học từ vỏ quýt.
-- Các nhà khoa học này bị cấm tham gia các dự án nghiên cứu do Chính phủ Trung Quốc tài trợ trong tối đa 7 năm và bị ghi tên vào cơ sở dữ liệu gian lận học thuật quốc gia.
-- Nhiều thí sinh có kết quả học tập khá tốt đã chọn theo học nghề tại các trường cao đẳng, trung cấp.
-- Thời điểm thí sinh tham gia đăng ký nguyện vọng xét tuyển theo quy định, nhiều trường đại học, cao đẳng triển khai nhiều hoạt động tương tác để thí sinh tham gia tìm hiểu, tham quan, lắng nghe.
-- Ban tuyển sinh quân sự Bộ Quốc phòng thông báo điểm sàn nhận hồ sơ xét tuyển đại học, cao đẳng các trường quân đội năm 2024 dao động từ 14 - 24 điểm.
-- Bộ Công an vừa công bố ngưỡng điểm đảm bảo chất lượng đầu vào trình độ đại học và trung cấp của khối trường công an.
 ![Edu](Edu.png)
 ## Thời Sự 
-- TP.HCM đang dự kiến điều chỉnh bảng giá đất theo Luật Đất đai 2024, trong đó giá đưa ra cao hơn 5 đến 50 lần bảng giá cũ. Ngay lập tức có sự quan tâm rằng việc điều chỉnh này có làm tăng giá giao dịch bất động sản trên thị trường hay không?
-- Theo điều 14 của nghị định 71/2024/NĐ-CP quy định về giá đất, trình tự, thủ tục xây dựng bảng giá đất từ 1-1-2026 được thực hiện gồm các bước:
-- Động đất diễn ra với tần suất, cường độ ngày càng tăng ở Kon Tum khiến người dân lo lắng. Trước tình trạng đó, chính quyền địa phương đang có những hướng dẫn cho người dân trong lúc chờ giải pháp căn cơ.
-- Mưa lớn kéo dài từ chiều 29 đến rạng sáng 30-7 tại thành phố Hạ Long, tỉnh Quảng Ninh gây sạt lở và ngập úng tại một số điểm. Chính quyền địa phương xuyên đêm khắc phục hậu quả.
-- Mua bảo hiểm xã hội tự nguyện có được hỗ trợ? Đóng bao lâu thì được hưởng? Mức lương thế nào, quyền lợi ra sao sau khi nghỉ hưu?...
-- Nhà kho chứa nhang trầm bất ngờ cháy ngùn ngụt trong đêm, lực lượng chức năng rất khó khăn mới có thể dập tắt đám cháy.
-- Đêm 29-7, tại khu vực hầm lò mức -110 thuộc khai trường Công ty than Hòn Gai - TKV xảy ra tai nạn lao động khiến 5 công nhân than thiệt mạng.
-- Dự báo hôm nay 30-7, thời tiết Bắc Bộ tiếp tục có mưa, khu vực đồng bằng sẽ giảm mưa từ chiều nay, vùng núi còn mưa to đến ngày mai.
-- Điểm sàn đại học của xét điểm thi THPT năm nay tương đương năm ngoái (từ 14 đến 24,5 điểm) nhưng biến động mạnh ở nhiều ngành. Thí sinh cần tỉnh táo, tránh "sập bẫy" điểm sàn.
-- Tin tức  đáng chú ý: 7 tháng, Việt Nam thu hút hơn 18 tỉ USD vốn FDI; Nữ ủy viên Ban Thường vụ Thành ủy Hà Nội, TP.HCM được nghỉ hưu ở tuổi cao hơn; Học sinh lớp 1 đến lớp 3 ở TP.HCM có tỉ lệ sâu răng cao...
-- Quảng Ninh vẫn dự trữ quỹ đất để triển khai dự án hầm xuyên vịnh Cửa Lục kết nối Bãi Cháy - Hòn Gai từng tạm dừng thực hiện từ năm 2019.
-- Tỉnh Bắc Ninh vừa bầu bổ sung ông Vương Quốc Tuấn làm phó bí thư Tỉnh ủy khóa XX, nhiệm kỳ 2020 - 2025.
-- Ba người Trung Quốc lái taxi tông xe liên hoàn tại Quảng Bình. Công an điều tra ra nhóm này giết người cướp taxi trước đó tại Quảng Ngãi.
-- UBND TP.HCM chỉ đạo tăng cường kiểm tra, giám sát chặt chẽ bệnh viện thẩm mỹ có dấu hiệu hoạt động sai phép.
-- Tổng thống Timor-Leste José Ramos-Horta sẽ thăm cấp nhà nước Việt Nam trong bốn ngày, bắt đầu từ ngày 31-7, theo thông cáo của Bộ Ngoại giao Việt Nam.
-- Phó thủ tướng Trần Lưu Quang vừa ký ban hành công điện ngày 29-7 của Thủ tướng Chính phủ về việc kiểm tra, chủ động khắc phục hậu quả động đất tại địa bàn huyện Kon Plông, tỉnh Kon Tum.
-- Sau vài cơn mưa, hàng chục ổ voi, ổ gà có đường kính từ 1-2 gang tay, mọc chi chít trên tuyến Lộ Tẻ - Rạch Sỏi đoạn TP Cần Thơ - Kiên Giang khiến các tài xế bức xúc nhiều ngày qua.
-- Hơn 60 người xông vào một quán cà phê tấn công người và đập phá tài sản, Công an quận Tân Phú (TP.HCM) đã khởi tố, bắt tạm giam 37 bị can.
-- Ba năm sau khi được Quốc hội ban hành nghị quyết cho hàng loạt cơ chế, chính sách đặc thù nhưng vì sao đến nay thành phố Cần Thơ chưa có "sản phẩm" nào từ cơ chế, chính sách này?
-- Chính phủ vừa ban hành nghị định số 100/2024/NĐ-CP quy định chi tiết một số điều của Luật Nhà ở về phát triển và quản lý nhà ở xã hội.
-- Sau phản ảnh du khách chê "chợ nổi Cái Răng chẳng có gì ngoài mấy chiếc ghe", lãnh đạo Sở Văn hóa, Thể thao và Du lịch cho biết vẫn đang tham mưu giải pháp bảo tồn và phát triển chợ nổi này.
-- Theo quy hoạch chung đến năm 2030, tầm nhìn 2050, dự án hầm chui qua sông Hàn được triển khai sau năm 2030. Đà Nẵng đề nghị hoàn thành báo cáo nghiên cứu tiền khả thi các dự án vào cuối năm 2025.
-- Người dân ngày đêm phải chịu đựng tiếng ồn phát ra từ một công ty nhôm suốt mấy năm qua.
-- Trưởng Đặc khu hành chính Hong Kong (Trung Quốc), ông Lý Gia Siêu, sẽ thăm Việt Nam từ ngày 31-7 đến ngày 2-8, theo thông tin từ Bộ Ngoại giao.
-- UBND tỉnh Kon Tum vừa có văn bản chỉ đạo các cơ quan chức năng theo dõi, ứng phó động đất.
-- Hapag-Lloyd, công ty vận tải container lớn nhất nước Đức, đã đến Việt Nam đặt mua 2.000 container 20DC do doanh nghiệp Việt Nam sản xuất.
-- Thi thể một người đàn ông được người dân phát hiện nằm dưới mương nước bên đường cao tốc Cam Lộ - La Sơn đoạn qua huyện Nam Đông (Thừa Thiên Huế).
-- Bí thư Hà Nội Bùi Thị Minh Hoài dự đoán như vậy về tình hình ngập lụt tại huyện Chương Mỹ, và yêu cầu UBND huyện này phải tiếp tục sơ tán người dân.
-- Phó chi cục trưởng và một chuyên viên của Chi cục Quản lý đất đai (Sở Tài nguyên và Môi trường Quảng Nam) bị khởi tố, bắt tạm giam.
-- Tại các nút giao lớn ở TP.HCM như ngã bảy Điện Biên Phủ, ngã sáu Nguyễn Tri Phương... sẽ xây dựng cầu vượt để xóa ùn tắc.
+- Bố con anh Giàng Seo Dơ đang đi xe máy trên đường đi làm về thì bất ngờ bị đá lăn rơi từ ta luy dương xuống đè vào người khiến hai người tử vong tại chỗ.
+- Một số tin tức đáng chú ý: Tỉ lệ hưởng lương hưu mới theo Luật Bảo hiểm xã hội mới; 6 tháng đầu năm, ngộ độc thực phẩm tăng cao; Rà soát quỹ đất tái định cư khi di dời nhà ven kênh rạch; Lãi suất liên ngân hàng tăng mạnh.
+- Hôm nay 31-7, thời tiết Bắc Bộ tiếp tục mưa dông, vùng núi mưa to. Trung Bộ và Nam Bộ ngày nắng, có nơi nắng nóng.
+- Hàng loạt chính sách mới liên quan lĩnh vực bất động sản như Luật Đất đai, Luật Nhà ở, Luật Kinh doanh bất động sản... chính thức có hiệu lực từ 1-8-2024.
+- Sau những ngày động đất liên tiếp, cuộc sống của người dân trong các buôn làng tại Kon Plông, tỉnh Kon Tum đã trở lại nhịp thường ngày, nhưng ai cũng nơm nớp lo...
+- Hiệp hội Bất động sản TP.HCM vừa có công văn gửi UBND TP.HCM đề nghị chưa nên ban hành bảng giá đất điều chỉnh tăng từ 1-8-2024 vì 'chưa cần thiết'.
+- Đại sứ quán Việt Nam tại Ai Cập kiêm nhiệm Lebanon khuyến cáo công dân không đến Lebanon, nếu đang ở đây thì cân nhắc rời đi, khi các chuyến bay thương mại còn hoạt động.
+- Tối 30-7, Thủ tướng Phạm Minh Chính và đoàn đại biểu cấp cao rời sân bay Nội Bài lên đường tới Ấn Độ, bắt đầu chuyến thăm cấp nhà nước.
+- Ngày 30-7, UBND TP Hạ Long, tỉnh Quảng Ninh có thông báo cấm các phương tiện lưu thông trên tuyến đường Đặng Bá Hát - Ba Đèo do nguy cơ tiếp tục xảy ra sạt lở.
+- Công an TP Nha Trang (tỉnh Khánh Hòa) đã tạm giữ hình sự Hồ Liêu Châu, nghi phạm đốt cây xăng.
+- Đổ vốn hàng tỉ USD đầu tư sản xuất thép cán nóng chất lượng cao HRC, doanh nghiệp Việt Nam chưa hết áp lực với hàng nhập khẩu giá rẻ từ Trung Quốc, lại sắp bị Ủy ban châu Âu điều tra kiện chống bán phá giá.
+- Trong tiết trời mát mẻ của thủ đô Hà Nội, Bộ trưởng Ngoại giao Bùi Thanh Sơn và Đại diện cấp cao EU về chính sách đối ngoại và an ninh, Phó chủ tịch EC Josep Borrell đã cùng thăm Bảo tàng Mỹ thuật Việt Nam và thưởng thức cà phê Việt Nam.
+- Các chuyên gia cho rằng cần nghiên cứu sửa đổi về tiêu chuẩn đại biểu Quốc hội, cần thiết có cơ chế giám sát của nhân dân.
+- Những cơn mưa lớn cục bộ từ sáng 30-7 đến chiều khiến nhiều đoạn trên quốc lộ 1 hướng lên cửa khẩu Hữu Nghị, tỉnh Lạng Sơn ngập sâu.
+- Cá chết nổi lềnh bềnh trên mặt hồ Xuân Hương Đà Lạt, công nhân phải gom xác cá mang đi tiêu hủy.
+- Động đất ở Kon Tum khiến Quảng Ngãi rung chấn liên tục, UBND tỉnh hỏa tốc yêu cầu chủ động ứng phó với động đất, bảo vệ tính mạng, tài sản của người dân.
+- Cơ quan chức năng xác định có 3/4 tàu cá đang neo đậu ở cảng Ninh Chữ bị cháy vào trưa nay 30-7 gây hư hỏng nặng, ước thiệt hại ban đầu khoảng 1,3 tỉ đồng.
+- Dự báo mưa lớn ở miền Bắc kéo dài từ nay tới 2-8, tức kéo dài thêm 2 ngày so với dự báo trước đó. Tinh hình này tăng nguy cơ xảy ra lũ quét, sạt lở đất và ngập lụt ở các tỉnh, thành Bắc Bộ.
+- Nam thanh niên chạy xe máy tới cây xăng Mã Vòng ở TP Nha Trang (tỉnh Khánh Hòa), rồi bất ngờ đổ xăng ra nền đất, châm lửa đốt.
+- Thu nhập bình quân của người lao động là 7,5 triệu đồng/tháng, tăng 7,4%, tương ứng tăng 519.000 đồng so với cùng kỳ năm trước.
+- UBND huyện Tuy Đức (tỉnh Đắk Nông) đã tiến hành 3 đợt cưỡng chế để thu hồi 22/35ha đất cụm công nghiệp bị biến thành khu dân cư.
+- Thượng tướng Lương Tam Quang đã bàn giao, bổ nhiệm chức danh thủ trưởng Cơ quan an ninh điều tra Bộ Công an đối với Trung tướng Phạm Thế Tùng, thứ trưởng Bộ Công an.
+- Dự thảo nghị định đề xuất thu phí đường cao tốc do Nhà nước đầu tư với mức thấp nhất từ 900 đồng/km, cao nhất 5.200 đồng/km theo từng nhóm xe.
+- Lãnh đạo cấp cao EU Josep Borrell mong muốn chuyến thăm Việt Nam lần này của ông sẽ khởi động quá trình nâng cấp quan hệ Việt Nam - EU lên Đối tác chiến lược toàn diện trong thời gian tới.
+- 4 tàu cá của ngư dân huyện Ninh Hải và huyện Thuận Nam (tỉnh Ninh Thuận) đang neo đậu tại cảng cá Ninh Chữ (thuộc xã Tri Hải, huyện Ninh Hải) bất ngờ bốc cháy, thiệt hại nặng.
+- Bác sĩ nội trú Hoàng Minh Lý - nữ bác sĩ gặp tai nạn hy hữu tại quán cà phê - đã hồi phục sức khỏe sau thời gian điều trị, phục hồi chức năng.
+- Tỉnh Tây Ninh đã và đang hướng tới ứng dụng cơ giới hóa trong trồng trọt. Đơn cử hiện nay, cây lúa có tỉ lệ cơ giới hóa cao nhất (100% ở việc làm đất, 65-80% khâu chăm sóc, 95-100% khâu thu hoạch vận chuyển).
+- Bộ Quốc phòng nêu rõ nếu tăng số lượng gọi nhập ngũ, giảm thời hạn phục vụ tại ngũ thì hằng năm phải gọi công dân nhập ngũ, giải quyết xuất ngũ hai đợt.
+- Hôm nay 30-7, Hiệp hội An ninh mạng quốc gia chính thức ra mắt phần mềm phòng chống lừa đảo nTrust.
+- Trạm ép rác tại phường Thạnh Xuân, quận 12 là trạm hiện đại nhất TP.HCM.
 ![New](News.png)
 ## Nhịp sống số 
+- Theo khảo sát của các công ty nghiên cứu thị trường, thị trường nhà thông minh tại Việt Nam đang phát triển mạnh mẽ và sôi động.
 - Vivobook S 15 (5507) là thế hệ laptop AI Copilot+ PC của ASUS với thiết kế mỏng nhẹ, pin lên tới 18 giờ, màn hình Lumina OLED và hiệu năng mạnh.
 - 'Chatbot AI gặp khó với toán vì chúng chưa bao giờ được thiết kế để làm toán', ông Kristian Hammond, nhà nghiên cứu AI tại Đại học Northwestern (Mỹ), cho biết.
 - Điện thoại gập mới ra mắt của Samsung nâng cao hiệu suất làm việc, giải trí với những tính năng độc nhất.
@@ -94,5 +95,4 @@
 - Vừa qua, Motorola Solutions đã khai trương trung tâm R&amp;D tại TP.HCM, với mục tiêu thúc đẩy nghiên cứu và phát triển phần mềm, phân tích dữ liệu và công nghệ trí tuệ nhân tạo (AI).
 - Họp trực tuyến ngày càng phổ biến vì đáp ứng nhu cầu công việc tức thời, tối ưu thời gian và chi phí.
 - Công ty Ricoh Imaging của Nhật Bản thông báo sẽ cho ra mắt một máy ảnh phim Pentax mới lần đầu tiên sau hai thập kỷ
-- Một trong những vấn đề nghiêm trọng nhất trong lừa đảo thanh toán là ngoài các kịch bản tấn công lừa đảo đa dạng và phong phú, kỹ thuật công nghệ cũng càng tinh vi.
 ![life](Life.png)
