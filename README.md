@@ -1,6 +1,15 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Việc nhiều trường đại học mở rộng hình thức xét tuyển sẽ giúp đánh giá học sinh toàn diện với khả năng phân hóa cao, tránh bỏ sót những học sinh tiềm năng.
+- Liên quan đến những bất thường điểm thi vào lớp 10 tại Thái Bình, trưởng đoàn thanh tra yêu cầu các thành viên đoàn làm việc cả thứ bảy, chủ nhật để đảm bảo tiến độ cuộc thanh tra.
+- Ngày 1-8, UBND TP Thủ Đức, TP.HCM đã tổ chức lễ tuyên dương, khen thưởng học sinh giỏi từ mầm non đến THPT với tổng kinh phí hơn 525 triệu đồng.
+- Nhận thấy xu thế sống xanh đang ngày càng ưa chuộng, nhóm sinh viên Trường đại học Văn Lang quyết định khởi nghiệp với dòng tranh sinh học có tên gọi BioPicture.
+- Nhiều người mù ở tỉnh Khánh Hòa và các địa phương trên cả nước đã tự tin sử dụng điện thoại cảm ứng, thực hiện các thao tác như nghe tin tức trên YouTube, gọi điện thoại, soạn tin nhắn Zalo...
+- Tin từ IDP Việt Nam cho biết các thí sinh dự thi IELTS trên máy tính có thể nhận kết quả sau 2 ngày dự thi.
+- Một số phụ huynh tại Thái Bình cho biết sau khi nhận kết quả điểm thi vào lớp 10 của con em, mặc dù thấy điểm thi môn toán thấp bất thường nhưng không phúc khảo vì con đã đỗ nguyện vọng 2 vào trường khác, có phụ huynh sợ tụt điểm thêm.
+- Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) vừa thông báo gia hạn nộp chứng chỉ tiếng Anh để đáp ứng điều kiện sơ tuyển một số chương trình đào tạo đại học của trường năm 2024.
+- Giữa tháng 7 vừa qua, 10 cô cậu học trò nghèo vượt khó ở Quảng Nam đã nhận phần thưởng đặc biệt: chuyến du lịch bốn ngày tại Hàn Quốc.
 - UBND tỉnh Thái Bình đã ban hành quyết định về việc tạm đình chỉ công tác đối với ông Nguyễn Viết Hiển, giám đốc Sở Giáo dục và Đào tạo tỉnh, kể từ ngày 31-7.
 - Hội đồng nhân dân TP.HCM ra văn bản kiến nghị xem xét các vướng mắc trong việc hoạt động căng tin, bếp ăn, bãi giữ xe của các trường học tại TP.HCM.
 - UBND TP Hải Phòng đã biểu dương, khen thưởng các cá nhân góp phần vào thành tích đoạt giải Olympic khu vực và quốc tế năm học 2023-2024.
@@ -22,47 +31,38 @@
 - Theo Bộ Giáo dục và Đào tạo, đoàn học sinh Việt Nam đứng thứ nhì, đồng hạng với Hoa Kỳ tại Olympic hóa học quốc tế năm nay.
 - Điểm sàn đại học của xét điểm thi THPT năm nay tương đương năm ngoái (từ 14 đến 24,5 điểm) nhưng biến động mạnh ở nhiều ngành. Thí sinh cần tỉnh táo, tránh "sập bẫy" điểm sàn.
 - Bộ Giáo dục và Đào tạo khuyến cáo cơ sở đào tạo rà soát các phương thức xét tuyển hiệu quả, loại bỏ các phương thức xét tuyển gây nhiễu hệ thống cũng như khó khăn, vướng mắc cho xã hội.
-- Theo Bộ Giáo dục và Đào tạo, tính đến 12h sáng 29-7, hệ thống của bộ ghi nhận 702.762 thí sinh đăng ký nguyện vọng xét tuyển.
-- Năm 2024 là tròn 50 năm kể từ lần đầu tiên Việt Nam tham dự kỳ thi Olympic toán học quốc tế với nhiều thăng trầm.
-- Sau khi chốt thứ tự nguyện vọng trên cổng thông tin của Bộ Giáo dục và Đào tạo vào ngày 30-7, thí sinh có thể tiếp tục đăng ký xét tuyển học bạ đợt 4 tại HUFLIT đến hết ngày 10-8.
-- Với phương thức xét kết hợp điểm thi tốt nghiệp THPT với chứng chỉ tiếng Anh quốc tế, thí sinh phải có IELTS từ 8.0 trở lên mới trúng tuyển sớm ngành y khoa của Trường đại học Y Dược, Đại học Quốc gia Hà Nội.
-- Lễ khai mạc Hội khỏe Phù Đổng toàn quốc lần thứ X năm 2024 với chủ đề “Sức trẻ Phù Đổng - Vững bước tương lai” diễn ra tối 28-7 tại sân vận động Lạch Tray, TP Hải Phòng.
-- Thấy người dân chưa có nhiều cơ hội để tiếp cận kiến thức về sơ cấp cứu ban đầu, nhóm sinh viên lớp cấp cứu ngoại viện (Trường đại học Y khoa Phạm Ngọc Thạch) đã biên soạn cuốn cẩm nang sơ cấp cứu gửi tặng miễn phí cho cộng đồng.
-- Từ hàng trăm sinh viên đăng ký, cuộc thi sẽ tìm ra 10 thí sinh bước vào vòng chung kết để giành lấy những giải thưởng hấp dẫn.
-- Ý tưởng khởi nghiệp sản xuất và phân phối các sản phẩm gắn với giá trị truyền thống như tre, nước mắm và cả bẹ chuối gây ấn tượng mạnh.
-- Những video trên mạng tư vấn 'học đại học mất thời gian' hay 'bằng đại học là vô dụng' để lại hệ lụy đáng lo ngại cho giới trẻ.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Bộ Công an đang lấy ý kiến về dự thảo thông tư mới quy định về chỉ huy, điều khiển giao thông đường bộ của cảnh sát giao thông.
-- Lực lượng ở tỉnh Lâm Đồng cứu hộ thành công nam thanh niên đi xe máy tông hộ lan đèo Prenn Đà Lạt và rơi xuống phía vực.
-- Một số tin tức đáng chú ý: Bán ế hàng chục lần, ngân hàng đại hạ giá khoản nợ trăm tỉ còn vài chục tỉ; Mặt bằng giá rao bán bất động sản Đà Nẵng xác lập mốc mới; Hơn 97% người dân ở Hà Nội đã nhận lương hưu, trợ cấp qua tài khoản...
-- Dự báo hôm nay 1-8, thời tiết Bắc Bộ vẫn mưa to đến rất to, tình hình mưa lũ còn phức tạp. Nam Bộ ngày nắng, chiều tối mưa rào.
-- Gần một tháng sau khi các ngân hàng áp dụng xác thực sinh trắc học, tội phạm mạng tiếp tục tung ra nhiều chiêu để lừa người dùng.
-- Tối 31-7, Tổng thống Timor-Leste José Ramos-Horta đã đến Hà Nội, bắt đầu chuyến thăm cấp nhà nước Việt Nam bốn ngày theo lời mời của Chủ tịch nước Tô Lâm.
-- Sau khi cắn một người ở xã Hiền Ninh, huyện Sóc Sơn (Hà Nội), con chó dại to cỡ 15kg sang xã khác cùng huyện, cắn thêm 2 người và tấn công nhiều chó, mèo.
-- Chủ tịch Quốc hội Trần Thanh Mẫn đề nghị trên cơ sở quy chế, quy định về chức năng, nhiệm vụ được giao, các cơ quan thực hiện 'đúng vai, thuộc bài'.
-- Bản Phiêng Nghè, thành phố Sơn La (tỉnh Sơn La) nước ngập thành hồ. Hơn 40 hộ dân bị ngập thấp thỏm chưa biết khi nào nước rút.
-- Dự thảo bảng giá đất mới ở TP.HCM dự kiến sẽ ban hành để áp dụng từ 1-8-2024, tuy nhiên đến cuối ngày 31-7, dự thảo này còn đang ở bước lấy ý kiến.
-- Nhiều doanh nghiệp ở Quảng Ngãi sau khi đấu giá mỏ cát và trúng đấu giá từ năm 2023, nay xin trả mỏ, hủy kết quả trúng đấu giá.
-- Theo Phó cục trưởng Cục C06 - Bộ Công an Vũ Văn Tấn, từng cán bộ ngành bảo hiểm xã hội phải nâng cao nhận thức, tránh sơ suất, tránh bị hacker tấn công.
-- UBND TP Hải Phòng đã biểu dương, khen thưởng các cá nhân góp phần vào thành tích đoạt giải Olympic khu vực và quốc tế năm học 2023-2024.
-- Dữ liệu hệ thống giám sát hành trình trễ từ 2-3 tháng, hàng nghìn xe vi phạm nhưng phải nhập thủ công từng xe lên hệ thống... là những khó khăn trong việc tước phù hiệu xe quá tốc độ ở TP.HCM.
-- 8 nhân viên một ngân hàng ở TP Biên Hòa, Đồng Nai bị chóng mặt, đau đầu, khó thở nghi do ngộ độc khí CO.
-- Tòa tuyên án phạt các bị cáo là cựu chủ tịch quận, phó chủ tịch, trưởng phòng quản lý đô thị, phó trưởng phòng, cùng phạm tội nhận hối lộ.
-- Logistics, kho bãi... là lĩnh vực rất quan trọng trong việc thúc đẩy liên kết vùng, tăng giá trị xuất khẩu hàng hóa. Do đó Bộ Công Thương sẽ có thêm những hỗ trợ, giải pháp nhằm thúc đẩy vùng Đông Nam Bộ phát triển lĩnh vực này.
-- Ngập lụt kéo dài đã ảnh hưởng cuộc sống của hàng ngàn người dân tại huyện Chương Mỹ (Hà Nội) những ngày qua.
-- Mẹ bé gái gần 14 tuổi này đã đưa con từ dưới quê lên TP.HCM, cho bé quan hệ tình dục với một người lớn để lấy tiền.
-- Thời gian qua, nhiều trạm xe buýt ở TP.HCM bị chiếm dụng làm nơi buôn bán, tập kết rác khiến người dân rất khó chịu.
-- Bộ trưởng Bộ Công an vừa điều động, bổ nhiệm thượng tá Nguyễn Quang Huyên làm phó giám đốc Công an tỉnh Lạng Sơn.
-- Kiến trúc của Bảo tàng Trường Sa sắp được xây dựng tại huyện Cam Lâm (Khánh Hòa) có ba nhánh vươn mình ra Biển Đông.
-- Sau hơn 2 năm, dự án mở rộng quốc lộ 13 Bình Dương nối TP.HCM đã xây dựng, trải thảm nhựa một số đoạn nhưng vẫn còn vướng trụ điện.
-- Thủ tướng Phạm Minh Chính đã nhắc đến phát biểu Việt Nam là trụ cột trong chính sách Hành động hướng Đông của Thủ tướng Ấn Độ Narendra Modi để nhấn mạnh những tin tưởng, cơ hội hợp tác của hai nước.
-- Trả lời Tuổi Trẻ Online, Phó chủ tịch Ủy ban châu Âu Josep Borrell kỳ vọng sẽ nhận được báo cáo từ các cơ quan liên quan của Việt Nam về thẻ vàng IUU vào tháng 9, và hy vọng thẻ vàng có thể được gỡ bỏ.
-- Ông Vương Quốc Tuấn - phó chủ tịch thường trực UBND tỉnh Bắc Ninh - được bầu làm chủ tịch UBND tỉnh Bắc Ninh.
-- Ông Tỉa bị cách chức do liên quan đến những vi phạm, khuyết điểm trong công tác. Trong đó có việc quản lý tiền cho thuê đất công trong thời gian ông làm chủ tịch UBND xã Tân Thuận.
-- Ngày 31-7, Cơ quan cảnh sát điều tra Công an tỉnh Tây Ninh cho hay vừa bắt Phạm Văn Học (41 tuổi) về tội lừa đảo chiếm đoạt tài sản bằng thủ đoạn lừa làm giả giấy tờ đất.
-- Thấy một con rùa được bán công khai, muốn dừng lại mua để thả về tự nhiên nhưng sợ dính tội mua bán động vật hoang dã.
-- Trong 7 tháng năm 2024, các chỉ số liên quan tai nạn trên đường cao tốc chiếm tỉ lệ dưới 1%, song phần lớn lại gây hậu quả rất nghiêm trọng và đặc biệt nghiêm trọng, theo Bộ Công an.
+- Bộ Công an đề xuất mức phạt tiền giảm mạnh so với quy định hiện hành về vi phạm nồng độ cồn chưa vượt quá 50 miligam/100 mililit máu, hoặc chưa vượt quá 0,25 miligam/1 lít khí thở.
+- 100% đại biểu tham dự kỳ họp bỏ phiếu tán thành, ông Nguyễn Hoàng Giang được bầu giữ chức chủ tịch UBND tỉnh Quảng Ngãi, nhiệm kỳ 2021-2026.
+- Chuyến thăm của Thủ tướng Phạm Minh Chính đã khẳng định quyết tâm cao của lãnh đạo hai nước trong việc đưa quan hệ bước vào một giai đoạn mới.
+- Viện phó Viện Nghiên cứu phát triển TP.HCM Trương Minh Huy Vũ vừa được bổ nhiệm làm viện trưởng Viện Nghiên cứu phát triển TP.HCM.
+- Bộ Công an đang lấy ý kiến dự thảo nghị định quy định về hành vi vi phạm giao thông bị trừ điểm bằng lái, mức điểm trừ đối với từng hành vi vi phạm.
+- Thời gian gần đây, trên các trang diễn đàn mạng có nhiều ý kiến bức xúc về tình trạng ô tô độ đèn pha siêu sáng, cường độ ánh sáng mạnh, gây lóa mắt, nguy hiểm cho các xe đi phía trước và sau.
+- Hôm nay Bắc Bộ tiếp tục duy trì mưa dông, có nơi mưa to. Từ đêm nay mưa sẽ giảm dần nhưng không được chủ quan với thiên tai đi kèm sau mưa.
+- Một số tin tức đáng chú ý: Giá bán USD đồng loạt giảm ở các thị trường; Tăng tuổi nghỉ hưu, ai vẫn được về hưu sớm?; TP.HCM sẵn sàng ứng phó cao điểm mưa bão...
+- Cán bộ Viện Vật lý địa cầu đến tận các làng trong tâm chấn động đất tại huyện Kon Plông, tỉnh Kon Tum, để tập huấn cho người dân cách ứng phó động đất.
+- "Từ thực tiễn đổi mới của Việt Nam, có thể đúc kết: Nguồn lực bắt nguồn từ tư duy; động lực bắt nguồn từ sự đổi mới; sức mạnh bắt nguồn từ nhân dân, doanh nghiệp", theo Thủ tướng.
+- Chủ tịch nước Tô Lâm đề nghị thúc đẩy hợp tác kinh tế, thương mại, đầu tư khi tiếp Trưởng Khu hành chính đặc biệt Hong Kong (Trung Quốc) Lý Gia Siêu.
+- Sau 3 tháng lấy ý kiến rộng rãi của các bên liên quan, Cục Kiểm dịch động thực vật Hàn Quốc (APQA) công bố quy định nhập khẩu bưởi tươi từ Việt Nam.
+- Một nhóm lừa đảo là học sinh vừa tốt nghiệp THPT rủ nhau đi lừa đảo những người bị lừa đảo khiến các nạn nhân mất thêm một lần tiền.
+- Ngày 1-8, Bệnh viện Bạch Mai chính thức khám chữa bệnh đến 21h. Nhiều người dân đã đăng ký online, có mặt tại bệnh viện để được thăm khám.
+- TP.HCM kiến nghị bốn bộ có ý kiến về chính sách miễn vé cho một số hành khách sử dụng giao thông công cộng như xe buýt, metro...
+- Đại diện Công an TP.HCM cho biết việc thu thập thông tin, danh sách người mua bán vàng không phải để kiểm tra, làm khó mà để bảo vệ quyền lợi người dân, ngăn chặn đầu cơ.
+- Chủ tịch Quốc hội Trần Thanh Mẫn đề nghị các cơ quan tập trung chấn chỉnh lề lối làm việc, sắp xếp công việc khoa học, chuyên nghiệp, có trọng tâm, trọng điểm.
+- 1.727 thửa đất thuộc dự án khu dân cư Long Đức (huyện Long Thành, Đồng Nai) do Công ty Hà An làm chủ đầu tư đủ điều kiện chuyển nhượng.
+- Theo thống kê của Sở Giao thông vận tải TP.HCM, hiện TP vẫn còn 84 vị trí đón trả khách sai quy định.
+- Tổng thống Timor-Leste José Ramos-Horta bày tỏ những tình cảm với Chủ tịch Hồ Chí Minh khi thăm bảo tàng về Người.
+- Hiệp hội Bất động sản TP.HCM vừa gửi văn bản đến UBND TP.HCM phân tích về 'áp lực' tiền sử dụng đất tăng mạnh cho người dân TP.HCM, và đề nghị chưa nên ban hành bảng giá đất mới từ 1-8.
+- Ngày 1-8, ông Trần Văn Thi - tổng giám đốc Ban quản lý dự án đầu tư xây dựng Mỹ Thuận (Bộ Giao thông vận tải) - đã trực tiếp đến khảo sát tuyến Lộ Tẻ - Rạch Sỏi, sau khi báo chí phản ánh tuyến đường này chi chít ổ gà, ổ voi gây bức xúc dư luận.
+- Giám đốc Sở Tài nguyên và Môi trường TP.HCM cho biết bảng giá đất lần này là bảng giá điều chỉnh, TP.HCM chưa xây dựng bảng giá mới. Bảng giá mới sẽ được xây dựng và áp dụng từ ngày 1-1-2026.
+- Đây là thông tin Chủ tịch UBND TP.HCM Phan Văn Mãi nêu ra tại phiên họp kinh tế - xã hội thường kỳ tháng 7.
+- Sở Tài nguyên và Môi trường TP.HCM nhìn nhận với bảng giá đất điều chỉnh, hộ gia đình, cá nhân chuyển mục đích sử dụng đất sẽ nộp nghĩa vụ tài chính cao hơn bảng giá cũ.
+- Sau 7 tháng thi công, đến nay đường dây 500kV mạch 3 đoạn qua Hà Tĩnh đang dần hoàn thành. Các đơn vị thi công thần tốc lắp những cột điện cuối cùng và kéo đường dây để dự án sớm hoàn thành.
+- Bộ Nội vụ đã có trả lời kiến nghị của cử tri tỉnh Kiên Giang về xem xét, bổ sung biên chế cho ngành giáo dục và đào tạo, y tế.
+- Tài xế xe buýt chạy tuyến số 13 bất ngờ vượt đèn đỏ tại giao lộ đông đúc người qua lại ở huyện Hóc Môn, TP.HCM.
+- Cầu sắt tải trọng 0,5 tấn trước UBND xã Vĩnh Bửu, huyện Tân Hưng, Long An bị ghe chở cá đụng phải.
+- Trong quá trình xử lý vụ việc, Ngô Ngọc Quyền đã nhiều lần liên hệ, đặt điều kiện với ông T. sẽ điều chỉnh số liệu khai thác khoáng sản trái phép để giảm nhẹ khung xử phạt và ông T. phải chi tiền hối lộ cho Quyền.
 ![New](News.png)
 ## Nhịp sống số 
 - Bang Texas cáo buộc các phần mềm của Meta đã nhận dạng và gắn thẻ mọi người trong ảnh mà không được sự cho phép của người dùng.
