@@ -1,6 +1,13 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Nhiều phụ huynh tại phường Vĩnh Hòa, TP Nha Trang phản ảnh việc con họ không được học lớp 1 gần nhà.
+- Ba học sinh lớp 10 tại Hà Nội được lựa chọn từ cuộc thi ‘Những điều tự hào về thành phố của tôi’ dành cho học sinh trung học.
+- Không dùng ngữ liệu sách giáo khoa để kiểm tra định kỳ môn ngữ văn sẽ dẫn đến những thay đổi lớn trong đề thi môn ngữ văn tuyển sinh 10 và thi tốt nghiệp THPT năm học 2024-2025.
+- Một nghiên cứu mới công bố về các tác giả siêu năng suất gây lo ngại cho cộng đồng khoa học thế giới. Đáng chú ý trong danh sách này có nhiều người từ Việt Nam.
+- Hợp tác hướng đến kết nối về đào tạo, truyền thông thương hiệu và chia sẻ trách nhiệm xã hội, nhằm mang lại lợi ích thiết thực cho mối quan hệ doanh nghiệp - nhà trường - sinh viên.
+- Nữ sinh 17 tuổi kiện chính quyền thành phố Sapporo, Nhật Bản vì ngôi trường em theo học không có biện pháp giải quyết việc bắt nạt học đường, gây ảnh hưởng nghiêm trọng đến quá trình học tập của em.
+- Bốn học sinh của Trường trung học Thực hành (Trường đại học Sư phạm TP.HCM) là báo cáo viên tại hội nghị khoa học về thực hành các mục tiêu phát triển bền vững tại Trường trung học quốc gia số 1 Đài Nam (Đài Loan, Trung Quốc).
 - TS Nguyễn Hoàng Chinh cho biết như vậy khi được hỏi về bài báo khoa học quốc tế mà ông là đồng tác giả vừa bị gỡ bỏ.
 - Liên hoan bước nhảy với chủ đề Đan tỏa cảm xúc - Chạm màu tri thức khép lại với chiến thắng thuộc về nhóm Click - K Dance Crew đến từ Trường đại học Công nghệ TP.HCM (HUTECH).
 - Qua kiểm tra xác suất một số bài thi vào lớp 10 của một số môn chấm ngày 12-6 và ngày 13-6, thanh tra thấy giám khảo chưa thực hiện đúng quy trình và có một số bài thi có dấu hiệu bất thường.
@@ -24,45 +31,38 @@
 - Hội đồng nhân dân TP.HCM ra văn bản kiến nghị xem xét các vướng mắc trong việc hoạt động căng tin, bếp ăn, bãi giữ xe của các trường học tại TP.HCM.
 - UBND TP Hải Phòng đã biểu dương, khen thưởng các cá nhân góp phần vào thành tích đoạt giải Olympic khu vực và quốc tế năm học 2023-2024.
 - Lãnh đạo một trường THPT ở Thái Bình cho biết việc chấm bài thi tự luận kỳ thi tuyển sinh vào lớp 10 ở tỉnh này được thực hiện theo hai vòng độc lập, thực hiện theo đúng quy định, hướng dẫn của Bộ Giáo dục và Đào tạo.
-- Với 16/17 học sinh dự thi đoạt giải cá nhân và 5 giải đồng đội, đoàn học sinh tham dự cuộc thi Olympic Toán học trẻ quốc tế đã mang về nhiều huy chương cho Việt Nam.
-- 120 sinh viên, học sinh cả nước đã tham dự "Hội nghị mô phỏng Liên Hiệp Quốc Trường trung học phổ thông chuyên Lê Quý Đôn - Bình Định mở rộng năm 2024" (LQDOMUN 2024) tại Trung tâm ICISE, TP Quy Nhơn.
-- Được điểm cao trong các kỳ thi chứng chỉ uy tín, học sinh Royal School được hưởng ‘đặc quyền’ miễn thi môn tiếng Anh và được quy đổi sang điểm 10 trong kỳ thi tốt nghiệp THPT.
-- Do số lượng thí sinh đăng ký nguyện vọng xét tuyển vào trường tăng, một số trường đại học dự báo điểm chuẩn cũng sẽ tăng so với năm trước.
-- Liên quan vụ điểm thi vào lớp 10 của nhiều thí sinh chênh lệch lớn sau phúc khảo, chánh Thanh tra tỉnh Thái Bình đã có quyết định lập đoàn thanh tra gồm 11 người.
-- Từ ngày 31-7 đến 17h ngày 6-8, các thí sinh đã đăng ký nguyện vọng xét tuyển đại học trên hệ thống chung sẽ bắt đầu nộp lệ phí xét tuyển.
-- Những mảng tường rêu phong, cũ kỹ ở TP Tuy Hòa (tỉnh Phú Yên) đã được các sinh viên Trường đại học Kiến trúc TP.HCM 'khoác áo mới' thành những bức tranh cảnh quan du lịch đầy màu sắc, đẹp mắt.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Ông Nguyễn Phú Quốc, chi cục trưởng Chi cục Kiểm ngư Vùng V và ông Lê Trần Nguyên Hùng, trưởng Phòng Bảo vệ và Phát triển nguồn lợi thủy sản, được bổ nhiệm giữ chức phó cục trưởng Cục Kiểm ngư, Bộ Nông nghiệp và Phát triển nông thôn.
-- Một số tin tức đáng chú ý: Thu hơn 2.700 tỉ đồng từ đấu giá biển số ô tô; Lãnh đạo tỉnh Đồng Nai tiếp công dân đầu mỗi ngày làm việc; Cảnh báo bệnh ho gà...
-- Hôm nay mưa dông vẫn xảy ra ở nhiều vùng trên cả nước, mưa to chủ yếu ở các tỉnh miền Bắc. Miền Trung nắng, miền Nam sáng nắng chiều mưa.
-- Liên quan lùm xùm nợ nần giữa Đức Long Gia Lai và Lilama, tập đoàn này nói đang trả nợ đều đặn cho đối tác và sẽ trả dứt điểm trong năm 2026.
-- Theo giám đốc Sở Y tế TP.HCM, không đơn giản khi một trạm y tế, trung tâm y tế tuyển được bác sĩ có chứng chỉ hành nghề.
-- Tối 2-8, Liên đoàn Luật sư Việt Nam Đã tổ chức lễ vinh danh luật sư và tổ chức hành nghề luật sư tiêu biểu.
-- Chiều 2-8, tại trụ sở Chính phủ, Thủ tướng Phạm Minh Chính đã tiếp Tổng thống Timor-Leste José Ramos-Horta, cùng thảo luận về hợp tác song phương và các vấn đề khu vực.
-- Mong muốn được Đại sứ Hàn Quốc tại Việt Nam Choi Youngsam nêu khi gặp Chủ tịch nước Tô Lâm ngày 2-8. Cùng ngày, người đứng đầu Nhà nước cũng tiếp Đại sứ Canada tại Việt Nam Shawn Steil.
-- Chủ tịch nước Tô Lâm đề nghị cấp ủy, chính quyền, Mặt trận Tổ quốc, các tổ chức đoàn thể... cần nhận thức sâu sắc về vị trí, vai trò, tầm quan trọng của phong trào toàn dân bảo vệ an ninh Tổ quốc.
-- Câu chuyện rút bảo hiểm xã hội "một cục" tiếp tục nhận được nhiều trăn trở từ bạn đọc.
-- Trưởng Khu hành chính đặc biệt Hong Kong (Trung Quốc) Lý Gia Siêu mong muốn tăng cường hợp tác với TP.HCM trong nhiều lĩnh vực và xây dựng trung tâm tài chính.
-- “Gần 23 tỉ đồng hoàn thuế đã vào tài khoản doanh nghiệp” là thông tin vui cho gần 900 công nhân của Công ty Hoàng Sinh tại Bình Dương đang bị nợ lương 4 tháng, khi Cục Thuế tỉnh vừa có quyết định “nóng” hoàn thuế cho doanh nghiệp này.
-- Một ô tô đang chạy trong hầm Thủ Thiêm, hướng quận 1 đi TP Thủ Đức bất ngờ bốc cháy. Lực lượng chức năng nhanh chóng có mặt phong tỏa hầm, dập tắt đám cháy.
-- Nguyên lãnh đạo quận Hoàn Kiếm (Hà Nội) mong muốn quận Hoàn Kiếm, quận Hồng Bàng (Hải Phòng) và quận 1 (TP.HCM) phối hợp bồi dưỡng đội ngũ cán bộ “đẹp về văn hóa, cao về trí tuệ, đậm sâu về nghĩa tình”.
-- Gia đình 4 người yên ấm thì trong sáng nay 3 người ra đi mãi mãi sau cú tông của chiếc xe bán tải trên quốc lộ 26 (Đắk Lắk). Xóm nghèo ở xã Ea Đar (huyện Ea Kar, tỉnh Đắk Lắk) hôm nay chìm trong tang thương, đau xót.
-- Trao đổi với Tuổi Trẻ Online trưa 2-8, lãnh đạo UBND huyện Vũ Thư, tỉnh Thái Bình cho biết đang phối hợp với các cơ quan chức năng tìm cháu Bùi Đình Minh Đức, 16 tuổi, trú tại tổ 9, phường Tiền Phong (Thái Bình).
-- Ngày 2-8, Phó thủ tướng Trần Hồng Hà ký quyết định phê duyệt chủ trương đầu tư xây dựng cao tốc TP.HCM - Mộc Bài (giai đoạn 1) theo hình thức hợp đồng BOT.
-- Cơ quan chức năng sẽ đưa ra đấu giá biển số xe máy và biển số ô tô kinh doanh vận tải (nền màu vàng, chữ và số màu trắng).
-- Ngày 30-12-1999, Việt Nam và Trung Quốc ký hiệp ước biên giới trên đất liền, đến năm 2009 thì ký ba văn kiện pháp lý. Nhiều cuộc đàm phán đã diễn ra suốt thời gian đó.
-- UBND TP.HCM vừa có văn bản chỉ đạo về việc điều chỉnh thời gian thí điểm các tuyến xe buýt điện.
-- Ngày 2-8, cảnh sát giao thông đội An Sương đã mời tài xế xe buýt số 13 vượt đèn đỏ trên quốc lộ 22 (huyện Hóc Môn) lên làm việc và lập biên bản.
-- Ngày 2-8, Công ty cổ phần thương mại và dịch vụ vận tải Biển Sơn (Công ty Biển Sơn) đưa vào hoạt động 2 tàu cao tốc Lightning 68-06 và Lightning 68-08 tuyến Rạch Giá - Phú Quốc và ngược lại trên vùng biển Tây Nam, phục vụ người dân và du khách.
-- Lãnh đạo thành phố Hải Phòng mong sớm thành lập khu kinh tế ven biển phía nam để tạo động lực tăng trưởng mới cho thành phố.
-- Chiều 2-8, UBND tỉnh Kiên Giang tổ chức Hội nghị sơ kết công tác thi hành án hành chính 6 tháng đầu năm 2024. Đáng chú ý, có 44 bản án buộc phải thi hành án nhưng chưa thi hành được. Nhiều nhất tỉnh là TP Phú Quốc liên quan về đất đai.
-- UBND huyện Bình Xuyên (Vĩnh Phúc) cho biết đã kiểm điểm, rút kinh nghiệm đối với phó chủ tịch UBND xã Tam Hợp và cán bộ địa chính xã liên quan.
-- Nhóm công tác liên ngành đề xuất trước mắt thanh toán cho nhà đầu tư làm dự án 2,7km đường vành đai 2 hơn 1.200 tỉ nhằm giảm phát sinh chi phí lãi vay.
-- Nhóm thanh thiếu niên khai nhận đã chạy xe mô tô truy đuổi, chặn xe của bị hại, dùng kiếm chém lấy biển số xe để 'khoe' trên TikTok.
-- Đơn vị chủ quản hai xe biển xanh vượt ẩu ở đường cấm vượt trên cao tốc Cam Lộ - La Sơn đã lên tiếng.
-- UBND huyện Tân Hưng, tỉnh Long An cho biết chưa xử lý được việc vận chuyển bùn đất trái phép vì việc áp dụng quy định của pháp luật gặp nhiều khó khăn.
-- Trong ngày hội việc làm lần 2, các Bệnh viện và các Trung tâm Y tế trong TP cần tuyển hơn 350 bác sĩ nhưng chỉ có gần 120 bác sĩ tham gia ứng tuyển.
+- Hôm nay 4-8, thời tiết Bắc Bộ đã giảm mưa nhiều, tuy nhiên vài nơi vẫn còn mưa. Trung Bộ, Nam Bộ ngày nắng, chiều tối mưa rào.
+- Tin tức đáng chú ý: 39 'đại gia' trên sàn vốn hóa vượt 1 tỉ USD; Một doanh nghiệp bất động sản 2 năm tuổi ở Hưng Yên vay nợ 2.850 tỉ trái phiếu...
+- Cây xanh lớn tại giao lộ Lý Chính Thắng - Trương Định (quận 3, TP.HCM) bị bật gốc ngã đổ tối 3-8 khiến người đi đường bị thương.
+- Chủ trang Facebook “Cao Tuổi Bản Tin” bị khởi tố, bắt tạm giam vì hành vi lợi dụng các quyền tự do dân chủ xâm phạm lợi ích của Nhà nước, quyền, lợi ích hợp pháp của tổ chức, cá nhân.
+- 200 phần quà gồm bình ắc quy, bóng đèn, túi thuốc, một cuốn cẩm nang "Những điều cần biết về đánh bắt hải sản"... nhằm hỗ trợ, động viên ngư dân Thái Bình vươn khơi, bám biển.
+- Đoạn phía nam dự án BT đường vành đai 2 của Tập đoàn Phúc Sơn chưa được nghiệm thu nhưng đưa vào sử dụng 3 năm qua đã xảy ra 12 vụ tai nạn giao thông khiến 6 người chết.
+- Việc quyết định đơn vị tham gia thí điểm xe buýt hai tầng phải đảm bảo công khai, minh bạch, bình đẳng, tránh độc quyền, đồng thời phải đảm bảo trật tự an toàn giao thông.
+- Công an TP Đồng Hới (tỉnh Quảng Bình) vừa lập biên bản xử phạt hành chính 7,5 triệu đồng một người tại địa phương vì hành vi đăng tải các bài viết bịa đặt, sai sự thật về cố Tổng Bí thư Nguyễn Phú Trọng.
+- Mây dông phát triển mạnh khiến một số nơi tại Nam Bộ, TP.HCM có mưa to vào đêm nay.
+- Tổng thống Nga Vladimir Putin khẳng định như vậy trong thư chúc mừng Tổng Bí thư, Chủ tịch nước Tô Lâm ngày 3-8.
+- Ủy ban Mặt trận Tổ quốc Việt Nam tỉnh Quảng Trị chuẩn bị tổ chức đại hội. Trên giấy mời, ban tổ chức xin không nhận hoa chúc mừng nên được nhiều người ủng hộ.
+- Theo tiến sĩ Phạm Sanh, việc trừ điểm, phục hồi điểm bằng lái xe là cách làm hay nhưng cần chú ý giải pháp.
+- Thay vì chuyển đổi hơn 4.700ha rừng thành vùng tưới nông nghiệp cho hồ thủy lợi Ia Mơr, tỉnh Gia Lai đề xuất thay thế bằng vùng tưới khác để giữ rừng.
+- Điện mừng của nhà lãnh đạo Trung Quốc nêu rõ: sẵn sàng làm việc cùng Tổng Bí thư, Chủ tịch nước Tô Lâm, kèm lời chúc nhà lãnh đạo Việt Nam "đạt được nhiều thành tựu mới trên cương vị cao cả".
+- Chiều 3-8, tại Hà Nội, Hội nghị Ban Chấp hành Trung ương khóa XIII họp phiên bế mạc.
+- Nhà thầu thi công dự án đường Hùng Vương kết nối hành lang kinh tế Đông - Tây và Khu kinh tế Đông Nam Quảng Trị vừa bị chấm dứt hợp đồng vì thi công quá chậm.
+- Ban Chấp hành Trung ương Đảng đã đồng ý để các ông Lê Minh Khái, Đặng Quốc Khánh, Chẩu Văn Lâm, Nguyễn Xuân Ký thôi chức vụ trong Đảng.
+- Chuyên gia nhìn nhận sau một năm thực hiện nghị quyết 98, TP.HCM đã đạt được nhiều kết quả quan trọng, tạo được nền móng để huy động nguồn lực phát triển.
+- Sau nửa tháng ra quân, Phòng Cảnh sát giao thông Công an TP.HCM (PC08) đã xử lý hơn 1.800 xe ba, bốn bánh tự chế gây mất an toàn giao thông.
+- Thanh tra Sở Nông nghiệp và Phát triển nông thôn tỉnh Đắk Lắk vừa phát hiện doanh nghiệp sầu riêng tại tỉnh này dán mã đóng gói ở TP.HCM để đưa đi xuất khẩu.
+- Lãnh đạo cấp cao Lào và Campuchia nhấn mạnh việc Chủ tịch nước Tô Lâm được bầu làm Tổng Bí thư  cho thấy sự tin tưởng của Đảng, Nhà nước và nhân dân Việt Nam với đồng chí Tô Lâm.
+- Người dân phản ánh quốc lộ 1, đoạn trước Khu chế xuất Linh Trung (thành phố Thủ Đức, TP.HCM), xe khách hoạt động 'bát nháo' diễn ra đã lâu nhưng chưa xử lý dứt điểm.
+- Nghi phạm là giám đốc doanh nghiệp bị khởi tố, bắt tạm giam với cáo buộc đã đưa ra các thông tin gian dối liên quan dự án đường tuần tra biên giới để lừa đảo chiếm đoạt tài sản.
+- Tại vùng biển gần danh thắng quốc gia đặc biệt Gành Đá Đĩa (tỉnh Phú Yên) vừa xuất hiện 2 con cá voi khiến nhiều người dân và du khách thích thú.
+- Hội đồng Kiểm tra nhà nước về công tác nghiệm thu công trình xây dựng vừa chấp thuận nghiệm thu có điều kiện đoạn trên cao với dự án metro Nhổn - ga Hà Nội.
+- Một năm triển khai nghị quyết 98 với các cơ chế đặc thù, TP.HCM đã ban hành khối lượng chính sách đáng kể, là tiền đề mở ra triển vọng giải quyết nút thắt, điểm nghẽn, bài toán phát triển bền vững.
+- Sáng 3-8, hàng ngàn xe lại bị ùn ứ, nhích từng chút khó khăn trên cao tốc TP.HCM - Long Thành - Dầu Giây. Lực lượng Cục Cảnh sát giao thông cho biết 'cuối tuần nên xe đông, di chuyển chậm'.
+- Sáng 3-8, tại buổi họp báo trong nước, quốc tế, Tổng Bí thư, Chủ tịch nước Tô Lâm khẳng định sẽ phát huy cao nhất tinh thần "tự chủ, tự tin, tự lực, tự cường, tự hào dân tộc"...
+- Chủ tịch nước Tô Lâm đã được Hội nghị Trung ương Đảng bầu làm Tổng Bí thư Ban Chấp hành Trung ương Đảng khóa XIII.
+- Việt Nam đề nghị Mỹ tiếp tục thực hiện cam kết về việc phối hợp rộng rãi, mạnh mẽ, mang tính xây dựng, tiến tới sớm công nhận quy chế kinh tế thị trường của Việt Nam.
 ![New](News.png)
 ## Nhịp sống số 
 - Bang Texas cáo buộc các phần mềm của Meta đã nhận dạng và gắn thẻ mọi người trong ảnh mà không được sự cho phép của người dùng.
