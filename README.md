@@ -1,6 +1,9 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Cuối giờ học, học sinh lớp 10 chuyên hóa Trường THPT chuyên Bắc Ninh vẫn nán lại, chờ “khách mời đặc biệt” - Nguyễn Hữu Tiến Hưng - chủ nhân huy chương vàng Olympic hóa học quốc tế năm 2024.
+- Không còn cảnh hoang tàn với các ngôi mộ chằng chịt và rác thải, màu xanh um tùm của cỏ dại là diện mạo hiện nay của nghĩa trang Bình Hưng Hòa sau khi hoàn thành bốc mộ giai đoạn 1.
+- Cùng học Trường THPT chuyên Bắc Giang, Thân Thế Công, Trương Phi Hùng và Giáp Vũ Sơn Hà cùng 'gặt' huy chương vàng Olympic quốc tế môn vật lý và hóa học.
 - Nhiều phụ huynh tại phường Vĩnh Hòa, TP Nha Trang phản ảnh việc con họ không được học lớp 1 gần nhà.
 - Ba học sinh lớp 10 tại Hà Nội được lựa chọn từ cuộc thi ‘Những điều tự hào về thành phố của tôi’ dành cho học sinh trung học.
 - Không dùng ngữ liệu sách giáo khoa để kiểm tra định kỳ môn ngữ văn sẽ dẫn đến những thay đổi lớn trong đề thi môn ngữ văn tuyển sinh 10 và thi tốt nghiệp THPT năm học 2024-2025.
@@ -28,41 +31,38 @@
 - Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) vừa thông báo gia hạn nộp chứng chỉ tiếng Anh để đáp ứng điều kiện sơ tuyển một số chương trình đào tạo đại học của trường năm 2024.
 - Giữa tháng 7 vừa qua, 10 cô cậu học trò nghèo vượt khó ở Quảng Nam đã nhận phần thưởng đặc biệt: chuyến du lịch bốn ngày tại Hàn Quốc.
 - UBND tỉnh Thái Bình đã ban hành quyết định về việc tạm đình chỉ công tác đối với ông Nguyễn Viết Hiển, giám đốc Sở Giáo dục và Đào tạo tỉnh, kể từ ngày 31-7.
-- Hội đồng nhân dân TP.HCM ra văn bản kiến nghị xem xét các vướng mắc trong việc hoạt động căng tin, bếp ăn, bãi giữ xe của các trường học tại TP.HCM.
-- UBND TP Hải Phòng đã biểu dương, khen thưởng các cá nhân góp phần vào thành tích đoạt giải Olympic khu vực và quốc tế năm học 2023-2024.
-- Lãnh đạo một trường THPT ở Thái Bình cho biết việc chấm bài thi tự luận kỳ thi tuyển sinh vào lớp 10 ở tỉnh này được thực hiện theo hai vòng độc lập, thực hiện theo đúng quy định, hướng dẫn của Bộ Giáo dục và Đào tạo.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Luật Nhà ở 2023 và nghị định 98 hướng dẫn về cải tạo, xây dựng lại nhà chung cư được đánh giá sẽ tạo đột phá trong cải tạo chung cư cũ.
+- Hàng chục chủ biệt thự tại Măng Đen bị chính quyền huyện Kon Plông,tỉnh Kon Tum ra thông báo yêu cầu tháo dỡ để thu hồi đất đã giao trái luật.
+- Chủ một cơ sở sơ chế xơ mướp ở TP.HCM cho hay mỗi năm anh xuất khẩu 3-5 đơn hàng, mỗi đơn trị giá 30.000 - 40.000 USD.
+- Một số tin tức đáng chú ý: Nợ xấu ngân hàng gia tăng; Kỳ lạ, một doanh nghiệp huy động hàng trăm tỉ đồng trái phiếu lãi suất 0%; Giá heo giống tăng cao, dân lăn tăn với bài toán tái đàn...
+- Hôm nay 5-8, thời tiết nắng nóng diện rộng ở Trung Bộ lan ra một số tỉnh Đông Bắc Bộ; Nam Bộ nhiều mây, mưa rào xen kẽ nắng.
+- Công an TP Bảo Lộc, Lâm Đồng phá đường dây chuyên rao bán tiền giả rồi giao 'tiền âm phủ' để chiếm đoạt tiền của người mua trên cả nước.
+- Sơn La đang rà soát để có phương án trình Thủ tướng và các bộ, ngành trung ương đầu tư xây hầm tiêu thoát lũ, chống ngập úng ở thành phố Sơn La.
+- Lãnh đạo các nước Cuba, Triều Tiên, Nhật Bản, Belarus và các đảng đã nhấn mạnh sự tin tưởng trong các thư/điện chúc mừng Tổng Bí thư, Chủ tịch nước Tô Lâm.
+- Người đàn ông dùng gậy cao su đánh người bán vé số khuyết tật, khi người này ngồi trước cổng chùa Linh Ẩn (huyện Lâm Hà, tỉnh Lâm Đồng).
+- Điều tra trong số 31/812 mẫu đất ô nhiễm, có đến 21 mẫu đất bị ô nhiễm cadimi.
+- Thủ tướng Phạm Minh Chính đã ký quyết định phê chuẩn kết quả bầu ông Nguyễn Hoàng Giang, phó bí thư Tỉnh ủy Quảng Ngãi, làm chủ tịch UBND tỉnh này.
+- Người đàn ông 40 tuổi, quốc tịch Campuchia mang 1,2kg vàng từ An Giang qua biên giới sang Campuchia thì bị hải quan và biên phòng bắt giữ.
+- Tại Đà Nẵng có nhiều dự án bất động sản đang gặp các vướng mắc. Vậy cơ quan chức năng sẽ xử lý vấn đề này như thế nào?
+- Từ đầu năm 2024 đến nay, thiên tai làm 104 người chết và mất tích (phần lớn người chết và mất tích là do sạt lở đất hoặc bị lũ cuốn), thiệt hại 2.000 tỉ đồng.
+- Vụ sạt lở đất nghiêm trọng vào rạng sáng nay khiến hai vợ chồng tử vong tại tỉnh Lạng Sơn.
+- UBND tỉnh Đồng Nai vừa ra văn bản yêu cầu rà soát đề xuất dùng vật liệu san lấp từ khu vực nhà ga T3 sân bay Long Thành để thi công cao tốc Biên Hòa - Vũng Tàu.
+- Ngày 4-8, tại Trung tâm Bảo trợ người tàn tật Hiệp Bình Chánh (TP Thủ Đức), Công an TP.HCM phối hợp các đơn vị liên quan tổ chức cấp căn cước cho 117 nhân khẩu đặc biệt.
+- TP.HCM đã thành lập Ban Chỉ đạo thực hiện sắp xếp đơn vị hành chính cấp huyện, cấp xã trên địa bàn TP giai đoạn 2023 - 2030. Bí thư Thành ủy Nguyễn Văn Nên làm trưởng ban.
+- Đẩy mạnh toàn diện, đồng bộ công cuộc đổi mới, phát triển nhanh và bền vững đất nước, củng cố tiềm lực quốc gia. Xây dựng, hoàn thiện đồng bộ thể chế phát triển nền kinh tế thị trường định hướng xã hội chủ nghĩa hiện đại, hội nhập.
+- Các đơn vị thi công đang tích cực xây dựng, đẩy tiến độ loạt dự án cầu đường ở TP.HCM để kịp về đích trong năm 2024.
+- Tuần này thời tiết Bắc Bộ và Trung Bộ nắng nóng diện rộng; Nam Bộ ngày nắng, chiều tối có mưa.
+- Người đàn ông lái ô tô chạy ngược chiều trên cao tốc Vĩnh Hảo - Cam Lâm - Nha Trang bị Cục Cảnh sát giao thông lập biên bản.
+- Người đàn ông ở Huế bị nhiễm liên cầu lợn và nhập viện cấp cứu trong tình trạng nguy kịch nghi do ăn tiết canh dê.
+- Không còn cảnh hoang tàn với các ngôi mộ chằng chịt và rác thải, màu xanh um tùm của cỏ dại là diện mạo hiện nay của nghĩa trang Bình Hưng Hòa sau khi hoàn thành bốc mộ giai đoạn 1.
+- Tại Việt Nam, đuối nước là một trong 10 nguyên nhân gây tử vong hàng đầu cho trẻ em từ 5 - 14 tuổi, cướp đi sinh mạng gần 2.000 trẻ mỗi năm. Theo các chuyên gia, ngoài phổ cập dạy bơi, kỹ năng phòng chống đuối nước là rất quan trọng.
 - Hôm nay 4-8, thời tiết Bắc Bộ đã giảm mưa nhiều, tuy nhiên vài nơi vẫn còn mưa. Trung Bộ, Nam Bộ ngày nắng, chiều tối mưa rào.
 - Tin tức đáng chú ý: 39 'đại gia' trên sàn vốn hóa vượt 1 tỉ USD; Một doanh nghiệp bất động sản 2 năm tuổi ở Hưng Yên vay nợ 2.850 tỉ trái phiếu...
 - Cây xanh lớn tại giao lộ Lý Chính Thắng - Trương Định (quận 3, TP.HCM) bị bật gốc ngã đổ tối 3-8 khiến người đi đường bị thương.
 - Chủ trang Facebook “Cao Tuổi Bản Tin” bị khởi tố, bắt tạm giam vì hành vi lợi dụng các quyền tự do dân chủ xâm phạm lợi ích của Nhà nước, quyền, lợi ích hợp pháp của tổ chức, cá nhân.
 - 200 phần quà gồm bình ắc quy, bóng đèn, túi thuốc, một cuốn cẩm nang "Những điều cần biết về đánh bắt hải sản"... nhằm hỗ trợ, động viên ngư dân Thái Bình vươn khơi, bám biển.
-- Đoạn phía nam dự án BT đường vành đai 2 của Tập đoàn Phúc Sơn chưa được nghiệm thu nhưng đưa vào sử dụng 3 năm qua đã xảy ra 12 vụ tai nạn giao thông khiến 6 người chết.
-- Việc quyết định đơn vị tham gia thí điểm xe buýt hai tầng phải đảm bảo công khai, minh bạch, bình đẳng, tránh độc quyền, đồng thời phải đảm bảo trật tự an toàn giao thông.
-- Công an TP Đồng Hới (tỉnh Quảng Bình) vừa lập biên bản xử phạt hành chính 7,5 triệu đồng một người tại địa phương vì hành vi đăng tải các bài viết bịa đặt, sai sự thật về cố Tổng Bí thư Nguyễn Phú Trọng.
-- Mây dông phát triển mạnh khiến một số nơi tại Nam Bộ, TP.HCM có mưa to vào đêm nay.
-- Tổng thống Nga Vladimir Putin khẳng định như vậy trong thư chúc mừng Tổng Bí thư, Chủ tịch nước Tô Lâm ngày 3-8.
-- Ủy ban Mặt trận Tổ quốc Việt Nam tỉnh Quảng Trị chuẩn bị tổ chức đại hội. Trên giấy mời, ban tổ chức xin không nhận hoa chúc mừng nên được nhiều người ủng hộ.
-- Theo tiến sĩ Phạm Sanh, việc trừ điểm, phục hồi điểm bằng lái xe là cách làm hay nhưng cần chú ý giải pháp.
-- Thay vì chuyển đổi hơn 4.700ha rừng thành vùng tưới nông nghiệp cho hồ thủy lợi Ia Mơr, tỉnh Gia Lai đề xuất thay thế bằng vùng tưới khác để giữ rừng.
-- Điện mừng của nhà lãnh đạo Trung Quốc nêu rõ: sẵn sàng làm việc cùng Tổng Bí thư, Chủ tịch nước Tô Lâm, kèm lời chúc nhà lãnh đạo Việt Nam "đạt được nhiều thành tựu mới trên cương vị cao cả".
-- Chiều 3-8, tại Hà Nội, Hội nghị Ban Chấp hành Trung ương khóa XIII họp phiên bế mạc.
-- Nhà thầu thi công dự án đường Hùng Vương kết nối hành lang kinh tế Đông - Tây và Khu kinh tế Đông Nam Quảng Trị vừa bị chấm dứt hợp đồng vì thi công quá chậm.
-- Ban Chấp hành Trung ương Đảng đã đồng ý để các ông Lê Minh Khái, Đặng Quốc Khánh, Chẩu Văn Lâm, Nguyễn Xuân Ký thôi chức vụ trong Đảng.
-- Chuyên gia nhìn nhận sau một năm thực hiện nghị quyết 98, TP.HCM đã đạt được nhiều kết quả quan trọng, tạo được nền móng để huy động nguồn lực phát triển.
-- Sau nửa tháng ra quân, Phòng Cảnh sát giao thông Công an TP.HCM (PC08) đã xử lý hơn 1.800 xe ba, bốn bánh tự chế gây mất an toàn giao thông.
-- Thanh tra Sở Nông nghiệp và Phát triển nông thôn tỉnh Đắk Lắk vừa phát hiện doanh nghiệp sầu riêng tại tỉnh này dán mã đóng gói ở TP.HCM để đưa đi xuất khẩu.
-- Lãnh đạo cấp cao Lào và Campuchia nhấn mạnh việc Chủ tịch nước Tô Lâm được bầu làm Tổng Bí thư  cho thấy sự tin tưởng của Đảng, Nhà nước và nhân dân Việt Nam với đồng chí Tô Lâm.
-- Người dân phản ánh quốc lộ 1, đoạn trước Khu chế xuất Linh Trung (thành phố Thủ Đức, TP.HCM), xe khách hoạt động 'bát nháo' diễn ra đã lâu nhưng chưa xử lý dứt điểm.
-- Nghi phạm là giám đốc doanh nghiệp bị khởi tố, bắt tạm giam với cáo buộc đã đưa ra các thông tin gian dối liên quan dự án đường tuần tra biên giới để lừa đảo chiếm đoạt tài sản.
-- Tại vùng biển gần danh thắng quốc gia đặc biệt Gành Đá Đĩa (tỉnh Phú Yên) vừa xuất hiện 2 con cá voi khiến nhiều người dân và du khách thích thú.
-- Hội đồng Kiểm tra nhà nước về công tác nghiệm thu công trình xây dựng vừa chấp thuận nghiệm thu có điều kiện đoạn trên cao với dự án metro Nhổn - ga Hà Nội.
-- Một năm triển khai nghị quyết 98 với các cơ chế đặc thù, TP.HCM đã ban hành khối lượng chính sách đáng kể, là tiền đề mở ra triển vọng giải quyết nút thắt, điểm nghẽn, bài toán phát triển bền vững.
-- Sáng 3-8, hàng ngàn xe lại bị ùn ứ, nhích từng chút khó khăn trên cao tốc TP.HCM - Long Thành - Dầu Giây. Lực lượng Cục Cảnh sát giao thông cho biết 'cuối tuần nên xe đông, di chuyển chậm'.
-- Sáng 3-8, tại buổi họp báo trong nước, quốc tế, Tổng Bí thư, Chủ tịch nước Tô Lâm khẳng định sẽ phát huy cao nhất tinh thần "tự chủ, tự tin, tự lực, tự cường, tự hào dân tộc"...
-- Chủ tịch nước Tô Lâm đã được Hội nghị Trung ương Đảng bầu làm Tổng Bí thư Ban Chấp hành Trung ương Đảng khóa XIII.
-- Việt Nam đề nghị Mỹ tiếp tục thực hiện cam kết về việc phối hợp rộng rãi, mạnh mẽ, mang tính xây dựng, tiến tới sớm công nhận quy chế kinh tế thị trường của Việt Nam.
 ![New](News.png)
 ## Nhịp sống số 
 - Bang Texas cáo buộc các phần mềm của Meta đã nhận dạng và gắn thẻ mọi người trong ảnh mà không được sự cho phép của người dùng.
