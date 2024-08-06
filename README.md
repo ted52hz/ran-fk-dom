@@ -1,6 +1,17 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Năm 2024, Trường Đại học Ngoại ngữ - Tin học TP.HCM (HUFLIT) tuyển sinh ngành Trí tuệ nhân tạo và Ngôn ngữ Nhật. Đây cũng là 2 ngành nhận được sự quan tâm đặc biệt của nhiều thí sinh trong mùa tuyển sinh năm nay.
+- Với 7 ngôi trường mới, Bình Tân dự kiến trong năm học này, bậc tiểu học sẽ giảm sĩ số học sinh/lớp, các em được học phòng học khang trang, hiện đại, trang thiết bị mới.
+- Ở một số địa phương như TP.HCM và Hà Nội, sĩ số 35 học sinh/lớp "chỉ là mục tiêu để phấn đấu". Nhiều quận, huyện tại TP.HCM chịu áp lực về sĩ số học sinh/lớp và tỉ lệ trường đạt điều kiện học hai buổi/ngày ở bậc tiểu học.
+- Ông Đào Thanh Trường, 44 tuổi, quê Hải Phòng, vừa được bổ nhiệm chức danh phó giám đốc Đại học Quốc gia Hà Nội trong 5 năm.
+- Liên quan đến thông tin một số bài thi vào lớp 10 THPT tại Hải Phòng khi được kiểm tra xác suất có "dấu hiệu bất thường", Thanh tra Bộ Giáo dục và Đào tạo vừa có những lý giải về vấn đề này.
+- Ngày 5-8, Bộ Giáo dục và Đào tạo bác thông tin về việc tổ chức Olympic toán học 2024 như nội dung được lan truyền trên mạng xã hội.
+- Theo Bộ Giáo dục và Đào tạo, khối STEAM khoa học kỹ thuật, công nghệ và toán có tỉ lệ đăng ký nguyện vọng vẫn chiếm 30% và mức tăng trưởng năm nay là 11%.
+- Thủ tướng Phạm Minh Chính đã kết luận như vậy khi chủ trì phiên họp Chính phủ thường kỳ tháng 7-2024.
+- Đầu tháng 6 tiền hỗ trợ sinh hoạt phí cho sinh viên đã về, nhưng đến nay Trường đại học Sư phạm Thể dục thể thao TP.HCM chưa cấp cho sinh viên.
+- Không dùng ngữ liệu trong SGK để ra đề kiểm tra định kỳ môn ngữ văn là một nội dung mới được Bộ GD-ĐT đặt ra cho năm học 2024 - 2025.
+- PGS.TS Nguyễn Thị Hồng Vân cho rằng việc đặt các nhà vật lý vào những tác giả 'siêu năng suất' đáng nghi ngờ là không phù hợp, gây hiểu lầm.
 - Cuối giờ học, học sinh lớp 10 chuyên hóa Trường THPT chuyên Bắc Ninh vẫn nán lại, chờ “khách mời đặc biệt” - Nguyễn Hữu Tiến Hưng - chủ nhân huy chương vàng Olympic hóa học quốc tế năm 2024.
 - Không còn cảnh hoang tàn với các ngôi mộ chằng chịt và rác thải, màu xanh um tùm của cỏ dại là diện mạo hiện nay của nghĩa trang Bình Hưng Hòa sau khi hoàn thành bốc mộ giai đoạn 1.
 - Cùng học Trường THPT chuyên Bắc Giang, Thân Thế Công, Trương Phi Hùng và Giáp Vũ Sơn Hà cùng 'gặt' huy chương vàng Olympic quốc tế môn vật lý và hóa học.
@@ -20,49 +31,38 @@
 - Năm học 2024-2025, các cơ sở giáo dục không được sử dụng những văn bản, đoạn trích đã được học trong sách giáo khoa để làm ngữ liệu kiểm tra định kỳ môn ngữ văn.
 - Nhóm học sinh lớp 11 ở TP.HCM làm ra bộ dầu gội, dầu xả từ rau càng cua, bồ kết... giúp trị gàu, nấm đầu, rụng tóc.
 - Trung ương Đoàn cho biết đội tuyển Việt Nam đã đoạt 2 huy chương đồng, tại vòng chung kết thế giới cuộc thi Vô địch Tin học văn phòng thế giới và Vô địch Thiết kế đồ họa thế giới 2024.
-- Một trại hè được cựu thí sinh Olympic toán học quốc tế (IMO) và các học sinh giỏi toán quốc gia tổ chức tám năm qua dành cho những học sinh say mê toán học.
-- Việc nhiều trường đại học mở rộng hình thức xét tuyển sẽ giúp đánh giá học sinh toàn diện với khả năng phân hóa cao, tránh bỏ sót những học sinh tiềm năng.
-- Liên quan đến những bất thường điểm thi vào lớp 10 tại Thái Bình, trưởng đoàn thanh tra yêu cầu các thành viên đoàn làm việc cả thứ bảy, chủ nhật để đảm bảo tiến độ cuộc thanh tra.
-- Ngày 1-8, UBND TP Thủ Đức, TP.HCM đã tổ chức lễ tuyên dương, khen thưởng học sinh giỏi từ mầm non đến THPT với tổng kinh phí hơn 525 triệu đồng.
-- Nhận thấy xu thế sống xanh đang ngày càng ưa chuộng, nhóm sinh viên Trường đại học Văn Lang quyết định khởi nghiệp với dòng tranh sinh học có tên gọi BioPicture.
-- Nhiều người mù ở tỉnh Khánh Hòa và các địa phương trên cả nước đã tự tin sử dụng điện thoại cảm ứng, thực hiện các thao tác như nghe tin tức trên YouTube, gọi điện thoại, soạn tin nhắn Zalo...
-- Tin từ IDP Việt Nam cho biết các thí sinh dự thi IELTS trên máy tính có thể nhận kết quả sau 2 ngày dự thi.
-- Một số phụ huynh tại Thái Bình cho biết sau khi nhận kết quả điểm thi vào lớp 10 của con em, mặc dù thấy điểm thi môn toán thấp bất thường nhưng không phúc khảo vì con đã đỗ nguyện vọng 2 vào trường khác, có phụ huynh sợ tụt điểm thêm.
-- Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) vừa thông báo gia hạn nộp chứng chỉ tiếng Anh để đáp ứng điều kiện sơ tuyển một số chương trình đào tạo đại học của trường năm 2024.
-- Giữa tháng 7 vừa qua, 10 cô cậu học trò nghèo vượt khó ở Quảng Nam đã nhận phần thưởng đặc biệt: chuyến du lịch bốn ngày tại Hàn Quốc.
-- UBND tỉnh Thái Bình đã ban hành quyết định về việc tạm đình chỉ công tác đối với ông Nguyễn Viết Hiển, giám đốc Sở Giáo dục và Đào tạo tỉnh, kể từ ngày 31-7.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Luật Nhà ở 2023 và nghị định 98 hướng dẫn về cải tạo, xây dựng lại nhà chung cư được đánh giá sẽ tạo đột phá trong cải tạo chung cư cũ.
-- Hàng chục chủ biệt thự tại Măng Đen bị chính quyền huyện Kon Plông,tỉnh Kon Tum ra thông báo yêu cầu tháo dỡ để thu hồi đất đã giao trái luật.
-- Chủ một cơ sở sơ chế xơ mướp ở TP.HCM cho hay mỗi năm anh xuất khẩu 3-5 đơn hàng, mỗi đơn trị giá 30.000 - 40.000 USD.
-- Một số tin tức đáng chú ý: Nợ xấu ngân hàng gia tăng; Kỳ lạ, một doanh nghiệp huy động hàng trăm tỉ đồng trái phiếu lãi suất 0%; Giá heo giống tăng cao, dân lăn tăn với bài toán tái đàn...
-- Hôm nay 5-8, thời tiết nắng nóng diện rộng ở Trung Bộ lan ra một số tỉnh Đông Bắc Bộ; Nam Bộ nhiều mây, mưa rào xen kẽ nắng.
-- Công an TP Bảo Lộc, Lâm Đồng phá đường dây chuyên rao bán tiền giả rồi giao 'tiền âm phủ' để chiếm đoạt tiền của người mua trên cả nước.
-- Sơn La đang rà soát để có phương án trình Thủ tướng và các bộ, ngành trung ương đầu tư xây hầm tiêu thoát lũ, chống ngập úng ở thành phố Sơn La.
-- Lãnh đạo các nước Cuba, Triều Tiên, Nhật Bản, Belarus và các đảng đã nhấn mạnh sự tin tưởng trong các thư/điện chúc mừng Tổng Bí thư, Chủ tịch nước Tô Lâm.
-- Người đàn ông dùng gậy cao su đánh người bán vé số khuyết tật, khi người này ngồi trước cổng chùa Linh Ẩn (huyện Lâm Hà, tỉnh Lâm Đồng).
-- Điều tra trong số 31/812 mẫu đất ô nhiễm, có đến 21 mẫu đất bị ô nhiễm cadimi.
-- Thủ tướng Phạm Minh Chính đã ký quyết định phê chuẩn kết quả bầu ông Nguyễn Hoàng Giang, phó bí thư Tỉnh ủy Quảng Ngãi, làm chủ tịch UBND tỉnh này.
-- Người đàn ông 40 tuổi, quốc tịch Campuchia mang 1,2kg vàng từ An Giang qua biên giới sang Campuchia thì bị hải quan và biên phòng bắt giữ.
-- Tại Đà Nẵng có nhiều dự án bất động sản đang gặp các vướng mắc. Vậy cơ quan chức năng sẽ xử lý vấn đề này như thế nào?
-- Từ đầu năm 2024 đến nay, thiên tai làm 104 người chết và mất tích (phần lớn người chết và mất tích là do sạt lở đất hoặc bị lũ cuốn), thiệt hại 2.000 tỉ đồng.
-- Vụ sạt lở đất nghiêm trọng vào rạng sáng nay khiến hai vợ chồng tử vong tại tỉnh Lạng Sơn.
-- UBND tỉnh Đồng Nai vừa ra văn bản yêu cầu rà soát đề xuất dùng vật liệu san lấp từ khu vực nhà ga T3 sân bay Long Thành để thi công cao tốc Biên Hòa - Vũng Tàu.
-- Ngày 4-8, tại Trung tâm Bảo trợ người tàn tật Hiệp Bình Chánh (TP Thủ Đức), Công an TP.HCM phối hợp các đơn vị liên quan tổ chức cấp căn cước cho 117 nhân khẩu đặc biệt.
-- TP.HCM đã thành lập Ban Chỉ đạo thực hiện sắp xếp đơn vị hành chính cấp huyện, cấp xã trên địa bàn TP giai đoạn 2023 - 2030. Bí thư Thành ủy Nguyễn Văn Nên làm trưởng ban.
-- Đẩy mạnh toàn diện, đồng bộ công cuộc đổi mới, phát triển nhanh và bền vững đất nước, củng cố tiềm lực quốc gia. Xây dựng, hoàn thiện đồng bộ thể chế phát triển nền kinh tế thị trường định hướng xã hội chủ nghĩa hiện đại, hội nhập.
-- Các đơn vị thi công đang tích cực xây dựng, đẩy tiến độ loạt dự án cầu đường ở TP.HCM để kịp về đích trong năm 2024.
-- Tuần này thời tiết Bắc Bộ và Trung Bộ nắng nóng diện rộng; Nam Bộ ngày nắng, chiều tối có mưa.
-- Người đàn ông lái ô tô chạy ngược chiều trên cao tốc Vĩnh Hảo - Cam Lâm - Nha Trang bị Cục Cảnh sát giao thông lập biên bản.
-- Người đàn ông ở Huế bị nhiễm liên cầu lợn và nhập viện cấp cứu trong tình trạng nguy kịch nghi do ăn tiết canh dê.
-- Không còn cảnh hoang tàn với các ngôi mộ chằng chịt và rác thải, màu xanh um tùm của cỏ dại là diện mạo hiện nay của nghĩa trang Bình Hưng Hòa sau khi hoàn thành bốc mộ giai đoạn 1.
-- Tại Việt Nam, đuối nước là một trong 10 nguyên nhân gây tử vong hàng đầu cho trẻ em từ 5 - 14 tuổi, cướp đi sinh mạng gần 2.000 trẻ mỗi năm. Theo các chuyên gia, ngoài phổ cập dạy bơi, kỹ năng phòng chống đuối nước là rất quan trọng.
-- Hôm nay 4-8, thời tiết Bắc Bộ đã giảm mưa nhiều, tuy nhiên vài nơi vẫn còn mưa. Trung Bộ, Nam Bộ ngày nắng, chiều tối mưa rào.
-- Tin tức đáng chú ý: 39 'đại gia' trên sàn vốn hóa vượt 1 tỉ USD; Một doanh nghiệp bất động sản 2 năm tuổi ở Hưng Yên vay nợ 2.850 tỉ trái phiếu...
-- Cây xanh lớn tại giao lộ Lý Chính Thắng - Trương Định (quận 3, TP.HCM) bị bật gốc ngã đổ tối 3-8 khiến người đi đường bị thương.
-- Chủ trang Facebook “Cao Tuổi Bản Tin” bị khởi tố, bắt tạm giam vì hành vi lợi dụng các quyền tự do dân chủ xâm phạm lợi ích của Nhà nước, quyền, lợi ích hợp pháp của tổ chức, cá nhân.
-- 200 phần quà gồm bình ắc quy, bóng đèn, túi thuốc, một cuốn cẩm nang "Những điều cần biết về đánh bắt hải sản"... nhằm hỗ trợ, động viên ngư dân Thái Bình vươn khơi, bám biển.
+- 49 nhà dân và 30 xưởng sản xuất ở huyện Yên Bình bị ngập úng, ảnh hưởng sau khi hồ thủy điện Thác Bà, Yên Bái xả lũ.
+- Ban Bí thư chuẩn y ông Nguyễn Đức Dũng, giám đốc Công an tỉnh Quảng Nam, giữ chức phó bí thư Tỉnh ủy Quảng Nam nhiệm kỳ 2020-2025.
+- Luật Đất đai 2024 có hiệu lực từ ngày 1-8-2024, quy định đơn giá bồi thường được ban hành phải bảo đảm phù hợp với giá thị trường và được xem xét điều chỉnh khi có biến động để làm căn cứ tính bồi thường khi thu hồi đất.
+- Với 7 ngôi trường mới, Bình Tân dự kiến trong năm học này, bậc tiểu học sẽ giảm sĩ số học sinh/lớp, các em được học phòng học khang trang, hiện đại, trang thiết bị mới.
+- Các tài sản gắn liền với đất không được cấp giấy chứng nhận quyền sử dụng đất, quyền sở hữu tài sản gắn liền với đất từ 1-8-2024 (phần 1).
+- Một số tin tức đáng chú ý: Đơn hàng dồn dập, các nhà máy ở Bình Dương tăng tuyển lao động; Xác lập kỷ lục 100 món bánh dân gian chế biến từ thốt nốt; Hà Nội lo bệnh dại phức tạp...
+- Hôm nay 6-8, thời tiết nắng nóng lan rộng ở các tỉnh Bắc và Trung Bộ, có nơi nắng gay gắt. Nam Bộ ngày nắng, chiều tối có mưa.
+- Thời gian gần đây, nhiều người bức xúc vì liên tục nhận được các cuộc gọi rác và cuộc gọi lừa đảo từ số điện thoại cố định.
+- Bộ Ngoại giao Việt Nam cảnh báo công dân không đến Lebanon, Iran và Israel vào thời điểm hiện tại; sơ tán sớm người và tài sản đến nước khác hoặc về Việt Nam.
+- Phó thủ tướng Chính phủ Trần Hồng Hà ký quyết định số 795/QĐ-TTg công nhận thành phố Thanh Hóa, tỉnh Thanh Hóa đạt tiêu chí đô thị loại I. Tên gọi là thành phố Thanh Hóa.
+- Tối 5-8, một nghệ nhân đang biểu diễn tuồng trên sân khấu tại TP Quy Nhơn (Bình Định) bỗng nhiên ngã gục và tử vong trước sự bàng hoàng của nhiều khán giả.
+- Từ 1-8-2024, Chi nhánh Văn phòng đăng ký đất đai TP Thủ Đức sẽ đăng ký biến động đối với hồ sơ hoàn công có giấy phép xây dựng có thời hạn theo quy định Luật Đất đai 2024.
+- Số tiền trong dân gửi ngân hàng hiện đạt trên 15 triệu tỉ đồng, Thủ tướng yêu cầu cần có giải pháp để nguồn vốn này phục vụ đắc lực cho sản xuất, kinh doanh.
+- Vụ tranh chấp bất động sản lớn nhất miền Trung giữa Công ty CP đầu tư Hoàng Nhất Nam (Đà Nẵng) và Công ty CP Bách Đạt An hiện ra sao?
+- Tân đại sứ Triều Tiên tại Việt Nam Ri Sung Guk đã đến Việt Nam, là đại sứ đầu tiên được Bình Nhưỡng cử đi nước ngoài sau dịch COVID-19.
+- Ngày 5-8, Ủy ban Kiểm tra Tỉnh ủy Đồng Nai thông báo về kết quả kiểm tra, giám sát, đề nghị thi hành kỷ luật đối với đảng viên có vi phạm, khuyết điểm theo kết luận thanh tra dự án khu dân cư Bình Đa.
+- Sau khi bị chánh Thanh tra Bộ Tài nguyên và Môi trường ra quyết định xử phạt vì vi phạm môi trường, Bệnh viện Đa khoa tỉnh Bình Dương đã nộp tiền phạt và được yêu cầu khắc phục vi phạm.
+- Lãi suất cho vay mua nhà ở xã hội sẽ giảm. Đó là thông tin được Thứ trưởng Bộ Xây dựng Bùi Xuân Dũng đưa ra tại họp báo Chính phủ thường kỳ chiều ngày 5-8.
+- Nam tài xế P.N.Q. dương tính với ma túy và lái xe container vào đường cấm. Người này thừa nhận trước đó có sử dụng ma túy.
+- Phó chủ tịch UBND TP.HCM Bùi Xuân Cường yêu cầu UBND quận Bình Tân rà soát các vấn đề phát sinh khi thu tiền rác qua app.
+- Ngày 5-8, Bộ Giáo dục và Đào tạo bác thông tin về việc tổ chức Olympic toán học 2024 như nội dung được lan truyền trên mạng xã hội.
+- Thứ trưởng Bộ Y tế Đỗ Xuân Tuyên chỉ ra 4 điểm mới trong các chính sách được ban hành nhằm tháo gỡ cho tình trạng thiếu thuốc và vật tư y tế.
+- Thiếu tướng Hoàng Anh Tuyên, người phát ngôn Bộ Công an, đưa ra thông tin mới về việc bắt tổng giám đốc Quốc Cường Gia Lai Nguyễn Thị Như Loan và vụ án liên quan Công ty Thái Dương.
+- Khu tái định cư Đồng Giá (Quảng Ngãi) phục vụ cao tốc Quảng Ngãi - Hoài Nhơn đang bị sông Phước Giang đe dọa. Sạt lở ngoạm vào bờ, có điểm sạt cách khu tái định cư chỉ khoảng 5m.
+- Chính quyền Điện Bàn đề xuất tỉnh Quảng Nam dự án nâng cấp tượng đài dũng sĩ Điện Ngọc bằng vốn ngân sách 88 tỉ đồng.
+- TAND tỉnh Đắk Lắk tuyên cựu giám đốc CDC Đắk Lắk Trịnh Quang Trí ba năm tù về tội vi phạm quy định về đấu thầu gây hậu quả nghiêm trọng.
+- Nhiều vị trí nhân sự quan trọng tại Bình Dương được điều động, bổ nhiệm, trong đó có nữ Trưởng Ban Nội chính đầu tiên Nguyễn Thị Mỹ Hằng.
+- Các trường hợp không cấp giấy chứng nhận quyền sử dụng đất, quyền sở hữu tài sản gắn liền với đất từ 1-8-2024.
+- Tình trạng sốt vé, khan chuyến đã giảm rõ rệt, tuy nhiên khách hàng vẫn mệt mỏi với tình trạng chậm chuyến.
+- Thủ tướng Phạm Minh Chính đã kết luận như vậy khi chủ trì phiên họp Chính phủ thường kỳ tháng 7-2024.
 ![New](News.png)
 ## Nhịp sống số 
 - Bang Texas cáo buộc các phần mềm của Meta đã nhận dạng và gắn thẻ mọi người trong ảnh mà không được sự cho phép của người dùng.
