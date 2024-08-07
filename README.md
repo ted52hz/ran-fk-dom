@@ -1,6 +1,11 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Điểm trung bình học bạ đạt từ 8 điểm trở lên, học sinh lớp 12 Việt Nam có thể đăng ký xét tuyển vào nhiều đại học New Zealand.
+- Nhiều đồ án có tính ứng dụng cao của sinh viên Trường Đại học Công nghệ TP.HCM (HUTECH) thu hút doanh nghiệp và khách tham quan tại Ngày hội tốt nghiệp và kết nối doanh nghiệp lần thứ 7-2024.
+- TS Huỳnh Trọng Hiền thôi giữ chức trưởng khoa Nhật Bản học Trường ĐH Khoa học xã hội và Nhân văn sau khi bị tố làm giám đốc nhiều doanh nghiệp ngoài trường.
+- Bộ Giáo dục và Đào tạo vừa ban hành khung kế hoạch thời gian năm học mới 2024 - 2025.
+- Đỗ Phú Quốc, học sinh Trường THPT chuyên Lê Thánh Tông, được UBND tỉnh Quảng Nam khen thưởng sau khi giành huy chương bạc Olympic hóa học quốc tế 2024.
 - Năm 2024, Trường Đại học Ngoại ngữ - Tin học TP.HCM (HUFLIT) tuyển sinh ngành Trí tuệ nhân tạo và Ngôn ngữ Nhật. Đây cũng là 2 ngành nhận được sự quan tâm đặc biệt của nhiều thí sinh trong mùa tuyển sinh năm nay.
 - Với 7 ngôi trường mới, Bình Tân dự kiến trong năm học này, bậc tiểu học sẽ giảm sĩ số học sinh/lớp, các em được học phòng học khang trang, hiện đại, trang thiết bị mới.
 - Ở một số địa phương như TP.HCM và Hà Nội, sĩ số 35 học sinh/lớp "chỉ là mục tiêu để phấn đấu". Nhiều quận, huyện tại TP.HCM chịu áp lực về sĩ số học sinh/lớp và tỉ lệ trường đạt điều kiện học hai buổi/ngày ở bậc tiểu học.
@@ -26,43 +31,38 @@
 - Liên hoan bước nhảy với chủ đề Đan tỏa cảm xúc - Chạm màu tri thức khép lại với chiến thắng thuộc về nhóm Click - K Dance Crew đến từ Trường đại học Công nghệ TP.HCM (HUTECH).
 - Qua kiểm tra xác suất một số bài thi vào lớp 10 của một số môn chấm ngày 12-6 và ngày 13-6, thanh tra thấy giám khảo chưa thực hiện đúng quy trình và có một số bài thi có dấu hiệu bất thường.
 - Bộ Giáo dục và Đào tạo yêu cầu ngành giáo dục các địa phương có giải pháp, không để học sinh tiểu học 'ngồi nhầm lớp' trong năm học mới 2024-2025.
-- Ngày 2-8, Đại học Bách khoa Hà Nội chính thức công bố nghị quyết thành lập và bổ nhiệm các chức vụ quản lý của Trường Kinh tế và 4 viện nghiên cứu.
-- Video cô nữ sinh mặc đồ giải phóng quân cùng bà ngồi đàn hát bài Đường Trường Sơn xe anh qua nhận 'cơn mưa' lời khen.
-- Năm học 2024-2025, các cơ sở giáo dục không được sử dụng những văn bản, đoạn trích đã được học trong sách giáo khoa để làm ngữ liệu kiểm tra định kỳ môn ngữ văn.
-- Nhóm học sinh lớp 11 ở TP.HCM làm ra bộ dầu gội, dầu xả từ rau càng cua, bồ kết... giúp trị gàu, nấm đầu, rụng tóc.
-- Trung ương Đoàn cho biết đội tuyển Việt Nam đã đoạt 2 huy chương đồng, tại vòng chung kết thế giới cuộc thi Vô địch Tin học văn phòng thế giới và Vô địch Thiết kế đồ họa thế giới 2024.
 ![Edu](Edu.png)
 ## Thời Sự 
-- 49 nhà dân và 30 xưởng sản xuất ở huyện Yên Bình bị ngập úng, ảnh hưởng sau khi hồ thủy điện Thác Bà, Yên Bái xả lũ.
-- Ban Bí thư chuẩn y ông Nguyễn Đức Dũng, giám đốc Công an tỉnh Quảng Nam, giữ chức phó bí thư Tỉnh ủy Quảng Nam nhiệm kỳ 2020-2025.
-- Luật Đất đai 2024 có hiệu lực từ ngày 1-8-2024, quy định đơn giá bồi thường được ban hành phải bảo đảm phù hợp với giá thị trường và được xem xét điều chỉnh khi có biến động để làm căn cứ tính bồi thường khi thu hồi đất.
-- Với 7 ngôi trường mới, Bình Tân dự kiến trong năm học này, bậc tiểu học sẽ giảm sĩ số học sinh/lớp, các em được học phòng học khang trang, hiện đại, trang thiết bị mới.
-- Các tài sản gắn liền với đất không được cấp giấy chứng nhận quyền sử dụng đất, quyền sở hữu tài sản gắn liền với đất từ 1-8-2024 (phần 1).
-- Một số tin tức đáng chú ý: Đơn hàng dồn dập, các nhà máy ở Bình Dương tăng tuyển lao động; Xác lập kỷ lục 100 món bánh dân gian chế biến từ thốt nốt; Hà Nội lo bệnh dại phức tạp...
-- Hôm nay 6-8, thời tiết nắng nóng lan rộng ở các tỉnh Bắc và Trung Bộ, có nơi nắng gay gắt. Nam Bộ ngày nắng, chiều tối có mưa.
-- Thời gian gần đây, nhiều người bức xúc vì liên tục nhận được các cuộc gọi rác và cuộc gọi lừa đảo từ số điện thoại cố định.
-- Bộ Ngoại giao Việt Nam cảnh báo công dân không đến Lebanon, Iran và Israel vào thời điểm hiện tại; sơ tán sớm người và tài sản đến nước khác hoặc về Việt Nam.
-- Phó thủ tướng Chính phủ Trần Hồng Hà ký quyết định số 795/QĐ-TTg công nhận thành phố Thanh Hóa, tỉnh Thanh Hóa đạt tiêu chí đô thị loại I. Tên gọi là thành phố Thanh Hóa.
-- Tối 5-8, một nghệ nhân đang biểu diễn tuồng trên sân khấu tại TP Quy Nhơn (Bình Định) bỗng nhiên ngã gục và tử vong trước sự bàng hoàng của nhiều khán giả.
-- Từ 1-8-2024, Chi nhánh Văn phòng đăng ký đất đai TP Thủ Đức sẽ đăng ký biến động đối với hồ sơ hoàn công có giấy phép xây dựng có thời hạn theo quy định Luật Đất đai 2024.
-- Số tiền trong dân gửi ngân hàng hiện đạt trên 15 triệu tỉ đồng, Thủ tướng yêu cầu cần có giải pháp để nguồn vốn này phục vụ đắc lực cho sản xuất, kinh doanh.
-- Vụ tranh chấp bất động sản lớn nhất miền Trung giữa Công ty CP đầu tư Hoàng Nhất Nam (Đà Nẵng) và Công ty CP Bách Đạt An hiện ra sao?
-- Tân đại sứ Triều Tiên tại Việt Nam Ri Sung Guk đã đến Việt Nam, là đại sứ đầu tiên được Bình Nhưỡng cử đi nước ngoài sau dịch COVID-19.
-- Ngày 5-8, Ủy ban Kiểm tra Tỉnh ủy Đồng Nai thông báo về kết quả kiểm tra, giám sát, đề nghị thi hành kỷ luật đối với đảng viên có vi phạm, khuyết điểm theo kết luận thanh tra dự án khu dân cư Bình Đa.
-- Sau khi bị chánh Thanh tra Bộ Tài nguyên và Môi trường ra quyết định xử phạt vì vi phạm môi trường, Bệnh viện Đa khoa tỉnh Bình Dương đã nộp tiền phạt và được yêu cầu khắc phục vi phạm.
-- Lãi suất cho vay mua nhà ở xã hội sẽ giảm. Đó là thông tin được Thứ trưởng Bộ Xây dựng Bùi Xuân Dũng đưa ra tại họp báo Chính phủ thường kỳ chiều ngày 5-8.
-- Nam tài xế P.N.Q. dương tính với ma túy và lái xe container vào đường cấm. Người này thừa nhận trước đó có sử dụng ma túy.
-- Phó chủ tịch UBND TP.HCM Bùi Xuân Cường yêu cầu UBND quận Bình Tân rà soát các vấn đề phát sinh khi thu tiền rác qua app.
-- Ngày 5-8, Bộ Giáo dục và Đào tạo bác thông tin về việc tổ chức Olympic toán học 2024 như nội dung được lan truyền trên mạng xã hội.
-- Thứ trưởng Bộ Y tế Đỗ Xuân Tuyên chỉ ra 4 điểm mới trong các chính sách được ban hành nhằm tháo gỡ cho tình trạng thiếu thuốc và vật tư y tế.
-- Thiếu tướng Hoàng Anh Tuyên, người phát ngôn Bộ Công an, đưa ra thông tin mới về việc bắt tổng giám đốc Quốc Cường Gia Lai Nguyễn Thị Như Loan và vụ án liên quan Công ty Thái Dương.
-- Khu tái định cư Đồng Giá (Quảng Ngãi) phục vụ cao tốc Quảng Ngãi - Hoài Nhơn đang bị sông Phước Giang đe dọa. Sạt lở ngoạm vào bờ, có điểm sạt cách khu tái định cư chỉ khoảng 5m.
-- Chính quyền Điện Bàn đề xuất tỉnh Quảng Nam dự án nâng cấp tượng đài dũng sĩ Điện Ngọc bằng vốn ngân sách 88 tỉ đồng.
-- TAND tỉnh Đắk Lắk tuyên cựu giám đốc CDC Đắk Lắk Trịnh Quang Trí ba năm tù về tội vi phạm quy định về đấu thầu gây hậu quả nghiêm trọng.
-- Nhiều vị trí nhân sự quan trọng tại Bình Dương được điều động, bổ nhiệm, trong đó có nữ Trưởng Ban Nội chính đầu tiên Nguyễn Thị Mỹ Hằng.
-- Các trường hợp không cấp giấy chứng nhận quyền sử dụng đất, quyền sở hữu tài sản gắn liền với đất từ 1-8-2024.
-- Tình trạng sốt vé, khan chuyến đã giảm rõ rệt, tuy nhiên khách hàng vẫn mệt mỏi với tình trạng chậm chuyến.
-- Thủ tướng Phạm Minh Chính đã kết luận như vậy khi chủ trì phiên họp Chính phủ thường kỳ tháng 7-2024.
+- Vụ tai nạn xảy ra lúc rạng sáng 7-8 trên cao tốc Vĩnh Hảo - Phan Thiết, đoạn qua xã Mương Mán, huyện Hàm Thuận Nam, Bình Thuận khiến 2 người bị thương nặng.
+- Tai nạn giao thông nghiêm trọng xảy ra trên đường Hồ Chí Minh đoạn tuyến tránh phía Tây thị xã Buôn Hồ (đoạn qua huyện Cư Mgar, Đắk Lắk) khiến 6 người thương vong.
+- Dự thảo đề xuất lực lượng công an được ngân sách bố trí kinh phí tăng cường, hiện đại hóa cơ sở, phương tiện, thiết bị bảo đảm an ninh, trật tự, an toàn giao thông từ 70 - 85% khoản thu từ xử phạt vi phạm giao thông.
+- Chồng chở vợ bắt trộm gà của người dân ở Quảng Nam, gặp công an thì bỏ chạy nhưng đã bị bắt giữ sau đó.
+- Các tài sản gắn liền với đất không được cấp giấy chứng nhận quyền sử dụng đất, quyền sở hữu tài sản gắn liền với đất từ 1-8-2024 (phần 2).
+- Hôm nay 7-8, thời tiết Nam Bộ vẫn duy trì mưa rào, nắng gián đoạn. Bắc Bộ và Trung Bộ ngày nắng nóng, riêng Bắc Bộ về chiều mưa khá to.
+- Tin tức đáng chú ý: Cải tiến chất lượng tại bệnh viện đông nhất TP.HCM; Đề nghị bảo lưu phí bảo hiểm thất nghiệp với những người đã đóng bảo hiểm thất nghiệp trên 144 tháng...
+- Sau khi giao rừng cho doanh nghiệp làm dự án, nhiều diện tích rừng  tại Kon Tum đã biến mất khi cơ quan chức năng đi kiểm tra.
+- Hơn 10 người được địa phương cử đi tập huấn nghiệp vụ để cảnh giới tại điểm giao cắt đường dân sinh, lối đi tự mở sau vụ tai nạn tàu tông xe bán tải.
+- Ủy ban Thường vụ Quốc hội dành 1,5 ngày chất vấn, trả lời chất vấn việc thực hiện các nghị quyết của Ủy ban Thường vụ Quốc hội về giám sát chuyên đề, chất vấn.
+- Theo Văn phòng Trung ương Đảng, sáng 6-8, lãnh đạo chủ chốt đã họp để đánh giá kết quả công tác tháng 7 và nhiệm vụ trọng tâm tháng 8-2024, dưới sự chủ trì của Tổng Bí thư, Chủ tịch nước Tô Lâm.
+- Cần kiện toàn cơ cấu tổ chức của Chính phủ tinh gọn, giảm tầng nấc trung gian, giảm đầu mối bên trong, tăng cường phân cấp, phân quyền, bảo đảm hoạt động hiệu lực, hiệu quả.
+- Chủ tịch UBND tỉnh Hải Dương Triệu Thế Hùng được phê chuẩn làm phó chủ nhiệm Ủy ban Văn hóa, Giáo dục, sau 4 năm luân chuyển về địa phương.
+- Ban Dân dụng và Công nghiệp TP.HCM đề xuất điều chuyển các dự án về cho ban quản lý quận huyện vì thiếu nhân sự.
+- Tàu hàng đụng phà ngang sông trên nhánh sông Tiền, nối huyện Chợ Mới và Phú Tân, tỉnh An Giang khiến xe tải chìm xuống sông.
+- Một cô gái trẻ biểu diễn 'người tượng' giữa phố đi bộ Hai Bà Trưng (TP Huế) bị một người đàn ông buông lời trêu ghẹo khiếm nhã. Người dân xung quanh đã vô cùng phẫn nộ, đứng ra bảo vệ cô gái.
+- Ông Lương Minh Phúc - giám đốc Ban Quản lý dự án đầu tư xây dựng các công trình giao thông TP.HCM - nói làm cao tốc TP.HCM - Mộc Bài có thuận lợi rất lớn là đa số đất cần giải phóng mặt bằng là đất nông nghiệp, đất ruộng.
+- Từ ngày 1-7-2025, người đóng bảo hiểm xã hội tự nguyện đóng 15 năm trở lên và đủ tuổi nghỉ hưu sẽ được lãnh lương hưu.
+- Theo đại tá Nguyễn Bá Tuấn, để biết được thông tin về việc có bị tạm hoãn xuất cảnh do nợ thuế, người nộp thuế có thể tra cứu thông báo về xuất cảnh qua trang thông tin của Tổng cục Thuế.
+- Tỉnh Thừa Thiên Huế chi gần 100 tỉ đồng lấy từ ngân sách để tiến hành trùng tu các công trình bên trong di tích lăng vua Tự Đức.
+- Kết quả phân tích mẫu nước từ vụ dân kêu trời vì suối ô nhiễm từ trại heo ở Thanh Hóa cho thấy có nhiều chỉ số nước thải vượt ngưỡng an toàn.
+- Ban Bí thư đã chuẩn y ông Đặng Hồng Sỹ - ủy viên Ban Thường vụ, trưởng Ban Dân vận Tỉnh ủy Bình Thuận - giữ chức phó bí thư Tỉnh ủy tỉnh này nhiệm kỳ 2020-2025.
+- Thay vì tổ chức rình rang, lễ khởi công cần tiết kiệm, quan trọng hơn là công trình hoàn thành đúng tiến độ.
+- Trao đổi với Tuổi Trẻ Online ngày 6-8, Sở Xây dựng Đà Nẵng cho biết về tiến độ xử lý sai phạm liên quan dự án Mường Thanh tại Đà Nẵng.
+- Dự án vành đai 3 TP.HCM đoạn qua tỉnh Bình Dương và Đồng Nai cần có giải pháp bù lại tiến độ đã chậm.
+- Điều khiển xe mô tô chạy quá tốc độ vào làn đường dành cho xe ô tô, nam thanh niên đâm thẳng vào cảnh sát đang thi hành công vụ.
+- Chủ tịch UBND TP Hà Nội Trần Sỹ Thanh yêu cầu đưa dự án metro Nhổn - ga Hà Nội vận hành thương mại trong ngày 8-8.
+- Chủ tịch UBND tỉnh Sơn La Hoàng Quốc Khánh được Bộ Chính trị chuẩn y giữ chức bí thư Tỉnh ủy Sơn La nhiệm kỳ 2020-2025.
+- Ngày 6-8, đông đảo bà con và đồng nghiệp đã đến nhà nghệ nhân Nguyễn Thành An, người đang biểu diễn tuồng trên sân khấu tại TP Quy Nhơn (Bình Định) bỗng nhiên ngã gục và tử vong vào tối hôm trước, để chia buồn...
+- Chủ tịch UBND tỉnh Bạc Liêu thống nhất ban bố tình trạng khẩn cấp sạt lở đê Biển Đông, đồng thời yêu cầu cơ quan chức năng phải chủ động rà soát các đoạn đê có nguy cơ sạt lở để chủ động phương án phòng chống thiên tai từ sớm.
 ![New](News.png)
 ## Nhịp sống số 
 - Bang Texas cáo buộc các phần mềm của Meta đã nhận dạng và gắn thẻ mọi người trong ảnh mà không được sự cho phép của người dùng.
