@@ -1,6 +1,19 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Nhiều chuyên gia ủng hộ đề xuất thí điểm cơ chế đặc thù cho Đại học Quốc gia TP.HCM xét công nhận và bổ nhiệm chức danh giáo sư, phó giáo sư.
+- Tại buổi làm việc với Ban Văn hóa - Xã hội HĐND TP.HCM chiều 7-8, quận Gò Vấp đề xuất được ủy quyền thí điểm phê duyệt dự án căng tin, bãi xe trong trường học.
+- Chuỗi sự kiện thường niên nhằm hướng đến xây dựng TP.HCM thành một fintech hub trong tương lai.
+- Trường đại học Sư phạm kỹ thuật (Đại học Đà Nẵng) vừa có kết luận về xử lý vụ TS Nguyễn Thị Đông Phương là phản biện của bài báo quốc tế bị gỡ bỏ.
+- Úc cảnh báo nước này có thể mất 14.000 việc làm, nếu chính phủ thúc đẩy chính sách giới hạn số lượng sinh viên quốc tế.
+- Đại diện Hội đồng Anh nhận định như vậy tại Hội thảo quốc tế VietTESOL 2024 - sự kiện thường niên lớn trong lĩnh vực nghiên cứu và giảng dạy tiếng Anh tại Việt Nam.
+- Tính đến ngày 31-7, TP.HCM khánh thành 12 ngôi trường với tổng cộng 325 phòng học mới, sẵn sàng đưa vào sử dụng ngay đầu năm học mới 2024-2025.
+- Cậu học trò Trần Tiến Lợi (Trường Phổ thông Năng khiếu, Đại học Quốc gia TP.HCM) đậu học bổng toàn phần Trường đại học Fulbright Việt Nam.
+- Nhiều sinh viên Myanmar đang sang Việt Nam học cao đẳng. Các bạn không phải thuộc diện giao lưu quốc tế, không tham gia học kỳ trao đổi hay học các khóa ngắn hạn.
+- Trưa 7-8, giám đốc Sở Giáo dục và Đào tạo TP.HCM đã thông tin về đề thi tuyển sinh lớp 10 năm 2025.
+- Thời gian qua việc thực hiện chính sách công bố nghiên cứu khoa học dẫn đến những hệ lụy không mong muốn khiến một số nhà khoa học có hạng ở Việt Nam bị rút các bài báo do vi phạm liêm chính học thuật.
+- Kết quả tuyển bổ sung lớp 10 công lập năm học 2024-2025 tại TP.HCM có thêm 1.400 thí sinh trúng tuyển.
+- Ký túc xá Đại học Quốc gia TP.HCM dự kiến tiếp nhận 35.500 sinh viên trong năm học 2024-2025. Sinh viên cho hay phí ký túc xá tăng so với năm trước.
 - Điểm trung bình học bạ đạt từ 8 điểm trở lên, học sinh lớp 12 Việt Nam có thể đăng ký xét tuyển vào nhiều đại học New Zealand.
 - Nhiều đồ án có tính ứng dụng cao của sinh viên Trường Đại học Công nghệ TP.HCM (HUTECH) thu hút doanh nghiệp và khách tham quan tại Ngày hội tốt nghiệp và kết nối doanh nghiệp lần thứ 7-2024.
 - TS Huỳnh Trọng Hiền thôi giữ chức trưởng khoa Nhật Bản học Trường ĐH Khoa học xã hội và Nhân văn sau khi bị tố làm giám đốc nhiều doanh nghiệp ngoài trường.
@@ -18,53 +31,41 @@
 - Không dùng ngữ liệu trong SGK để ra đề kiểm tra định kỳ môn ngữ văn là một nội dung mới được Bộ GD-ĐT đặt ra cho năm học 2024 - 2025.
 - PGS.TS Nguyễn Thị Hồng Vân cho rằng việc đặt các nhà vật lý vào những tác giả 'siêu năng suất' đáng nghi ngờ là không phù hợp, gây hiểu lầm.
 - Cuối giờ học, học sinh lớp 10 chuyên hóa Trường THPT chuyên Bắc Ninh vẫn nán lại, chờ “khách mời đặc biệt” - Nguyễn Hữu Tiến Hưng - chủ nhân huy chương vàng Olympic hóa học quốc tế năm 2024.
-- Không còn cảnh hoang tàn với các ngôi mộ chằng chịt và rác thải, màu xanh um tùm của cỏ dại là diện mạo hiện nay của nghĩa trang Bình Hưng Hòa sau khi hoàn thành bốc mộ giai đoạn 1.
-- Cùng học Trường THPT chuyên Bắc Giang, Thân Thế Công, Trương Phi Hùng và Giáp Vũ Sơn Hà cùng 'gặt' huy chương vàng Olympic quốc tế môn vật lý và hóa học.
-- Nhiều phụ huynh tại phường Vĩnh Hòa, TP Nha Trang phản ảnh việc con họ không được học lớp 1 gần nhà.
-- Ba học sinh lớp 10 tại Hà Nội được lựa chọn từ cuộc thi ‘Những điều tự hào về thành phố của tôi’ dành cho học sinh trung học.
-- Không dùng ngữ liệu sách giáo khoa để kiểm tra định kỳ môn ngữ văn sẽ dẫn đến những thay đổi lớn trong đề thi môn ngữ văn tuyển sinh 10 và thi tốt nghiệp THPT năm học 2024-2025.
-- Một nghiên cứu mới công bố về các tác giả siêu năng suất gây lo ngại cho cộng đồng khoa học thế giới. Đáng chú ý trong danh sách này có nhiều người từ Việt Nam.
-- Hợp tác hướng đến kết nối về đào tạo, truyền thông thương hiệu và chia sẻ trách nhiệm xã hội, nhằm mang lại lợi ích thiết thực cho mối quan hệ doanh nghiệp - nhà trường - sinh viên.
-- Nữ sinh 17 tuổi kiện chính quyền thành phố Sapporo, Nhật Bản vì ngôi trường em theo học không có biện pháp giải quyết việc bắt nạt học đường, gây ảnh hưởng nghiêm trọng đến quá trình học tập của em.
-- Bốn học sinh của Trường trung học Thực hành (Trường đại học Sư phạm TP.HCM) là báo cáo viên tại hội nghị khoa học về thực hành các mục tiêu phát triển bền vững tại Trường trung học quốc gia số 1 Đài Nam (Đài Loan, Trung Quốc).
-- TS Nguyễn Hoàng Chinh cho biết như vậy khi được hỏi về bài báo khoa học quốc tế mà ông là đồng tác giả vừa bị gỡ bỏ.
-- Liên hoan bước nhảy với chủ đề Đan tỏa cảm xúc - Chạm màu tri thức khép lại với chiến thắng thuộc về nhóm Click - K Dance Crew đến từ Trường đại học Công nghệ TP.HCM (HUTECH).
-- Qua kiểm tra xác suất một số bài thi vào lớp 10 của một số môn chấm ngày 12-6 và ngày 13-6, thanh tra thấy giám khảo chưa thực hiện đúng quy trình và có một số bài thi có dấu hiệu bất thường.
-- Bộ Giáo dục và Đào tạo yêu cầu ngành giáo dục các địa phương có giải pháp, không để học sinh tiểu học 'ngồi nhầm lớp' trong năm học mới 2024-2025.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Vụ tai nạn xảy ra lúc rạng sáng 7-8 trên cao tốc Vĩnh Hảo - Phan Thiết, đoạn qua xã Mương Mán, huyện Hàm Thuận Nam, Bình Thuận khiến 2 người bị thương nặng.
-- Tai nạn giao thông nghiêm trọng xảy ra trên đường Hồ Chí Minh đoạn tuyến tránh phía Tây thị xã Buôn Hồ (đoạn qua huyện Cư Mgar, Đắk Lắk) khiến 6 người thương vong.
-- Dự thảo đề xuất lực lượng công an được ngân sách bố trí kinh phí tăng cường, hiện đại hóa cơ sở, phương tiện, thiết bị bảo đảm an ninh, trật tự, an toàn giao thông từ 70 - 85% khoản thu từ xử phạt vi phạm giao thông.
-- Chồng chở vợ bắt trộm gà của người dân ở Quảng Nam, gặp công an thì bỏ chạy nhưng đã bị bắt giữ sau đó.
-- Các tài sản gắn liền với đất không được cấp giấy chứng nhận quyền sử dụng đất, quyền sở hữu tài sản gắn liền với đất từ 1-8-2024 (phần 2).
-- Hôm nay 7-8, thời tiết Nam Bộ vẫn duy trì mưa rào, nắng gián đoạn. Bắc Bộ và Trung Bộ ngày nắng nóng, riêng Bắc Bộ về chiều mưa khá to.
-- Tin tức đáng chú ý: Cải tiến chất lượng tại bệnh viện đông nhất TP.HCM; Đề nghị bảo lưu phí bảo hiểm thất nghiệp với những người đã đóng bảo hiểm thất nghiệp trên 144 tháng...
-- Sau khi giao rừng cho doanh nghiệp làm dự án, nhiều diện tích rừng  tại Kon Tum đã biến mất khi cơ quan chức năng đi kiểm tra.
-- Hơn 10 người được địa phương cử đi tập huấn nghiệp vụ để cảnh giới tại điểm giao cắt đường dân sinh, lối đi tự mở sau vụ tai nạn tàu tông xe bán tải.
-- Ủy ban Thường vụ Quốc hội dành 1,5 ngày chất vấn, trả lời chất vấn việc thực hiện các nghị quyết của Ủy ban Thường vụ Quốc hội về giám sát chuyên đề, chất vấn.
-- Theo Văn phòng Trung ương Đảng, sáng 6-8, lãnh đạo chủ chốt đã họp để đánh giá kết quả công tác tháng 7 và nhiệm vụ trọng tâm tháng 8-2024, dưới sự chủ trì của Tổng Bí thư, Chủ tịch nước Tô Lâm.
-- Cần kiện toàn cơ cấu tổ chức của Chính phủ tinh gọn, giảm tầng nấc trung gian, giảm đầu mối bên trong, tăng cường phân cấp, phân quyền, bảo đảm hoạt động hiệu lực, hiệu quả.
-- Chủ tịch UBND tỉnh Hải Dương Triệu Thế Hùng được phê chuẩn làm phó chủ nhiệm Ủy ban Văn hóa, Giáo dục, sau 4 năm luân chuyển về địa phương.
-- Ban Dân dụng và Công nghiệp TP.HCM đề xuất điều chuyển các dự án về cho ban quản lý quận huyện vì thiếu nhân sự.
-- Tàu hàng đụng phà ngang sông trên nhánh sông Tiền, nối huyện Chợ Mới và Phú Tân, tỉnh An Giang khiến xe tải chìm xuống sông.
-- Một cô gái trẻ biểu diễn 'người tượng' giữa phố đi bộ Hai Bà Trưng (TP Huế) bị một người đàn ông buông lời trêu ghẹo khiếm nhã. Người dân xung quanh đã vô cùng phẫn nộ, đứng ra bảo vệ cô gái.
-- Ông Lương Minh Phúc - giám đốc Ban Quản lý dự án đầu tư xây dựng các công trình giao thông TP.HCM - nói làm cao tốc TP.HCM - Mộc Bài có thuận lợi rất lớn là đa số đất cần giải phóng mặt bằng là đất nông nghiệp, đất ruộng.
-- Từ ngày 1-7-2025, người đóng bảo hiểm xã hội tự nguyện đóng 15 năm trở lên và đủ tuổi nghỉ hưu sẽ được lãnh lương hưu.
-- Theo đại tá Nguyễn Bá Tuấn, để biết được thông tin về việc có bị tạm hoãn xuất cảnh do nợ thuế, người nộp thuế có thể tra cứu thông báo về xuất cảnh qua trang thông tin của Tổng cục Thuế.
-- Tỉnh Thừa Thiên Huế chi gần 100 tỉ đồng lấy từ ngân sách để tiến hành trùng tu các công trình bên trong di tích lăng vua Tự Đức.
-- Kết quả phân tích mẫu nước từ vụ dân kêu trời vì suối ô nhiễm từ trại heo ở Thanh Hóa cho thấy có nhiều chỉ số nước thải vượt ngưỡng an toàn.
-- Ban Bí thư đã chuẩn y ông Đặng Hồng Sỹ - ủy viên Ban Thường vụ, trưởng Ban Dân vận Tỉnh ủy Bình Thuận - giữ chức phó bí thư Tỉnh ủy tỉnh này nhiệm kỳ 2020-2025.
-- Thay vì tổ chức rình rang, lễ khởi công cần tiết kiệm, quan trọng hơn là công trình hoàn thành đúng tiến độ.
-- Trao đổi với Tuổi Trẻ Online ngày 6-8, Sở Xây dựng Đà Nẵng cho biết về tiến độ xử lý sai phạm liên quan dự án Mường Thanh tại Đà Nẵng.
-- Dự án vành đai 3 TP.HCM đoạn qua tỉnh Bình Dương và Đồng Nai cần có giải pháp bù lại tiến độ đã chậm.
-- Điều khiển xe mô tô chạy quá tốc độ vào làn đường dành cho xe ô tô, nam thanh niên đâm thẳng vào cảnh sát đang thi hành công vụ.
-- Chủ tịch UBND TP Hà Nội Trần Sỹ Thanh yêu cầu đưa dự án metro Nhổn - ga Hà Nội vận hành thương mại trong ngày 8-8.
-- Chủ tịch UBND tỉnh Sơn La Hoàng Quốc Khánh được Bộ Chính trị chuẩn y giữ chức bí thư Tỉnh ủy Sơn La nhiệm kỳ 2020-2025.
-- Ngày 6-8, đông đảo bà con và đồng nghiệp đã đến nhà nghệ nhân Nguyễn Thành An, người đang biểu diễn tuồng trên sân khấu tại TP Quy Nhơn (Bình Định) bỗng nhiên ngã gục và tử vong vào tối hôm trước, để chia buồn...
-- Chủ tịch UBND tỉnh Bạc Liêu thống nhất ban bố tình trạng khẩn cấp sạt lở đê Biển Đông, đồng thời yêu cầu cơ quan chức năng phải chủ động rà soát các đoạn đê có nguy cơ sạt lở để chủ động phương án phòng chống thiên tai từ sớm.
+- Quy định về phát triển nhà ở nhiều tầng nhiều căn hộ của cá nhân (chung cư mini) để bán, cho thuê mua, cho thuê từ ngày 1-8-2024.
+- Liên tục thời gian qua, Công an tỉnh Bình Thuận đã khởi tố nhiều vụ án và bắt tạm giam các bị can liên quan đến 'cát tặc'.
+- Một số tin tức đáng chú ý: Thanh tra nợ đóng bảo hiểm xã hội, y tế, thất nghiệp trên 145 tỉ đồng; Tỉ giá hạ nhiệt; Một ngân hàng báo tăng phí tin nhắn biến động số dư; 7 ngày, thiên tai làm 16 người thương vong...
+- Hôm nay 8-8, các tỉnh thành Bắc Bộ và Trung Bộ nắng nóng diện rộng với cường độ gay gắt. Nam Bộ trời giảm mưa, ngày nắng.
+- Ngành y tế Thanh Hóa cho biết đã khống chế được ổ dịch bạch hầu tại khu phố Đoàn Kết, thị trấn Mường Lát.
+- Tối 7-8, một đám cháy lớn bùng lên ở công ty sản xuất, chế biến đồ gỗ tại huyện Trảng Bom, tỉnh Đồng Nai. Đến 23h30, đám cháy cơ bản được khống chế.
+- Ngày 7-8, Phó thủ tướng Lê Thành Long ký ban hành công điện của Thủ tướng Chính phủ về việc triển khai thực hiện công tác đặc xá năm 2024.
+- Tại buổi làm việc với Ban Văn hóa - Xã hội HĐND TP.HCM chiều 7-8, quận Gò Vấp đề xuất được ủy quyền thí điểm phê duyệt dự án căng tin, bãi xe trong trường học.
+- Tỉnh Bình Định vừa xây dựng kế hoạch đầu tư, phát triển cây xanh trong đô thị đến năm 2030 với tổng kinh phí dự kiến hơn 900 tỉ đồng, tuy nhiên lãnh đạo UBND tỉnh cho hay chưa triển khai vì hiện tại không có vốn.
+- Ông Lê Đức Hanh mang thùng xốp, chậu hoa, lưới rào đường Hùng Vương ở trung tâm huyện vì sau hơn 2,5 năm huyện vẫn chưa giải quyết được cam kết về giải phóng mặt bằng.
+- Ban Thường vụ Tỉnh ủy Khánh Hòa vừa thống nhất chủ trương xây dựng tuyến đường hầm ở đường Trần Phú và đề nghị nghiên cứu, đề xuất đầu tư sớm để kết hợp bãi đỗ xe ở quảng trường 2 Tháng 4 bên biển Nha Trang.
+- Dự thảo Luật Việc làm (sửa đổi) có  'làm khó' người được hưởng trợ cấp thất nghiệp?
+- Người dân TP Phan Rang - Tháp Chàm bức xúc với tiếng loa mở suốt ngày đêm từ các nhà nuôi yến nhiều năm nay.
+- Thủ tướng giao các bộ khẩn trương nghiên cứu, thực hiện việc xây dựng các dự án luật để sửa đổi 13 luật có nhiều vướng mắc.
+- Một đường dây lừa đảo quốc tế vừa bị lực lượng công an triệt phá, 155 nghi phạm bị bắt giữ cùng nhiều tài liệu được thu giữ để phục vụ điều tra.
+- Nhiều người thắc mắc tại sao ngày trả lương hưu, trợ cấp bảo hiểm xã hội thay đổi hằng tháng, nơi có trước nơi có sau. Chuyên gia của Bảo hiểm xã hội Việt Nam đã lý giải về vấn đề này.
+- Công an Đà Nẵng vừa triệt phá nhóm chuyên xâm nhập trái phép vào mạng máy tính, mạng viễn thông hoặc phương tiện điện tử của người khác tại Đà Nẵng.
+- Tàu SE2 với hành trình từ Nam ra Bắc khi qua huyện Phú Lộc (tỉnh Thừa Thiên Huế) thì bị trật bánh khỏi đường ray.
+- Một tàu cá Ninh Thuận khi đang trên đường về cảng cá Cà Ná thì bị sóng to gió lớn đánh chìm, 9 ngư dân may mắn được cứu, đưa vào bờ an toàn.
+- Tuyến metro Nhổn - ga Hà Nội sẽ vận hành thương mại trong sáng 8-8 sau gần 14 năm thi công và nhiều lần lỡ hẹn.
+- Ông Nguyễn Văn Trường, giám đốc Ban dân dụng và công nghiệp TP.HCM, khẳng định việc chuyển một số dự án về quận huyện là phù hợp để đẩy nhanh tiến độ giải ngân.
+- Bảo hiểm xã hội TP.HCM cho biết đã thực hiện chi lương hưu từ ngày 1-8 nhưng do hệ thống chi trả đang xử lý khối lượng lớn nên bị chậm.
+- Chủ bến phà nối hai huyện Phú Tân và Chợ Mới thông báo tạm dừng hoạt động để chờ điều tra sau khi một chiếc phà bị tàu biển đâm trúng.
+- Sau vụ bé gái 6 tháng tuổi rơi khỏi bàn cân bị nứt sọ tại một cơ sở tiêm chủng, Sở Y tế Đắk Lắk đã lập đoàn kiểm tra điều kiện, tiêu chuẩn của đơn vị này.
+- Hàng tấn rác thải đại dương mắc kẹt dưới các rạn san hô ở Côn Đảo đã được thợ lặn xuống biển gỡ ra, đưa lên tàu, chở về. Theo khảo sát, có khoảng 600ha rạn san hô có rác thải mắc kẹt, tích tụ lâu ngày.
+- Nhiều lô đất ven biển Nguyễn Tất Thành, Đà Nẵng thuộc sở hữu của Nhà nước bị lấn chiếm. Có trường hợp còn xây cả sân bóng trên đất công…
+- Hiện trường vụ tai nạn liên hoàn giữa 5 ô tô chắn hết lòng đường vành đai 3 trên cao, hướng đi cầu Thăng Long. Các xe ùn tắc kéo dài theo hướng quận Bắc Từ Liêm đi huyện Đông Anh.
+- Mạng xã hội đang lan truyền clip tài xế và tiếp viên xe buýt lao vào ẩu đả, xô xát với tài xế xe công nghệ ngay vòng xoay Lý Thái Tổ, quận 3, TP.HCM.
+- Khu vực sạt lở và có nguy cơ sạt lở đê Biển Đông đã kéo dài gần nửa cây số, Chủ tịch UBND tỉnh Bạc Liêu Phạm Văn Thiều ký quyết định công bố tình huống khẩn cấp.
+- Thời gian làm việc của người lao động phải đủ ngắn để họ có thời gian tìm bạn đời, chăm sóc con cái, gia đình và sở thích riêng tư.
 ![New](News.png)
 ## Nhịp sống số 
+- Sau hơn 1 tháng xác thực sinh trắc học, số điểm phần trăm người dân đánh giá quá trình xác thực dễ dàng tăng thêm 7%, số người kêu khó giảm 9%.
 - Bang Texas cáo buộc các phần mềm của Meta đã nhận dạng và gắn thẻ mọi người trong ảnh mà không được sự cho phép của người dùng.
 - Theo khảo sát của các công ty nghiên cứu thị trường, thị trường nhà thông minh tại Việt Nam đang phát triển mạnh mẽ và sôi động.
 - Vivobook S 15 (5507) là thế hệ laptop AI Copilot+ PC của ASUS với thiết kế mỏng nhẹ, pin lên tới 18 giờ, màn hình Lumina OLED và hiệu năng mạnh.
@@ -94,5 +95,4 @@
 - Nếu lỡ cài đặt bản cập nhật KB5039302 được phát hành gần đây cho Windows 11 và bị lỗi khởi động lại liên tục, bạn có thể làm gì?
 - Mới đây, F.Studio by FPT đã chính thức mở bán các sản phẩm Apple trên gian hàng TikTok Shop của hệ thống.
 - Vừa qua, Motorola Solutions đã khai trương trung tâm R&amp;D tại TP.HCM, với mục tiêu thúc đẩy nghiên cứu và phát triển phần mềm, phân tích dữ liệu và công nghệ trí tuệ nhân tạo (AI).
-- Họp trực tuyến ngày càng phổ biến vì đáp ứng nhu cầu công việc tức thời, tối ưu thời gian và chi phí.
 ![life](Life.png)
