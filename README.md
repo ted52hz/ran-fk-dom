@@ -1,6 +1,12 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Hàn Quốc sẽ cho phép các trường đại học tự đặt lịch tuyển sinh sinh viên nước ngoài và người học trưởng thành, thay vì chỉ được tuyển sinh 2 lần trong một năm.
+- Kết luận thanh tra chỉ ra hàng loạt tồn tại, hạn chế về quản lý tài chính, sử dụng tài sản công ở Trường cao đẳng Bình Phước.
+- Mỗi năm, sinh viên học tập, thực tập tại doanh nghiệp 3 tháng. Sinh viên được doanh nghiệp cam kết trả lương ít nhất 10 triệu đồng/tháng.
+- Cứ vào sáng thứ ba và thứ năm, những phụ huynh có hoàn cảnh khó khăn trên địa bàn TP Thủ Đức, TP.HCM lại dẫn con đi học bơi miễn phí.
+- Chuyến đi theo 'Lớp học tử tế' tưởng cho vui ấy lại mang đến cho mình câu trả lời cho nỗi hoang mang của cuộc đời...
+- 'Không nên quá nhiều phương thức xét tuyển, càng đơn giản càng tốt, tạo thuận lợi cho thí sinh và xã hội', Bộ trưởng Nguyễn Kim Sơn nhấn mạnh.
 - Ông Nguyễn Văn Hiếu, giám đốc Sở Giáo dục và Đào tạo TP.HCM, khẳng định đến thời điểm hiện tại Trường quốc tế AISVN chưa đủ điều kiện hoạt động trở lại.
 - Học viên theo học văn bằng 2 tại Trường đại học Duy Tân không đồng tình với lý giải lệ phí 900.000 đồng từ trường này dành cho việc làm phôi và in bằng tốt nghiệp.
 - Theo báo cáo, các trường đại học, cao đẳng tại TP.HCM hiện đang đáp ứng khoảng 85% nhu cầu lao động của thành phố.
@@ -25,46 +31,41 @@
 - Đại diện Hội đồng Anh nhận định như vậy tại Hội thảo quốc tế VietTESOL 2024 - sự kiện thường niên lớn trong lĩnh vực nghiên cứu và giảng dạy tiếng Anh tại Việt Nam.
 - Tính đến ngày 31-7, TP.HCM khánh thành 12 ngôi trường với tổng cộng 325 phòng học mới, sẵn sàng đưa vào sử dụng ngay đầu năm học mới 2024-2025.
 - Cậu học trò Trần Tiến Lợi (Trường Phổ thông Năng khiếu, Đại học Quốc gia TP.HCM) đậu học bổng toàn phần Trường đại học Fulbright Việt Nam.
-- Nhiều sinh viên Myanmar đang sang Việt Nam học cao đẳng. Các bạn không phải thuộc diện giao lưu quốc tế, không tham gia học kỳ trao đổi hay học các khóa ngắn hạn.
-- Trưa 7-8, giám đốc Sở Giáo dục và Đào tạo TP.HCM đã thông tin về đề thi tuyển sinh lớp 10 năm 2025.
-- Thời gian qua việc thực hiện chính sách công bố nghiên cứu khoa học dẫn đến những hệ lụy không mong muốn khiến một số nhà khoa học có hạng ở Việt Nam bị rút các bài báo do vi phạm liêm chính học thuật.
-- Kết quả tuyển bổ sung lớp 10 công lập năm học 2024-2025 tại TP.HCM có thêm 1.400 thí sinh trúng tuyển.
-- Ký túc xá Đại học Quốc gia TP.HCM dự kiến tiếp nhận 35.500 sinh viên trong năm học 2024-2025. Sinh viên cho hay phí ký túc xá tăng so với năm trước.
-- Điểm trung bình học bạ đạt từ 8 điểm trở lên, học sinh lớp 12 Việt Nam có thể đăng ký xét tuyển vào nhiều đại học New Zealand.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Bộ Công an đề xuất phạt 2 - 3 triệu đồng với tài xế ô tô vừa lái xe vừa sử dụng điện thoại hoặc các thiết bị điện tử khác.
-- Vành đai 3 ngang quốc lộ 13 và Mỹ Phước - Tân Vạn ở Bình Dương đang thành hình.
-- Các hình thức bồi thường cho người dân bị thu hồi đất từ ngày 1-8-2024.
-- Sáng nay 10-8, đoàn công tác của Thủ tướng sẽ làm việc với TP.HCM về tình hình kinh tế - xã hội, việc thực hiện nghị quyết 98 và họp Hội đồng điều phối vùng Đông Nam Bộ lần 4.
-- Đề nghị Tết Trung thu là ngày nghỉ chính thức, có nên?; TP.HCM kiện toàn lại ban chỉ đạo sắp xếp nhà đất công.
-- Hôm nay 10-8, Bắc Bộ ngày nắng, từ chiều tối mưa to; Nam Bộ sáng nắng chiều mưa; Trung Bộ nắng gay gắt.
-- "Qua sự cố sẽ tăng cường thanh kiểm tra hệ thống cây xanh, có thể trang bị các phương tiện rà được bệnh bên trong thân cây, hạn chế thấp nhất tai nạn cho người dân trên địa bàn TP”.
-- UBND tỉnh Lâm Đồng xác định 5 vi phạm nghiêm trọng khiến công trình tòa nhà Câu lạc bộ golf Đồi Cù Đà Lạt phải tháo dỡ.
-- Từ một huyện nghèo, đường xá đi lại khó khăn đến nay huyện Châu Đức, tỉnh Bà Rịa - Vũng Tàu đã không còn hộ nghèo, mọi hgười dân đều được hưởng phúc lợi xã hội. Huyện nghèo đã thành vùng  nông thôn mới, trù phú.
-- Trong số 115 con bò từ chương trình mục tiêu quốc gia cấp về cho xã Húc và Hướng Phùng thì có 27 con mắc bệnh lở mồm long móng, phát bệnh sau khi nhập vào địa bàn 1-3 ngày.
-- Bé trai khoảng 3 tuổi cùng bố mẹ tử vong, khi chiếc xe máy của gia đình va chạm với một xe tải đi chiều ngược lại tại tỉnh Bình Dương.
-- Thành phố Hà Nội vừa có quyết định về việc tổ chức lại Bệnh viện Mắt Hà Nội, trên cơ sở hợp nhất Bệnh viện Mắt Hà Nội và Bệnh viện Mắt Hà Đông thuộc Sở Y tế Hà Nội.
-- Lãnh đạo Thượng viện Nhật Bản cam kết sẽ tiếp tục tạo điều kiện để lao động, thực tập sinh Việt Nam an tâm làm việc trong khuôn khổ chương trình mới, thay cho chương trình thực tập sinh kỹ năng.
-- Những loại đất không có giấy tờ được cấp giấy chứng nhận quyền sử dụng đất, quyền sở hữu tài sản gắn liền với đất từ 1-8-2024 (phần 1).
-- Bộ trưởng Bộ Công Thương Nguyễn Hồng Diên nói bộ ủng hộ việc đầu tư dự án điện gió ngoài khơi, mà một tập đoàn của Đức đang nghiên cứu tại Bình Định.
-- Chiều 9-8, Tổng Bí thư, Chủ tịch nước Tô Lâm đã thăm và làm việc với Ban Thường vụ Thành ủy Hà Nội. Chủ nhiệm Ủy ban Kiểm tra Trung ương Trần Cẩm Tú; Trưởng Ban Tổ chức Trung ương Lê Minh Hưng có mặt trong đoàn công tác.
-- Ủy ban Kiểm tra Thành ủy TP.HCM xem xét, đề nghị thi hành kỷ luật một số đảng viên, trong đó có 4 đảng viên bị khai trừ.
-- Theo nhiều bạn đọc, hành động đập cửa ô tô cứu tài xế trên cầu Phú Mỹ là thước phim về lòng tốt và đề nghị khen thưởng.
-- HĐND tỉnh Quảng Ninh đã biểu quyết và thông qua nghị quyết về việc miễn nhiệm chức vụ chủ tịch Hội đồng nhân dân tỉnh Quảng Ninh khóa XIV, nhiệm kỳ 2021 - 2026 đối với ông Nguyễn Xuân Ký - bí thư Tỉnh ủy Quảng Ninh.
-- Công trình trọng điểm cầu vượt Ngã ba Huế (Đà Nẵng) đưa vào sử dụng gần 9 năm qua, vậy nhưng chưa thanh toán đủ tiền cho doanh nghiệp.
-- Chiều tối 9-8, thời tiết TP.HCM vài nơi xuất hiện mưa to kèm gió mạnh, trong khi cách đó vài kilômet trời lại mưa lớt phớt, vì sao?
-- Lửa cháy tại công ty sản xuất gỗ, rồi cháy lan sang 2 công ty bên cạnh bùng phát dữ dội, khiến công nhân hoảng sợ bỏ chạy thoát thân.
-- Học viên theo học văn bằng 2 tại Trường đại học Duy Tân không đồng tình với lý giải lệ phí 900.000 đồng từ trường này dành cho việc làm phôi và in bằng tốt nghiệp.
-- Dự báo từ đêm 10-8, ở các tỉnh vùng núi Bắc Bộ sẽ có mưa vừa, mưa to diện rộng. Từ ngày 12-8, mưa lớn mở rộng ra toàn miền Bắc.
-- Sở Giao thông vận tải TP.HCM vừa ra thông báo tổ chức giao thông phục vụ lễ thông xe và sau khi đưa vào khai thác hầm chui Trần Quốc Hoàn - Cộng Hòa, quận Tân Bình.
-- Ngoài tàu vận tải hàng hóa, hiện nay các tàu dịch vụ hậu cần nghề cá cũng không được chở heo, bò sống từ đất liền ra đảo Phú Quý, tỉnh Bình Thuận.
-- Ban Chấp hành Đảng bộ tỉnh Đồng Nai đã bầu ông Võ Tấn Đức - ủy viên Ban thường vụ Tỉnh ủy Đồng Nai, quyền chủ tịch UBND tỉnh - giữ chức phó bí thư Tỉnh ủy Đồng Nai.
-- Nếu không hoàn thành nghĩa vụ tài chính trong 30 ngày, người trúng đấu giá biển số xe không được hoàn trả tiền đặt trước, tiền đã nộp và không được tham gia đấu giá biển số xe trong 12 tháng.
-- Nhiều người có thẻ ngân hàng nhưng chưa lãnh được lương hưu vì tên trên sổ hưu và thẻ bảo hiểm y tế không giống nhau, chưa làm đơn đề nghị nhận qua tài khoản...
-- Công an phường Thạnh Mỹ Lợi, TP Thủ Đức (TP.HCM) đã phát thông báo tìm những người hùng giải cứu tài xế trong vụ tai nạn liên hoàn trên cầu Phú Mỹ.
+- Huyện Thanh Oai đấu giá 68 thửa đất tại khu ngõ Ba, thôn Thanh Thần, xã Thanh Cao, thu về cho ngân sách 404,6 tỉ đồng, chênh 349 tỉ đồng so với giá khởi điểm.
+- Một số tin tức đáng chú ý: Phạt 'đại gia' bất động sản, chứng khoán; Thép Việt chịu sức ép từ hàng Trung Quốc giá thấp; Tại sao đề xuất sinh viên được làm thêm 24 tiếng/tuần?; 70-80% nguyên nhân gây tử vong liên quan xơ vữa động mạch...
+- Hôm nay 11-8, thời tiết Bắc Bộ mưa to, đợt mưa này sẽ kéo dài vài ngày. Trung Bộ nắng nóng; Nam Bộ ngày nắng, chiều tối mưa rào.
+- Cơ quan cảnh sát điều tra Công an TP Phổ Yên (Thái Nguyên) khởi tố 6 bị can về tội truyền bá văn hóa phẩm đồi trụy trong vụ ‘cô gái lây HIV cho 16 người’.
+- Thị xã Quảng Trị thuộc diện sắp xếp đơn vị hành chính giai đoạn 2023 - 2025, nhưng cử tri muốn giữ lại thị xã trên phương diện lịch sử, truyền thống hào hùng.
+- Cơ quan khí tượng dự báo từ ngày mai (11-8), nắng nóng diện rộng ở Bắc Bộ có khả năng kết thúc.
+- Sổ đỏ (Giấy chứng nhận quyền sử dụng đất, quyền sở hữu tài sản gắn liền với đất) theo mẫu mới sẽ gồm một tờ có hai trang.
+- Bộ Nông nghiệp và Phát triển nông thôn lập phác đồ chuẩn để hỗ trợ nông dân vùng có bò sữa chết.
+- Kết luận thanh tra chỉ ra hàng loạt tồn tại, hạn chế về quản lý tài chính, sử dụng tài sản công ở Trường cao đẳng Bình Phước.
+- Đường Mỹ Phước - Tân Vạn thường xuyên ùn tắc, ô tô lấn xe máy, nay lại xảy ra tai nạn thương tâm khi hai mẹ con bị ô tô cán chết.
+- Những loại đất không có giấy tờ được cấp giấy chứng nhận quyền sử dụng đất, quyền sở hữu tài sản gắn liền với đất từ 1-8-2024 (phần 2).
+- Chiều 10-8, Thủ tướng Phạm Minh Chính dự lễ thông xe hầm chui Trần Quốc Hoàn - Phan Thúc Duyện (cửa ngõ sân bay Tân Sơn Nhất).
+- Nhiều ngày qua, mực nước đầu nguồn tại các tỉnh An Giang, Đồng Tháp liên tục biến đổi theo con nước, mang theo nhiều sản vật mùa nước nổi tại các chợ Đồng bằng sông Cửu Long.
+- TP Thủ Đức sẽ ưu tiên dành 128ha cho y tế, xây mới và mở rộng thêm nhiều bệnh viện, hình thành mạng lưới y tế chuyên sâu nhằm chăm sóc sức khỏe người dân.
+- Thấy ba mẹ con đuối nước kêu cứu, thượng tá Vũ Thanh Giang đã nhường phao cho hai người con và giữ người mẹ để không bị dòng nước kéo ra xa.
+- Tại cuộc làm việc ở TP.HCM sáng 10-8, Thủ tướng Phạm Minh Chính đề nghị phấn đấu khởi công 3 cao tốc vùng Đông Nam Bộ vào đầu năm 2025.
+- Tình trạng dừng xe chờ tàu hỏa tràn sang cả làn ngược chiều đã trở thành thói quen lâu nay của nhiều người đi xe máy tại TP Đà Nẵng.
+- 7 hài cốt liệt sĩ cùng nhiều di vật được tìm thấy tại sân bay quân sự Lộc Ninh (huyện Lộc Ninh, tỉnh Bình Phước).
+- Theo ban tổ chức, do dời ngày, việc chế biến các sản phẩm từ tôm hùm ngay tại gian hàng rất khó... nên lễ hội có rất ít tôm hùm.
+- 'Tài xế kêu nóng quá, tôi chịu không nổi, quyết phải cứu nhanh tài xế', nam công nhân trực tiếp nắm tay cứu tài xế bị nạn trên cầu Phú Mỹ chia sẻ.
+- Ngay sau sự cố gãy nhánh cây xanh tại công viên Tao Đàn làm 5 người thương vong, lãnh đạo TP.HCM đã nhanh chóng đến thăm hỏi nạn nhân và gia đình, động viên vượt qua biến cố.
+- Bộ trưởng Bộ Kế hoạch và Đầu tư Nguyễn Chí Dũng cho biết 7 tháng đầu năm, tăng trưởng kinh tế vùng Đông Nam Bộ đạt 5,58%, thấp hơn mức bình quân chung cả nước, chỉ cao hơn vùng Tây Nguyên.
+- Theo Cục Đường bộ Việt Nam, để cải tạo, nâng cấp gần 12km quốc lộ 15D đoạn từ đường Hồ Chí Minh nhánh tây đến cửa khẩu quốc tế La Lay, tỉnh Quảng Trị cần hơn 1.458 tỉ đồng.
+- Khoảng 4h sáng nay 10-8, tại xã Tà Xùa (Sơn La) xảy ra vụ sạt lở đất, đá vùi lấp hai cơ sở homestay khiến 1 người chết, 3 người bị thương.
+- Công an huyện Châu Phú, tỉnh An Giang cho biết đang điều tra nguyên nhân vụ cháy chợ Mỹ Đức, ước tính thiệt hại ban đầu hơn 1,2 tỉ đồng.
+- Thủ tướng cho rằng cơ chế, chính sách đặc thù phát triển TP.HCM đã có, cờ đã đến tay, cần quyết tâm, nỗ lực, hành động quyết liệt và làm việc trọng tâm hơn nữa.
+- Bộ trưởng Đào Hồng Lan trả lời ý kiến cử tri kiến nghị mở rộng chi trả của bảo hiểm y tế với một số xét nghiệm tầm soát bệnh đái tháo đường, tim mạch, mỡ máu.
+- Bệnh viện huyện Bình Chánh, TP.HCM vừa tiếp nhận 5 trường hợp nghi bị ngộ độc hóa chất PAC (polyaluminium chloride) thường dùng để xử lý nước.
+- Bí thư Nguyễn Văn Nên nêu thực trạng dù có cơ chế đặc thù nhưng khi thực hiện vẫn luẩn quẩn đi đối chiếu quy định để đảm bảo 'an toàn'.
+- Phẫu thuật cận thị là lựa chọn của nhiều người hiện nay vì mang lại nhiều lợi ích như nhìn rõ mà không cần đeo kính, tăng tính thẩm mỹ...
 ![New](News.png)
 ## Nhịp sống số 
+- Theo Open AI, việc giao tiếp nhiều với ChatGPT có thể khiến người dùng trở nên kém khéo léo hoặc ít muốn tương tác với con người hơn.
 - Sự cố mới đây của Gmail khiến hàng nghìn người không thể gửi email hoặc tin nhắn thông qua dịch vụ này.
 - Sở Cảnh sát thành phố Tulsa, bang Oklahoma (Mỹ) cảnh báo nguy cơ từ pin sạc dự phòng, sau khi một con chó nhai cục sạc dự phòng gây cháy nhà.
 - Việc lướt điện thoại và tiếp xúc với ánh sáng xanh có thực sự gây hại cho làn da bạn không? Và việc thoa kem dưỡng có giúp ích không?
@@ -94,5 +95,4 @@
 - Cơ quan Hàng không vũ trụ Nhật Bản (JAXA) ngày 5-7 thừa nhận đã bị rò rỉ thông tin sau một vụ tấn công mạng, may mắn không lộ thông tin tên lửa và vệ tinh.
 - Có thể thấy rằng để tối đa hóa doanh thu từ website, ứng dụng, thì nhiệm vụ là cần duy trì hiệu suất ở mức cao nhất có thể.
 - Theo cơ quan chức năng, nhà mạng cho phép thực hiện cuộc gọi lừa đảo nghĩa là đã cung cấp dịch vụ liên lạc không đúng cách và gây thiệt hại cho thuê bao.
-- Nghiên cứu mới cho thấy tiếp xúc với ánh sáng nhân tạo như bóng đèn hay điện thoại thông minh sau nửa đêm có thể làm tăng nguy cơ mắc đái tháo đường loại 2.
 ![life](Life.png)
