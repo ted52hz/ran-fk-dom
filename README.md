@@ -1,6 +1,9 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Cứ ba buổi tối mỗi tuần, bà Thành Thị Thiên (56 tuổi, ở xã Xuân Hải, huyện Ninh Hải, tỉnh Ninh Thuận) đẩy chiếc xe lăn cùng người con gái khuyết tật bẩm sinh đến lớp học xóa mù chữ.
+- Trịnh Hoàng Diệu Ngân vừa giành học bổng toàn phần bậc thạc sĩ khoa học hành tinh và môi trường của Trường Sư phạm Paris thuộc Đại học Paris Sciences et Lettres (PSL).
+- GS.TS Chu Phạm Ngọc Sơn, nguyên phó chủ tịch Liên hiệp các hội khoa học và kỹ thuật TP.HCM, vừa qua đời sáng nay 11-8.
 - Hàn Quốc sẽ cho phép các trường đại học tự đặt lịch tuyển sinh sinh viên nước ngoài và người học trưởng thành, thay vì chỉ được tuyển sinh 2 lần trong một năm.
 - Kết luận thanh tra chỉ ra hàng loạt tồn tại, hạn chế về quản lý tài chính, sử dụng tài sản công ở Trường cao đẳng Bình Phước.
 - Mỗi năm, sinh viên học tập, thực tập tại doanh nghiệp 3 tháng. Sinh viên được doanh nghiệp cam kết trả lương ít nhất 10 triệu đồng/tháng.
@@ -28,41 +31,38 @@
 - Chuỗi sự kiện thường niên nhằm hướng đến xây dựng TP.HCM thành một fintech hub trong tương lai.
 - Trường đại học Sư phạm kỹ thuật (Đại học Đà Nẵng) vừa có kết luận về xử lý vụ TS Nguyễn Thị Đông Phương là phản biện của bài báo quốc tế bị gỡ bỏ.
 - Úc cảnh báo nước này có thể mất 14.000 việc làm, nếu chính phủ thúc đẩy chính sách giới hạn số lượng sinh viên quốc tế.
-- Đại diện Hội đồng Anh nhận định như vậy tại Hội thảo quốc tế VietTESOL 2024 - sự kiện thường niên lớn trong lĩnh vực nghiên cứu và giảng dạy tiếng Anh tại Việt Nam.
-- Tính đến ngày 31-7, TP.HCM khánh thành 12 ngôi trường với tổng cộng 325 phòng học mới, sẵn sàng đưa vào sử dụng ngay đầu năm học mới 2024-2025.
-- Cậu học trò Trần Tiến Lợi (Trường Phổ thông Năng khiếu, Đại học Quốc gia TP.HCM) đậu học bổng toàn phần Trường đại học Fulbright Việt Nam.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Huyện Thanh Oai đấu giá 68 thửa đất tại khu ngõ Ba, thôn Thanh Thần, xã Thanh Cao, thu về cho ngân sách 404,6 tỉ đồng, chênh 349 tỉ đồng so với giá khởi điểm.
-- Một số tin tức đáng chú ý: Phạt 'đại gia' bất động sản, chứng khoán; Thép Việt chịu sức ép từ hàng Trung Quốc giá thấp; Tại sao đề xuất sinh viên được làm thêm 24 tiếng/tuần?; 70-80% nguyên nhân gây tử vong liên quan xơ vữa động mạch...
-- Hôm nay 11-8, thời tiết Bắc Bộ mưa to, đợt mưa này sẽ kéo dài vài ngày. Trung Bộ nắng nóng; Nam Bộ ngày nắng, chiều tối mưa rào.
-- Cơ quan cảnh sát điều tra Công an TP Phổ Yên (Thái Nguyên) khởi tố 6 bị can về tội truyền bá văn hóa phẩm đồi trụy trong vụ ‘cô gái lây HIV cho 16 người’.
-- Thị xã Quảng Trị thuộc diện sắp xếp đơn vị hành chính giai đoạn 2023 - 2025, nhưng cử tri muốn giữ lại thị xã trên phương diện lịch sử, truyền thống hào hùng.
-- Cơ quan khí tượng dự báo từ ngày mai (11-8), nắng nóng diện rộng ở Bắc Bộ có khả năng kết thúc.
-- Sổ đỏ (Giấy chứng nhận quyền sử dụng đất, quyền sở hữu tài sản gắn liền với đất) theo mẫu mới sẽ gồm một tờ có hai trang.
-- Bộ Nông nghiệp và Phát triển nông thôn lập phác đồ chuẩn để hỗ trợ nông dân vùng có bò sữa chết.
-- Kết luận thanh tra chỉ ra hàng loạt tồn tại, hạn chế về quản lý tài chính, sử dụng tài sản công ở Trường cao đẳng Bình Phước.
-- Đường Mỹ Phước - Tân Vạn thường xuyên ùn tắc, ô tô lấn xe máy, nay lại xảy ra tai nạn thương tâm khi hai mẹ con bị ô tô cán chết.
-- Những loại đất không có giấy tờ được cấp giấy chứng nhận quyền sử dụng đất, quyền sở hữu tài sản gắn liền với đất từ 1-8-2024 (phần 2).
-- Chiều 10-8, Thủ tướng Phạm Minh Chính dự lễ thông xe hầm chui Trần Quốc Hoàn - Phan Thúc Duyện (cửa ngõ sân bay Tân Sơn Nhất).
-- Nhiều ngày qua, mực nước đầu nguồn tại các tỉnh An Giang, Đồng Tháp liên tục biến đổi theo con nước, mang theo nhiều sản vật mùa nước nổi tại các chợ Đồng bằng sông Cửu Long.
-- TP Thủ Đức sẽ ưu tiên dành 128ha cho y tế, xây mới và mở rộng thêm nhiều bệnh viện, hình thành mạng lưới y tế chuyên sâu nhằm chăm sóc sức khỏe người dân.
-- Thấy ba mẹ con đuối nước kêu cứu, thượng tá Vũ Thanh Giang đã nhường phao cho hai người con và giữ người mẹ để không bị dòng nước kéo ra xa.
-- Tại cuộc làm việc ở TP.HCM sáng 10-8, Thủ tướng Phạm Minh Chính đề nghị phấn đấu khởi công 3 cao tốc vùng Đông Nam Bộ vào đầu năm 2025.
-- Tình trạng dừng xe chờ tàu hỏa tràn sang cả làn ngược chiều đã trở thành thói quen lâu nay của nhiều người đi xe máy tại TP Đà Nẵng.
-- 7 hài cốt liệt sĩ cùng nhiều di vật được tìm thấy tại sân bay quân sự Lộc Ninh (huyện Lộc Ninh, tỉnh Bình Phước).
-- Theo ban tổ chức, do dời ngày, việc chế biến các sản phẩm từ tôm hùm ngay tại gian hàng rất khó... nên lễ hội có rất ít tôm hùm.
-- 'Tài xế kêu nóng quá, tôi chịu không nổi, quyết phải cứu nhanh tài xế', nam công nhân trực tiếp nắm tay cứu tài xế bị nạn trên cầu Phú Mỹ chia sẻ.
-- Ngay sau sự cố gãy nhánh cây xanh tại công viên Tao Đàn làm 5 người thương vong, lãnh đạo TP.HCM đã nhanh chóng đến thăm hỏi nạn nhân và gia đình, động viên vượt qua biến cố.
-- Bộ trưởng Bộ Kế hoạch và Đầu tư Nguyễn Chí Dũng cho biết 7 tháng đầu năm, tăng trưởng kinh tế vùng Đông Nam Bộ đạt 5,58%, thấp hơn mức bình quân chung cả nước, chỉ cao hơn vùng Tây Nguyên.
-- Theo Cục Đường bộ Việt Nam, để cải tạo, nâng cấp gần 12km quốc lộ 15D đoạn từ đường Hồ Chí Minh nhánh tây đến cửa khẩu quốc tế La Lay, tỉnh Quảng Trị cần hơn 1.458 tỉ đồng.
-- Khoảng 4h sáng nay 10-8, tại xã Tà Xùa (Sơn La) xảy ra vụ sạt lở đất, đá vùi lấp hai cơ sở homestay khiến 1 người chết, 3 người bị thương.
-- Công an huyện Châu Phú, tỉnh An Giang cho biết đang điều tra nguyên nhân vụ cháy chợ Mỹ Đức, ước tính thiệt hại ban đầu hơn 1,2 tỉ đồng.
-- Thủ tướng cho rằng cơ chế, chính sách đặc thù phát triển TP.HCM đã có, cờ đã đến tay, cần quyết tâm, nỗ lực, hành động quyết liệt và làm việc trọng tâm hơn nữa.
-- Bộ trưởng Đào Hồng Lan trả lời ý kiến cử tri kiến nghị mở rộng chi trả của bảo hiểm y tế với một số xét nghiệm tầm soát bệnh đái tháo đường, tim mạch, mỡ máu.
-- Bệnh viện huyện Bình Chánh, TP.HCM vừa tiếp nhận 5 trường hợp nghi bị ngộ độc hóa chất PAC (polyaluminium chloride) thường dùng để xử lý nước.
-- Bí thư Nguyễn Văn Nên nêu thực trạng dù có cơ chế đặc thù nhưng khi thực hiện vẫn luẩn quẩn đi đối chiếu quy định để đảm bảo 'an toàn'.
-- Phẫu thuật cận thị là lựa chọn của nhiều người hiện nay vì mang lại nhiều lợi ích như nhìn rõ mà không cần đeo kính, tăng tính thẩm mỹ...
+- Vụ tai nạn giữa 2 xe tải và một chiếc bán tải sáng 12-8 trên cao tốc Nội Bài - Lào Cai làm một người chết và một nạn nhân bị thương.
+- Suốt nhiều năm qua, việc đi lại trên đường Nguyễn Duy Trinh đã trở thành nỗi ám ảnh của nhiều người dân (đặc biệt tại đoạn 1,6km từ Võ Chí Công đến Nguyễn Thị Tư).
+- Bộ Công an đang lấy ý kiến dự thảo nghị định quy định xử phạt vi phạm hành chính về trật tự, an toàn giao thông trong lĩnh vực giao thông đường bộ; trừ điểm, phục hồi điểm giấy phép lái xe.
+- Nhằm đáp ứng nhu cầu đi lại tăng cao dịp Quốc khánh 2-9-2024, ngành đường sắt tăng nhiều tàu khách trên các tuyến, cũng như áp dụng các chính sách giảm giá vé cho hành khách.
+- Người dân TP.HCM vô cùng bức xúc trước hiện trạng hầm chui Nguyễn Hữu cảnh (quận Bình Thạnh) lại bị kẻ xấu xịt sơn, vẽ bậy sau khi được khắc phục, sơn sạch đẹp vài ngày.
+- Chính phủ vừa cho phép TP.HCM được quyền cấp phép nhập khẩu 4 nhóm thuốc đáp ứng nhu cầu điều trị đặc biệt.
+- Một số tin tức đáng chú ý: Ủy ban Thường vụ Quốc hội cho ý kiến về 10 dự luật; Thủ tướng yêu cầu tập trung ứng phó nguy cơ mưa lũ, sạt lở đất; Voi ở Thảo cầm viên Sài Gòn 'mừng thọ' 65 tuổi...
+- Hôm nay 12-8, mưa to vẫn duy trì nhiều nơi tại Bắc Bộ. Trung Bộ nắng nóng, Nam Bộ thời tiết có mưa chiều tối.
+- Một chiếc siêu xe Rolls-Royce bật tín hiệu xi nhan trái nhưng đột ngột đi thẳng khiến cô gái đi xe máy phía sau thắng gấp, ngã xuống đường ở TP Vinh.
+- Dự báo từ đêm nay đến 14-8, ở Bắc Bộ sẽ có mưa to đến rất to với tổng lượng mưa có nơi trên 400mm, nguy cơ xảy ra ngập lụt ở đô thị và lũ quét, sạt lở đất ở vùng núi.
+- Công ty TNHH MTV Công viên cây xanh TP.HCM đề xuất lập tổ chuyên gia đánh giá rủi ro cây và sử dụng flycam để hỗ trợ trong công tác kiểm tra, đánh giá cây.
+- Cục Y tế dự phòng (Bộ Y tế) vừa có văn bản đề nghị Sở Y tế tỉnh Thanh Hóa và Viện Vệ sinh dịch tễ trung ương tăng cường phòng chống bệnh bạch hầu, sau khi tỉnh này công bố dịch bạch hầu tại thị trấn Mường Lát.
+- Liên quan đến vụ bò sữa chết bất thường ở Lâm Đồng, thứ trưởng Bộ Nông nghiệp và Phát triển nông thôn khẳng định việc tiêm vắc xin có sự ảnh hưởng.
+- UBND TP.HCM đề nghị Bộ Giao thông vận tải xem xét phương án xây cầu Thủ Thiêm 4 với tĩnh không thông thuyền 80m x 15m, 6 làn xe, tổng mức đầu tư khoảng 4.840 tỉ đồng.
+- Từ đầu mùa mưa, chỉ riêng sông Vàm Cỏ Tây tại Long An đã xảy ra 4 vụ sạt lở nguy hiểm, đặc biệt nguy hiểm.
+- Sở Y tế TP.HCM cho biết đã kiến nghị UBND TP.HCM công bố dịch sởi trong bối cảnh số ca sởi tăng nhanh và đã có 3 trẻ mắc bệnh sởi tử vong.
+- Việc liên kết vùng Đông Nam Bộ và mở rộng ra là miền Đông và miền Tây ngày càng trở nên khả thi hơn khi hàng loạt công trình kết nối hai miền đang bứt tốc.
+- Tổ chức Kỷ lục Việt Nam (Vietkings) khẳng định đơn vị này không ra quy định cấm người dân, du khách, phóng viên báo chí... chứng kiến hội thi trình diễn ẩm thực và xác lập kỷ lục 120 món ăn từ tôm hùm Cam Ranh.
+- Luật Nhà ở 2023, có hiệu lực từ ngày 1-8-2024 quy định 12 đối tượng được hưởng chính sách hỗ trợ về nhà ở xã hội.
+- Làng nghề thúng chai Phú Mỹ (xã An Dân, huyện Tuy An, Phú Yên) vẫn còn giữ cách làm truyền thống từ vật liệu thô đến các công đoạn chế tạo. Nhiều khu du lịch, các công ty nước ngoài rất yêu thích mặt hàng này.
+- TP Phan Rang - Tháp Chàm (Ninh Thuận) cho hay lãnh đạo các phường, xã sẽ bị xem xét trách nhiệm nếu để tiếng loa nhà nuôi yến làm phiền hà, gây ảnh hưởng đến cuộc sống người dân xung quanh.
+- Dù đã sớm có chủ trương đầu tư nâng cấp, mở rộng đường Nguyễn Duy Trinh (TP Thủ Đức, TP.HCM), nhưng đến nay dự án vẫn ‘im lìm’ và tổng mức đầu tư đã tăng hơn trước.
+- Tòa án nhân dân quận 3, TP.HCM cho biết đã nhận đơn kiện Công ty cổ phần Cấp nước Gia Định của ông Nguyễn Quốc Huy, ngụ đường Lê Văn Sỹ.
+- Những công trình thủy lợi, giao thông lớn ở tỉnh Đắk Nông xảy ra sự cố sạt trượt, nguy cơ mất an toàn nghiêm trọng, nhưng cả năm qua vẫn chưa xác định được nguyên nhân để đưa ra hướng xử lý.
+- Chính phủ vừa bổ sung quy định về điều tiết thị trường bất động sản, theo đó khi giá bất động sản biến động tăng hoặc giảm quá 20% trong 3 tháng, Nhà nước sẽ vào cuộc điều tiết thị trường.
+- Thứ trưởng Nguyễn Thị Phương Hoa, phó bí thư Ban cán sự Đảng, được giao điều hành hoạt động của Bộ Tài nguyên và Môi trường.
+- Nghe báo tin con trai và cháu trai đuối nước khi tắm hồ thủy điện gần nhà, người phụ nữ mang bầu 6 tháng hốt hoảng chạy ra cứu con nhưng cả 3 cùng chết đuối.
+- Về công trình tượng Phật và khu văn hóa tâm linh Đà Sơn (quận Liên Chiểu, Đà Nẵng) mà nhiều người quan tâm, Sở Xây dựng Đà Nẵng cho biết thông tin như trên.
+- Tuần nay thời tiết Bắc Bộ có đợt mưa dông dài ngày. Trung Bộ nắng nóng; Nam Bộ ngày nắng, chiều tối có mưa.
+- Đường Mai Chí Thọ, TP Thủ Đức (TP.HCM) tại các giao lộ sẽ dành ra 1-2 làn đường cho ô tô rẽ phải hoặc rẽ trái. Thế nhưng trên các làn rẽ này lại có kẻ vạch xương cá, khiến nhiều tài xế lúng túng.
 ![New](News.png)
 ## Nhịp sống số 
 - Theo Open AI, việc giao tiếp nhiều với ChatGPT có thể khiến người dùng trở nên kém khéo léo hoặc ít muốn tương tác với con người hơn.
