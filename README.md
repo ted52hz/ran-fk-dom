@@ -1,6 +1,15 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Tùy theo mức độ nghiêm trọng, người sử dụng bằng giả sẽ có thể bị xử phạt vi phạm hành chính hoặc truy cứu trách nhiệm hình sự.
+- Với số lượng nguyện vọng 1 tăng vọt cộng với điểm thi của thí sinh năm nay tăng, dự báo điểm chuẩn sẽ có nhiều biến động so với năm 2023.
+- Bộ Giáo dục và Đào tạo vừa có thông tin về rà soát văn bằng của ông Vương Tấn Việt và xác minh hồ sơ quá trình đào tạo tiến sĩ của ông này.
+- Cuộc thi Robocon châu Á - Thái Bình Dương 2024 sẽ có 13 đội tuyển đến từ 12 quốc gia tham dự. Các robot làm nhiệm vụ mô phỏng quá trình trồng lúa, từ gieo mạ đến thu hoạch.
+- Ông Phan Văn Mãi, chủ tịch UBND TP.HCM, chỉ đạo cần tập trung giải quyết những vướng mắc của các trường đại học, sớm hoàn thiện các khu đô thị đại học ở TP.HCM.
+- Liên quan đến vụ học sinh phải đọc được 10 chữ mới nhận hồ sơ vào lớp 1 ở Ninh Thuận,  học sinh đã được nhận hổ sơ nhập học.
+- Theo thông tư 08 của Bộ Giáo dục và Đào tạo, người học sử dụng hồ sơ, văn bằng, chứng chỉ giả làm điều kiện trúng tuyển hoặc điều kiện tốt nghiệp sẽ bị buộc thôi học; văn bằng tốt nghiệp nếu đã được cấp sẽ bị thu hồi, hủy bỏ.
+- Sau khi nghiên cứu, cô Thùy tìm cách đưa thiết bị lọc nước về vùng sâu vùng xa, nơi bà con đang gặp vấn đề về nguồn nước và kinh tế còn khó khăn.
+- Sở Giáo dục và Đào tạo TP.HCM vừa có văn bản báo cáo Ban Tôn giáo Chính phủ - Bộ Nội vụ về xác minh văn bằng tốt nghiệp cấp ba bổ túc văn hóa của ông Vương Tấn Việt (thượng tọa Thích Chân Quang).
 - Nhiều trường đại học phía Nam sẽ công bố điểm chuẩn vào chiều tối 17-8, ngay sau khi kết thúc lọc ảo nguyện vọng xét tuyển đại học 2024.
 - Nhiều địa phương trong cả nước đã "chốt" mức học phí cho năm học 2024-2025 từ mầm non đến phổ thông công lập.
 - Trường đại học Sư phạm Hà Nội vừa có buổi làm việc với Đại học Seitoku, Nhật Bản, nhằm liên kết hai trường trong đào tạo ngành sư phạm mầm non.
@@ -22,47 +31,38 @@
 - Chuyến đi theo 'Lớp học tử tế' tưởng cho vui ấy lại mang đến cho mình câu trả lời cho nỗi hoang mang của cuộc đời...
 - 'Không nên quá nhiều phương thức xét tuyển, càng đơn giản càng tốt, tạo thuận lợi cho thí sinh và xã hội', Bộ trưởng Nguyễn Kim Sơn nhấn mạnh.
 - Ông Nguyễn Văn Hiếu, giám đốc Sở Giáo dục và Đào tạo TP.HCM, khẳng định đến thời điểm hiện tại Trường quốc tế AISVN chưa đủ điều kiện hoạt động trở lại.
-- Học viên theo học văn bằng 2 tại Trường đại học Duy Tân không đồng tình với lý giải lệ phí 900.000 đồng từ trường này dành cho việc làm phôi và in bằng tốt nghiệp.
-- Theo báo cáo, các trường đại học, cao đẳng tại TP.HCM hiện đang đáp ứng khoảng 85% nhu cầu lao động của thành phố.
-- Đó là số ý tưởng, sáng kiến của học sinh cả nước gửi về cuộc thi 'Sáng kiến đảm bảo trật tự trường học về phòng ngừa bạo lực học đường và lao động trẻ em'.
-- Theo thống kê, chỉ trong 7 tháng đầu năm 2024, 67 cơ sở giáo dục đại học đã công bố hơn 10.000 bài báo khoa học trên Scopus, chiếm 84,45% số bài báo của cả nước.
-- Bài thi đánh giá năng lực của Đại học Quốc gia Hà Nội gồm hai phần thi bắt buộc và một phần thi cho phép thí sinh lựa chọn khoa học hoặc tiếng Anh.
-- PGS.TS Nguyễn Thu Thủy cho rằng vẫn còn trường có nhiều phương thức xét tuyển phức tạp, trong khi khó dự đoán lượng thí sinh ảo.
-- Điều lạ lùng là không ít thí sinh mong muốn rớt nguyện vọng 1. Bởi đó là nguyện vọng của cha mẹ, của người khác chứ không phải của mình.
-- Gia đình người cha mù, mẹ thiểu năng có thêm cô con gái thứ hai theo chị vào đại học. Một lần nữa, người cha lại gọi điện, thiết tha xin suất học bổng Tiếp sức đến trường cho con đến giảng đường.
-- "Có bạn nào đang lo không trượt nguyện vọng 1 như mình không?" - một thí sinh chia sẻ trên diễn đàn dành cho học sinh, sinh viên. Một thí sinh khác hỏi tiếp làm thế nào rớt nguyện vọng 1 để được vô nguyện vọng 2?
 ![Edu](Edu.png)
 ## Thời Sự 
-- Tin tức đáng chú ý: 11.220 người sẽ tham gia diễu binh, diễu hành ngày kỷ niệm 50 năm thống nhất đất nước 30-4-2025; Thủ tướng yêu cầu tập trung ứng phó nguy cơ mưa lũ, sạt lở đất, lũ quét tại Bắc Bộ...
-- Có cơ sở pháp lý để xử lý hành vi vẽ bậy từ phạt hành chính đến hình sự. Tuy nhiên, hiện nay mức xử phạt vi phạm hành chính đối với hành vi nêu trên còn nhẹ, chưa đủ sức răn đe đối với người vẽ bậy.
-- Hôm nay thời tiết Bắc Bộ tiếp tục có những cơn mưa to đến rất to. Trung Bộ nắng nóng còn Nam Bộ mưa tăng thêm.
-- Thường trực Ban Bí thư đề nghị Ban Chỉ đạo rà soát lại công tác chuẩn bị, theo sự phân công, cụ thể hóa kết luận của Ban Bí thư, hướng dẫn số 69; nêu ra khó khăn, bất cập trong quá trình thực hiện.
-- Cao tốc Dầu Giây - Tân Phú sẽ nối vào điểm cuối cao tốc TP.HCM - Long Thành - Dầu Giây kéo dài hướng lên Lâm Đồng với chiều dài 60,2km.
-- Cư dân đang ngủ bỗng dưng nước tràn vào căn hộ làm hư hỏng đồ đạc. Thang máy chung cư cũng hư nhiều ngày, cả ngàn người phải xếp hàng chờ hoặc đi thang bộ.
-- Lực lượng cảnh sát giao thông TP Vinh xác định tài xế xe sang Rolls-Royce xi nhan trái nhưng đi thẳng không có lỗi, nên không có căn cứ để xử lý.
-- Ngày 12-8, UBND TP.HCM đã có báo cáo gửi Thủ tướng đề xuất các cơ chế, chính sách đặc thù áp dụng chung cho toàn tuyến vành đai 4 TP.HCM.
-- UBND TP.HCM kiến nghị Thủ tướng có ý kiến để các nhà thầu, tư vấn tích cực phối hợp với chủ đầu tư tuyến metro số 1 trong đào tạo nhân sự, công tác vận hành thử...
-- Chiều 12-8, hàng trăm xe máy, ô tô kẹt cứng tại giao lộ Phan Thúc Duyện - Thăng Long sau khi qua hầm chui Trần Quốc Hoàn vì đường nối chưa cho đi.
-- Chiều 12-8, UBND tỉnh Bình Định và UBND tỉnh Gia Lai đã có buổi làm việc trực tuyến với Bộ Giao thông vận tải để bàn về kế hoạch, phương án đầu tư cao tốc Quy Nhơn - Pleiku.
-- Chiều 12-8, Công an huyện Hàm Tân, tỉnh Bình Thuận phối hợp với các đơn vị liên quan khám nghiệm hiện trường và tử thi liên quan vụ đuối nước của hai cha con.
-- Rạng sáng, tiếng của chỉ huy ban chuyên án vang lên như tiếng súng hiệu lệnh. Mọi người nhanh chóng lên xe đang chờ sẵn hướng vào khu kinh tế Tam Giác Vàng để phá chuyên án lừa đảo quy mô lớn.
-- Đoàn công tác tỉnh Bình Dương làm việc trực tiếp tại trụ sở nhiều tập đoàn quốc tế. Sau Lego, nhiều 'đại bàng' là các tập đoàn, viện nghiên cứu lớn có lời hẹn sẽ đầu tư, hợp tác với tỉnh này.
-- Nhiều người trẻ có suy nghĩ phải mua nhà trước khi kết hôn hoặc sinh con, nhưng giá nhà đất tăng vọt, họ phải “cày ngày cày đêm" để có thể mua được nhà nên đã bỏ qua thời điểm vàng để lập gia đình, sinh con.
-- Nhiều ý kiến phản biện về bảng giá đất điều chỉnh dự kiến của TP.HCM cho rằng cần có thời gian, lộ trình để điều chỉnh cho phù hợp, chưa cần thiết ban hành thời điểm này.
-- Nhóm 10 ngân hàng tư nhân lọt top 100 doanh nghiệp tư nhân nộp ngân sách lớn nhất năm 2023 đã nộp ngân sách 36.800 tỉ đồng, trong đó có những cái tên đáng chú ý như Techcombank, VPBank, VIB, SHB, HDBank.
-- Phó bí thư thường trực Tỉnh ủy Quảng Ninh Trịnh Thị Minh Thanh được phân công điều hành công việc của Tỉnh ủy, sau khi ông Nguyễn Xuân Ký, bí thư Tỉnh ủy, có đơn xin thôi giữ các chức vụ.
-- Tại kỳ họp thứ 7 vừa qua, Quốc hội đã thông qua Luật Trật tự, an toàn giao thông đường bộ, có hiệu lực thi hành từ 1-1-2025.
-- Trước tình trạng thiếu hụt hàng ngàn giáo viên, tỉnh Gia Lai đề nghị giao thêm chỉ tiêu tuyển dụng và không tinh giản biên chế để đáp ứng việc dạy và học.
-- TP.HCM đã có 16 quận, huyện, TP Thủ Đức xác định có ca bệnh sởi, trong đó có 9 quận, huyện đủ điều kiện công bố dịch sởi khi xuất hiện 2 ca bệnh trở lên.
-- Khu đất rộng khoảng 3.000m² ở xã Vĩnh Lộc A, huyện Bình Chánh, TP.HCM hiện có hàng trăm huyệt mộ bên trên, người dân lo ngại an toàn nguồn nước và vệ sinh môi trường.
-- Ngày 12-8, UBND tỉnh Kiên Giang cho biết ông Lâm Minh Thành - chủ tịch UBND tỉnh này - ký quyết định thành lập tổ công tác giải quyết tranh chấp, khiếu nại đất đai, tài nguyên khoáng sản, trật tự xây dựng tại địa phương.
-- Đèo Prenn Đà Lạt phải phân luồng một đoạn để xử lý tình trạng lún, nứt đường có nguy cơ lan rộng.
-- Theo Cổng thông tin điện tử Đảng bộ tỉnh Tuyên Quang, bà Lê Thị Kim Dung, phó bí thư thường trực Tỉnh ủy, được phân công điều hành công việc của Tỉnh ủy Tuyên Quang.
-- Thời gian tới, tỉnh Tây Ninh sẽ hoàn thiện hồ sơ, trình Thủ tướng phê duyệt đề án phân loại đô thị và công nhận thành phố Tây Ninh là đô thị loại II.
-- Sáng 12-8, tại Phủ Chủ tịch, Tổng Bí thư, Chủ tịch nước Tô Lâm đã tiếp đại sứ các nước Đức, Triều Tiên, Thụy Điển, Argentina và Algeria đến trình quốc thư.
-- UBND tỉnh Lâm Đồng yêu cầu Sở Tài nguyên và Môi trường kiểm điểm các cá nhân liên quan việc áp dụng đơn giá sai trong quá trình thực hiện công tác.
-- Đại tá Trần Văn Phúc, giám đốc Công an tỉnh Thái Bình, được điều động làm giám đốc Công an tỉnh Quảng Ninh thay thiếu tướng Đinh Văn Nơi - người vừa được bộ trưởng Bộ Công an điều động giữ chức cục trưởng Cục An ninh chính trị nội bộ.
-- Những ngày qua thời tiết Nam Bộ và TP.HCM có đợt giảm mưa giữa mùa mưa, thời tiết có phần oi bức với nền nhiệt cao, nguyên nhân do đâu?
+- Ông Nguyễn Đức Dũng, phó bí thư thường trực Tỉnh ủy Quảng Nam, được bầu làm chủ tịch HĐND tỉnh Quảng Nam.
+- Ngày 13-8, Công ty TNHH MTV Công viên cây xanh TP.HCM bắt đầu tổng kiểm tra hệ thống cây lâu năm tại các công viên công cộng và đường phố.
+- Cho rằng bản án 3 năm tù vì vi phạm quy định giao thông của mình là quá nặng nên Trần Văn Tuân nảy sinh ý định đâm trọng thương vị phó chánh án huyện đã tuyên án để trả thù.
+- Một số tin tức đáng chú ý: Doanh nghiệp vay nợ gần 8 tỉ USD qua trái phiếu; Thêm cổ phiếu 'ông lớn' điện lực vào diện cắt ký quỹ; Lao động Việt tại khu vực động đất ở Nhật Bản cần chú ý gì?...
+- Hôm nay 14-8, thời tiết ba miền có sự phân hóa rõ rệt, trong khi Bắc Bộ mưa dông thì Trung Bộ, Nam Bộ ngày nắng, có nơi nắng gay gắt.
+- Tổng Bí thư, Chủ tịch nước Tô Lâm nhấn mạnh việc kiên định lập trường, quan điểm và thực hành dân là gốc, nhân dân là chủ thể, trung tâm của công cuộc đổi mới.
+- Xe cẩu trong lúc dọn dẹp giàn khoan giếng đã vi phạm khoảng cách an toàn dẫn tới sự cố phóng điện, hơn 140.000 khách hàng mất điện đột ngột.
+- Một người đàn ông bất ngờ bơi ra giữa hồ Xuân Hương Đà Lạt rồi chìm. Lực lượng cứu hộ mất hơn 3 giờ mới tìm thấy thi thể.
+- Sau vụ ô tô cán chết hai mẹ con trên đường Mỹ Phước - Tân Vạn, cảnh sát giao thông Bình Dương tăng cường xử phạt các trường hợp ô tô lấn làn xe máy, vẫn còn nhiều trường hợp vi phạm.
+- Bảng giá đất thấp, một bộ phận người dân đóng thuế thấp nhưng toàn bộ người dân bị thu hồi đất sẽ chịu thiệt thòi.
+- Sở Giao thông vận tải TP.HCM đề nghị lực lượng chức năng xử lý nghiêm các trường hợp xe buýt hai tầng vi phạm các quy định.
+- Từ khoảng 17h chiều nay 13-8, mây dông kéo về trung tâm Hà Nội khiến trời tối sầm lại và đang mưa to ở một số quận nội thành, nhiều người đi đường phải bật đèn xe để di chuyển.
+- Ủy ban Thường vụ Quốc hội quyết định cho thôi làm nhiệm vụ đại biểu Quốc hội khóa XV đối với ông Đặng Quốc Khánh, Chẩu Văn Lâm.
+- Ngày 13-8, Tòa án nhân dân tỉnh Thừa Thiên Huế đã tiến hành xét xử vụ án mua bán thận.
+- Một người đàn ông ở Quảng Ninh mua lô hàng bong bóng cá lạc qua Zalo và bị một thanh niên lừa đảo lấy hơn 230 triệu đồng.
+- Hàng trăm công nhân Công ty Bo Hsing, huyện Long Hồ, tỉnh Vĩnh Long nhập viện với các triệu chứng nôn ói, đau bụng, tiêu chảy… nghi do ngộ độc thực phẩm.
+- Người dân TP.HCM đồng thuận đặt tên đường Đỗ Mười, Lê Khả Phiêu
+- Bộ Chính trị quyết định kỷ luật cảnh cáo Phó thủ tướng Lê Minh Khái. Ban Bí thư quyết định khai trừ khỏi Đảng 10 cán bộ.
+- Hai dự án điện gió ở Gia Lai sau khi được cấp chủ trương đầu tư, chưa hoàn thành thủ tục đất đai, đã bán cổ phần.
+- Mới đây, nhiều bạn đọc của Tuổi Trẻ Online liên tiếp phản ánh tình trạng rác thải tồn đọng nhiều nơi tại TP.HCM, gây mất mỹ quan đô thị, ảnh hưởng đến sức khỏe.
+- Một công ty ở Nghệ An mới được cấp chủ trương khai thác cát theo cơ chế đặc thù phục vụ cao tốc đã ầm ầm khai thác cát, dù thiếu rất nhiều thủ tục cần thiết.
+- Vietnam Airlines sẽ tăng chuyến để tăng gần 500.000 vé máy bay trên các chuyến bay dịp Quốc khánh 2-9, từ ngày 30-8 đến ngày 4-9-2024.
+- Chánh án Nguyễn Hòa Bình cho hay dự luật quy định cả 2 mô hình trại giam riêng hoặc phân trại riêng cho người chưa thành niên trong trại giam.
+- Liên quan vụ tai nạn liên hoàn trên cầu Phú Mỹ (TP Thủ Đức, TP.HCM), có hai công nhân quét dọn cũng bị các xe va trúng, một người văng qua con lươn, hiện đang điều trị tại bệnh viện.
+- Công ty TNHH MTV Công viên cây xanh TP.HCM kiểm tra, cắt tỉa nhiều cây xanh lâu năm ở công viên Tao Đàn, quận 1 ngày 13-8.
+- Bệnh viện Bãi Cháy (Quảng Ninh) cho biết đang tiếp nhận điều trị 4 trường hợp mắc bệnh Whitmore (còn gọi là bệnh vi khuẩn ăn thịt người), với biểu hiện lâm sàng rất đa dạng.
+- 6 tháng đầu năm 2024, khu vực biên giới tỉnh Đồng Tháp (TP Hồng Ngự, huyện Hồng Ngự, huyện Tân Hồng) đạt kim ngạch xuất nhập khẩu 304 triệu USD, tăng 97% so với cùng kỳ.
+- Bảy người rủ nhau đi xem sao băng tại Vườn quốc gia Tam Đảo (Vĩnh Phúc). Hai thanh niên về trước, khi băng qua suối bất ngờ bị lũ ống cuốn trôi.
+- Quyền chủ tịch UBND tỉnh Đồng Nai chỉ đạo các đơn vị, địa phương phải tập trung xử lý dứt điểm công tác giải phóng mặt bằng đối với 2 dự án trọng điểm quốc gia là cao tốc Biên Hòa - Vũng Tàu và vành đai 3 TP.HCM.
+- Sau phản ánh của Tuổi Trẻ Online về khu đất có hàng trăm ngôi mộ tự phát, UBND xã Vĩnh Lộc A (Bình Chánh, TP.HCM) đã cắm biển cấm chôn cất, làm nghĩa địa tại khu đất 3.000m2 có hàng trăm huyệt mộ.
 ![New](News.png)
 ## Nhịp sống số 
 - Theo Open AI, việc giao tiếp nhiều với ChatGPT có thể khiến người dùng trở nên kém khéo léo hoặc ít muốn tương tác với con người hơn.
