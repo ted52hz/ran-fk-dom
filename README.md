@@ -1,6 +1,14 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Ngày 16-8, Nhà xuất bản Đại học Sư phạm TP.HCM đã ra mắt bộ sách "Học tiếng Anh với người nước ngoài" (Global Gateway) cho học sinh từ lớp 1 đến lớp 12, nhằm tăng cường khả năng nghe, nói tiếng Anh cho học sinh theo chương trình phổ thông 2018.
+- Bộ Giáo dục và Đào tạo sẽ ban hành quy chế tuyển sinh lớp 10 theo chương trình mới thống nhất trên toàn quốc.
+- Ban giám hiệu nhà trường nhận thấy việc ra quyết định "dừng đào tạo" học sinh là chưa hợp lý, quan tâm đến từng học sinh nhưng chưa đúng phương pháp.
+- Trường cao đẳng Việt Nam liệu có đủ sức tham gia vào 'cuộc chơi' đào tạo lao động cho các ngành về công nghệ bán dẫn?
+- Trường cao đẳng Sư phạm Đắk Lắk mắc nhiều sai phạm và bị đánh giá là chậm khắc phục, trong đó có việc 100 sinh viên tuyển vượt chỉ tiêu, chưa được cấp bằng.
+- Thứ trưởng Bộ Giáo dục và Đào tạo Phạm Ngọc Thưởng đã yêu cầu TP.HCM sớm có trường phổ thông dùng tiếng Anh là ngôn ngữ thứ 2.
+- Phát hiện hai em nhỏ bị rơi xuống sông đuối nước, ba học sinh lớp 8 đã lao tới cứu các em, đưa lên bờ an toàn.
+- Các bài học về kỹ năng sống phải được thiết kế thiết thực hơn. Sự trải nghiệm quan trọng nhất là trải nghiệm thực tế cuộc sống.
 - Phải có đủ sách giáo khoa đến tay học sinh trước năm học mới 2024-2025 là yêu cầu của Bộ GD-ĐT được nhắc lại khi sắp tới ngày khai trường.
 - Chính quyền Jakarta lên kế hoạch sắp xếp cho học sinh nghèo được học miễn phí tại 1.000 trường tư thục trong năm học tới.
 - Trong năm học mới, các trường phát triển hệ thống ngân hàng câu hỏi trực tuyến cho các môn học; đẩy mạnh đánh giá thường xuyên bằng hình thức trực tuyến...
@@ -23,46 +31,38 @@
 - Sau mỗi giờ ăn tối, tiếng trống báo vang lên và loa công cộng phát đi thông tin "Đã đến giờ học tối".
 - Đến nay Trường đại học Bách khoa, Đại học Quốc gia TP.HCM vẫn chưa được cấp quyền sử dụng đất tại cơ sở Lý Thường Kiệt, quận 10, TP.HCM.
 - Tùy theo mức độ nghiêm trọng, người sử dụng bằng giả sẽ có thể bị xử phạt vi phạm hành chính hoặc truy cứu trách nhiệm hình sự.
-- Với số lượng nguyện vọng 1 tăng vọt cộng với điểm thi của thí sinh năm nay tăng, dự báo điểm chuẩn sẽ có nhiều biến động so với năm 2023.
-- Bộ Giáo dục và Đào tạo vừa có thông tin về rà soát văn bằng của ông Vương Tấn Việt và xác minh hồ sơ quá trình đào tạo tiến sĩ của ông này.
-- Cuộc thi Robocon châu Á - Thái Bình Dương 2024 sẽ có 13 đội tuyển đến từ 12 quốc gia tham dự. Các robot làm nhiệm vụ mô phỏng quá trình trồng lúa, từ gieo mạ đến thu hoạch.
-- Ông Phan Văn Mãi, chủ tịch UBND TP.HCM, chỉ đạo cần tập trung giải quyết những vướng mắc của các trường đại học, sớm hoàn thiện các khu đô thị đại học ở TP.HCM.
-- Liên quan đến vụ học sinh phải đọc được 10 chữ mới nhận hồ sơ vào lớp 1 ở Ninh Thuận,  học sinh đã được nhận hổ sơ nhập học.
-- Theo thông tư 08 của Bộ Giáo dục và Đào tạo, người học sử dụng hồ sơ, văn bằng, chứng chỉ giả làm điều kiện trúng tuyển hoặc điều kiện tốt nghiệp sẽ bị buộc thôi học; văn bằng tốt nghiệp nếu đã được cấp sẽ bị thu hồi, hủy bỏ.
-- Sau khi nghiên cứu, cô Thùy tìm cách đưa thiết bị lọc nước về vùng sâu vùng xa, nơi bà con đang gặp vấn đề về nguồn nước và kinh tế còn khó khăn.
-- Sở Giáo dục và Đào tạo TP.HCM vừa có văn bản báo cáo Ban Tôn giáo Chính phủ - Bộ Nội vụ về xác minh văn bằng tốt nghiệp cấp ba bổ túc văn hóa của ông Vương Tấn Việt (thượng tọa Thích Chân Quang).
 ![Edu](Edu.png)
 ## Thời Sự 
-- Tin tức đáng chú ý: Công an tỉnh Lạng Sơn cảnh báo người dân cảnh giác trước cuộc gọi lạ, tin nhắn liên quan đến định danh biển số xe; Bộ Chính trị yêu cầu lương nhà giáo được ưu tiên xếp cao nhất trong thang bậc lương hành chính sự nghiệp...
-- Hôm nay 16-8, mưa ở Bắc Bộ đã giảm, chỉ còn mưa rào, Trung Bộ nắng nóng đến nắng nóng gay gắt, Nam Bộ thời tiết ngày nắng, chiều mưa dông.
-- Chiều 15-8 tại Hà Nội, Quân ủy Trung ương, Bộ Quốc phòng tổ chức gặp mặt nhân kỷ niệm 79 năm Ngày truyền thống Công an nhân dân (19-8-1945 - 19-8-2024).
-- Đại tướng Phan Văn Giang nhấn mạnh khu vực phòng thủ phải được xây dựng vững mạnh toàn diện trên các mặt chính trị, tư tưởng, kinh tế, văn hóa, xã hội, quốc phòng, an ninh và đối ngoại.
-- Bộ Nội vụ nhắc lại việc Trung ương Giáo hội Phật giáo Việt Nam đã có hình thức kỷ luật thượng tọa Thích Chân Quang và đại đức Thích Nhuận Đức.
-- Việc Tổng Bí thư, Chủ tịch nước Tô Lâm nhận lời mời thăm cấp nhà nước Trung Quốc đầu tiên sau khi đảm nhiệm cương vị mới cho thấy sự coi trọng, ưu tiên hàng đầu của hai bên trong phát triển quan hệ.
-- Ngày 15-8, Cơ quan cảnh sát điều tra Công an tỉnh Tây Ninh bàn giao Ngô Phước Đính (64 tuổi, ngụ huyện Tân Châu) cho Cơ quan điều tra hình sự Bộ Quốc phòng, thụ lý vụ án giết người và trốn truy nã.
-- Chiều 15-8, UBND quận 7 đã  lắng nghe người thu gom về các vấn đề liên quan tới thu tiền rác qua app.
-- Do đơn vị trúng thầu cung cấp phụ kiện in giấy phép lái xe chậm thực hiện theo hợp đồng, Long An mượn từ các tỉnh in đỡ nhưng vẫn còn thiếu hơn 10.000 giấy.
-- Mạng xã hội đang lan truyền đoạn clip ghi cảnh cô gái nằm trên nắp ca pô ô tô, bị chở đi một đoạn đường dài, cô này liên tục kêu cứu, van xin người đàn ông dừng xe lại.
-- Công an TP.HCM phối hợp với Sở Giao thông vận tải TP.HCM tuyên truyền kinh nghiệm cho lái xe tải trọng lớn qua những nơi dễ mất kiểm soát dẫn đến tai nạn giao thông, như xuống dốc cầu.
-- Theo Công ty TNHH MTV Công viên cây xanh TP.HCM, việc dùng máy kiểm tra khiếm khuyết cây xanh tại TP.HCM đang ở mức thí điểm, chủ yếu vẫn dựa vào kinh nghiệm quan sát thực tế.
-- Theo chủ đầu tư, việc dùng đất ở vị trí quy hoạch ga T3 (sân bay Long Thành) làm vật liệu sẽ giúp giảm chi phí cho cả cao tốc Biên Hòa - Vũng Tàu và sân bay.
-- UBND TP.HCM vừa có văn bản kiến nghị Bộ Tư pháp và Bộ Xây dựng hướng dẫn rõ các vấn đề liên quan việc phân lô bán nền đất có hạ tầng kỹ thuật tại dự án ở các huyện.
-- Thăm TP.HCM, tàu Hải quân Hoàng gia Canada (HMCS) Montréal thể hiện cam kết của Canada trong việc thúc đẩy an ninh, ổn định ở Ấn Độ Dương - Thái Bình Dương.
-- Công nhân cảng Việt Trì (Phú Thọ) phát hiện quả bom có đường kính 40cm, dài 1,5m ở gần bờ sông Lô, cách cầu Việt Trì khoảng 150m về phía hạ lưu.
-- Chỉ trong 5 tháng đầu năm 2024, trên địa bàn tỉnh Khánh Hòa đã xảy ra 17 vụ ném đất, đá lên tàu hỏa.
-- Kỳ vọng xây dựng theo mô hình Thung lũng Silicon của Mỹ, Khu công nghệ thông tin tập trung Đà Nẵng hiện giờ ra sao?
-- Nhiều bạn đọc thắc mắc luật quy định ra sao và người đi xe máy cán vạch xương cá có bị phạt?
-- Bộ Công an cho biết hiện nay, Trung tâm RAR là đơn vị duy nhất được cấp phép cung cấp dịch vụ xác thực điện tử, do đó các đơn vị có nhu cầu sử dụng dịch vụ có thể đăng ký qua Trung tâm RAR.
-- Trước đây thị xã Phú Mỹ là vùng đất của đầm lầy, phèn chua, ngập mặn. Nhưng hôm nay vùng đất này là đô thị cảng biển, công nghiệp lớn nhất của tỉnh Bà Rịa - Vũng Tàu, với Cái Mép - Thị Vải - một trong hai cảng cửa ngõ đặc biệt.
-- Tổng Bí thư, Chủ tịch nước Tô Lâm cho biết theo dự kiến, kỳ họp Quốc hội tháng 10-2024 sẽ kiện toàn các chức danh lãnh đạo cấp cao.
-- Tác phẩm tham dự giải báo chí sẽ tập trung tuyên truyền quan điểm, chủ trương, đường lối của Đảng, chính sách và pháp luật của Nhà nước về phòng, chống tham nhũng, tiêu cực.
-- Ngày 15-8, lực lượng chức năng đang làm rõ nguyên nhân vụ xe tải húc dải phân cách, lao vào nhà dân trên tỉnh lộ 8 (xã Bình Mỹ, huyện Củ Chi, TP.HCM).
-- Đây là chuyến thăm Trung Quốc đầu tiên của Tổng Bí thư, Chủ tịch nước Tô Lâm trên cương vị mới. Chuyến thăm diễn ra trong bối cảnh quan hệ hai bên đang phát triển tốt đẹp.
-- Trong lúc thi công trạm bơm nước, đơn vị thi công đã phát hiện nhiều vật liệu nổ như lựu đạn, đạn súng cối, đạn súng trường…
-- Sau phản ánh của Tuổi Trẻ Online, các cửa hàng, quán ăn… trên nhiều tuyến đường ở TP.HCM đã không còn cảnh chèo kéo khách.
-- Trạm dừng nghỉ cao tốc Phan Thiết - Dầu Giây sẽ được làm tại km 47+500 thuộc huyện Xuân Lộc, tỉnh Đồng Nai và huyện Hàm Tân, tỉnh Bình Thuận.
-- Băng rôn quảng cáo treo vô tội vạ trên các cột điện, gốc cây, thậm chí che mất biển báo giao thông.
-- Sau một tuần đưa vào khai thác, metro Nhổn - ga Hà Nội đã chở hơn 393.000 lượt hành khách. Ngày đông nhất có hơn 100.000 lượt khách đi tàu.
+- Gia tài của người phụ nữ 67 tuổi là chiếc áo thanh niên xung phong màu rêu bạc thếch được ủi thẳng thớm cùng 15 cuốn sổ tay ố vàng. Những trang sổ ghi chép câu chuyện đồng đội đầy kỷ niệm yêu thương và ý nghĩa lý tưởng cuộc đời.
+- Hôm nay 17-8, Tổng Bí thư, Chủ tịch nước Tô Lâm cùng đoàn công tác Trung ương sẽ thăm và làm việc với Thành ủy TP.HCM.
+- Một số tin tức đáng chú ý: Giá chung cư Hà Nội chưa thể giảm ngay; Quyết định mở thủ tục phá sản LDG bị hủy; Quỹ bảo hiểm thất nghiệp kết dư hàng chục nghìn tỉ, vì sao?; Bể ống nước nên khu Bình Lợi, TP.HCM cúp nước cuối tuần...
+- Hôm nay 17-8, thời tiết miền Trung tiếp tục nắng nóng diện rộng, có nơi nắng nóng gay gắt. Miền Bắc và miền Nam có lúc mưa rào.
+- Ngọn lửa bất ngờ bùng lên ở bảng hiệu rồi cháy hết mặt trước quán karaoke 4 tầng khiến nhiều người bị một phen hốt hoảng.
+- Ngọn lửa bùng lên dữ dội, kèm theo khói đen ngùn ngụt tại quán bar trên phố Phó Đức Chính (quận Ba Đình, Hà Nội). Lực lượng chức năng đang nỗ lực dập lửa.
+- Bộ Công an đề nghị hơn 63.000 học viên liên quan đến vụ án xảy ra tại Trung tâm dạy nghề lái xe Sài Gòn khẩn trương liên hệ theo số điện thoại 0993.093.972 để được hướng dẫn giải quyết quyền lợi.
+- Thủ tướng thống nhất xây dựng một luật để sửa đổi, bổ sung 7 luật liên quan tài chính nhằm xử lý các vướng mắc mang tính cấp bách, góp phần tháo gỡ khó khăn trong hoạt động sản xuất kinh doanh.
+- Thành ủy TP.HCM vừa công bố đường link khảo sát nhằm lấy ý kiến đóng góp của người dân và các ý kiến đề xuất liên quan đến dự thảo bảng giá đất dự kiến áp dụng tại TP.
+- Dù với trang thiết bị rất thô sơ nhưng với ý thức tự lực, tự cường, với lòng yêu nước và quyết tâm rất cao, giáo sư Trần Đại Nghĩa cùng với cán bộ, kỹ sư của ta sản xuất thành công súng chống tăng Bazooka đầu tiên.
+- Các đơn vị kỳ vọng khai thác tiềm năng đường thủy lớn ở TP.HCM, phát triển dòng sông Sài Gòn "trên bến dưới thuyền" như các nước trên thế giới.
+- Sở Nông nghiệp và Phát triển nông thôn Quảng Ngãi đề xuất sửa chữa, cải tạo hồ chứa nước trên miệng núi lửa Thới Lới để cung cấp nước sinh hoạt cho toàn đảo Lý Sơn thay vì phục vụ sản xuất như lâu nay.
+- Quá trình cổ phần hóa Công ty Công trình đô thị Gia Lai đã xảy ra nhiều sai phạm trong quản lý đất đai, liên danh liên kết gây thất thoát tài sản nhà nước.
+- Các nước trong khu vực sông Mekong - Lan Thương đều ủng hộ Việt Nam tổ chức Hội nghị Bộ trưởng hợp tác nguồn nước năm 2025, xem quản lý bền vững nguồn nước là ưu tiên hàng đầu tại hội nghị vừa kết thúc ở Thái Lan.
+- Chiều 16-8, một vụ tai nạn giao thông nghiêm trọng xảy ra ở huyện Châu Đức, tỉnh Bà Rịa - Vũng Tàu khiến tài xế xe 7 chỗ tử vong tại chỗ.
+- Nhận tin báo bé trai quốc tịch Nhật Bản có dấu hiệu bị ngộ độc thực phẩm trên cao tốc Hà Nội - Hải Phòng, cảnh sát giao thông đã dùng xe đặc chủng để đưa cháu bé tới bệnh viện.
+- Trường cao đẳng Sư phạm Đắk Lắk mắc nhiều sai phạm và bị đánh giá là chậm khắc phục, trong đó có việc 100 sinh viên tuyển vượt chỉ tiêu, chưa được cấp bằng.
+- Ban Chấp hành Trung ương Đảng đã bầu bổ sung các ông Nguyễn Duy Ngọc, Trịnh Văn Quyết, Lê Minh Trí vào Ban Bí thư.
+- Bộ trưởng Bộ Công an Lương Tam Quang đã được Ban Chấp hành Trung ương Đảng bầu bổ sung làm ủy viên Bộ Chính trị khóa XIII.
+- Viện KSND tỉnh Khánh Hòa vừa chuyển đơn khiếu nại quyết định không khởi tố vụ án hình sự tại dự án của Công ty TNHH Quốc Hân (TP Nha Trang) và đề nghị Cơ quan cảnh sát điều tra Công an tỉnh Khánh Hòa giải quyết.
+- Dự án bờ bắc kênh Đôi quận 8 tăng vốn từ 4.930 tỉ đồng lên 7.415 tỉ đồng khi áp dụng Luật Đất đai mới, tương đương mức tăng hơn 50%.
+- Sau vụ tai nạn ở khu vực cầu Phú Mỹ vừa qua, Sở Giao thông vận tải TP.HCM và các đơn vị liên quan đã cho lập tổ xử lý sự cố riêng cho khu vực này.
+- Đàn bò sữa tại Lâm Đồng đã tiêm vắc xin NAVET-LPVAC của Công ty Navetco vẫn tiếp tục chết mặc dù được nỗ lực cứu chữa.
+- Ngày 2-8 vừa qua, Chính phủ đã quyết định phê duyệt chủ trương đầu tư cao tốc TP.HCM - Mộc Bài (dài 51km, qua TP.HCM và Tây Ninh). Hiện các địa phương đang chuẩn bị những bước tiếp theo để triển khai dự án.
+- Huyện Nghĩa Hành có tờ trình gửi UBND tỉnh Quảng Ngãi hỗ trợ kinh phí để đầu tư khẩn cấp kè chống sạt lở bờ sông Phước Giang, đoạn qua khu tái định cư Đồng Giá mà báo Tuổi Trẻ phản ánh.
+- Hiện nay có tình trạng người dân đăng ký khám chữa bệnh bảo hiểm y tế ở bệnh viện tuyến huyện tại tỉnh này thì không khám được ở phòng khám đa khoa (tuyến huyện) tại tỉnh khác.
+- Sau khi lắng nghe ý kiến người thu gom, UBND quận Bình Tân đã có một số điều chỉnh việc thu tiền rác qua app, các phường tạm thời thu trực tiếp như cũ.
+- Cầu đi bộ bắc qua sông Sài Gòn do Công ty Nutifood tài trợ có tổng mức đầu tư 996,9 tỉ đồng.
+- Nguồn thu từ các mỏ cát ở tỉnh Tiền Giang sẽ được ưu tiên sử dụng đầu tư các công trình chống sạt lở.
+- Sau khi chửi bới, quát mắng bé trai, người đàn ông dìm đầu cháu bé xuống nước tại một bể bơi ở quận Tây Hồ (Hà Nội).
 ![New](News.png)
 ## Nhịp sống số 
 - Theo Open AI, việc giao tiếp nhiều với ChatGPT có thể khiến người dùng trở nên kém khéo léo hoặc ít muốn tương tác với con người hơn.
