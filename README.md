@@ -1,70 +1,71 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
-- Ngày 16-8, Nhà xuất bản Đại học Sư phạm TP.HCM đã ra mắt bộ sách "Học tiếng Anh với người nước ngoài" (Global Gateway) cho học sinh từ lớp 1 đến lớp 12, nhằm tăng cường khả năng nghe, nói tiếng Anh cho học sinh theo chương trình phổ thông 2018.
-- Bộ Giáo dục và Đào tạo sẽ ban hành quy chế tuyển sinh lớp 10 theo chương trình mới thống nhất trên toàn quốc.
-- Ban giám hiệu nhà trường nhận thấy việc ra quyết định "dừng đào tạo" học sinh là chưa hợp lý, quan tâm đến từng học sinh nhưng chưa đúng phương pháp.
-- Trường cao đẳng Việt Nam liệu có đủ sức tham gia vào 'cuộc chơi' đào tạo lao động cho các ngành về công nghệ bán dẫn?
-- Trường cao đẳng Sư phạm Đắk Lắk mắc nhiều sai phạm và bị đánh giá là chậm khắc phục, trong đó có việc 100 sinh viên tuyển vượt chỉ tiêu, chưa được cấp bằng.
-- Thứ trưởng Bộ Giáo dục và Đào tạo Phạm Ngọc Thưởng đã yêu cầu TP.HCM sớm có trường phổ thông dùng tiếng Anh là ngôn ngữ thứ 2.
-- Phát hiện hai em nhỏ bị rơi xuống sông đuối nước, ba học sinh lớp 8 đã lao tới cứu các em, đưa lên bờ an toàn.
-- Các bài học về kỹ năng sống phải được thiết kế thiết thực hơn. Sự trải nghiệm quan trọng nhất là trải nghiệm thực tế cuộc sống.
-- Phải có đủ sách giáo khoa đến tay học sinh trước năm học mới 2024-2025 là yêu cầu của Bộ GD-ĐT được nhắc lại khi sắp tới ngày khai trường.
-- Chính quyền Jakarta lên kế hoạch sắp xếp cho học sinh nghèo được học miễn phí tại 1.000 trường tư thục trong năm học tới.
-- Trong năm học mới, các trường phát triển hệ thống ngân hàng câu hỏi trực tuyến cho các môn học; đẩy mạnh đánh giá thường xuyên bằng hình thức trực tuyến...
-- Liên quan vụ tố không xác nhận cư trú cho trẻ đi học, người cha cho biết đã chuyển chỗ ở từ Vĩnh Long sang Bến Tre để con kịp nhập học.
-- Theo dự thảo sửa đổi, bổ sung thông tư số 50/2021, Bộ Công an sẽ sửa đối tượng dự tuyển trình độ thạc sĩ và bổ sung đối tượng được phép đăng ký dự tuyển trình độ đại học vừa làm vừa học.
-- Số điện thoại tiếp nhận thông tin trong giờ hành chính của Bộ Giáo dục và Đào tạo: 024.38621002, email: duongdaynongct10.2019@moet.gov.vn.
-- Trường đại học Sư phạm TP.HCM vừa công bố đề thi đánh giá năng lực chuyên biệt theo cấu trúc mới từ năm 2025.
-- Liên quan đến việc Trường THPT Ngô Quyền - Đông Anh, Hà Nội, ra quyết định "dừng đào tạo" với một học sinh lớp 12A5, Sở Giáo dục và Đào tạo Hà Nội vừa có chỉ đạo.
-- Trường trung cấp Y - Dược Tôn Thất Tùng bị thanh tra kết luận làm giả giấy chứng nhận đăng ký hoạt động để cung cấp cho bảo hiểm xã hội quận.
-- Ông Nguyễn Văn Hiếu - giám đốc Sở Giáo dục và Đào tạo TP.HCM - yêu cầu các trường trung học coi dạy tiếng Anh là mở cánh cửa vào đời cho học sinh và yêu cầu cán bộ sở này nghiên cứu trình dự thảo về phổ cập tiếng Anh cho học sinh TP.
-- Sinh viên ngành công nghệ thông tin Trường đại học Công nghệ TP.HCM (HUTECH) trải nghiệm cách học lưu động mà ở đó các bạn được vạch đường từ những chuyên gia công nghệ.
-- Nhiều trường phổ thông tư thục tại TP.HCM đã bắt đầu đón học sinh tựu trường năm học mới từ tuần này.
-- Sở Giáo dục và Đào tạo TP.HCM vừa yêu cầu Trường quốc tế AISVN nghiêm túc chấp hành quyết định đình chỉ hoạt động, đồng thời tạo mọi điều kiện thuận lợi nhất cho cha mẹ học sinh làm thủ tục chuyển trường.
-- Chương trình tập luyện điều trị cong vẹo cột sống do nhóm các nhà khoa học thuộc Viện Vật lý y sinh học (Viện Khoa học và Công nghệ quân sự) nghiên cứu thành công và đã áp dụng trong khám và điều trị tại viện này từ năm 2022 đến nay.
-- PGS.TS Phạm Quang Huy - phó trưởng ban đào tạo Đại học Kinh tế TP.HCM - có thêm một bài báo vừa bị một tạp chí quốc tế gỡ bỏ. Ông Huy đã có đơn xin thôi chức vụ và được nhà trường chấp nhận.
-- Bộ Chính trị vừa có kết luận tiếp tục thực hiện nghị quyết số 29-NQ/TW của Ban Chấp hành Trung ương Đảng về đổi mới căn bản, toàn diện giáo dục và đào tạo.
-- Trường đại học Ngoại ngữ Hà Nội (nay là Trường đại học Hà Nội) là trường đại học đầu tiên cấp bằng cử nhân cho ông Vương Tấn Việt (thượng tọa Thích Chân Quang).
-- Hiện nay, TP.HCM đã dạy một số môn học như toán, khoa học bằng tiếng Anh, năm học 2024-2025, TP khuyến khích các trường tiểu học tiếp tục dạy một số môn học bằng tiếng nước ngoài.
-- Đây là một trong những nội dung Bộ Giáo dục và Đào tạo đề nghị các địa phương phối hợp thực hiện vào dịp khai giảng năm học mới.
-- Sau mỗi giờ ăn tối, tiếng trống báo vang lên và loa công cộng phát đi thông tin "Đã đến giờ học tối".
-- Đến nay Trường đại học Bách khoa, Đại học Quốc gia TP.HCM vẫn chưa được cấp quyền sử dụng đất tại cơ sở Lý Thường Kiệt, quận 10, TP.HCM.
-- Tùy theo mức độ nghiêm trọng, người sử dụng bằng giả sẽ có thể bị xử phạt vi phạm hành chính hoặc truy cứu trách nhiệm hình sự.
+- Tại Trường đại học Cần Thơ, các ngành sư phạm lấy điểm chuẩn 'khủng'. Nhiều trường khác cũng có mức điểm chuẩn bất ngờ. Tuổi Trẻ Online liên tục cập nhật.
+- Thí sinh trúng tuyển vào sư phạm ngữ văn và sư phạm lịch sử của Trường đại học Sư phạm Hà Nội phải có điểm trung bình từ 9,76 điểm/môn trở lên.
+- Tối 17-8, Trường đại học Quốc tế, Học viện Hàng không Việt Nam và Trường đại học Văn Lang công bố điểm chuẩn trúng tuyển theo phương thức xét điểm thi tốt nghiệp THPT 2024.
+- Học viện Ngoại giao vừa công bố điểm chuẩn xét tuyển năm 2024, trong đó ngành Trung Quốc học cao nhất với 29,2 điểm tổ hợp C00.
+- Tính đến tối 17-8, đã có 11 trường đại học thành viên trực thuộc Đại học Quốc gia Hà Nội công bố điểm chuẩn trúng tuyển theo phương thức xét điểm thi tốt nghiệp THPT.
+- Đại học Kinh tế TP.HCM vừa công bố điểm chuẩn các phương thức xét tuyển đại học chính quy 2024, với mức điểm tăng mạnh ở cả hai cơ sở đào tạo.
+- Ngành truyền thông đa phương tiện lấy điểm chuẩn 28,25/30, cao nhất Học viện Báo chí và Tuyên truyền ở phương thức xét điểm thi tốt nghiệp THPT.
+- Thêm hai trường đại học ở TP.HCM vừa công bố điểm chuẩn là Trường đại học Công Thương TP.HCM và Trường đại học Tài chính - Marketing.
+- Ngành lấy điểm chuẩn cao nhất Trường đại học Luật Hà Nội là luật kinh tế khối C, thí sinh phải đạt trung bình 9,6 điểm/môn mới đậu.
+- Trường đại học Dược Hà Nội và Trường đại học Y Dược (Đại học Quốc gia Hà Nội) vừa công bố điểm chuẩn trúng tuyển phương thức xét điểm thi tốt nghiệp THPT.
+- Tối 17-8, Trường đại học Công nghiệp TP.HCM công bố điểm chuẩn bậc đại học chính quy bằng phương thức xét tuyển sử dụng kết quả thi tốt nghiệp THPT năm 2024.
+- Ban tuyển sinh quân sự (Bộ Quốc phòng) công bố điểm chuẩn trường quân đội năm 2024, dao động từ trên 20 điểm đến trên 28 điểm.
+- Năm 2024, điểm chuẩn hầu hết các ngành của Trường đại học Ngân hàng TP.HCM tăng so với năm 2023. Tuy nhiên có ngành giảm 1 điểm.
+- Điểm chuẩn vào Trường đại học Công nghệ (Đại học Quốc gia Hà Nội) năm nay dao động từ 22,5 đến 27,8 điểm.
+- Trường đại học Khoa học xã hội và Nhân văn Hà Nội lấy điểm chuẩn vào ngành quan hệ công chúng, báo chí ở mức trên 29 điểm, tổ hợp C00.
+- Điểm chuẩn ngành kỹ thuật hạt nhân năm nay tăng 6,6 điểm; ngành khoa học vật liệu tăng 5,3 điểm; ngành quản lý tài nguyên và môi trường tăng 3,5 điểm...
+- Ngành thương mại điện tử của Trường đại học Kinh tế quốc dân lấy điểm chuẩn ở mức cao như năm 2023 là 28,02 điểm.
+- Ngày 17-8, Trường đại học Ngoại thương (FTU) công bố điểm chuẩn theo phương thức xét điểm thi tốt nghiệp. Có 95% chỉ tiêu có ngưỡng điểm 27.
+- Chiều 17-8, Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) công bố điểm chuẩn theo phương thức xét tuyển tổng hợp năm 2024.
+- Hai ngành lấy điểm chuẩn cao nhất Trường đại học Thương mại là thương mại điện tử (quản trị thương mại điện tử), marketing (marketing thương mại), thí sinh phải được 9 điểm/môn.
+- Ngành có điểm chuẩn tăng nhiều nhất Trường đại học Y Dược Cần Thơ là y học cổ truyền. Riêng ngành y tế công cộng giảm gần 1 điểm.
+- Giải Lê Quý Đôn trên ấn phẩm Nhi Đồng - Khăn Quàng Đỏ của báo Tuổi Trẻ bước vào mùa giải thứ 30 và đón nhận bằng khen của UBND TP.HCM.
+- Trường đại học Kinh tế - Luật (Đại học Quốc gia TP.HCM) vừa công bố điểm chuẩn trúng tuyển đại học chính quy theo phương thức xét điểm thi tốt nghiệp THPT năm 2024.
+- Chiều 17-8, Đại học Bách khoa Hà Nội công bố điểm chuẩn trúng tuyển đại học chính quy năm 2024 theo phương thức xét điểm thi tốt nghiệp THPT và điểm thi đánh giá tư duy.
+- Ngành luật kinh tế của Học viện Ngân hàng có điểm chuẩn cao nhất 28,13 điểm, tương đương hơn 9,3 điểm/môn thí sinh mới trúng tuyển.
+- Chiều và tối nay 17-8, nhiều trường đại học đã công bố điểm chuẩn phương thức xét điểm thi tốt nghiệp THPT. Tuổi Trẻ Online liên tục cập nhật.
+- Dự thảo thông tư về kiểm định chất lượng chương trình đào tạo do Bộ Giáo dục và Đào tạo đưa ra lấy ý kiến có nhiều thay đổi so với trước đây.
+- Trường đại học Y Dược TP.HCM vừa công bố nghị quyết bổ nhiệm phó hiệu trưởng phụ trách chuyên môn của nhà trường.
+- Năm học 2024 - 2025, TP.HCM sẽ lựa chọn các trường phổ thông công lập để thí điểm dùng tiếng Anh làm ngôn ngữ thứ 2 dạy học. Đây là bước đột phá của giáo dục TP.HCM trong năm học mới.
+- Các trường học cho rằng nếu học sinh được tự do dùng điện thoại, các em có thể xem nội dung có hại hoặc chơi trò chơi, dẫn tới không tập trung học.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Gia tài của người phụ nữ 67 tuổi là chiếc áo thanh niên xung phong màu rêu bạc thếch được ủi thẳng thớm cùng 15 cuốn sổ tay ố vàng. Những trang sổ ghi chép câu chuyện đồng đội đầy kỷ niệm yêu thương và ý nghĩa lý tưởng cuộc đời.
-- Hôm nay 17-8, Tổng Bí thư, Chủ tịch nước Tô Lâm cùng đoàn công tác Trung ương sẽ thăm và làm việc với Thành ủy TP.HCM.
-- Một số tin tức đáng chú ý: Giá chung cư Hà Nội chưa thể giảm ngay; Quyết định mở thủ tục phá sản LDG bị hủy; Quỹ bảo hiểm thất nghiệp kết dư hàng chục nghìn tỉ, vì sao?; Bể ống nước nên khu Bình Lợi, TP.HCM cúp nước cuối tuần...
-- Hôm nay 17-8, thời tiết miền Trung tiếp tục nắng nóng diện rộng, có nơi nắng nóng gay gắt. Miền Bắc và miền Nam có lúc mưa rào.
-- Ngọn lửa bất ngờ bùng lên ở bảng hiệu rồi cháy hết mặt trước quán karaoke 4 tầng khiến nhiều người bị một phen hốt hoảng.
-- Ngọn lửa bùng lên dữ dội, kèm theo khói đen ngùn ngụt tại quán bar trên phố Phó Đức Chính (quận Ba Đình, Hà Nội). Lực lượng chức năng đang nỗ lực dập lửa.
-- Bộ Công an đề nghị hơn 63.000 học viên liên quan đến vụ án xảy ra tại Trung tâm dạy nghề lái xe Sài Gòn khẩn trương liên hệ theo số điện thoại 0993.093.972 để được hướng dẫn giải quyết quyền lợi.
-- Thủ tướng thống nhất xây dựng một luật để sửa đổi, bổ sung 7 luật liên quan tài chính nhằm xử lý các vướng mắc mang tính cấp bách, góp phần tháo gỡ khó khăn trong hoạt động sản xuất kinh doanh.
-- Thành ủy TP.HCM vừa công bố đường link khảo sát nhằm lấy ý kiến đóng góp của người dân và các ý kiến đề xuất liên quan đến dự thảo bảng giá đất dự kiến áp dụng tại TP.
-- Dù với trang thiết bị rất thô sơ nhưng với ý thức tự lực, tự cường, với lòng yêu nước và quyết tâm rất cao, giáo sư Trần Đại Nghĩa cùng với cán bộ, kỹ sư của ta sản xuất thành công súng chống tăng Bazooka đầu tiên.
-- Các đơn vị kỳ vọng khai thác tiềm năng đường thủy lớn ở TP.HCM, phát triển dòng sông Sài Gòn "trên bến dưới thuyền" như các nước trên thế giới.
-- Sở Nông nghiệp và Phát triển nông thôn Quảng Ngãi đề xuất sửa chữa, cải tạo hồ chứa nước trên miệng núi lửa Thới Lới để cung cấp nước sinh hoạt cho toàn đảo Lý Sơn thay vì phục vụ sản xuất như lâu nay.
-- Quá trình cổ phần hóa Công ty Công trình đô thị Gia Lai đã xảy ra nhiều sai phạm trong quản lý đất đai, liên danh liên kết gây thất thoát tài sản nhà nước.
-- Các nước trong khu vực sông Mekong - Lan Thương đều ủng hộ Việt Nam tổ chức Hội nghị Bộ trưởng hợp tác nguồn nước năm 2025, xem quản lý bền vững nguồn nước là ưu tiên hàng đầu tại hội nghị vừa kết thúc ở Thái Lan.
-- Chiều 16-8, một vụ tai nạn giao thông nghiêm trọng xảy ra ở huyện Châu Đức, tỉnh Bà Rịa - Vũng Tàu khiến tài xế xe 7 chỗ tử vong tại chỗ.
-- Nhận tin báo bé trai quốc tịch Nhật Bản có dấu hiệu bị ngộ độc thực phẩm trên cao tốc Hà Nội - Hải Phòng, cảnh sát giao thông đã dùng xe đặc chủng để đưa cháu bé tới bệnh viện.
-- Trường cao đẳng Sư phạm Đắk Lắk mắc nhiều sai phạm và bị đánh giá là chậm khắc phục, trong đó có việc 100 sinh viên tuyển vượt chỉ tiêu, chưa được cấp bằng.
-- Ban Chấp hành Trung ương Đảng đã bầu bổ sung các ông Nguyễn Duy Ngọc, Trịnh Văn Quyết, Lê Minh Trí vào Ban Bí thư.
-- Bộ trưởng Bộ Công an Lương Tam Quang đã được Ban Chấp hành Trung ương Đảng bầu bổ sung làm ủy viên Bộ Chính trị khóa XIII.
-- Viện KSND tỉnh Khánh Hòa vừa chuyển đơn khiếu nại quyết định không khởi tố vụ án hình sự tại dự án của Công ty TNHH Quốc Hân (TP Nha Trang) và đề nghị Cơ quan cảnh sát điều tra Công an tỉnh Khánh Hòa giải quyết.
-- Dự án bờ bắc kênh Đôi quận 8 tăng vốn từ 4.930 tỉ đồng lên 7.415 tỉ đồng khi áp dụng Luật Đất đai mới, tương đương mức tăng hơn 50%.
-- Sau vụ tai nạn ở khu vực cầu Phú Mỹ vừa qua, Sở Giao thông vận tải TP.HCM và các đơn vị liên quan đã cho lập tổ xử lý sự cố riêng cho khu vực này.
-- Đàn bò sữa tại Lâm Đồng đã tiêm vắc xin NAVET-LPVAC của Công ty Navetco vẫn tiếp tục chết mặc dù được nỗ lực cứu chữa.
-- Ngày 2-8 vừa qua, Chính phủ đã quyết định phê duyệt chủ trương đầu tư cao tốc TP.HCM - Mộc Bài (dài 51km, qua TP.HCM và Tây Ninh). Hiện các địa phương đang chuẩn bị những bước tiếp theo để triển khai dự án.
-- Huyện Nghĩa Hành có tờ trình gửi UBND tỉnh Quảng Ngãi hỗ trợ kinh phí để đầu tư khẩn cấp kè chống sạt lở bờ sông Phước Giang, đoạn qua khu tái định cư Đồng Giá mà báo Tuổi Trẻ phản ánh.
-- Hiện nay có tình trạng người dân đăng ký khám chữa bệnh bảo hiểm y tế ở bệnh viện tuyến huyện tại tỉnh này thì không khám được ở phòng khám đa khoa (tuyến huyện) tại tỉnh khác.
-- Sau khi lắng nghe ý kiến người thu gom, UBND quận Bình Tân đã có một số điều chỉnh việc thu tiền rác qua app, các phường tạm thời thu trực tiếp như cũ.
-- Cầu đi bộ bắc qua sông Sài Gòn do Công ty Nutifood tài trợ có tổng mức đầu tư 996,9 tỉ đồng.
-- Nguồn thu từ các mỏ cát ở tỉnh Tiền Giang sẽ được ưu tiên sử dụng đầu tư các công trình chống sạt lở.
-- Sau khi chửi bới, quát mắng bé trai, người đàn ông dìm đầu cháu bé xuống nước tại một bể bơi ở quận Tây Hồ (Hà Nội).
+- Với vốn đầu tư khoảng 13 triệu USD, nhà máy xử lý nước thải ở phía bắc TP Nha Trang (Khánh Hòa) sẽ góp phần bảo vệ môi trường cho khu vực này.
+- Một số tin tức đáng chú ý: Lãnh đạo TP.HCM đối thoại với người dân về Luật Đất đai mới; Lộ diện nhiều 'đại gia' lần đầu chậm trả nợ trái phiếu; Thêm nhiều trường 'hot' công bố điểm chuẩn...
+- Với việc thời tiết nắng nóng kéo dài nhiều ngày qua tại Trung Bộ và còn duy trì trong nhiều ngày tới, nguy cơ cháy nổ rất cao.
+- Tổng Bí thư, Chủ tịch nước Tô Lâm và phu nhân sẽ dẫn đầu đoàn đại biểu cấp cao Việt Nam thăm Trung Quốc trong ba ngày, từ 18 đến 20-8.
+- Vụ cháy nhà xưởng lan ra từ khu vực chuyền sơn của công ty sản xuất đồ gỗ tại Bình Dương, nhiều chiến sĩ được huy động để chữa cháy và đã khống chế được đám cháy lớn này.
+- Thủ tướng Phạm Minh Chính động viên toàn đội ngũ kỹ sư, công nhân trên công trường đảm bảo tiến độ cao tốc Khánh Hòa - Buôn Ma Thuột.
+- Tổng Bí thư, Chủ tịch nước Tô Lâm đề nghị chính quyền TP.HCM cân nhắc, tính toán kỹ, đặc biệt là vai trò của Ngân hàng Chính sách xã hội với các cơ chế cho sinh viên vay tiền đi học.
+- Bộ Giao thông vận tải trình Chính phủ ban hành nghị định thu phí đường cao tốc do Nhà nước đầu tư, đại diện chủ sở hữu với mức phí thấp nhất từ 900 đồng/km, cao nhất 5.200 đồng/km theo từng nhóm xe.
+- CSGT khẳng định cơ quan chức năng không ghi nhận phát sinh việc sang tên, đổi chủ biển số này giữa chủ sở hữu và Bùi Xuân Huấn.
+- Nhiều hộ dân ven rừng phòng hộ ở xã Bình An (huyện Kiên Lương, tỉnh Kiên Giang) hiện "sống khỏe" với việc nuôi cá mú trân châu trong ao đất.
+- Khoa cấp cứu Bệnh viện Đa khoa tỉnh Gia Lai tiếp nhận hơn chục bệnh nhân là hành khách bị nạn trong vụ lật xe trên quốc lộ 14, chiều 17-8.
+- Tổng Bí thư, Chủ tịch nước Tô Lâm băn khoăn tại sao TP.HCM có vai trò, vị thế tiềm lực mạnh như thế nhưng chưa có giải pháp thu hút các nguồn lực đầu tư hiệu quả.
+- Vụ tranh chấp bất động sản lớn nhất miền Trung giữa 2 công ty Hoàng Nhất Nam và Bách Đạt An vừa có diễn biến mới.
+- Trong chương trình Thắp sáng ước mơ thanh niên hoàn lương, có 500 phạm nhân đang chấp hành án tại trại giam Thanh Xuân được khám chữa bệnh và được giao lưu với các nghệ sĩ trẻ thành phố Hà Nội.
+- Đó là mục tiêu trước mắt mà giới báo chí, trong đó có báo Đảng ở miền Trung - Tây Nguyên, xác định phải đạt được trong quá trình thực hiện chiến lược kinh tế quốc gia.
+- Tổng Thanh tra Chính phủ kiến nghị Thủ tướng chỉ đạo kiểm điểm, xử lý trách nhiệm UBND tỉnh Gia Lai giai đoạn 2016-2020.
+- Ngày 17-8, ông Lưu Văn Ninh - giám đốc Đài Khí tượng thủy văn tỉnh An Giang - đưa ra dự báo đỉnh lũ có thể xuất hiện vào cuối tháng 9 hoặc đầu tháng 10.
+- Toàn bộ các tỉnh, thành phía Nam ghi nhận 199 ca đậu mùa khỉ, trong đó có 8 ca tử vong, TP.HCM là địa phương có số ca cao nhất.
+- Suốt 10 năm qua, đã có nhiều tập thể và hàng ngàn cá nhân tham gia vào câu lạc bộ 'Vì Hoàng Sa - Trường Sa thân yêu'.
+- Báo cáo với Tổng Bí thư, Chủ tịch nước Tô Lâm, TP.HCM kiến nghị Trung ương xem xét, cho phép xây dựng Luật Quản lý và Phát triển đô thị đặc biệt.
+- Chiều 17-8, Tổng Bí thư, Chủ tịch nước Tô Lâm làm việc với Thành ủy TP.HCM về kết quả thực hiện nghị quyết Đại hội đại biểu toàn quốc lần thứ XIII của Đảng và nghị quyết Đại hội đại biểu Đảng bộ thành phố lần thứ XI.
+- Thủ tướng Phạm Minh Chính chỉ đạo phải khẩn trương hoàn thành thủ tục đẩy nhanh dự án tuyến đường sắt đô thị số 2, đoạn Nam Thăng Long - Trần Hưng Đạo; dự án đầu tư xây dựng cao tốc Ninh Bình - Hải Phòng.
+- Ông Phong, làm trong lĩnh vực nhà đất, là người đàn ông dùng xương bò đập vỡ kính ô tô người khác tại Bình Dương đã bị khởi tố, bắt tạm giam.
+- Trường hợp đầu tư điện mặt trời mái nhà có lắp đặt hệ thống lưu trữ điện năng có thể được mua 100% công suất điện dư và nghiên cứu cho phép mua điện theo giá từng thời điểm.
+- Một nữ phó phòng thuộc Tòa án nhân dân cấp cao tại Đà Nẵng bị bắt quả tang về hành vi môi giới hối lộ.
+- Những năm gần đây, tỉ lệ giải ngân đầu tư công luôn là "nỗi lo" của TP.HCM và năm nay cũng vậy.
+- Liên quan đến sự cố nổ hầm thủy điện Nậm Cấu làm 1 người chết, 1 người bị thương, công an đã bắt thêm 3 người.
+- Sáng 17-8, Tổng Bí thư, Chủ tịch nước Tô Lâm đã trao tặng danh hiệu Anh hùng Lực lượng vũ trang nhân dân cho Công an TP.HCM.
+- Sáng 17-8, Thủ tướng Phạm Minh Chính đã làm việc với Ban Thường vụ Thành ủy Hà Nội về tình hình, giải pháp thúc đẩy phát triển kinh tế - xã hội và việc thực hiện các chương trình mục tiêu quốc gia.
+- Kiểm lâm Thừa Thiên Huế chỉ đạo lực lượng đi đến các chùa, địa điểm sinh hoạt Phật giáo trên địa bàn để tuyên truyền, đề nghị Phật tử không mua, bán chim phóng sinh mùa Vu lan.
 ![New](News.png)
 ## Nhịp sống số 
+- Ngày 18-8, Hội nghị GenAI Summit 2024 về trí tuệ nhân tạo với chủ đề “Chân Trời Mới” diễn ra tại TPHCM.
 - Theo Open AI, việc giao tiếp nhiều với ChatGPT có thể khiến người dùng trở nên kém khéo léo hoặc ít muốn tương tác với con người hơn.
 - Sự cố mới đây của Gmail khiến hàng nghìn người không thể gửi email hoặc tin nhắn thông qua dịch vụ này.
 - Sở Cảnh sát thành phố Tulsa, bang Oklahoma (Mỹ) cảnh báo nguy cơ từ pin sạc dự phòng, sau khi một con chó nhai cục sạc dự phòng gây cháy nhà.
@@ -94,5 +95,4 @@
 - Kinh tế số ước đạt tăng trưởng 22,4%, chiếm tỉ trọng 18,3% trong GDP. Doanh thu lĩnh vực công nghệ thông tin (kinh tế số ICT) ước đạt trên 1,92 triệu tỉ đồng trong 6 tháng đầu năm.
 - Cơ quan Hàng không vũ trụ Nhật Bản (JAXA) ngày 5-7 thừa nhận đã bị rò rỉ thông tin sau một vụ tấn công mạng, may mắn không lộ thông tin tên lửa và vệ tinh.
 - Có thể thấy rằng để tối đa hóa doanh thu từ website, ứng dụng, thì nhiệm vụ là cần duy trì hiệu suất ở mức cao nhất có thể.
-- Theo cơ quan chức năng, nhà mạng cho phép thực hiện cuộc gọi lừa đảo nghĩa là đã cung cấp dịch vụ liên lạc không đúng cách và gây thiệt hại cho thuê bao.
 ![life](Life.png)
