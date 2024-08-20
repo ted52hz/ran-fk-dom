@@ -1,68 +1,68 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- 9h sáng nay 20-8, UBND tỉnh Thái Bình họp báo cung cấp thông tin vụ bất thường điểm thi vào lớp 10 sau thanh tra.
+- Đoàn thanh tra tỉnh Thái Bình xác định có 2.769 bài thi tự luận bị sai điểm và 1.589 thí sinh bị sai tổng điểm xét tuyển. Nguyên nhân do ghép phách bị sai.
+- Bộ Giáo dục và Đào tạo đánh giá Research.com là 'cổng thông tin điện tử uy tín dành cho các nhà khoa học thế giới'. Trong khi đó, nhiều ý kiến lo ngại bảng xếp hạng Research.com 'phá hoại nền tảng học thuật'.
+- Vừa công bố điểm chuẩn, hàng loạt trường đại học đã thông báo xét tuyển bổ sung. Trong số này có các ngành "hot" như y khoa, răng hàm mặt, dược...
+- Số thí sinh đăng ký xét tuyển đông, trong khi chỉ tiêu xét tuyển ít là những nguyên nhân khiến thí sinh 9,7 điểm/môn vẫn trượt sư phạm.
+- Theo thông tin từ Trường cao đẳng Việt - Hàn (TP Hạ Long, Quảng Ninh), ngày 19-8 đã phát hiện thi thể của hiệu trưởng nhà trường tại khuôn viên trường.
+- Chuyện lương giáo viên cao hay thấp đang thu hút nhiều ý kiến bạn đọc tham gia tranh luận.
+- Bạn đọc có nhiều ý kiến trái chiều về chuyện điểm chuẩn đại học 2024 khi thí sinh đạt 9,6 điểm mỗi môn vẫn rớt nguyện vọng đăng ký.
+- Nguyên lãnh đạo UBND tỉnh An Giang khẳng định giáo sư Võ Tòng Xuân có công lớn đối với An Giang là đưa lúa thần nông chuyển từ 1 vụ lúa mùa sáng 2, 3 vụ.
+- Một trong những sáng kiến được thúc đẩy từ khoản tài trợ 1,5 triệu USD này là nhằm hỗ trợ các nghiên cứu liên quan đến AI của giảng viên và sinh viên.
+- Để thực hiện đồ án, nhóm đã dành khoảng thời gian 6 tháng phác thảo ý tưởng, nghiên cứu tài liệu và hoàn thiện mô hình.
+- Bên cạnh kết quả đạt được, Thủ tướng chỉ rõ những tồn tại, hạn chế, khó khăn, thách thức như việc đổi mới chương trình, sách giáo khoa giáo dục phổ thông vẫn còn bất cập.
+- Trường Phổ thông Năng khiếu cho biết ngay sau khi nhà trường có buổi giới thiệu về chương trình thí điểm dạy một số tín chỉ ở bậc đại học, đã có 600 học sinh từ khối 10 - 12 đăng ký học.
+- Sáng nay 19-8, hàng chục ngàn học sinh lớp 1 tại TP.HCM nô nức tựu trường, làm quen trường lớp, bậc học mới.
+- Tang lễ của Anh hùng lao động, GS.TS Võ Tòng Xuân dự kiến được tổ chức tại Nhà tang lễ thành phố Cần Thơ.
+- Nhiều tân sinh viên cùng phụ huynh đã có mặt tại Trường đại học Công nghiệp TP.HCM từ hơn 2h sáng nay để chờ nhập học.
+- Điểm chuẩn Học viện Công nghệ bưu chính viễn thông dao động 22,5 - 26,4, cao nhất là công nghệ thông tin.
+- Phó chủ tịch UBND TP.HCM cho rằng với mặt bằng thu nhập ở thành phố hiện nay, mức lương chi trả cho giáo viên tiếng Anh, tin học, mỹ thuật, âm nhạc quá thấp.
+- Trường đại học Sài Gòn vừa công bố điểm chuẩn phương thức xét điểm thi tốt nghiệp và kỳ thi đánh giá đầu vào đại học trên máy tính.
+- GS Võ Tòng Xuân - hiệu trưởng danh dự của Trường đại học Nam Cần Thơ - vừa qua đời lúc 7h sáng nay 19-8 tại TP.HCM sau một thời gian lâm trọng bệnh.
 - Điểm chuẩn  đại học năm nay có nhiều biến động, đặc biệt các ngành tuyển tổ hợp văn - sử - địa điểm chuẩn cao chót vót.
 - Singapore đang chuẩn bị công bố các biện pháp nhằm hạn chế sử dụng thiết bị điện thoại ở trường học nhằm tăng cường sự tập trung, khơi lại sự tương tác xã hội của học sinh.
 - Đã có ít nhất ba lần vấn đề lương nhà giáo được đề xuất đưa vào luật. Đây cũng là mục tiêu đặt ra qua nhiều đời bộ trưởng Bộ Giáo dục và Đào tạo.
 - Trường đại học Công nghệ thông tin (Đại học Quốc gia TP.HCM) công bố điểm chuẩn trúng tuyển theo phương thức xét điểm thi tốt nghiệp THPT năm 2024.
 - Ngày 18-8, Trường đại học Y Hà Nội công bố điểm chuẩn xét tuyển năm 2024. Ngành y khoa có điểm chuẩn từ 26,55 đến 28,27.
 - Trường đại học Sư phạm TP.HCM vừa công bố điểm chuẩn xét điểm thi tốt nghiệp THPT năm 2024, hầu hết các ngành đều tăng so với năm ngoái.
-- Trong 32 thí sinh được trao thưởng cấp quốc gia, có hai thí sinh tiểu học đạt 900/900 đánh giá bài thi TOEFL Junior, một em bậc THCS đạt 673/673 điểm bài thi TOEFL ITP.
+- Trong 32 thí sinh được trao thưởng cấp quốc gia, có hai thí sinh tiểu học đạt 900/900 đánh giá bài thi TOEFL Junior.
 - Có thêm ba trường đại học tại TP.HCM vừa công bố điểm chuẩn xét tuyển các ngành đại học chính quy theo kết quả thi tốt nghiệp THPT năm 2024.
 - Trong số 2.141 sinh viên đại học chính quy nhận bằng tốt nghiệp đợt 2 năm 2024, có khoảng 23,3% sinh viên tốt nghiệp xuất sắc, 49,9% tốt nghiệp loại giỏi, tỉ lệ xuất sắc và giỏi chiếm gần 73,2%.
 - Trường đại học Kiến trúc TP.HCM và Trường đại học Nông Lâm TP.HCM vừa công bố điểm chuẩn xét điểm thi tốt nghiệp THPT năm 2024.
-- Nhiều giáo viên mầm non từng làm việc tại Igarten cho biết chưa nhận được lộ trình xác nhận công nợ dù đại diện công ty này hứa  phản hồi trong tháng 7-2024.
-- Điểm chuẩn Trường đại học Khoa học sức khỏe (Khoa y Đại học Quốc gia TP.HCM trước đây) năm nay tăng so với năm 2023.
-- Hội đồng tuyển sinh Trường đại học Y Dược TP.HCM vừa công bố điểm chuẩn trúng tuyển đại học hệ chính quy năm 2024.
-- Điểm chuẩn các ngành tuyển tổ hợp văn - sử - địa cao chót vót, bỏ xa các ngành xét tuyển toán - lý - hóa.
-- Xét tuyển khối C, thí sinh phải đạt hơn 9,76 điểm/môn mới đỗ sư phạm lịch sử, ngữ văn; hơn 9,66 điểm/môn mới đỗ ngành quan hệ công chúng, báo chí...
-- Trước thềm năm học mới, tỉnh Gia Lai yêu cầu cơ quan chức năng kiểm tra, đảm bảo an toàn giao thông đối với các phương tiện tham gia đưa đón học sinh.
-- Điểm chuẩn phương thức xét điểm thi tốt nghiệp THPT của Trường đại học Khoa học xã hội và Nhân văn (Đại học Quốc gia TP.HCM) dao động từ 22 đến 28,88 điểm.
-- Đến sáng nay 18-8, đã có hơn 100 trường đại học trên cả nước công bố điểm chuẩn với nhiều biến động bất ngờ so với dự đoán.
-- Nhiều học viên ngành kế toán - khóa 11 Trường đại học Văn Lang phản ánh việc một thủ khoa thạc sĩ của trường chỉ học trong thời gian 10 tháng.
-- Ngày 18-8, thêm nhiều trường đại học công bố điểm chuẩn, trong đó có những trường 'hot', với mức điểm chuẩn cao bất ngờ.
-- Thí sinh trúng tuyển vào sư phạm ngữ văn và sư phạm lịch sử của Trường đại học Sư phạm Hà Nội phải có điểm trung bình từ 9,76 điểm/môn trở lên.
-- Tối 17-8, Trường đại học Quốc tế, Học viện Hàng không Việt Nam và Trường đại học Văn Lang công bố điểm chuẩn trúng tuyển theo phương thức xét điểm thi tốt nghiệp THPT 2024.
-- Học viện Ngoại giao vừa công bố điểm chuẩn xét tuyển năm 2024, trong đó ngành Trung Quốc học cao nhất với 29,2 điểm tổ hợp C00.
-- Tính đến tối 17-8, đã có 11 trường đại học thành viên trực thuộc Đại học Quốc gia Hà Nội công bố điểm chuẩn trúng tuyển theo phương thức xét điểm thi tốt nghiệp THPT.
-- Đại học Kinh tế TP.HCM vừa công bố điểm chuẩn các phương thức xét tuyển đại học chính quy 2024, với mức điểm tăng mạnh ở cả hai cơ sở đào tạo.
-- Ngành truyền thông đa phương tiện lấy điểm chuẩn 28,25/30, cao nhất Học viện Báo chí và Tuyên truyền ở phương thức xét điểm thi tốt nghiệp THPT.
-- Thêm hai trường đại học ở TP.HCM vừa công bố điểm chuẩn là Trường đại học Công Thương TP.HCM và Trường đại học Tài chính - Marketing.
-- Ngành lấy điểm chuẩn cao nhất Trường đại học Luật Hà Nội là luật kinh tế khối C, thí sinh phải đạt trung bình 9,6 điểm/môn mới đậu.
-- Trường đại học Dược Hà Nội và Trường đại học Y Dược (Đại học Quốc gia Hà Nội) vừa công bố điểm chuẩn trúng tuyển phương thức xét điểm thi tốt nghiệp THPT.
-- Tối 17-8, Trường đại học Công nghiệp TP.HCM công bố điểm chuẩn bậc đại học chính quy bằng phương thức xét tuyển sử dụng kết quả thi tốt nghiệp THPT năm 2024.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Một bản làng cho các hộ dân vùng có nguy cơ sạt lở của xã Hướng Lập (Hướng Hóa, Quảng Trị) vừa được dựng lên. Chủ tịch Tập đoàn Sơn Hải trao đổi về việc này.
-- Nhiều tháng qua, Bệnh viện Tâm thần Đà Nẵng thiếu thuốc concerta dùng để điều trị chứng tăng động, giảm chú ý.
-- Từ năm 2021, Công ty Mercedes - Benz Việt Nam đã bắt đầu đề nghị TP.HCM cho gia hạn dự án. Và đến nay việc xem xét gia hạn vẫn loay hoay.
-- Tin tức đáng chú ý: Hôm nay khai mạc phiên họp 36 của Ủy ban Thường vụ Quốc hội; Lệ phí cấp mới, đổi căn cước dự kiến 30.000-70.000 đồng/lượt; Sẽ có nhiều mức đóng, hưởng bảo hiểm y tế...
-- Hôm nay 19-8, thời tiết nắng nóng vẫn diễn ra ở nhiều nơi tại Trung Bộ. Nam Bộ ngày nắng, chiều tối có mưa, Bắc Bộ mưa rào đến mưa to.
-- Chiều 18-8, Thủ tướng Chính phủ Phạm Minh Chính làm việc với Ban Thường vụ Tỉnh ủy Đắk Lắk về tình hình thực hiện nhiệm vụ chính trị 7 tháng đầu năm 2024, kết quả thực hiện nghị quyết Đại hội Đảng bộ tỉnh lần thứ XVII, nhiệm kỳ 2020-2025.
-- Tối 18-8 (giờ địa phương), chuyên cơ chở Tổng Bí thư, Chủ tịch nước Tô Lâm và phu nhân đã đến Bắc Kinh, bắt đầu các hoạt động chính thức tại thủ đô Trung Quốc.
-- Chiếc ô tô 5 chỗ đang chạy trên đường tỉnh 176 (Hà Giang) thì bất ngờ lao xuống vực sâu hàng chục mét rồi bốc cháy khiến một người chết, một người bỏng nặng.
-- Chương trình nhằm tăng cường mối quan hệ đoàn kết giữa Bệnh viện dã chiến cấp 2 số 5 và Cảnh sát Ghana đang thực hiện sứ mệnh gìn giữ hòa bình Liên Hiệp Quốc tại Nam Sudan.
-- Dự án nhà máy lắp ráp ô tô Mercedes-Benz tại quận Gò Vấp, TP.HCM sẽ hết hạn vào năm 2025 nhưng đến nay vẫn chưa xong thủ tục gia hạn đầu tư.
-- Ngày 18-8, UBND tỉnh Bình Định phối hợp với Tập đoàn FPT tổ chức hội nghị Chiến lược phát triển ngành trí tuệ nhân tạo, bán dẫn và an ninh mạng.
-- Những ngày qua, lái xe máy cày tại phường Nguyễn Trãi (TP Kon Tum, tỉnh Kon Tum) khá hài lòng khi được chính quyền hỗ trợ điểm rửa xe trước khi di chuyển vào tỉnh lộ.
-- Những con chim bị nhốt, giẫm đạp trong lồng tỏ ra yếu ớt, đuối sức không thể bay nổi.
-- Bí thư Tỉnh ủy Hoàng Khôn Minh khẳng định Đảng bộ và chính quyền tỉnh Quảng Đông (Trung Quốc) hết sức coi trọng quan hệ với Việt Nam và các địa phương của Việt Nam.
-- Tại phiên họp thứ 36 khai mạc vào sáng mai, Ủy ban Thường vụ Quốc hội sẽ xem xét cho ý kiến vào 4 dự luật và quyết định nhiều nội dung quan trọng.
-- Nhiều giáo viên mầm non từng làm việc tại Igarten cho biết chưa nhận được lộ trình xác nhận công nợ dù đại diện công ty này hứa  phản hồi trong tháng 7-2024.
-- Với đất dân cư xây dựng mới, hiện TP.HCM có hơn 600 đồ án quy hoạch phân khu với gần 12.200 ha, được phê duyệt vào các thời điểm khác nhau.
-- Ngay sau khi đến Quảng Châu, Tổng Bí thư, Chủ tịch nước Tô Lâm và phu nhân đã dâng hương, dâng hoa tại mộ liệt sĩ Phạm Hồng Thái.
-- Phố Hàng Vải (Hà Nội) có một hiệu bánh giò chỉ bán 25 chiếc mỗi ngày, đủ cho hạnh phúc giản dị của hai mẹ con, người gần 90 tuổi, người gần 70 tuổi.
-- Ngày phát hiện ra con không phát triển bình thường, vợ chồng chị Trinh suy sụp, nhưng rồi gắng gượng động viên nhau dành tình thương cho con nhiều hơn.
-- Ban quản lý bán đảo Sơn Trà và các bãi biển du lịch Đà Nẵng cho biết khó có thể xử lý dứt điểm tình trạng này trong thời gian ngắn.
-- UBND TP.HCM vừa có thông báo kết luận của Ban cán sự đảng UBND TP về kế hoạch tổ chức đấu giá các lô đất tại khu đô thị mới Thủ Thiêm.
-- Thủ tướng Phạm Minh Chính kêu gọi các địa phương, nhà thầu, toàn thể kỹ sư, công nhân thi đua cao điểm "500 ngày đêm thi đua hoàn thành 3.000km đường bộ cao tốc".
-- Sông Thu Bồn từ thượng nguồn chảy về Gò Nổi, thị xã Điện Bàn (Quảng Nam) thì chia 2 nhánh bao bọc xã Điện Quang, Điện Trung và một phần xã Điện Thọ.
-- Đến ngày 17-8, 56 hộ dân từ các bản Cuôi, Tri, Cooclong ở xã Hướng Lập, huyện Hướng Hóa (Quảng Trị) đã chuyển đến nơi ở mới là làng nghĩa tình.
-- Vượt qua những khó khăn về nguồn vật liệu, công trình xây dựng cầu Nhơn Trạch (cầu lớn nhất vành đai 3 TP.HCM) đang xây dựng bứt tốc.
-- Nhiều hồ sơ chuyển mục đích sử dụng đất từ 1-8 bị “treo”, chưa thể tính tiền sử dụng đất, cử tri trăn trở bao giờ được giải quyết, liệu có tác động đến các thủ tục đất đai?
-- Tuần này thời tiết miền Bắc nhiều mây, mưa rào; miền Nam ngày nắng gián đoạn, chiều có mưa; miền Trung nắng nóng.
-- Trong dự thảo nghị định mới nhất, Bộ Nội vụ đề xuất 7 trường hợp tạm đình chỉ công tác với công chức, bao gồm cố tình trì hoãn, đùn đẩy, né trách nhiệm.
-- Việc sử dụng bóng cười đã trở thành một trào lưu giải trí mới, đặc biệt phổ biến trong giới trẻ, khiến không ít người nhập viện trong tình trạng nguy kịch.
+- Sáng sớm 20-8, lãnh đạo các tỉnh, thành Cần Thơ, An Giang và Trường đại học Cần Thơ đã đến viếng giáo sư Võ Tòng Xuân tại nhà tang lễ TP Cần Thơ.
+- Tôi nhận được tin thầy Xuân (GS.TS Võ Tòng Xuân) mất lúc đang trên đường đi họp với xã viên Hợp tác xã Hiệp Lực ở huyện U Minh Thượng (Kiên Giang).
+- Phiên đấu giá 19 lô đất tại thôn Lòng Khúc, xã Tiền Yên, huyện Hoài Đức, TP Hà Nội kết thúc lúc 4h30 sáng nay ngày 20-8. Phiên đấu giá kéo dài hơn 19 giờ đồng hồ, sau 9 vòng chào giá đã tìm ra chủ sở hữu của các lô đất.
+- Không riêng Công ty TNHH Mercedes-Benz Việt Nam, hàng loạt doanh nghiệp cũng đang gặp vướng trong việc gia hạn thời gian thuê đất.
+- Ban chủ nhiệm Đoàn luật sư tỉnh Khánh Hòa vừa quyết định xử lý kỷ luật tạm đình chỉ tư cách thành viên của đoàn luật sư 18 tháng đối với luật sư Nguyễn Văn Thược, thuộc một văn phòng luật sư ở TP Nha Trang.
+- Nếu trước kia, các cuộc gọi chào mời tham gia đầu tư chứng khoán tập trung vào giờ hành chính thì nay sáng sớm, giữa trưa, ban đêm… bất kể thời gian nào.
+- Hôm nay 20-8, thời tiết Bắc Bộ đến Thanh Hóa có mưa, Trung Bộ duy trì nắng nóng, còn Nam Bộ ngày nắng, chiều tối có mưa.
+- Một số tin tức đáng chú ý: Doanh nghiệp ông chủ khách sạn dát vàng ở Hà Nội khất nợ trái phiếu; Đất Xanh sẽ rót thêm tiền vào bất động sản Hà An; Đề xuất nghệ thuật lân sư rồng TP.HCM là di sản văn hóa phi vật thể quốc gia...
+- Bệnh viện Vũng Tàu gửi thông báo tìm người thân của bé gái sơ sinh. Mẹ bé gái một mình vào viện sinh con và mất vì mang nhiều bệnh nặng.
+- Linh cữu giáo sư Võ Tòng Xuân đã được đưa về TP Cần Thơ tối 19-8. Lễ viếng giáo sư bắt đầu từ tối cùng ngày đến sáng 22-8.
+- Ngày 19-8, Tổng Bí thư, Chủ tịch nước Tô Lâm đã hội kiến Ủy viên trưởng Nhân đại toàn quốc Trung Quốc Triệu Lạc Tế, Chủ tịch Chính hiệp toàn quốc Vương Hộ Ninh và Thủ tướng Lý Cường.
+- Thành ủy Hà Nội đề nghị người tiêu dùng lên án, tẩy chay các hàng hóa không đảm bảo an toàn thực phẩm trong bối cảnh công tác đảm bảo an toàn vệ sinh thực phẩm tại Hà Nội vẫn còn có hạn chế.
+- Theo thông tin từ Trường cao đẳng Việt - Hàn (TP Hạ Long, Quảng Ninh), ngày 19-8 đã phát hiện thi thể của hiệu trưởng nhà trường tại khuôn viên trường.
+- Chiều 19-8, hàng chục cán bộ là cựu sinh viên Trường đại học Cần Thơ đã có mặt tại Nhà tang lễ thành phố Cần Thơ để trao đổi việc tổ chức tang lễ giáo sư Võ Tòng Xuân.
+- Sau 2 năm trốn truy nã sang Nhật Bản, Thành Đạt vừa xuống máy bay tại sân bay Nội Bài thì bị công an Quảng Trị bắt giữ.
+- Thực hiện việc chuyển đổi vị trí công tác người có chức vụ, quyền hạn theo quy định; bảo vệ, khen thưởng tổ chức, cá nhân phát hiện, phản ánh, tố cáo vi phạm.
+- Trong lúc đang làm nhiệm vụ, trung tá Phan Trần Anh Phương, cảnh sát giao thông Công an tỉnh Khánh Hòa, bị một người chạy xe máy tốc độ cao tông thẳng làm anh bị thương nặng và hy sinh.
+- Thứ trưởng Bộ Công an Nguyễn Ngọc Lâm nêu rõ tình trạng học sinh, sinh viên vi phạm pháp luật về an toàn giao thông hiện có nhiều diễn biến phức tạp.
+- Phía bị hại là ngân hàng nói chưa có thiệt hại trong vụ án vi phạm quy định về cho vay trong hoạt động của các tổ chức tín dụng, gây thiệt hại 291 tỉ đồng.
+- Sau nhiều lần lên kế hoạch, đến nay dự án mở rộng 1,6km đường Nguyễn Duy Trinh (từ Võ Chí Công đến Nguyễn Thị Tư, TP Thủ Đức) vẫn nằm trên giấy.
+- Liên quan đến việc cán bộ, nhân viên tố giám đốc cắt 10% tiền phụ cấp ưu đãi nghề, Sở Y tế Đắk Lắk đã có văn bản chỉ đạo thanh tra, chấn chỉnh và yêu cầu phải chi trả đúng quy định.
+- Chính quyền huyện Văn Yên (Yên Bái) huy động hơn 100 người cùng hàng chục người dân tìm kiếm một bé trai 6 tuổi đi lạc trong rừng và mất tích 3 ngày nay.
+- Cử tri, nhân dân kỳ vọng Tổng Bí thư, Chủ tịch nước Tô Lâm sẽ kế thừa, phát huy những thành quả cách mạng mà cố Tổng Bí thư Nguyễn Phú Trọng, các thế hệ lãnh đạo đi trước đã gây dựng.
+- Đội tuần tra kiểm soát giao thông đường bộ cao tốc số 7 (Phòng 8, Cục Cảnh sát giao thông) cho biết đang điều tra nguyên nhân hai vụ tai nạn giao thông trên cao tốc TP.HCM - Trung Lương.
+- Trước sự chứng kiến của Tổng Bí thư, Chủ tịch nước Tô Lâm và Tổng Bí thư, Chủ tịch nước Trung Quốc Tập Cận Bình, các ban, bộ ngành và địa phương hai bên đã ký 14 văn kiện hợp tác ngày 19-8.
+- Khẳng định được Tổng Bí thư, Chủ tịch nước Trung Quốc Tập Cận Bình đưa ra trong cuộc hội đàm với Tổng Bí thư, Chủ tịch nước Tô Lâm tại Bắc Kinh ngày 19-8.
+- Từ chiều tối nay đến 22-8, ở Bắc Bộ và Thanh Hóa có khả năng xuất hiện một đợt mưa vừa, mưa to và dông, cục bộ có nơi mưa rất to. Nguy cơ xảy ra lũ quét, sạt lở đất ở vùng núi.
+- Cơ quan thẩm tra cho rằng các quy định về giảm bù chéo giá điện giữa các nhóm khách hàng chưa thể hiện cụ thể tại dự thảo Luật Điện lực sửa đổi.
+- Công ty Môi trường đô thị Gia Lai được giao quản lý hơn 1 triệu m² đất, nhưng khi lập phương án cổ phần hóa chỉ kê khai hơn 460.000m², phần còn lại ở đâu?
+- Trong không khí ấm cúng và hữu nghị, Tổng Bí thư, Chủ tịch nước Tô Lâm và Tổng Bí thư, Chủ tịch nước Trung Quốc Tập Cận Bình đã cùng ôn lại lịch sử, trao đổi thân tình về văn hóa trà ở hai nước.
 ![New](News.png)
 ## Nhịp sống số 
 - TS Jeff Dean - đồng sáng lập Google Translate, Google Brain hay Gemini - lần đầu tiên có những chia sẻ trực tiếp về AI với cộng đồng công nghệ Việt Nam.
