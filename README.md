@@ -1,6 +1,19 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Sự ra đi của GS.TS Võ Tòng Xuân để lại niềm tiếc thương vô hạn cho các thế hệ học trò. Tất cả đều có chung nhận định nhờ có thầy Xuân mà họ tiến bộ.
+- Tiến sĩ Jeff Dean - giám đốc khoa học, người đứng sau nhiều ứng dụng phổ biến toàn cầu của Google - đã có cuộc trao đổi cởi mở với Tuổi Trẻ.
+- Đến 21h đêm, hàng trăm phụ huynh vẫn tập trung tại Trường tiểu học Tây Mỗ 3, quận Nam Từ Liêm để chất vấn ban lãnh đạo trường, phòng giáo dục về việc "trường chưa tuyển sinh đã hết chỉ tiêu".
+- Từ sáng sớm 21-8, hàng trăm phụ huynh đã có mặt tại Trường tiểu học Tây Mỗ 3 để chờ đợi chất vấn ban giám hiệu nhà trường "vì sao trường chưa thông báo tuyển sinh đã hết chỉ tiêu", đến 17h, ban lãnh đạo trường đã có những thông tin đầu tiên.
+- Chương trình học bổng Future VPBanker với tổng giá trị 1 tỉ đồng sẽ xét trao tặng cho sinh viên tài năng trên toàn quốc, được diễn ra từ tháng 8 đến tháng 12-2024.
+- Hà Nội vừa ban hành khung thời gian năm học, theo đó thời gian học sinh tựu trường sớm nhất là trước lễ khai giảng 1 tuần.
+- Chào đón năm học mới, thầy cô và học sinh Trường Song ngữ Quốc tế Hoàng Gia (Royal School) đã chia sẻ những cảm xúc đặc biệt.
+- Hàng trăm phụ huynh đã ngồi chờ từ sáng sớm đến xuyên trưa tại Trường tiểu học Tây Mỗ 3 nhưng vẫn chưa tìm được câu trả lời thích đáng từ nhà trường về việc tuyển sinh.
+- Từ năm học 2024-2025, hàng chục trường mầm non, tiểu học ở tỉnh Bà Rịa - Vũng Tàu tham gia thu gom, tái chế vỏ hộp sữa. Đây là chương trình do Liên minh tái chế bao bì Việt Nam phối hợp với Sở Giáo dục và Đào tạo tỉnh này thực hiện.
+- Trường đại học Văn Lang thừa nhận cho phép một học viên không đủ điều kiện trúng tuyển đầu vào được đăng ký học trước chương trình đào tạo thạc sĩ tại trường này.
+- UBND tỉnh Thái Bình quyết định gia hạn tạm đình chỉ công tác thêm 15 ngày đối với ông Nguyễn Viết Hiển, giám đốc Sở Giáo dục và Đào tạo tỉnh, để phục vụ công tác thanh tra việc tổ chức kỳ thi vào lớp 10.
+- Nói về việc thí sinh đạt 9 điểm mỗi môn vẫn rớt nguyện vọng 1 vào trường, ông Nguyễn Đức Sơn - hiệu trưởng Trường đại học Sư phạm Hà Nội - cho rằng đó là điều bình thường.
+- GS.TS Võ Tòng Xuân, "cây đại thụ" của nền nông nghiệp Việt Nam, chuyên gia uyên bác trong mắt bạn bè quốc tế, thầy Xuân của nhiều thế hệ học trò, anh Ba Xuân của bà con nông dân miền Tây, vĩnh viễn trở về nằm lại ở quê nhà Ba Chúc, Tri Tôn, An Giang.
 - Kỳ thi vào lớp 10 THPT công lập tỉnh Thái Bình diễn ra từ ngày 6 đến 8-6, thế nhưng sau hơn 70 ngày trong tâm trạng hồi hộp, lo lắng, có cả buồn tủi, đến sáng 20-8 nhiều thí sinh mới chính thức biết điểm thi thật của mình.
 - Nhiều giảng viên Trường ĐH Sư phạm kỹ thuật Đà Nẵng 'té ngửa' vì sau hơn 5 năm sử dụng mới biết cuốn sách chưa hề được xuất bản.
 - Niềm vui của học sinh này lại là nỗi buồn của học sinh khác, đó là thực tế đang diễn ra tại Thái Bình khi sau kết luận thanh tra kỳ thi vào lớp 10 tại tỉnh này, có hơn 500 thí sinh từ trượt sang đỗ, từ đỗ sang trượt.
@@ -18,53 +31,41 @@
 - 9h sáng nay 20-8, UBND tỉnh Thái Bình họp báo cung cấp thông tin vụ bất thường điểm thi vào lớp 10 sau thanh tra.
 - Đoàn thanh tra tỉnh Thái Bình xác định có 2.769 bài thi tự luận bị sai điểm và 1.589 thí sinh bị sai tổng điểm xét tuyển. Nguyên nhân do ghép phách bị sai.
 - Bộ Giáo dục và Đào tạo đánh giá Research.com là 'cổng thông tin điện tử uy tín dành cho các nhà khoa học thế giới'. Trong khi đó, nhiều ý kiến lo ngại bảng xếp hạng Research.com 'phá hoại nền tảng học thuật'.
-- Vừa công bố điểm chuẩn, hàng loạt trường đại học đã thông báo xét tuyển bổ sung. Trong số này có các ngành "hot" như y khoa, răng hàm mặt, dược...
-- Số thí sinh đăng ký xét tuyển đông, trong khi chỉ tiêu xét tuyển ít là những nguyên nhân khiến thí sinh 9,7 điểm/môn vẫn trượt sư phạm.
-- Theo thông tin từ Trường cao đẳng Việt - Hàn (TP Hạ Long, Quảng Ninh), ngày 19-8 đã phát hiện thi thể của hiệu trưởng nhà trường tại khuôn viên trường.
-- Chuyện lương giáo viên cao hay thấp đang thu hút nhiều ý kiến bạn đọc tham gia tranh luận.
-- Bạn đọc có nhiều ý kiến trái chiều về chuyện điểm chuẩn đại học 2024 khi thí sinh đạt 9,6 điểm mỗi môn vẫn rớt nguyện vọng đăng ký.
-- Nguyên lãnh đạo UBND tỉnh An Giang khẳng định giáo sư Võ Tòng Xuân có công lớn đối với An Giang là đưa lúa thần nông chuyển từ 1 vụ lúa mùa sáng 2, 3 vụ.
-- Một trong những sáng kiến được thúc đẩy từ khoản tài trợ 1,5 triệu USD này là nhằm hỗ trợ các nghiên cứu liên quan đến AI của giảng viên và sinh viên.
-- Để thực hiện đồ án, nhóm đã dành khoảng thời gian 6 tháng phác thảo ý tưởng, nghiên cứu tài liệu và hoàn thiện mô hình.
-- Bên cạnh kết quả đạt được, Thủ tướng chỉ rõ những tồn tại, hạn chế, khó khăn, thách thức như việc đổi mới chương trình, sách giáo khoa giáo dục phổ thông vẫn còn bất cập.
-- Trường Phổ thông Năng khiếu cho biết ngay sau khi nhà trường có buổi giới thiệu về chương trình thí điểm dạy một số tín chỉ ở bậc đại học, đã có 600 học sinh từ khối 10 - 12 đăng ký học.
-- Sáng nay 19-8, hàng chục ngàn học sinh lớp 1 tại TP.HCM nô nức tựu trường, làm quen trường lớp, bậc học mới.
-- Tang lễ của Anh hùng lao động, GS.TS Võ Tòng Xuân dự kiến được tổ chức tại Nhà tang lễ thành phố Cần Thơ.
-- Nhiều tân sinh viên cùng phụ huynh đã có mặt tại Trường đại học Công nghiệp TP.HCM từ hơn 2h sáng nay để chờ nhập học.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Để đáp ứng nhu cầu của người dân trong thời gian chờ các bộ ngành hướng dẫn, Sở Xây dựng TP.HCM kiến nghị được tổ chức đấu giá bãi giữ xe ở các công viên.
-- Sau 20 giờ tổ chức đấu giá 19 thửa đất ở xã Tiền Yên (huyện Hoài Đức, Hà Nội), lô đắt nhất được trả giá 133,3 triệu đồng/m².
-- Hai tuyến đường cao tốc Cà Mau - Đất Mũi và Quảng Ngãi - Kon Tum được đề xuất bổ sung vào quy hoạch mạng lưới đường bộ để làm cơ sở đầu tư.
-- Một số tin tức đáng chú ý: Lịch trả lương hưu, trợ cấp bảo hiểm xã hội tháng 9; Tình hình cung ứng điện cuối năm; Kiểm tra, xử phạt người giao xe máy cho học sinh chạy...
-- Hôm nay 21-8, thời tiết các tỉnh miền Bắc mưa dông nhiều nơi, có nơi mưa to. Trung Bộ nắng nóng gay gắt, Nam Bộ mưa rào.
-- Bộ trưởng Lê Minh Hoan đã có những chia sẻ xúc động về giáo sư Võ Tòng Xuân. Ông mong muốn 'mọi sự tiếc thương phải biến thành hành động'.
-- Tuyên bố chung Việt Nam - Trung Quốc nhân chuyến thăm của Tổng Bí thư, Chủ tịch nước Tô Lâm còn đề cập việc thúc đẩy kết nối cứng và mềm giữa hai nước thời gian tới.
-- Gần 30 lò hấp cá tự phát ở Ninh Thuận hằng ngày xả nước thải ra các hồ chứa lộ thiên khiến mùi hôi thối bốc lên nốc nặc làm người dân mất ăn mất ngủ.
-- Trong ngày 20-8 đã có hàng trăm đoàn từ các cơ quan, đơn vị ở trung ương và địa phương đến viếng  tang lễ và chia buồn cùng gia quyến giáo sư Võ Tòng Xuân.
-- Cần sửa đổi, bổ sung chế độ chính sách đặc thù với đội ngũ nhà giáo để phát triển, nâng cao năng lực, chất lượng đội ngũ nhà giáo đáp ứng yêu cầu trong bối cảnh mới.
-- Dự kiến tháng 9-2024, TP.HCM tổ chức tuyển dụng 14 công chức và 5 viên chức là sinh viên xuất sắc, cán bộ khoa học trẻ.
-- Chiếc ô tô 7 chỗ mang biển số tỉnh Kiên Giang đang chạy bất ngờ quay đầu, chạy ngược chiều trên đường cao tốc TP.HCM - Trung Lương.
-- Sau gần 2 năm thông qua chủ trương đầu tư, dự án điện rác Vĩnh Tân gần 2.300 tỉ vẫn chưa hoàn thành báo cáo nghiên cứu khả thi và lựa chọn được nhà đầu tư.
-- Chiều 20-8, ông Lê Quốc Phong - bí thư Tỉnh ủy Đồng Tháp - đã đi khảo sát công trình cao tốc Cao Lãnh - An Hữu, nhằm đôn đốc hoàn thành giải phóng mặt bằng.
-- Bắt gặp chiếc xe khác đang bốc cháy trên đường, tài xế Nguyễn Văn Xuyên đã xin phép hành khách để tạm dừng xe buýt và dùng bình cứu hỏa dập tắt ngọn lửa.
-- Chiều 20-8, Bí thư Thành ủy TP.HCM Nguyễn Văn Nên chủ trì cuộc họp Ban chỉ đạo thực hiện sắp xếp đơn vị hành chính cấp huyện, cấp xã trên địa bàn TP.HCM.
-- Lễ đón trọng thể Tổng Bí thư - Chủ tịch nước Tô Lâm tại Bắc Kinh vào ngày 19-8 phản ánh sự coi trọng của Trung Quốc đối với Việt Nam. Điều này kỳ vọng thúc đẩy quan hệ song phương đi vào giai đoạn mới, ngày càng ổn định và bền vững.
-- Đề xuất giới hạn doanh nghiệp tham gia thí điểm xe buýt hai tầng của Công ty TNHH Ảnh Việt Hop On - Hop Off Việt Nam không phù hợp.
-- Đó là một trong những ý kiến góp ý chủ đạo tại hội nghị lấy ý kiến đại biểu HĐND TP.HCM về dự thảo bảng giá đất trên địa bàn TP chiều 20-8.
-- Viện kiểm sát giữ quyền công tố đề nghị các mức án cho các bị cáo trong vụ ‘gây thiệt hại’ của ngân hàng 291 tỉ đồng ở Cần Thơ.
-- Lực lượng cảnh sát phòng cháy, chữa cháy và cứu nạn, cứu hộ Đà Nẵng đã kịp thời giải cứu nữ du khách nước ngoài bị mắc kẹt dưới gầm xe loại 45 chỗ.
-- Dân miệt thứ An Minh, An Biên và Hòn Đất (Kiên Giang) mong chính quyền địa phương sớm đầu tư xây dựng kè chắn sóng bảo vệ đê biển Tây để ổn định cuộc sống.
-- Theo Bộ trưởng Bộ Ngoại giao Bùi Thanh Sơn, chuyến thăm cấp nhà nước tới Trung Quốc của Tổng Bí thư, Chủ tịch nước Tô Lâm đã thành công tốt đẹp trên mọi phương diện.
-- Cô gái 27 tuổi lái mô tô phân khối lớn tông lật ô tô khi đi qua vòng xuyến ở Yên Bái vào chiều 19-8. Vụ tai nạn làm 3 người bị thương.
-- UBND tỉnh Lâm Đồng đã lập tổ công tác để giám định và thực hiện đền bù cho nông dân có bò sữa chết và bị bệnh, do tiêm vắc xin viêm da nổi cục NAVET-LPVAC.
-- Một khách hàng ở Đắk Lắk "tố" nhân viên một ngân hàng tự làm tài khoản thẻ tín dụng, tự ghi khoản vay 60 triệu đồng cho bà, còn phía ngân hàng lại nói hồ sơ thể hiện khách hàng mở tài khoản thẻ, thực hiện vay trực tuyến...
-- Nhiều bạn đọc và người dân TP Đà Nẵng bày tỏ mong mỏi có một cơ chế xử phạt hành vi cho khỉ Sơn Trà ăn, làm mất tập tính của khỉ và gây nguy hiểm cho con người.
-- Ủy ban Thường vụ Quốc hội đồng ý bổ sung dự toán chi hơn 424 tỉ đồng để Bộ Y tế thực hiện hoạt động tiêm chủng mở rộng, trong đó có mua vắc xin.
-- Thời gian qua, nhiều doanh nghiệp vận tải phản ảnh việc đóng phí BOT Phú Hữu sắp triển khai. Các doanh nghiệp mong TP.HCM dùng nguồn thu phí hạ tầng cảng biển để cân đối, giảm phí BOT.
-- Ngày 20-8, lực lượng chức năng đang làm rõ nguyên nhân vụ cháy trụ điện trên đường Phan Huy Ích (quận Gò Vấp, TP.HCM).
+- Trải nghiệm cuộc sống về đêm tại đô thị sầm uất như TP.HCM, Hà Nội… là một kỷ niệm khó quên với nhiều du khách. Tuy vậy, kinh tế đêm gắn với du lịch ở nhiều địa phương chủ yếu vẫn là ăn uống mà thiếu vắng những sản phẩm văn hóa, giải trí nghệ thuật..
+- Ngày 21-8, chủ nhân của những video tố có tiêu cực tại Bệnh viện K được lan truyền trên mạng xã hội những ngày qua đã chia sẻ chi tiết về sự việc này.
+- Tin tức đáng chú ý: Thủ tướng chấn chỉnh hoạt động đấu giá đất; Khen thưởng tập thể, cá nhân cứu cháu bé 6 tuổi lạc 4 ngày trong rừng; Chi hơn 59.000 tỉ đồng khám chữa bệnh bảo hiểm y tế cho người cao tuổi...
+- Hôm nay 22-8, thời tiết Bắc Bộ tiếp tục mưa to, Nam Bộ vẫn trong chuỗi ngày đứt mưa do gió mùa tây nam hoạt động yếu.
+- Một cây xanh trên đường phố Đà Nẵng bất ngờ bật gốc, ngã đổ xuống đường, đè người phụ nữ bị thương.
+- Thủ tướng Chính phủ Phạm Minh Chính chủ trì cuộc họp thường trực tiểu ban với thường trực Tổ biên tập của tiểu ban.
+- Chính sách về nguồn lực, hỗ trợ đầu tư để phát triển giao thông xanh nhằm đạt mục tiêu phát thải ròng khí nhà kính về mức 0 vào năm 2050 là mối quan tâm lớn nhất của nhiều doanh nghiệp, nhà đầu tư.
+- Văn phòng đăng ký đất đai, Sở Tài nguyên và Môi trường TP Cần Thơ thông báo ngăn chặn tẩu tán tài sản tại dự án bất động sản lớn nhất địa phương do nợ thuế.
+- Kịp thời phát hiện, xử lý nghiêm các trường hợp vi phạm các quy định pháp luật trong đấu giá đất, ngăn chặn hành vi lợi dụng đấu giá đất để trục lợi, gây nhiễu loạn thị trường.
+- Bộ trưởng Bộ Công an Lương Tam Quang nêu rõ việc phối hợp với các ngành chức năng tổng rà soát, kiểm tra an toàn phòng cháy, chữa cháy.
+- Chung dùng xe bán tải chở 153kg pháo hoa lậu trên quốc lộ 9 rồi bỏ chạy 10km khi thấy lực lượng biên phòng yêu cầu dừng xe kiểm tra.
+- Chiều 21-8, Viện trưởng Viện Kiểm sát nhân dân tối cao Lê Minh Trí đã lần thứ 11 trả lời chất vấn của đại biểu Quốc hội tỉnh Quảng Trị về "kỳ án" gỗ trắc.
+- Viếng lễ tang giáo sư Võ Tòng Xuân, Tổng lãnh sự Nhật Bản ONO Masuo nói giáo sư Võ Tòng Xuân là người đã cống hiến trọn đời cho nghiên cứu về cây lúa và có đóng góp quý báu cho việc phát triển mối quan hệ hợp tác Nhật Bản và Việt Nam.
+- Tổ công tác có nhiệm vụ rà soát, báo cáo UBND TP.HCM về pháp lý các dự án, tài sản trên địa bàn chuẩn bị cho công tác xử lý tài sản, tái cơ cấu Ngân hàng SCB.
+- Ban Giao thông có trách nhiệm khắc phục vị trí sạt lở tại dự án chống sạt lở Thanh Đa, không được lấy kinh phí từ ngân sách.
+- TP.HCM giao Sở Quy hoạch - Kiến trúc khẩn trương bổ sung quy hoạch không gian ngầm vào các quy hoạch hiện hữu để gỡ vướng cấp phép công trình nhà ở có tầng hầm.
+- Phó thủ tướng, Bộ trưởng Bộ Tư pháp Lê Thành Long nói "không đủ cơ sở để khẳng định có hay không" tình trạng lợi ích nhóm, lợi ích cục bộ trong công tác xây dựng pháp luật.
+- EuroCham cam kết hỗ trợ, chia sẻ kinh nghiệm với Việt Nam thúc đẩy tăng trưởng xanh, hỗ trợ doanh nghiệp thích ứng với các tiêu chuẩn bền vững của EU.
+- Nhận lời giúp Đen (không rõ lai lịch) bán ma túy, Nguyễn Hồng Khanh thuê chung cư cất giấu gần 28kg ma túy để bán cho khách. Tòa án nhân dân TP.HCM tuyên bị cáo án tử hình.
+- Hà Nội vừa ban hành khung thời gian năm học, theo đó thời gian học sinh tựu trường sớm nhất là trước lễ khai giảng 1 tuần.
+- TP.HCM sẽ bắn pháo hoa tầm cao tại khu vực đầu đường hầm sông Sài Gòn và tầm thấp tại công viên văn hóa Đầm Sen để chào mừng Quốc khánh 2-9.
+- Sau nhiều sự cố tàu thuyền tăng nguy cơ tràn dầu quanh vùng đệm Khu dự trữ sinh quyển thế giới Cù Lao Chàm, chiều 21-8 Bộ đội biên phòng tỉnh Quảng Nam đã thực binh ứng phó tràn dầu với sự phối hợp của đơn vị xử lý môi trường chuyên nghiệp.
+- Một người dân tại TP.HCM chuyển nhầm hóa đơn tiền nước từ 494.000 đồng thành 494 triệu đồng, đơn vị cấp nước đã liên hệ khách hàng để làm thủ tục nhận lại.
+- Phó thủ tướng Trần Lưu Quang đã được Bộ Chính trị điều động, phân công làm trưởng Ban Kinh tế Trung ương.
+- Phó trưởng Ban Tổ chức Trung ương Mai Văn Chính đã được Bộ Chính trị điều động, phân công, bổ nhiệm làm trưởng Ban Dân vận Trung ương.
+- Bộ trưởng Phạm Thị Thanh Trà cho hay đến thời điểm hiện tại, tiến độ thực hiện sáp nhập huyện, xã giai đoạn 2023 - 2025 rất khó khăn, khó có thể hoàn thành trước thời điểm tháng 10-2024.
+- Dù nằm trên giường bệnh, sức khỏe rất yếu nhưng trước khi qua đời, giáo sư Võ Tòng Xuân đã gắng gượng viết một bức thư gửi Bộ trưởng Lê Minh Hoan để đóng góp cho nền nông nghiệp nước nhà.
+- Cảnh sát đã mời làm việc với tài xế Xuyên, người lái chiếc ô tô 7 chỗ biển số tỉnh Kiên Giang đang chạy bất ngờ quay đầu, chạy ngược chiều trên đường cao tốc TP.HCM - Trung Lương.
+- Chiều 21-8, Cục Quản lý khám, chữa bệnh (Bộ Y tế) có văn bản đề nghị Bệnh viện K tăng cường quản lý công tác khám, chữa bệnh, giám sát thái độ phục vụ bệnh nhân, không để xảy ra tiêu cực.
+- Làm việc với chính quyền địa phương, ông Cao Thanh Sang - chủ nhân 'biệt phủ' xây trái phép ở huyện Tánh Linh, tỉnh Bình Thuận - xin tự tháo dỡ nhưng cần thêm thời gian.
 ![New](News.png)
 ## Nhịp sống số 
+- Hòa chung không khí mùa tựu trường 2024, hệ thống bán lẻ laptop hàng đầu Việt Nam - FPT Shop tiếp tục triển khai hàng loạt các chương trình ưu đãi hấp dẫn.
 - TS Jeff Dean - đồng sáng lập Google Translate, Google Brain hay Gemini - lần đầu tiên có những chia sẻ trực tiếp về AI với cộng đồng công nghệ Việt Nam.
 - Ngày 18-8, Hội nghị GenAI Summit 2024 về trí tuệ nhân tạo với chủ đề “Chân Trời Mới” diễn ra tại TPHCM.
 - Theo Open AI, việc giao tiếp nhiều với ChatGPT có thể khiến người dùng trở nên kém khéo léo hoặc ít muốn tương tác với con người hơn.
@@ -94,5 +95,4 @@
 - Các nhà nghiên cứu tại Cybernews đã phát hiện vụ rò rỉ mật khẩu lớn nhất trong lịch sử, trong đó gần 10 tỉ mật khẩu đã bị lộ.
 - Nhiều người dùng Facebook và Messenger bỗng dưng bị thông báo có thể vi phạm tiêu chuẩn cộng đồng, bị thoát khỏi tài khoản, thậm chí bị chặn không cho ‘lướt' thông tin mới…
 - Kinh tế số ước đạt tăng trưởng 22,4%, chiếm tỉ trọng 18,3% trong GDP. Doanh thu lĩnh vực công nghệ thông tin (kinh tế số ICT) ước đạt trên 1,92 triệu tỉ đồng trong 6 tháng đầu năm.
-- Cơ quan Hàng không vũ trụ Nhật Bản (JAXA) ngày 5-7 thừa nhận đã bị rò rỉ thông tin sau một vụ tấn công mạng, may mắn không lộ thông tin tên lửa và vệ tinh.
 ![life](Life.png)
