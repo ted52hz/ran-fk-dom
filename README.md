@@ -1,6 +1,15 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- TP.HCM đã ấn định mức trần các khoản thu dịch vụ trong trường công lập tại TP.HCM năm học 2024-2025.
+- Nhiều phụ huynh, thí sinh phản ánh Trường đại học Quốc tế (Đại học Quốc gia TP.HCM) buộc thí sinh phải nộp hồ sơ nhập học trực tiếp và hoàn thành các khoản thu trước 16h ngày 24-8.
+- Liên quan đến vụ việc tuyển sinh sai đối tượng tại Trường phổ thông Dân tộc nội trú THCS Mường Lát, Ủy ban Kiểm tra Tỉnh ủy Thanh Hóa vừa công bố quyết định kỷ luật một loạt cán bộ, lãnh đạo huyện này.
+- UBND tỉnh Bắc Ninh khen thưởng học sinh, cán bộ quản lý, giáo viên bồi dưỡng đội tuyển học sinh giỏi đoạt giải trong các kỳ thi quốc gia, khu vực và quốc tế gần 5,2 tỉ đồng.
+- Phần thưởng của 654 học sinh giỏi biến thành nỗi ấm ức khi các em phải mang vở đi đổi mà không được.
+- Năm 2025, Đại học Quốc gia Hà Nội tổ chức 6 đợt thi đánh giá năng lực, đợt 1 dự kiến vào giữa tháng 3-2025.
+- Ngày 22-8, Đại học Đà Nẵng đã có báo cáo sơ bộ những thông tin liên quan cuốn sách “Kỹ thuật lập trình CNC” do giảng viên Nguyễn Thị Hải Vân, Trường đại học Sư phạm Kỹ thuật, chủ biên.
+- Trường đại học Quốc tế Mỹ (IAU) giới thiệu cơ sở vệ tinh quốc tế tại Trường đại học Hùng Vương TP.HCM. Tuy nhiên, Trường đại học Hùng Vương TP.HCM phủ nhận.
+- Khoảng 150 trường 'ma' ở Úc đã bị đóng cửa, trong khi 140 trường bị cảnh cáo và được yêu cầu phải cung cấp các dịch vụ giáo dục chất lượng trước cuối năm nay.
 - Sự ra đi của GS.TS Võ Tòng Xuân để lại niềm tiếc thương vô hạn cho các thế hệ học trò. Tất cả đều có chung nhận định nhờ có thầy Xuân mà họ tiến bộ.
 - Tiến sĩ Jeff Dean - giám đốc khoa học, người đứng sau nhiều ứng dụng phổ biến toàn cầu của Google - đã có cuộc trao đổi cởi mở với Tuổi Trẻ.
 - Đến 21h đêm, hàng trăm phụ huynh vẫn tập trung tại Trường tiểu học Tây Mỗ 3, quận Nam Từ Liêm để chất vấn ban lãnh đạo trường, phòng giáo dục về việc "trường chưa tuyển sinh đã hết chỉ tiêu".
@@ -22,49 +31,42 @@
 - Mỗi học sinh Nghệ An đạt điểm cao trong kỳ thi tốt nghiệp THPT năm 2024 sẽ được nhận thưởng gần 19 triệu đồng.
 - Điểm chuẩn Học viện Cảnh sát nhân dân với thí sinh nam dao động 20,67 - 21,52, cao nhất là đối tượng vùng 1 mã bài CA2.
 - Qua thanh tra cho thấy ban thư ký đã phát hiện sai sót nhưng không lập biên bản, trưởng ban chỉ đạo kỳ thi cũng không có biện pháp khắc phục.
-- Từ ngày 19-8 đến ngày 27-8, Trường Đại học Công nghệ TP.HCM (HUTECH) đón thí sinh trúng tuyển đến trường làm thủ tục nhập học.
-- Theo cơ quan thường trực giải thưởng Quả cầu vàng, việc gỡ bài báo xuất bản vào năm 2022 của TS Nguyễn Hoàng Chinh không phải là căn cứ để xem xét đề xuất tước bỏ danh hiệu giải thưởng.
-- Sở Giáo dục và Đào tạo TP.HCM vừa có văn bản hướng dẫn về việc dạy học chương trình tiếng Anh tích hợp năm học 2024-2025.
-- Làm việc với lãnh đạo TP.HCM mới đây, Tổng Bí thư, Chủ tịch nước Tô Lâm gợi mở chính quyền TP tính toán về chính sách cho vay vốn hỗ trợ sinh viên đi học.
-- Nhiều trường có điểm chuẩn 14. Thí sinh đạt dưới 5 điểm mỗi môn vẫn trúng tuyển đại học.
-- Theo kết luận thanh tra của tỉnh Thái Bình, hầu hết các hội đồng thi đều có thí sinh bị lệch tổng điểm. Hàng trăm thí sinh từ trượt thành đỗ và ngược lại.
-- 9h sáng nay 20-8, UBND tỉnh Thái Bình họp báo cung cấp thông tin vụ bất thường điểm thi vào lớp 10 sau thanh tra.
-- Đoàn thanh tra tỉnh Thái Bình xác định có 2.769 bài thi tự luận bị sai điểm và 1.589 thí sinh bị sai tổng điểm xét tuyển. Nguyên nhân do ghép phách bị sai.
-- Bộ Giáo dục và Đào tạo đánh giá Research.com là 'cổng thông tin điện tử uy tín dành cho các nhà khoa học thế giới'. Trong khi đó, nhiều ý kiến lo ngại bảng xếp hạng Research.com 'phá hoại nền tảng học thuật'.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Trải nghiệm cuộc sống về đêm tại đô thị sầm uất như TP.HCM, Hà Nội… là một kỷ niệm khó quên với nhiều du khách. Tuy vậy, kinh tế đêm gắn với du lịch ở nhiều địa phương chủ yếu vẫn là ăn uống mà thiếu vắng những sản phẩm văn hóa, giải trí nghệ thuật..
-- Ngày 21-8, chủ nhân của những video tố có tiêu cực tại Bệnh viện K được lan truyền trên mạng xã hội những ngày qua đã chia sẻ chi tiết về sự việc này.
-- Tin tức đáng chú ý: Thủ tướng chấn chỉnh hoạt động đấu giá đất; Khen thưởng tập thể, cá nhân cứu cháu bé 6 tuổi lạc 4 ngày trong rừng; Chi hơn 59.000 tỉ đồng khám chữa bệnh bảo hiểm y tế cho người cao tuổi...
-- Hôm nay 22-8, thời tiết Bắc Bộ tiếp tục mưa to, Nam Bộ vẫn trong chuỗi ngày đứt mưa do gió mùa tây nam hoạt động yếu.
-- Một cây xanh trên đường phố Đà Nẵng bất ngờ bật gốc, ngã đổ xuống đường, đè người phụ nữ bị thương.
-- Thủ tướng Chính phủ Phạm Minh Chính chủ trì cuộc họp thường trực tiểu ban với thường trực Tổ biên tập của tiểu ban.
-- Chính sách về nguồn lực, hỗ trợ đầu tư để phát triển giao thông xanh nhằm đạt mục tiêu phát thải ròng khí nhà kính về mức 0 vào năm 2050 là mối quan tâm lớn nhất của nhiều doanh nghiệp, nhà đầu tư.
-- Văn phòng đăng ký đất đai, Sở Tài nguyên và Môi trường TP Cần Thơ thông báo ngăn chặn tẩu tán tài sản tại dự án bất động sản lớn nhất địa phương do nợ thuế.
-- Kịp thời phát hiện, xử lý nghiêm các trường hợp vi phạm các quy định pháp luật trong đấu giá đất, ngăn chặn hành vi lợi dụng đấu giá đất để trục lợi, gây nhiễu loạn thị trường.
-- Bộ trưởng Bộ Công an Lương Tam Quang nêu rõ việc phối hợp với các ngành chức năng tổng rà soát, kiểm tra an toàn phòng cháy, chữa cháy.
-- Chung dùng xe bán tải chở 153kg pháo hoa lậu trên quốc lộ 9 rồi bỏ chạy 10km khi thấy lực lượng biên phòng yêu cầu dừng xe kiểm tra.
-- Chiều 21-8, Viện trưởng Viện Kiểm sát nhân dân tối cao Lê Minh Trí đã lần thứ 11 trả lời chất vấn của đại biểu Quốc hội tỉnh Quảng Trị về "kỳ án" gỗ trắc.
-- Viếng lễ tang giáo sư Võ Tòng Xuân, Tổng lãnh sự Nhật Bản ONO Masuo nói giáo sư Võ Tòng Xuân là người đã cống hiến trọn đời cho nghiên cứu về cây lúa và có đóng góp quý báu cho việc phát triển mối quan hệ hợp tác Nhật Bản và Việt Nam.
-- Tổ công tác có nhiệm vụ rà soát, báo cáo UBND TP.HCM về pháp lý các dự án, tài sản trên địa bàn chuẩn bị cho công tác xử lý tài sản, tái cơ cấu Ngân hàng SCB.
-- Ban Giao thông có trách nhiệm khắc phục vị trí sạt lở tại dự án chống sạt lở Thanh Đa, không được lấy kinh phí từ ngân sách.
-- TP.HCM giao Sở Quy hoạch - Kiến trúc khẩn trương bổ sung quy hoạch không gian ngầm vào các quy hoạch hiện hữu để gỡ vướng cấp phép công trình nhà ở có tầng hầm.
-- Phó thủ tướng, Bộ trưởng Bộ Tư pháp Lê Thành Long nói "không đủ cơ sở để khẳng định có hay không" tình trạng lợi ích nhóm, lợi ích cục bộ trong công tác xây dựng pháp luật.
-- EuroCham cam kết hỗ trợ, chia sẻ kinh nghiệm với Việt Nam thúc đẩy tăng trưởng xanh, hỗ trợ doanh nghiệp thích ứng với các tiêu chuẩn bền vững của EU.
-- Nhận lời giúp Đen (không rõ lai lịch) bán ma túy, Nguyễn Hồng Khanh thuê chung cư cất giấu gần 28kg ma túy để bán cho khách. Tòa án nhân dân TP.HCM tuyên bị cáo án tử hình.
-- Hà Nội vừa ban hành khung thời gian năm học, theo đó thời gian học sinh tựu trường sớm nhất là trước lễ khai giảng 1 tuần.
-- TP.HCM sẽ bắn pháo hoa tầm cao tại khu vực đầu đường hầm sông Sài Gòn và tầm thấp tại công viên văn hóa Đầm Sen để chào mừng Quốc khánh 2-9.
-- Sau nhiều sự cố tàu thuyền tăng nguy cơ tràn dầu quanh vùng đệm Khu dự trữ sinh quyển thế giới Cù Lao Chàm, chiều 21-8 Bộ đội biên phòng tỉnh Quảng Nam đã thực binh ứng phó tràn dầu với sự phối hợp của đơn vị xử lý môi trường chuyên nghiệp.
-- Một người dân tại TP.HCM chuyển nhầm hóa đơn tiền nước từ 494.000 đồng thành 494 triệu đồng, đơn vị cấp nước đã liên hệ khách hàng để làm thủ tục nhận lại.
-- Phó thủ tướng Trần Lưu Quang đã được Bộ Chính trị điều động, phân công làm trưởng Ban Kinh tế Trung ương.
-- Phó trưởng Ban Tổ chức Trung ương Mai Văn Chính đã được Bộ Chính trị điều động, phân công, bổ nhiệm làm trưởng Ban Dân vận Trung ương.
-- Bộ trưởng Phạm Thị Thanh Trà cho hay đến thời điểm hiện tại, tiến độ thực hiện sáp nhập huyện, xã giai đoạn 2023 - 2025 rất khó khăn, khó có thể hoàn thành trước thời điểm tháng 10-2024.
-- Dù nằm trên giường bệnh, sức khỏe rất yếu nhưng trước khi qua đời, giáo sư Võ Tòng Xuân đã gắng gượng viết một bức thư gửi Bộ trưởng Lê Minh Hoan để đóng góp cho nền nông nghiệp nước nhà.
-- Cảnh sát đã mời làm việc với tài xế Xuyên, người lái chiếc ô tô 7 chỗ biển số tỉnh Kiên Giang đang chạy bất ngờ quay đầu, chạy ngược chiều trên đường cao tốc TP.HCM - Trung Lương.
-- Chiều 21-8, Cục Quản lý khám, chữa bệnh (Bộ Y tế) có văn bản đề nghị Bệnh viện K tăng cường quản lý công tác khám, chữa bệnh, giám sát thái độ phục vụ bệnh nhân, không để xảy ra tiêu cực.
-- Làm việc với chính quyền địa phương, ông Cao Thanh Sang - chủ nhân 'biệt phủ' xây trái phép ở huyện Tánh Linh, tỉnh Bình Thuận - xin tự tháo dỡ nhưng cần thêm thời gian.
+- Bộ Công an đang đẩy mạnh ứng dụng tài khoản định danh điện tử của công dân để hạn chế tình trạng nặc danh, lừa đảo trên mạng.
+- Trong "tâm thư" gửi đến Thủ tướng, Mercedes-Benz Group AG lo lắng về thời hạn 31-8 chưa được gia hạn dự án thì doanh nghiệp sẽ phải đóng vĩnh viễn nhà máy  tại Gò Vấp.
+- Sở Giao thông vận tải TP.HCM vừa chỉ đạo các đơn vị trực thuộc rà soát các điểm xe dù bến cóc ở quận 10 để đề xuất gắn camera giám sát.
+- Một số tin tức đáng chú ý: Nhiều người sẽ được hưởng trợ cấp bảo hiểm xã hội từ 2025; Rao bán món nợ trăm tỉ của ông chủ chuỗi nhà hàng nổi tiếng ở TP.HCM; TP.HCM xây dựng đề án ứng phó với sự cố hóa chất...
+- Hôm nay 23-8, thời tiết Bắc Bộ duy trì mưa to, còn Nam Bộ mưa có xu hướng gia tăng vào chiều tối, Trung Bộ vẫn nắng nóng.
+- Đi bệnh viện, ngoài chi phí "cứng" tiền khám và xét nghiệm, hầu hết người bệnh còn phải trả một khoản tiền lớn cho việc mua thuốc, sản phẩm hỗ trợ, thực phẩm chức năng. Nhiều toa thuốc bất hợp lý, quá nhiều món "hỗ trợ".
+- Mưa lớn trên địa bàn tỉnh Thái Nguyên khiến nước dâng cao, chảy xiết cuốn trôi ô tô, tạt đổ nhiều xe máy trên đường phố ở TP Thái Nguyên.
+- Cơ quan công an đã vào cuộc vụ một bệnh nhân tử vong sau khi phẫu thuật thay van tim tại Bệnh viện Đại học Y dược Buôn Ma Thuột.
+- Ngày mai (23-8), đoàn công tác của Bộ Tài nguyên và Môi trường sẽ làm việc tại UBND huyện Thanh Oai và Hoài Đức để nghe báo cáo toàn bộ các cuộc đấu giá đất vừa diễn ra.
+- Lực lượng chức năng đã phát hiện tàu vỏ thép chở hàng mang số hiệu Việt Thuận 21506 tại một bến cảng trên địa bàn tỉnh Bình Thuận. Đây là tàu hàng va chạm với tàu cá Phú Yên khiến ngư dân livestream kêu cứu trưa nay.
+- Thủ tướng Chính phủ Phạm Minh Chính đã ký các quyết định bổ nhiệm một số cán bộ thuộc Bộ Quốc phòng, trong đó bổ nhiệm chính ủy Học viện Chính trị làm phó chủ nhiệm Tổng cục Chính trị.
+- Từ kinh nghiệm xử lý các dự án thua lỗ vừa qua, bài học rút ra là cần tái cấu trúc quản trị, nguồn vốn vay, tài chính và đầu vào nguyên liệu, gắn với cơ chế thực hiện.
+- Tam giác phát triển Campuchia - Lào - Việt Nam thu hút sự chú ý gần đây tại Campuchia. Ngày 22-8, Bộ Ngoại giao Việt Nam chính thức nói về ý nghĩa của khuôn khổ hợp tác này.
+- Tỉnh ủy Lâm Đồng đã điều chỉnh chủ trương với hai dự án cao tốc nối liền TP.HCM tới Đà Lạt. Vốn ngân sách sẽ được sử dụng nhiều hơn để đẩy nhanh tiến độ dự án.
+- Nhóm này vừa bị Công an huyện Như Xuân (tỉnh Thanh Hóa) bắt tạm giam để điều tra.
+- Vào đúng giờ tan tầm, người đi trên quốc lộ 13 tỉnh Bình Dương thấy trời mưa khói vẫn “ngút trời” do cháy bãi phế liệu xen giữa khu dân cư. Đám cháy sau đó được khống chế.
+- Sở Giao thông vận tải TP.HCM vừa thông báo cấm toàn bộ xe cộ đi trên đường Nguyễn Huệ (quận 1) vào ngày 23-8.
+- Bộ Ngoại giao Việt Nam bác bỏ thông tin sai sự thật rằng công dân Anh có thể bị cấm xuất cảnh, thu hộ chiếu trong một số trường hợp khi đến đây.
+- Bộ Giao thông vận tải ủng hộ phương án mở rộng cao tốc TP.HCM - Long Thành - Dầu Giây đoạn từ vành đai 2 đến cao tốc Biên Hòa - Vũng Tàu lên 8 đến 10 làn xe.
+- Ủy ban Kiểm tra Tỉnh ủy Kiên Giang vừa đề nghị Ban Thường vụ Tỉnh ủy Kiên Giang thi hành kỷ luật khai trừ Đảng ông Trần Văn Việt.
+- Bộ Ngoại giao Việt Nam lấy làm tiếc về phán quyết trong vụ việc của bà Trần Tố Nga, nhấn mạnh ủng hộ các nạn nhân yêu cầu các công ty sản xuất chất da cam chịu trách nhiệm.
+- Hàng loạt sản phẩm công nghệ từ xe điện, hệ thống sạc pin, mũ bảo hiểm tích hợp tai nghe bluetooth, AI ứng dụng trong tài chính, logistics... trưng bày tại InnoEx 2024 thu hút giới khởi nghiệp.
+- Nội dung về thí điểm chuyển đổi xe máy điện ở Cần Giờ được nêu tại hội thảo chính sách và giải pháp về giao thông vận tải cho phát triển kinh tế xanh tại TP.HCM, chiều 22-8.
+- Dự án cải tạo tỉnh lộ 7 ở tỉnh Đắk Lắk chi 70 tỉ đồng nhưng bị sạt trượt nghiêm trọng, do chủ đầu tư mắc lỗi từ việc khảo sát, xây dựng. Giờ đây Nhà nước phải chi thêm 11 tỉ đồng để sửa chữa.
+- Đại diện công đoàn đề xuất giá nhà cho công nhân có thể tiếp cận không quá 600 triệu đồng/căn.
+- Ngày 22-8 (tính đến 15h10) tại khu vực huyện Kon Plông (tỉnh Kon Tum) xảy ra 9 trận động đất, trong đó có trận động đất mạnh 4,4 độ Richter.
+- 100% thành viên Ủy ban Thường vụ Quốc hội có mặt đã biểu quyết đồng ý bổ sung dự Luật Bảo hiểm y tế sửa đổi vào chương trình xây dựng luật, pháp lệnh năm 2024.
+- Sáng 22-8 giờ Paris (chiều cùng ngày theo giờ Việt Nam), Tòa phúc thẩm Paris đã ra phán quyết về vụ kiện của bà Trần Tố Nga.
+- Theo chỉ đạo của Tá (không rõ lai lịch), Vũ Văn Nam thuê 2 căn chung cư cất giấu hơn 21kg ma túy để phân chia, bán cho khách.
+- Chiều 22-8, đoàn xe đưa linh cữu giáo sư Võ Tòng Xuân đã về đến quê nhà tại khóm An Hòa A, thị trấn Ba Chúc, huyện Tri Tôn, tỉnh An Giang. Cùng di chuyển theo đoàn xe là các cơ quan, ban ngành ở khu vực ĐBSCL đưa tiễn giáo sư.
 ![New](News.png)
 ## Nhịp sống số 
+- Với xu hướng kinh doanh hiện đại là tập trung nhiều hơn vào khách hàng, việc mang đến nhiều trải nghiệm cá nhân hóa để kết nối sâu sắc hơn với khách hàng là rất quan trọng.
+- AI không có khả năng tiếp thu các kỹ năng mới nếu không được hướng dẫn, do đó không có khả năng đe dọa con người.
 - Hòa chung không khí mùa tựu trường 2024, hệ thống bán lẻ laptop hàng đầu Việt Nam - FPT Shop tiếp tục triển khai hàng loạt các chương trình ưu đãi hấp dẫn.
 - TS Jeff Dean - đồng sáng lập Google Translate, Google Brain hay Gemini - lần đầu tiên có những chia sẻ trực tiếp về AI với cộng đồng công nghệ Việt Nam.
 - Ngày 18-8, Hội nghị GenAI Summit 2024 về trí tuệ nhân tạo với chủ đề “Chân Trời Mới” diễn ra tại TPHCM.
@@ -93,6 +95,4 @@
 - Đầu tuần này, giới công nghệ xôn xao với thông tin Alphabet, công ty mẹ của Google, đang sắp hoàn tất thương vụ 'khủng' mua lại công ty khởi nghiệp an ninh mạng Wiz với giá 23 tỉ USD.
 - Trước Đại hội toàn quốc Đảng Cộng hòa, Meta thông báo sẽ dỡ bỏ các hạn chế với tài khoản Facebook và Instagram của cựu tổng thống Donald Trump.
 - Các nhà nghiên cứu tại Cybernews đã phát hiện vụ rò rỉ mật khẩu lớn nhất trong lịch sử, trong đó gần 10 tỉ mật khẩu đã bị lộ.
-- Nhiều người dùng Facebook và Messenger bỗng dưng bị thông báo có thể vi phạm tiêu chuẩn cộng đồng, bị thoát khỏi tài khoản, thậm chí bị chặn không cho ‘lướt' thông tin mới…
-- Kinh tế số ước đạt tăng trưởng 22,4%, chiếm tỉ trọng 18,3% trong GDP. Doanh thu lĩnh vực công nghệ thông tin (kinh tế số ICT) ước đạt trên 1,92 triệu tỉ đồng trong 6 tháng đầu năm.
 ![life](Life.png)
