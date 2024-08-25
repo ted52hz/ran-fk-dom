@@ -1,6 +1,19 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Trường đề nghị công an điều tra, xử lý người làm và lan truyền tin nhắn có nội dung mang tính chất lừa đảo nhập học.
+- Học sinh giỏi Trường THPT Thái Phiên (Đà Nẵng) ký nhận tiền 200.000 đồng để nhận 20 cuốn vở nhưng giá thị trường mỗi cuốn chỉ 6.000 đồng.
+- Dự thảo thông tư quy định về dạy thêm, học thêm vừa được Bộ GD-ĐT công bố có nhiều điểm thay đổi so với quy định hiện hành.
+- Trường đại học Công Thương TP.HCM vừa phát cảnh báo gấp về việc một số thí sinh nhận được tin nhắn thông báo nhập học giả mạo của trường.
+- Triển lãm 'Văn Miếu Quốc Tử Giám, ươm mầm khát vọng hiền tài' tạo ra không gian trải nghiệm văn hóa - nghệ thuật, ứng dụng công nghệ số giới thiệu nhiều tư liệu về Văn Miếu Quốc Tử Giám cho các em học sinh tại TP.HCM.
+- Lạm thu tiền trường là vấn đề trở đi trở lại vào mỗi dịp đầu năm học mới. Và thường sau các cuộc họp cha mẹ học sinh đầu năm, nhiều tâm tư, băn khoăn và cả bức xúc của phụ huynh lại được chia sẻ. Nơi chia sẻ đầu tiên lại là trên mạng xã hội.
+- Bộ Giáo dục và Đào tạo yêu cầu các cơ sở giáo dục phải hoàn thiện, công bố kịp thời các phương thức tuyển sinh từ năm 2025 trở đi.
+- Về bí quyết học tập, thủ khoa Phạm Minh Tiến 'bật mí' phải biết cách hệ thống những gì mình tiếp thu từ thầy cô nhưng cũng phải sáng tạo khi ứng dụng.
+- Học bổng dành cho con em hội viên phụ nữ, nữ công nhân có hoàn cảnh khó khăn và nữ sinh viên mồ côi do dịch COVID-19 tại các quận huyện và TP Thủ Đức, TP.HCM.
+- Trong 50 thủ khoa Trường ĐH Kinh tế quốc dân, có bốn thủ khoa cùng đạt điểm GPA tuyệt đối 4.0.
+- Nữ sinh Trường THPT chuyên Lê Hồng Phong đậu học bổng 9 trường đại học trên thế giới bằng bài luận về sự vận hành của xã hội từ kiến thức hóa - sinh.
+- Lãnh đạo Sở Giáo dục và Đào tạo TP Đà Nẵng khẳng định sẽ xử lý nhanh chóng những sai phạm liên quan vụ việc.
+- Sáng nay 24-8, Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) tổ chức lễ khai giảng, chào đón hơn 5.000 tân sinh viên khóa 2024.
 - Trên mạng xã hội tiếp tục xôn xao khi một phụ huynh tại Thái Bình đăng điểm thi lớp 10 của con sau thanh tra tiếp tục 'nhảy múa', cách nhau 5 điểm môn toán.
 - Trong năm học mới này, những ngôi trường "đẹp như mơ" trở thành điểm nhấn cảnh quan của thành phố Đà Nẵng, đồng thời kích thích thẩm mỹ, khiếu sáng tạo và cảm hứng học tập cho học sinh.
 - Lãnh đạo UBND huyện Vĩnh Thuận, tỉnh Kiên Giang khẳng định hiệu trưởng đã tự ý chuyển cơ sở vật chất trường cũ sang trường mới khi chưa có văn bản chính thức của huyện là có.
@@ -18,51 +31,38 @@
 - Ngày 22-8, Đại học Đà Nẵng đã có báo cáo sơ bộ những thông tin liên quan cuốn sách “Kỹ thuật lập trình CNC” do giảng viên Nguyễn Thị Hải Vân, Trường đại học Sư phạm Kỹ thuật, chủ biên.
 - Trường đại học Quốc tế Mỹ (IAU) giới thiệu cơ sở vệ tinh quốc tế tại Trường đại học Hùng Vương TP.HCM. Tuy nhiên, Trường đại học Hùng Vương TP.HCM phủ nhận.
 - Khoảng 150 trường 'ma' ở Úc đã bị đóng cửa, trong khi 140 trường bị cảnh cáo và được yêu cầu phải cung cấp các dịch vụ giáo dục chất lượng trước cuối năm nay.
-- Sự ra đi của GS.TS Võ Tòng Xuân để lại niềm tiếc thương vô hạn cho các thế hệ học trò. Tất cả đều có chung nhận định nhờ có thầy Xuân mà họ tiến bộ.
-- Tiến sĩ Jeff Dean - giám đốc khoa học, người đứng sau nhiều ứng dụng phổ biến toàn cầu của Google - đã có cuộc trao đổi cởi mở với Tuổi Trẻ.
-- Đến 21h đêm, hàng trăm phụ huynh vẫn tập trung tại Trường tiểu học Tây Mỗ 3, quận Nam Từ Liêm để chất vấn ban lãnh đạo trường, phòng giáo dục về việc "trường chưa tuyển sinh đã hết chỉ tiêu".
-- Từ sáng sớm 21-8, hàng trăm phụ huynh đã có mặt tại Trường tiểu học Tây Mỗ 3 để chờ đợi chất vấn ban giám hiệu nhà trường "vì sao trường chưa thông báo tuyển sinh đã hết chỉ tiêu", đến 17h, ban lãnh đạo trường đã có những thông tin đầu tiên.
-- Chương trình học bổng Future VPBanker với tổng giá trị 1 tỉ đồng sẽ xét trao tặng cho sinh viên tài năng trên toàn quốc, được diễn ra từ tháng 8 đến tháng 12-2024.
-- Hà Nội vừa ban hành khung thời gian năm học, theo đó thời gian học sinh tựu trường sớm nhất là trước lễ khai giảng 1 tuần.
-- Chào đón năm học mới, thầy cô và học sinh Trường Song ngữ Quốc tế Hoàng Gia (Royal School) đã chia sẻ những cảm xúc đặc biệt.
-- Hàng trăm phụ huynh đã ngồi chờ từ sáng sớm đến xuyên trưa tại Trường tiểu học Tây Mỗ 3 nhưng vẫn chưa tìm được câu trả lời thích đáng từ nhà trường về việc tuyển sinh.
-- Từ năm học 2024-2025, hàng chục trường mầm non, tiểu học ở tỉnh Bà Rịa - Vũng Tàu tham gia thu gom, tái chế vỏ hộp sữa. Đây là chương trình do Liên minh tái chế bao bì Việt Nam phối hợp với Sở Giáo dục và Đào tạo tỉnh này thực hiện.
-- Trường đại học Văn Lang thừa nhận cho phép một học viên không đủ điều kiện trúng tuyển đầu vào được đăng ký học trước chương trình đào tạo thạc sĩ tại trường này.
-- UBND tỉnh Thái Bình quyết định gia hạn tạm đình chỉ công tác thêm 15 ngày đối với ông Nguyễn Viết Hiển, giám đốc Sở Giáo dục và Đào tạo tỉnh, để phục vụ công tác thanh tra việc tổ chức kỳ thi vào lớp 10.
-- Nói về việc thí sinh đạt 9 điểm mỗi môn vẫn rớt nguyện vọng 1 vào trường, ông Nguyễn Đức Sơn - hiệu trưởng Trường đại học Sư phạm Hà Nội - cho rằng đó là điều bình thường.
-- GS.TS Võ Tòng Xuân, "cây đại thụ" của nền nông nghiệp Việt Nam, chuyên gia uyên bác trong mắt bạn bè quốc tế, thầy Xuân của nhiều thế hệ học trò, anh Ba Xuân của bà con nông dân miền Tây, vĩnh viễn trở về nằm lại ở quê nhà Ba Chúc, Tri Tôn, An Giang.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Báo cáo phát triển bền vững - ESG - hiện được ví như vé thông hành vào thị trường châu Âu. Vậy làm thế nào để sở hữu được ESG?
-- Gió mùa tây nam mạnh lên khiến thời tiết Nam Bộ mưa tăng, Bắc Bộ vẫn trong đợt mưa diện rộng, Trung Bộ ngày nắng nóng.
-- Một số tin tức đáng chú ý: Tỉ giá tự do 'rơi' sâu; Mỗi năm bù lỗ 11 tỉ cho bến phà tạm Rạch Miễu; 3 triệu trẻ 5-15 tuổi ở Việt Nam mắc tật khúc xạ...
-- Tối 23-8, thông tin từ đội tìm kiếm cứu hộ cứu nạn tại khu vực sụp lở cống đang thi công đoạn bờ kè gầm cầu Trần Hoàng Na (quận Ninh Kiều, TP Cần Thơ), đã tìm thấy thi thể công nhân bị vùi lấp dưới hố.
-- Tối 23-8, vùng mây đối lưu phát triển, gây mưa to ở các quận huyện phía tây Hà Nội và đang mở rộng vào trung tâm.
-- Nhấn mạnh hai chữ 'đồng bào', Tổng Bí thư, Chủ tịch nước Tô Lâm nói như trên, thể hiện mong muốn bà con dù ở đâu hay làm gì, vẫn luôn hướng về quê hương và đất nước bằng trái tim ấm nồng tình yêu.
-- Chiều 23-8, Ủy viên Bộ Chính trị, Thủ tướng Chính phủ Phạm Minh Chính, trưởng Tiểu ban Kinh tế - xã hội Đại hội toàn quốc lần thứ XIV của Đảng, chủ trì phiên họp thứ ba của tiểu ban.
-- Lời giới thiệu hóm hỉnh của cụ Nguyễn Tầm Thường - cựu chiến binh Đại đoàn Quân tiên phong tham gia giải phóng thủ đô vào 70 năm trước - khiến nhiều người không khỏi xúc động.
-- Một sự cố sụp lở trong lúc thi công cống trên tuyến đường bờ kè cầu Trần Hoàng Na (quận Ninh Kiều, TP Cần Thơ) khiến hai công nhân bị rơi xuống hố.
-- Phó thủ tướng Trần Hồng Hà ký quyết định số 876 ngày 21-8 của Thủ tướng Chính phủ thi hành kỷ luật đối với ông Nguyễn Hoàng Hải, phó giám đốc Đại học Quốc gia Hà Nội.
-- Từ cuối tháng 7 đến nay, hơn 3km bờ biển ở huyện Hoằng Hóa, tỉnh Thanh Hóa đã và đang bị nước biển xâm thực, sạt lở nghiêm trọng, ảnh hưởng lớn đến cuộc sống, sản xuất của người dân.
-- Tổ công tác tham mưu cho UBND TP.HCM về phương án chấm dứt thỏa thuận đầu tư dự án nhà thi đấu Phan Đình Phùng và hoàn trả hơn 171 tỉ đồng theo tính toán của nhà đầu tư.
-- Phó thủ tướng Trần Lưu Quang ký quyết định số 890 của Thủ tướng, thi hành kỷ luật đối với ông Trần Văn Cần, nguyên chủ tịch UBND tỉnh Long An.
-- Mới đây, cơ quan chức năng tỉnh Tây Ninh đã phá án, bắt giữ hai đối tượng buôn bán người xuyên quốc gia từ Việt Nam sang Campuchia và giải cứu thành công một nạn nhân 16 tuổi.
-- GS Nguyễn Văn Minh mong muốn Tuổi Trẻ sẽ tiếp tục phát triển và là nơi phát hiện cái mới, cái đúng, đồng thời phải kiên định bảo vệ cái mới, cái đúng.
-- Việc tạm ngừng thu hồi giấy chứng nhận đăng kiểm viên bị kết tội bằng bản án được xem là giải pháp nhằm ngăn ngừa ùn tắc tại các trung tâm đăng kiểm trong thời gian tới.
-- Ngày 23-8, Phó thủ tướng Trần Hồng Hà chủ trì phiên họp thứ 3 của Ban Chỉ đạo nhà nước các chương trình, công trình, dự án quan trọng quốc gia, trọng điểm ngành năng lượng.
-- Tỉnh Đồng Nai cho rằng cần tăng cường thực thi pháp luật trong phòng chống tội phạm mua bán, săn bắt động vật hoang dã trái phép.
-- 'Khi TP.HCM đưa vào vận hành trung tâm hành chính công cấp tỉnh vào năm 2025, các sở trực thuộc sẽ không còn bộ phận tiếp nhận hồ sơ hành chính như hiện nay'.
-- Kỳ họp bất thường lần thứ 8 của Quốc hội sẽ diễn ra trong một ngày (26-8), để xem xét công tác nhân sự thuộc thẩm quyền.
-- Tìm kiếm, tôn vinh các sản phẩm mới xuất sắc về AI, Bigdata, IoT, bán dẫn sẽ là một điểm mới của Giải thưởng "Sản phẩm công nghệ số Make in Viet Nam" 2024.
-- Sở Kế hoạch và Đầu tư TP.HCM vừa có báo cáo UBND TP kết quả giải ngân vốn đầu tư công 7 tháng đầu năm và giải pháp trọng tâm thực hiện mục tiêu giải ngân quý 3-2024.
-- Chương trình 'Hành động vì một Việt Nam xanh' đã triển khai trồng 120.000 cây xanh tại Cà Mau để chống sạt lở đất, bảo vệ môi trường.
-- Dù 3 lần bị xử phạt hành chính do xây dựng sai phép và bị buộc phải tháo dỡ, 'biệt phủ' rộng cả ngàn mét vuông ở Bình Phước vẫn tồn tại sau gần 1 năm.
-- Tổ hợp hình thế vùng xoáy thấp phát triển từ mặt đất lên cao kết hợp với gió Đông Nam gây mưa lớn ở Hà Nội, Thái Nguyên và các tỉnh miền Bắc.
-- Trong chuỗi hoạt động thuộc chương trình “Những ngày Hà Nội tại TP.HCM”, đoàn đại biểu TP.HCM, TP Hà Nội đã dâng hương, dâng hoa tưởng niệm Chủ tịch Hồ Chí Minh và Chủ tịch Tôn Đức Thắng.
-- 8 tháng đầu năm, tội phạm ma túy tại Quảng Ngãi tăng hơn 33% so với cùng kỳ năm 2023. Trong 13 huyện, thị xã, thành phố, chỉ duy nhất huyện Minh Long không phát hiện tội phạm ma túy.
-- Ngày 23-8, Công an thành phố Bảo Lộc (Lâm Đồng) cho biết đơn vị vừa phối hợp với cơ quan chức năng xác minh và trả lại 3 tỉ đồng cho bà Lê Thị Kim Hoàng (36 tuổi, ngụ Đồng Tháp), do chuyển khoản ngân hàng nhầm.
-- Đội lái tàu người Việt Nam chính thức được thực hành thực tế trên các đoàn tàu và thiết bị tại tàu metro số 1 sau quá trình đào tạo lý thuyết và mô phỏng tại Việt Nam và Nhật Bản.
-- Chủ tịch UBND TP Cà Mau đã ký quyết định cưỡng chế, buộc thực hiện biện pháp khắc phục hậu quả đối với chủ biệt thự 'đẹp nhất Cà Mau'.
+- Hai ngư dân gặp nạn trên vùng biển Hoàng Sa đã được Hải quân Việt Nam đưa về đất liền.
+- Học sinh giỏi Trường THPT Thái Phiên (Đà Nẵng) ký nhận tiền 200.000 đồng để nhận 20 cuốn vở nhưng giá thị trường mỗi cuốn chỉ 6.000 đồng.
+- Hôm nay 25-8, thời tiết Bắc Bộ tiếp tục mưa diện rộng. Trung Bộ và Nam Bộ ngày nắng, riêng Nam Bộ chiều tối mưa rào đến mưa to.
+- Tin tức đáng chú ý: Trung tâm thương mại Hùng Vương Plaza về tay 'ông lớn' bánh kẹo Kido; Bất động sản Phát Đạt bất ngờ dừng phát hành cổ phiếu để trả cổ tức; Gần 68% người nộp hồ sơ hưởng trợ cấp thất nghiệp không có bằng cấp...
+- Thủ tướng Phạm Minh Chính yêu cầu không để xảy ra tình trạng cài cắm quy định lợi ích nhóm, lợi ích cục bộ hoặc tạo môi trường cho tham nhũng, tiêu cực...
+- Sở Tài nguyên và Môi trường TP.HCM vừa có tờ trình về danh mục thủ tục hành chính trong lĩnh vực đất đai thuộc phạm vi chức năng quản lý của sở.
+- Bí thư Tỉnh ủy Đồng Nai Nguyễn Hồng Lĩnh cho rằng thời gian tới có rất nhiều cơ hội việc làm cho thanh niên xuất ngũ.
+- Hai xe máy va chạm nhau ngã ra trên cầu Rạch Miễu đúng lúc xe khách lao tới, thiếu niên 16 tuổi ở Bến Tre thiệt mạng tại chỗ.
+- Tỉnh Quảng Nam thành lập 5 tổ công tác về kiểm tra, đôn đốc, tháo gỡ khó khăn, vướng mắc, đẩy mạnh giải ngân vốn đầu tư công.
+- Bộ Nội vụ đã có trả lời kiến nghị của cử tri một số địa phương gửi đến, trong đó, đề nghị có hướng dẫn thêm liên quan việc đặt tên huyện, xã sau sáp nhập.
+- Chưa có nghiên cứu toàn diện về ảnh hưởng của cấu trúc đô thị, hoạt động giao thông đô thị lên sức khỏe, quy hoạch hiện tại cần tập trung vào mục tiêu này.
+- Bộ Y tế đề nghị các bệnh viện công khai đường dây nóng, ghi nhận thông tin phản ảnh của người dân.
+- Chiều 24-8, Phó bí thư Thành ủy, Chủ tịch Ủy ban MTTQ Việt Nam TP.HCM Nguyễn Phước Lộc trao huy hiệu 80 năm tuổi Đảng cho ông Hoàng Dũng.
+- Tàu của Vùng 4 Hải quân phối hợp với 2 chiếc tàu cá của ngư dân kéo thành công 1 tàu câu cá ngừ đại dương bị phá nước, chìm tàu về bờ an toàn.
+- Bạn đọc Tuổi Trẻ Online phản ảnh đường Lương Ngọc Quyến (phường 13, quận Bình Thạnh, TP.HCM) bị hư hỏng, chi chít ổ gà, ổ voi kèm theo tình trạng rác thải chất đống hai bên.
+- Chủ tịch UBND TP.HCM Phan Văn Mãi cho rằng Việt Nam phải thoát bẫy thu nhập trung bình trong 10 năm tới, nếu không sẽ không còn cơ hội.
+- Bộ trưởng Lương Tam Quang gửi thư khen Công an Hưng Yên về thành tích kịp thời phát hiện, bắt giữ đối tượng lừa đảo chiếm đoạt tài sản của người nước ngoài, thu hồi số tài sản có giá trị hơn 10 tỉ đồng trả lại cho người bị hại.
+- Lực lượng chức năng cho biết tàu hàng Việt Thuận 21506 đã bồi thường 135 triệu đồng cho thuyền trưởng tàu cá Phú Yên.
+- Công an huyện Bến Cầu (tỉnh Tây Ninh) cho biết vừa khởi tố vụ án, khởi tố bị can Mai Đồng Tình (28 tuổi) về tội vi phạm quy định về bảo vệ động vật nguy cấp.
+- Mưa lớn kéo dài nhiều ngày khiến mực nước tại các sông, suối ở Cao Bằng dâng cao, nhiều tuyến giao thông bị ngập sâu, sạt lở.
+- Chiều 23-8, lãnh đạo Bộ Y tế đã có cuộc làm việc với Bệnh viện K liên quan đến những thông tin phản ánh trên mạng xã hội thời gian qua. Đây là lần đầu tiên bộ làm việc với bệnh viện sau khi bệnh viện này bị 'tố'.
+- Vùng 3 Hải quân Việt Nam cho biết Hải quân Trung Quốc đã bàn giao hai ngư dân tỉnh Khánh Hòa bị chìm tàu tại vị trí cách nam đảo Tri Tôn 68 hải lý.
+- Đất đá từ trên núi bất ngờ sạt lở xuống đường quốc lộ 279 (Sơn La), cô gái đang đi xe máy nhanh trí bỏ lại xe, chạy đến nơi an toàn.
+- Đó là một trong những đề xuất giúp phát triển hệ thống lương thực thực phẩm phát thải thấp tại Đồng bằng sông Cửu Long.
+- Cơ quan cảnh sát điều tra Công an quận Gò Vấp (TP.HCM) đã khởi tố bị can đối với 5 thiếu niên liên quan việc chạy xe máy tăng tốc, nằm dài trên yên xe.
+- Vé số miền Nam sẽ tăng doanh số phát hành thêm 10 tỉ đồng lên mức tối đa là 130 tỉ đồng/kỳ, từ ngày 1-10.
+- Bộ Giao thông vận tải đã có đề xuất mới quy định về tốc độ thiết kế của đường bộ và quy định tốc độ tối đa của xe trên các loại cao tốc.
+- Dự án đường Lê Quang Đạo kéo dài (Hà Nội) đã đạt gần 80% tiến độ. Công trình đóng vai trò kết nối 2 quận Nam Từ Liêm và Hà Đông dự kiến được khánh thành dịp 70 năm Giải phóng thủ đô (10-10).
+- Hôn nhân và duy trì hôn nhân cần yếu tố lớn nhất là tình yêu. Theo người trong cuộc, để giữ được tình yêu, trước tiên phải có tình yêu.
+- Lãnh đạo Sở Giáo dục và Đào tạo TP Đà Nẵng khẳng định sẽ xử lý nhanh chóng những sai phạm liên quan vụ việc.
 ![New](News.png)
 ## Nhịp sống số 
 - Với xu hướng kinh doanh hiện đại là tập trung nhiều hơn vào khách hàng, việc mang đến nhiều trải nghiệm cá nhân hóa để kết nối sâu sắc hơn với khách hàng là rất quan trọng.
