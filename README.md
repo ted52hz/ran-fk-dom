@@ -1,6 +1,15 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Học viện Hàng không Việt Nam yêu cầu thí sinh đã trúng tuyển trường khác hủy xác nhận nhập học trường đó để nhập học bằng xét tuyển bổ sung vào học viện.
+- Dư luận Đà Nẵng đang xôn xao vụ một giáo viên tố nhóm trẻ dùng bún thiu khiến nhiều em đau bụng.
+- Ngày 26-8, Trường THPT Ernst Thälmann (quận 1, TP.HCM) tổ chức gian hàng sách 0 đồng cho học sinh đến trao đổi sách giáo khoa và dụng cụ học tập.
+- Để ở lại dọn dẹp vệ sinh và đón con em về làng vào cuối ngày, phụ huynh Ca Dong ở điểm trường mầm non Măng Dí (xã Trà Nam, Nam Trà My, Quảng Nam) cùng nhau dựng lán trại thô sơ nằm đối diện với trường học.
+- Sở Giáo dục và Đào tạo TP.HCM vừa có văn bản hướng dẫn về các khoản thu đầu năm học 2024-2025.
+- Sáng 26-8, 465 học bổng Vallet đã được trao đến các bạn học sinh, sinh viên, học viên cao học tài năng ở các tỉnh phía Nam.
+- 'Chúng tôi không dạy học sinh giải đề, mà dạy những điều không bao giờ xuất hiện trong các đề thi Olympic Toán quốc tế', Giáo sư Po Shen Loh chia sẻ.
+- Nhiều nghiên cứu cho thấy trẻ dùng smartphone đối mặt nhiều nguy cơ, đặc biệt là chức năng thần kinh bị ảnh hưởng, bị 'đầu độc' và bắt nạt trực tuyến...
+- Hàng loạt trường đại học đã liên hệ ủng hộ tân sinh viên gần 100 suất học bổng Tiếp sức đến trường 2024 với hơn 1,2 tỉ đồng.
 - Sáng nay 26-8, học sinh các cấp học ở TP.HCM trở lại trường sau gần 3 tháng nghỉ hè. Gặp lại thầy cô, bạn bè, các cô cậu học trò nói cười rôm rả.
 - Xuất sắc vượt qua 13 đội tuyển, đội Hong Kong (Trung Quốc) đoạt chức vô địch Robocon châu Á - Thái Bình Dương 2024. Đội Việt Nam 1 về nhì. ​
 - Ban Thường vụ Tỉnh ủy Khánh Hòa vừa kết luận thống nhất báo cáo đánh giá hoạt động và định hướng tiếp tục phát triển Trường đại học Khánh Hòa.
@@ -22,49 +31,41 @@
 - Trong năm học mới này, những ngôi trường "đẹp như mơ" trở thành điểm nhấn cảnh quan của thành phố Đà Nẵng, đồng thời kích thích thẩm mỹ, khiếu sáng tạo và cảm hứng học tập cho học sinh.
 - Lãnh đạo UBND huyện Vĩnh Thuận, tỉnh Kiên Giang khẳng định hiệu trưởng đã tự ý chuyển cơ sở vật chất trường cũ sang trường mới khi chưa có văn bản chính thức của huyện là có.
 - Sau lùm xùm 'trường chưa thông báo tuyển sinh đã hết chỉ tiêu', lãnh đạo UBND quận Nam Từ Liêm trực tiếp đối thoại với phụ huynh.
-- Trong cuộc thi ROBOTACON WRO 2024 với chủ đề “Đồng minh Trái đất”, bên cạnh các nhiệm vụ chính thức, còn có thêm những thử thách bất ngờ, giúp các em hiểu hơn về phát triển bền vững.
-- Chuyên gia cảnh báo việc thí sinh đang 'đứng núi này trông núi nọ', tính đến việc bỏ nhập học sau khi trúng tuyển để xét tuyển lại sẽ gặp nhiều rủi ro.
-- Hơn năm năm qua, ba nhà giáo ở Quảng Ngãi may áo dài cho sinh nghèo. Họ chung tấm lòng thiện nguyện thảo thơm, sẻ chia khó nhọc, tiếp thêm động lực cho những phận đời vươn lên giữa gian khó.
-- Lãnh đạo Sở Giáo dục và Đào tạo Đà Nẵng cho biết đã có kết luận trả lời phản ánh của các giáo viên Trường THPT Thái Phiên về dấu hiệu sai phạm của Hiệu trưởng Nguyễn Bá Hảo.
-- TP.HCM đã ấn định mức trần các khoản thu dịch vụ trong trường công lập tại TP.HCM năm học 2024-2025.
-- Nhiều phụ huynh, thí sinh phản ánh Trường đại học Quốc tế (Đại học Quốc gia TP.HCM) buộc thí sinh phải nộp hồ sơ nhập học trực tiếp và hoàn thành các khoản thu trước 16h ngày 24-8.
-- Liên quan đến vụ việc tuyển sinh sai đối tượng tại Trường phổ thông Dân tộc nội trú THCS Mường Lát, Ủy ban Kiểm tra Tỉnh ủy Thanh Hóa vừa công bố quyết định kỷ luật một loạt cán bộ, lãnh đạo huyện này.
-- UBND tỉnh Bắc Ninh khen thưởng học sinh, cán bộ quản lý, giáo viên bồi dưỡng đội tuyển học sinh giỏi đoạt giải trong các kỳ thi quốc gia, khu vực và quốc tế gần 5,2 tỉ đồng.
-- Phần thưởng của 654 học sinh giỏi biến thành nỗi ấm ức khi các em phải mang vở đi đổi mà không được.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Tính đến tháng 7-2024, có 12 tuyến cao tốc do Nhà nước đầu tư đã đi vào vận hành khai thác. Những tuyến này sẽ được thu phí nhằm huy động nguồn lực xã hội để bảo trì các tuyến cao tốc hiện hữu và đầu tư thêm cao tốc mới.
-- Hội đồng thẩm định bảng giá đất TP.HCM có nhiệm vụ thẩm định bảng giá đất theo quy định của pháp luật.
-- Theo Chủ tịch Quốc hội Trần Thanh Mẫn, kỳ họp bất thường lần thứ 8 sẽ bầu Chánh án Tòa án nhân dân tối cao, Viện trưởng Viện kiểm sát nhân dân tối cao, phê chuẩn bổ nhiệm 3 Phó thủ tướng, 2 Bộ trưởng.
-- Do mưa nhiều ngày qua, đặc biệt cơn mưa lớn kéo dài đêm 25-8 gây sạt lở nghiêm trọng trên quốc lộ 15C, đoạn qua xã Trung Lý, huyện Mường Lát (Thanh Hóa), làm ách tắc giao thông.
-- Ông Nguyễn Văn Thái, giám đốc Trung tâm Bảo tồn động vật hoang dã Việt Nam, nói chuyện với Tuổi Trẻ sau khi tỉnh Đồng Nai mở chiến dịch "Nói không với sử dụng động vật hoang dã".
-- Sau khi một nhà thầu bị loại, liên danh Tập đoàn Đèo Cả kiến nghị Tổng công ty Cảng hàng không Việt Nam (ACV) xem xét lại việc tổ chức đấu thầu đối với gói thầu 4.7 ở dự án sân bay Long Thành.
-- Nhiều hành khách bất ngờ khi có một khoản tiền kha khá đổ về tài khoản sau khi chuyến bay bị delay hoặc hủy chuyến...
-- Một số tin tức đáng chú ý: Tòa phong tỏa gần 29 tỉ đồng của Coteccons để trả cho Boho; Công ty của đại gia Đặng Thành Tâm sẽ vay 1.000 tỉ đồng trái phiếu để trả nợ; Cả nước có 52 đơn vị được phép tái chế bao bì, pin, đồ điện tử và dầu nhớt...
-- Hôm nay 26-8, thời tiết Bắc Bộ và Nam Bộ mưa rào, vài nơi mưa to, Trung Bộ vẫn duy trì nắng nóng.
-- Sự xuất hiện của những thành phần độc đáo như nấm truffle, ô long hạt thông hay thịt muối Iberico... trong bánh trung thu khiến thị trường bánh trung thu năm nay vẫn dồi dào bánh cao cấp dù kinh tế 'nguội'.
-- Các chiến sĩ cảnh sát giao thông đã có mặt ở mọi ngã tư trên lộ trình tại TP.HCM, giúp đoàn xe kịp về tới bệnh viện ghép cho người bệnh.
-- Cử tri 6 tỉnh đồng loạt đề nghị điều chỉnh mức giảm trừ gia cảnh cho phù hợp thực tế, nhất là sau tăng lương từ 1-7.
-- Lâm Đồng kiến nghị Thủ tướng mở rộng cửa cho Đà Lạt bằng đường cao tốc.
-- Nguyễn Duy Hoàng, 35 tuổi, ngỏ lời yêu chị họ 41 tuổi nhưng bị cự tuyệt. Thấy chị đi chơi ở nhà hàng xóm, Hoàng ghen tuông, dùng dao sát hại chị này.
-- Thủ tướng Phạm Minh Chính đã chủ trì Hội nghị đảm bảo an ninh trật tự phục vụ phát triển kinh tế - xã hội các tỉnh Tây Nguyên.
-- Tại huyện Bắc Quang (Hà Giang) xảy ra mưa lũ lớn khiến một người chết do bị lũ cuốn trôi, hai người bị thương do sạt ta luy dương gây sập đổ tường nhà.
-- Mưa lớn ở Bắc Bộ đã dịch chuyển sang khu vực phía Tây Bắc Bộ nên khả năng xảy ra dông sét trong đêm nay và ngày mai sẽ giảm dần.
-- Đường tránh quốc lộ 20 đi qua TP Bảo Lộc chưa sử dụng đã nát như tương.
-- Loạt ngành, nghề, dự án ưu tiên thu hút nhà đầu tư chiến lược vào thành phố Đà Nẵng gồm những gì?
-- Bộ trưởng Đào Ngọc Dung đã trả lời ý kiến cử tri đề xuất nghỉ thêm từ Quốc khánh (2-9) đến khai giảng (5-9) và nghỉ ngày Chiến thắng Điện Biên Phủ (7-5).
-- Qua đó ngân sách trả lương, phúc lợi và chi phí liên quan tiết kiệm trên 13,3 tỉ đồng/tháng, tức khoảng 160 tỉ đồng/năm.
-- Nhiều chuyên gia kinh tế cho rằng việc bổ sung quy định cho Việt kiều mua nhà đất trong nước sẽ làm thị trường bất động sản sôi động hơn.
-- Mưa lớn chiều tối 24-8 gây sạt lở, nước chảy như thác làm tê liệt quốc lộ 6 đoạn qua dốc Cun, Hòa Bình. Sáng nay 25-8, đoạn này được thông tuyến.
-- Tuần này thời tiết Bắc Bộ duy trì mưa, có nơi mưa to. Nam Bộ ngày nắng gián đoạn, chiều tối mưa, Trung Bộ nắng nóng diện rộng.
-- Trong 6 tháng đầu năm 2024, thu nhập bình quân của người lao động là 8,4 triệu đồng/tháng, tăng so với cùng kỳ.
-- Đoạn cao tốc Vinh - Thanh Thủy dài 65km qua tỉnh Nghệ An thuộc cao tốc Hà Nội - Viêng Chăn được đề xuất đầu tư với tổng đầu tư 18.500 tỉ đồng.
-- Kỳ họp bất thường lần thứ 8 Quốc hội khóa XV sẽ diễn ra vào ngày mai (26-8) để xem xét công tác nhân sự.
-- Cảnh sát đã đưa thang máy của một tòa nhà ở Hà Nội về đúng vị trí tầng, mở cửa thang, giải cứu 9 người bị mắc kẹt ra ngoài an toàn.
-- Luật Đất đai và Luật Nhà ở mới đây đã mở rộng quyền sở hữu nhà ở, quyền sử dụng đất cho Việt kiều.
-- Nội dung không khác nhau, chỉ khác nhau chữ "giấy" và "sổ", vì sao lại trả hồ sơ đổi giấy phép lái xe của tôi?
+- Ông Ral Lan Chung - phó bí thư Tỉnh ủy Gia Lai - vừa được Hội đồng nhân dân tỉnh bầu làm Chủ tịch UBND tỉnh Gia Lai.
+- Chủ tịch UBND tỉnh Khánh Hòa vừa chấp thuận tiếp các công dân bị thu hồi đất tại Sông Lô, TP Nha Trang giao cho Công ty TNHH Hoàn Cầu làm dự án nhưng lại bỏ hoang suốt 22 năm qua tới nay.
+- Một người đàn ông 53 tuổi bị ung thư gan, xơ gan nặng do viêm gan B và bé gái 9 tháng tuổi bị xơ gan ứ mật nguyên phát cùng được nhận một lá gan để ghép.
+- TS Nguyễn Việt Hùng, nguyên vụ trưởng Vụ Quản lý đấu thầu, Bộ Kế hoạch và đầu tư nhận định ACV đang làm đúng theo hồ sơ mời thầu.
+- Sau hơn một tháng, cảnh sát giao thông TP.HCM đã tiếp nhận hàng trăm tin nhắn, cuộc gọi từ người dân, phản ánh về vi phạm giao thông và tiến hành xử lý.
+- Một số tin tức đáng chú ý: Bình Chánh bác tin 'chi 100 triệu đồng để chạy chức lãnh đạo ấp'; Diễn biến bất ngờ ở thị trường bất động sản Hoài Đức; Phạt một cá nhân mua chui cổ phiếu...
+- Hôm nay 27-8, thời tiết Nam Bộ và Tây Nguyên mưa tăng, chiều tối nhiều nơi mưa to. Trung Bộ nắng nóng, Bắc Bộ trời cũng nắng sau chuỗi ngày mưa.
+- Lần thứ sáu đến Việt Nam, Thống đốc tỉnh Aichi (Nhật Bản) Omura Hideaki mong muốn Việt Nam mở tổng lãnh sự quán tại đây và tăng tần suất chuyến bay.
+- Đây là đối thoại chính trị - an ninh - quốc phòng đầu tiên sau khi Việt Nam và Mỹ nâng cấp quan hệ lên Đối tác chiến lược toàn diện tháng 9-2023.
+- Cơn mưa lớn vào chiều tối khiến thành phố Bến Cát, tỉnh Bình Dương bất ngờ ngập trong biển nước, không chỉ xe máy mà cả ô tô bị nước cuốn trôi, lực lượng chức năng phải ứng cứu.
+- Thủ tướng Phạm Minh Chính mong muốn các phó thủ tướng, bộ trưởng vừa được Quốc hội phê chuẩn, bổ nhiệm 'đồng cam cộng khổ' cùng với tập thể Chính phủ.
+- Cảnh sát giao thông khuyến cáo người dân lựa chọn lộ trình và thời gian phù hợp, đồng thời cần tuân thủ các quy định khi đi trên cao tốc như: không đi vào làn khẩn cấp, giữ khoảng cách an toàn, không sử dụng điện thoại khi lái xe...
+- Đoàn tàu khách SE7 chạy tuyến đường sắt Bắc Nam khi đến đoạn gần đường ngang trên đường Nguyễn Kiệm (quận Phú Nhuận, TP.HCM) đã vướng phải dây cáp viễn thông.
+- Bộ Ngoại giao nêu rõ mong muốn Đại học Fulbright Việt Nam tiếp tục đóng góp thiết thực vào sự phát triển quan hệ hữu nghị, hợp tác giữa Việt Nam và Mỹ.
+- Liên quan vụ 3 lần bị xử phạt, 'biệt phủ' sai phép do vợ phó chủ tịch thị xã xây vẫn tồn tại, chủ mới khu đất cam kết tự phá dỡ công trình vi phạm trong 30 ngày.
+- Quá trình thi công dự án chung cư tại lô đất CT2 (quận Long Biên, Hà Nội) đã gây hư hỏng vỉa hè, đường Cổ Linh và chưa được khắc phục.
+- Dư luận Đà Nẵng đang xôn xao vụ một giáo viên tố nhóm trẻ dùng bún thiu khiến nhiều em đau bụng.
+- Dưới đây là danh sách các thành viên Chính phủ nhiệm kỳ 2021 - 2026 sau khi Quốc hội phê chuẩn bổ nhiệm 3 phó thủ tướng và 2 bộ trưởng.
+- Tin vào lời hứa 'việc nhẹ lương cao', cô gái 17 tuổi bị người xấu lừa bán sang biên giới Campuchia để lao động khổ sai rồi được công an giải cứu.
+- Chiều 26-8, tại Phủ Chủ tịch, Tổng Bí thư, Chủ tịch nước Tô Lâm trao quyết định bổ nhiệm ba phó thủ tướng và hai bộ trưởng vừa được Quốc hội phê chuẩn bổ nhiệm.
+- Trước việc dịch lở mồm long móng lây lan mạnh, Bộ Nông nghiệp và Phát triển nông thôn yêu cầu Quảng Trị triển khai các giải pháp kiểm soát.
+- Đường 830C nối từ trung tâm huyện Bến Lức đến đường Nguyễn Hữu Trí (TP.HCM) dài 9km sẽ được nâng cấp, mở rộng với mức đầu tư hơn 970 tỉ.
+- Sở Giao thông vận tải TP.HCM vừa ra thông báo hạn chế xe cộ đi vào một số tuyến đường khu vực sân bay Tân Sơn Nhất (quận Tân Bình, TP.HCM).
+- Tổng thư ký Quốc hội Bùi Văn Cường nêu rõ theo nghị quyết của Trung ương, chức danh Chủ tịch nước sẽ được Quốc hội bầu vào tháng 10.
+- Lúc 19h15, tại các quận, huyện như Đống Đa, Cầu Giấy, Nam Từ Liêm, Thanh Xuân, Hoàng Mai, Hà Đông, Thanh Trì đang có mưa vừa, mưa to, kèm sớm chớp.
+- Với việc nước thải được thu gom xử lý liên tục, nước kênh Tàu Hủ - Bến Nghé - Đôi - Tẻ sẽ giảm ô nhiễm, không còn màu đen.
+- Đồng ý giúp Hiến (không rõ lai lệnh), nam tài xế xe công nghệ vận chuyển gần 5kg ma túy lấy 10 triệu đồng tiền công. Tòa án nhân dân TP.HCM tuyên bị cáo mức án tử hình.
+- Chưa kịp ổn định cuộc sống sau trận lũ cách đây 1 tháng, nhiều hộ dân ở xã Tông Cọ (huyện Thuận Châu, Sơn La) tiếp tục bị ngập sâu.
+- Theo báo cáo của Trung tâm Kiểm soát bệnh tật tỉnh Phú Yên (CDC Phú Yên), từ đầu năm 2024 đến nay toàn tỉnh ghi nhận 28 trường hợp chó cắn, trong đó có 2 trường hợp tử vong.
+- Tức giận vì lời đe dọa đốt chuồng gà của mình, Đỗ Hoàng Minh dùng súng bắn chết người. Tòa án nhân dân TP.HCM tuyên bị cáo án tù chung thân.
 ![New](News.png)
 ## Nhịp sống số 
+- Nhiều nghiên cứu cho thấy trẻ dùng smartphone đối mặt nhiều nguy cơ, đặc biệt là chức năng thần kinh bị ảnh hưởng, bị 'đầu độc' và bắt nạt trực tuyến...
 - Bạn có tin được không: khoảng 61% mật khẩu hiện nay có thể bị bẻ khóa trong chưa đầy một phút dưới sự hỗ trợ của trí tuệ nhân tạo (AI), trong khi chỉ có 7% mật khẩu đủ mạnh để phòng chống các cuộc tấn công lâu dài.
 - Với xu hướng kinh doanh hiện đại là tập trung nhiều hơn vào khách hàng, việc mang đến nhiều trải nghiệm cá nhân hóa để kết nối sâu sắc hơn với khách hàng là rất quan trọng.
 - AI không có khả năng tiếp thu các kỹ năng mới nếu không được hướng dẫn, do đó không có khả năng đe dọa con người.
@@ -94,5 +95,4 @@
 - Thực hiện chủ trương tắt sóng 2G của Bộ Thông tin và Truyền thông vào tháng 9-2024, VinaPhone triển khai loạt ưu đãi khách hàng nâng cấp lên điện thoại 4G miễn phí và nhiều ưu đãi hấp dẫn khác để duy trì liên lạc mà không phải lo lắng về chi phí.
 - Với gần một nửa dân số Úc bị ảnh hưởng, vụ tấn công mạng MediSecure là một trong những vụ xâm phạm dữ liệu lớn nhất trong lịch sử quốc gia này.
 - Đầu tuần này, giới công nghệ xôn xao với thông tin Alphabet, công ty mẹ của Google, đang sắp hoàn tất thương vụ 'khủng' mua lại công ty khởi nghiệp an ninh mạng Wiz với giá 23 tỉ USD.
-- Trước Đại hội toàn quốc Đảng Cộng hòa, Meta thông báo sẽ dỡ bỏ các hạn chế với tài khoản Facebook và Instagram của cựu tổng thống Donald Trump.
 ![life](Life.png)
