@@ -1,6 +1,23 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Theo Vụ Giáo dục đại học - Bộ Giáo dục và Đào tạo, tỉ lệ thí sinh nhập học chiếm 81,87% số thí sinh trúng tuyển đại học đợt 1 năm 2024.
+- Chiều mai, 28-8, Sở Giáo dục và Đào tạo TP.HCM sẽ hướng dẫn chi tiết các thủ tục cho học sinh Trường quốc tế Mỹ chuyển trường theo nguyện vọng tại hai địa chỉ ở huyện Nhà Bè.
+- Các trường công lập tại TP.HCM không biết làm sao khi Luật Đấu thầu yêu cầu phải... đấu thầu cả nguồn cung cấp thực phẩm cho bếp ăn trường tự nấu.
+- Lãnh đạo Đại học RMIT Việt Nam khẳng định vẫn được cấp phép hoạt động ở tất cả các cơ sở tại Việt Nam. Nhưng nhà trường đang tạm dừng tuyển sinh khóa mới tại cơ sở Hà Nội.
+- PGS.TS Phạm Quang Huy sẽ thôi chức phó trưởng ban đào tạo Đại học Kinh tế TP.HCM từ ngày 1-9 để chuyển sang công tác giảng dạy và nghiên cứu khoa học.
+- Huyện vùng cao, biên giới Quan Sơn (Thanh Hóa) vừa ra mắt Quỹ khuyến học - khuyến tài Hoa Ban, với tổng số tiền huy động được cho quỹ là hơn 1,7 tỉ đồng.
+- Tại buổi đối thoại với đại học Việt Nam, các tập đoàn công nghệ đưa ra nhiều giải pháp nâng cao chất lượng đào tạo, hỗ trợ sinh viên...
+- Toàn bộ 523 đơn đăng ký vào Trường tiểu học Tây Mỗ 3 của phụ huynh gửi Phòng Giáo dục và Đào tạo quận Nam Từ Liêm hôm 21-8 đều không được giải quyết.
+- Tất cả 180 trường tiểu học ở Singapore đều có lớp học năng khiếu dành cho các học sinh xuất sắc và giáo viên riêng để giảng dạy các lớp này.
+- Có những ông bố, bà mẹ nghĩ con mình là vàng, con thiên hạ là "rơm rác" nên luôn bênh con mình và cư xử thô bạo với con người khác.
+- Việt Nam đề nghị Úc tạo điều kiện, không để các chính sách mới ảnh hưởng tiến độ cấp visa cho du học sinh Việt Nam.
+- Trước dự báo có nhiều thay đổi về tuyển sinh năm học tới, ngày 27-8, Tuổi Trẻ tổ chức tọa đàm đổi mới chương trình tư vấn tuyển sinh - hướng nghiệp.
+- Ngay từ xa xưa, người ta đã quan niệm giáo dục có nghĩa là khơi ra, chứ không phải là nhồi vào như ta hằng tưởng.
+- Hiệu trưởng một trường THCS ở TP.HCM tư vấn như vậy trong cuộc gặp gỡ phụ huynh của trường nhân năm học mới 2024-2025.
+- Nhằm tạo thêm cơ hội cho các thí sinh, Trường Đại học Quốc tế Sài Gòn (SIU) xét tuyển bổ sung 300 chỉ tiêu.
+- Dạy thêm, học thêm là nhu cầu chính đáng của người học và người dạy, cần quy định rõ ràng hơn để tránh dạy thêm biến tướng.
+- Giữa trưa, vượt gần 20km từ trung tâm xã Ea R'bin, cô giáo Phạm Thị Hồng vào buôn Plao Siêng thì gặp hai em nhỏ.
 - Học viện Hàng không Việt Nam yêu cầu thí sinh đã trúng tuyển trường khác hủy xác nhận nhập học trường đó để nhập học bằng xét tuyển bổ sung vào học viện.
 - Dư luận Đà Nẵng đang xôn xao vụ một giáo viên tố nhóm trẻ dùng bún thiu khiến nhiều em đau bụng.
 - Ngày 26-8, Trường THPT Ernst Thälmann (quận 1, TP.HCM) tổ chức gian hàng sách 0 đồng cho học sinh đến trao đổi sách giáo khoa và dụng cụ học tập.
@@ -14,57 +31,41 @@
 - Xuất sắc vượt qua 13 đội tuyển, đội Hong Kong (Trung Quốc) đoạt chức vô địch Robocon châu Á - Thái Bình Dương 2024. Đội Việt Nam 1 về nhì. ​
 - Ban Thường vụ Tỉnh ủy Khánh Hòa vừa kết luận thống nhất báo cáo đánh giá hoạt động và định hướng tiếp tục phát triển Trường đại học Khánh Hòa.
 - Phòng Giáo dục và Đào tạo quận Nam Từ Liêm vừa có thông báo về việc tiếp nhận đơn xin chuyển trường vào Trường tiểu học Tây Mỗ 3.
-- Trường đề nghị công an điều tra, xử lý người làm và lan truyền tin nhắn có nội dung mang tính chất lừa đảo nhập học.
-- Học sinh giỏi Trường THPT Thái Phiên (Đà Nẵng) ký nhận tiền 200.000 đồng để nhận 20 cuốn vở nhưng giá thị trường mỗi cuốn chỉ 6.000 đồng.
-- Dự thảo thông tư quy định về dạy thêm, học thêm vừa được Bộ GD-ĐT công bố có nhiều điểm thay đổi so với quy định hiện hành.
-- Trường đại học Công Thương TP.HCM vừa phát cảnh báo gấp về việc một số thí sinh nhận được tin nhắn thông báo nhập học giả mạo của trường.
-- Triển lãm 'Văn Miếu Quốc Tử Giám, ươm mầm khát vọng hiền tài' tạo ra không gian trải nghiệm văn hóa - nghệ thuật, ứng dụng công nghệ số giới thiệu nhiều tư liệu về Văn Miếu Quốc Tử Giám cho các em học sinh tại TP.HCM.
-- Lạm thu tiền trường là vấn đề trở đi trở lại vào mỗi dịp đầu năm học mới. Và thường sau các cuộc họp cha mẹ học sinh đầu năm, nhiều tâm tư, băn khoăn và cả bức xúc của phụ huynh lại được chia sẻ. Nơi chia sẻ đầu tiên lại là trên mạng xã hội.
-- Bộ Giáo dục và Đào tạo yêu cầu các cơ sở giáo dục phải hoàn thiện, công bố kịp thời các phương thức tuyển sinh từ năm 2025 trở đi.
-- Về bí quyết học tập, thủ khoa Phạm Minh Tiến 'bật mí' phải biết cách hệ thống những gì mình tiếp thu từ thầy cô nhưng cũng phải sáng tạo khi ứng dụng.
-- Học bổng dành cho con em hội viên phụ nữ, nữ công nhân có hoàn cảnh khó khăn và nữ sinh viên mồ côi do dịch COVID-19 tại các quận huyện và TP Thủ Đức, TP.HCM.
-- Trong 50 thủ khoa Trường ĐH Kinh tế quốc dân, có bốn thủ khoa cùng đạt điểm GPA tuyệt đối 4.0.
-- Nữ sinh Trường THPT chuyên Lê Hồng Phong đậu học bổng 9 trường đại học trên thế giới bằng bài luận về sự vận hành của xã hội từ kiến thức hóa - sinh.
-- Lãnh đạo Sở Giáo dục và Đào tạo TP Đà Nẵng khẳng định sẽ xử lý nhanh chóng những sai phạm liên quan vụ việc.
-- Sáng nay 24-8, Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) tổ chức lễ khai giảng, chào đón hơn 5.000 tân sinh viên khóa 2024.
-- Trên mạng xã hội tiếp tục xôn xao khi một phụ huynh tại Thái Bình đăng điểm thi lớp 10 của con sau thanh tra tiếp tục 'nhảy múa', cách nhau 5 điểm môn toán.
-- Trong năm học mới này, những ngôi trường "đẹp như mơ" trở thành điểm nhấn cảnh quan của thành phố Đà Nẵng, đồng thời kích thích thẩm mỹ, khiếu sáng tạo và cảm hứng học tập cho học sinh.
-- Lãnh đạo UBND huyện Vĩnh Thuận, tỉnh Kiên Giang khẳng định hiệu trưởng đã tự ý chuyển cơ sở vật chất trường cũ sang trường mới khi chưa có văn bản chính thức của huyện là có.
-- Sau lùm xùm 'trường chưa thông báo tuyển sinh đã hết chỉ tiêu', lãnh đạo UBND quận Nam Từ Liêm trực tiếp đối thoại với phụ huynh.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Ông Ral Lan Chung - phó bí thư Tỉnh ủy Gia Lai - vừa được Hội đồng nhân dân tỉnh bầu làm Chủ tịch UBND tỉnh Gia Lai.
-- Chủ tịch UBND tỉnh Khánh Hòa vừa chấp thuận tiếp các công dân bị thu hồi đất tại Sông Lô, TP Nha Trang giao cho Công ty TNHH Hoàn Cầu làm dự án nhưng lại bỏ hoang suốt 22 năm qua tới nay.
-- Một người đàn ông 53 tuổi bị ung thư gan, xơ gan nặng do viêm gan B và bé gái 9 tháng tuổi bị xơ gan ứ mật nguyên phát cùng được nhận một lá gan để ghép.
-- TS Nguyễn Việt Hùng, nguyên vụ trưởng Vụ Quản lý đấu thầu, Bộ Kế hoạch và đầu tư nhận định ACV đang làm đúng theo hồ sơ mời thầu.
-- Sau hơn một tháng, cảnh sát giao thông TP.HCM đã tiếp nhận hàng trăm tin nhắn, cuộc gọi từ người dân, phản ánh về vi phạm giao thông và tiến hành xử lý.
-- Một số tin tức đáng chú ý: Bình Chánh bác tin 'chi 100 triệu đồng để chạy chức lãnh đạo ấp'; Diễn biến bất ngờ ở thị trường bất động sản Hoài Đức; Phạt một cá nhân mua chui cổ phiếu...
-- Hôm nay 27-8, thời tiết Nam Bộ và Tây Nguyên mưa tăng, chiều tối nhiều nơi mưa to. Trung Bộ nắng nóng, Bắc Bộ trời cũng nắng sau chuỗi ngày mưa.
-- Lần thứ sáu đến Việt Nam, Thống đốc tỉnh Aichi (Nhật Bản) Omura Hideaki mong muốn Việt Nam mở tổng lãnh sự quán tại đây và tăng tần suất chuyến bay.
-- Đây là đối thoại chính trị - an ninh - quốc phòng đầu tiên sau khi Việt Nam và Mỹ nâng cấp quan hệ lên Đối tác chiến lược toàn diện tháng 9-2023.
-- Cơn mưa lớn vào chiều tối khiến thành phố Bến Cát, tỉnh Bình Dương bất ngờ ngập trong biển nước, không chỉ xe máy mà cả ô tô bị nước cuốn trôi, lực lượng chức năng phải ứng cứu.
-- Thủ tướng Phạm Minh Chính mong muốn các phó thủ tướng, bộ trưởng vừa được Quốc hội phê chuẩn, bổ nhiệm 'đồng cam cộng khổ' cùng với tập thể Chính phủ.
-- Cảnh sát giao thông khuyến cáo người dân lựa chọn lộ trình và thời gian phù hợp, đồng thời cần tuân thủ các quy định khi đi trên cao tốc như: không đi vào làn khẩn cấp, giữ khoảng cách an toàn, không sử dụng điện thoại khi lái xe...
-- Đoàn tàu khách SE7 chạy tuyến đường sắt Bắc Nam khi đến đoạn gần đường ngang trên đường Nguyễn Kiệm (quận Phú Nhuận, TP.HCM) đã vướng phải dây cáp viễn thông.
-- Bộ Ngoại giao nêu rõ mong muốn Đại học Fulbright Việt Nam tiếp tục đóng góp thiết thực vào sự phát triển quan hệ hữu nghị, hợp tác giữa Việt Nam và Mỹ.
-- Liên quan vụ 3 lần bị xử phạt, 'biệt phủ' sai phép do vợ phó chủ tịch thị xã xây vẫn tồn tại, chủ mới khu đất cam kết tự phá dỡ công trình vi phạm trong 30 ngày.
-- Quá trình thi công dự án chung cư tại lô đất CT2 (quận Long Biên, Hà Nội) đã gây hư hỏng vỉa hè, đường Cổ Linh và chưa được khắc phục.
-- Dư luận Đà Nẵng đang xôn xao vụ một giáo viên tố nhóm trẻ dùng bún thiu khiến nhiều em đau bụng.
-- Dưới đây là danh sách các thành viên Chính phủ nhiệm kỳ 2021 - 2026 sau khi Quốc hội phê chuẩn bổ nhiệm 3 phó thủ tướng và 2 bộ trưởng.
-- Tin vào lời hứa 'việc nhẹ lương cao', cô gái 17 tuổi bị người xấu lừa bán sang biên giới Campuchia để lao động khổ sai rồi được công an giải cứu.
-- Chiều 26-8, tại Phủ Chủ tịch, Tổng Bí thư, Chủ tịch nước Tô Lâm trao quyết định bổ nhiệm ba phó thủ tướng và hai bộ trưởng vừa được Quốc hội phê chuẩn bổ nhiệm.
-- Trước việc dịch lở mồm long móng lây lan mạnh, Bộ Nông nghiệp và Phát triển nông thôn yêu cầu Quảng Trị triển khai các giải pháp kiểm soát.
-- Đường 830C nối từ trung tâm huyện Bến Lức đến đường Nguyễn Hữu Trí (TP.HCM) dài 9km sẽ được nâng cấp, mở rộng với mức đầu tư hơn 970 tỉ.
-- Sở Giao thông vận tải TP.HCM vừa ra thông báo hạn chế xe cộ đi vào một số tuyến đường khu vực sân bay Tân Sơn Nhất (quận Tân Bình, TP.HCM).
-- Tổng thư ký Quốc hội Bùi Văn Cường nêu rõ theo nghị quyết của Trung ương, chức danh Chủ tịch nước sẽ được Quốc hội bầu vào tháng 10.
-- Lúc 19h15, tại các quận, huyện như Đống Đa, Cầu Giấy, Nam Từ Liêm, Thanh Xuân, Hoàng Mai, Hà Đông, Thanh Trì đang có mưa vừa, mưa to, kèm sớm chớp.
-- Với việc nước thải được thu gom xử lý liên tục, nước kênh Tàu Hủ - Bến Nghé - Đôi - Tẻ sẽ giảm ô nhiễm, không còn màu đen.
-- Đồng ý giúp Hiến (không rõ lai lệnh), nam tài xế xe công nghệ vận chuyển gần 5kg ma túy lấy 10 triệu đồng tiền công. Tòa án nhân dân TP.HCM tuyên bị cáo mức án tử hình.
-- Chưa kịp ổn định cuộc sống sau trận lũ cách đây 1 tháng, nhiều hộ dân ở xã Tông Cọ (huyện Thuận Châu, Sơn La) tiếp tục bị ngập sâu.
-- Theo báo cáo của Trung tâm Kiểm soát bệnh tật tỉnh Phú Yên (CDC Phú Yên), từ đầu năm 2024 đến nay toàn tỉnh ghi nhận 28 trường hợp chó cắn, trong đó có 2 trường hợp tử vong.
-- Tức giận vì lời đe dọa đốt chuồng gà của mình, Đỗ Hoàng Minh dùng súng bắn chết người. Tòa án nhân dân TP.HCM tuyên bị cáo án tù chung thân.
+- Giang hồ miền Tây Quảng Trị 'Quân Idol' cùng 8 đồng phạm hầu toà trong vụ án liên quan đến ma túy, đe doạ giết người, cho vay lãi nặng, bắt giữ người trái pháp luật…
+- Ngày 27-8, UBND TP.HCM đã công bố dịch sởi trên toàn TP. Thời gian xảy ra dịch là tháng 8-2024.
+- Đến 0h30 ngày 28-8, các đơn vị cáp viễn thông vẫn đang nối những đoạn cáp bị đứt sau sự cố níu toa tàu tối hôm trước tại quận Phú Nhuận, TP.HCM.
+- Tin tức đáng chú ý: Yêu cầu đảm bảo an ninh, an toàn thực phẩm tại các chợ TP.HCM; Chủ tịch UBND tỉnh Bắc Giang tặng bằng khen cho hai người cứu tài xế giữa nước lũ; Tìm đơn vị khai thác tuyến đường thủy từ TP.HCM đi Tiền Giang...
+- Hôm nay 28-8, thời tiết Bắc Bộ vùng phía tây mưa dông, phía đông lại nắng nóng. Trung Bộ nắng nóng còn Nam Bộ mưa rào đến mưa to.
+- Trong 10 năm, Việt Nam tổ chức 21 khóa huấn luyện với gần 1.500 lượt cán bộ, nhân viên cho 5 bệnh viện dã chiến 2, hai thê đội Đội Công binh gìn giữ hòa bình Liên Hiệp Quốc.
+- UBND tỉnh Khánh Hòa vừa phê bình 16 đơn vị giải ngân vốn đầu tư công năm 2024 chỉ đạt từ 0,6 - 26,5%, thấp hơn tỉ lệ bình quân của cả nước.
+- Chiều 27-8, tại trụ sở Trung ương Đảng, Tổng bí thư, Chủ tịch nước Tô Lâm đã tiếp Chủ tịch Thượng viện Úc Sue Lines và Đoàn đại biểu cấp cao Nghị viện Úc trong chyến thăm chính thức Việt Nam.
+- Chiều 27-8, UBND TP.HCM đã chính thức công bố dịch sởi trên toàn TP trước nguy cơ diễn tiến bệnh ngày càng phức tạp. Vậy phụ huynh cần làm gì?
+- Sự kiện nằm trong chuỗi hoạt động chào mừng 79 năm Ngày Quốc khánh 2-9, khẳng định niềm tự hào dân tộc của mỗi chiến sĩ mũ nồi xanh Việt Nam đang thực hiện nhiệm vụ tại Abyei.
+- Theo chính quyền sở tại, nguyên nhân sự cố được xác định là nhân viên kỹ thuật đã sơ ý bấm vào nút sự cố cứu hỏa cấp 2 của thang máy.
+- Ngày 27-8, Tổng Bí thư, Chủ tịch nước Tô Lâm, trưởng Tiểu ban Văn kiện Đại hội XIV của Đảng, chủ trì phiên họp lần thứ 2 Tiểu ban Văn kiện.
+- TP.HCM ban hành kế hoạch thi tuyển 5 phó giám đốc sở gồm Sở Lao động - Thương binh và Xã hội, Sở Văn hóa và Thể thao, Sở Khoa học và Công nghệ, Sở Tài chính và Sở An toàn thực phẩm từ nay đến 15-12-2024.
+- Chiều 27-8, Tòa án nhân dân TP Hà Tĩnh (tỉnh Hà Tĩnh) đã mở lại phiên xét xử đối với 5 cựu cầu thủ Câu lạc bộ bóng đá Hồng Lĩnh Hà Tĩnh về tội tổ chức sử dụng trái phép chất ma túy.
+- Đại sứ Trung Quốc Hùng Ba khẳng định dù trên bất kỳ cương vị nào sẽ luôn giữ những tình cảm tốt đẹp về đất nước và con người Việt Nam, đóng góp cho quan hệ hai nước.
+- TP.HCM sẽ kiến nghị Chính phủ xem xét điều chỉnh mức thu để nghĩa vụ tài chính về đất phù hợp với tình hình kinh tế xã hội khi có bảng giá đất điều chỉnh.
+- Nhiều địa phương ở Quảng Trị đang xúc tiến các thủ tục để đưa nông dân sang làm việc thời vụ tại Hàn Quốc với mức lương tối thiểu 40 triệu đồng/tháng, nhưng lại e ngại vấn đề bỏ trốn vì không có ràng buộc.
+- 15 người trên xe khách thoát chết khi chiếc xe lao xuống suối bên đường trên quốc lộ 4B.
+- Việc chính thức thí điểm số hóa công tác quản lý hoạt động dịch vụ hàng hải ở TP.HCM giúp người dân, doanh nghiệp tham gia hoạt động hàng hải thêm thuận tiện.
+- Ban này kiến nghị những công trình tạm, công trình phụ trợ diện tích không vượt mật độ xây dựng có thể xem xét tồn tại, sau đó điều chỉnh quy hoạch 1/500 để cập nhật.
+- Sự việc hiếm hoi diễn ra ngày 27-8, khi Chủ tịch Thượng viện Úc Sue Lines gặp Thủ tướng Phạm Minh Chính.
+- Trùm giang hồ Quân “Idol” sẽ bị Tòa án nhân dân tỉnh Quảng Trị xét xử vào ngày  28-8  với 7 tội danh.
+- Triển lãm mở cửa phục vụ du khách và nhân dân tham quan, tìm hiểu đến hết ngày 30-11-2024.
+- Ngày 27-8, UBND TP.HCM đã chính thức công bố dịch sởi trên toàn TP trước bối cảnh ca sởi tăng nhanh và đã có ba trẻ tử vong vì sởi.
+- Thời gian gần đây đã xuất hiện nhiều trang fanpage giả mạo cuộc thi UPU trên Facebook.
+- Tình trạng cáp viễn thông, dây điện chằng chịt "như mạng nhện" xuất hiện khắp các con đường, ngõ hẻm ở TP.HCM.
+- Công ty TNHH Làng Việt Nam ở huyện Hàm Thuận Bắc bị phạt hơn 430 triệu đồng về nhiều hành vi liên quan các trại heo gây ô nhiễm.
+- Đèo Tà Nung thuộc tỉnh lộ 725 nối Đà Lạt với Tà Nung bị sạt lở nghiêm trọng tạo thành một hàm ếch.
+- Chủ tịch UBND TP.HCM Phan Văn Mãi cho rằng hiện nay nhiều nhà đầu tư chiến lược muốn đến TP.HCM.
+- Trong lúc dọn vệ sinh khuôn viên cơ quan, một dân quân tự vệ xã Ia Pnôn, huyện Đức Cơ (Gia Lai), cuốc trúng lựu đạn nổ và tử vong.
 ![New](News.png)
 ## Nhịp sống số 
+- Apple chính thức thông báo sẽ tổ chức sự kiện ra mắt iPhone 16, một trong những sự kiện công nghệ được mong đợi nhất hành tinh, vào ngày 9-9.
 - Nhiều nghiên cứu cho thấy trẻ dùng smartphone đối mặt nhiều nguy cơ, đặc biệt là chức năng thần kinh bị ảnh hưởng, bị 'đầu độc' và bắt nạt trực tuyến...
 - Bạn có tin được không: khoảng 61% mật khẩu hiện nay có thể bị bẻ khóa trong chưa đầy một phút dưới sự hỗ trợ của trí tuệ nhân tạo (AI), trong khi chỉ có 7% mật khẩu đủ mạnh để phòng chống các cuộc tấn công lâu dài.
 - Với xu hướng kinh doanh hiện đại là tập trung nhiều hơn vào khách hàng, việc mang đến nhiều trải nghiệm cá nhân hóa để kết nối sâu sắc hơn với khách hàng là rất quan trọng.
@@ -94,5 +95,4 @@
 - Công ty phần mềm an ninh mạng CrowdStrike thông báo đã tìm được nguyên nhân vụ sập hệ thống máy tính toàn cầu.
 - Thực hiện chủ trương tắt sóng 2G của Bộ Thông tin và Truyền thông vào tháng 9-2024, VinaPhone triển khai loạt ưu đãi khách hàng nâng cấp lên điện thoại 4G miễn phí và nhiều ưu đãi hấp dẫn khác để duy trì liên lạc mà không phải lo lắng về chi phí.
 - Với gần một nửa dân số Úc bị ảnh hưởng, vụ tấn công mạng MediSecure là một trong những vụ xâm phạm dữ liệu lớn nhất trong lịch sử quốc gia này.
-- Đầu tuần này, giới công nghệ xôn xao với thông tin Alphabet, công ty mẹ của Google, đang sắp hoàn tất thương vụ 'khủng' mua lại công ty khởi nghiệp an ninh mạng Wiz với giá 23 tỉ USD.
 ![life](Life.png)
