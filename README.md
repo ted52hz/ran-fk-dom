@@ -1,6 +1,13 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Nước lũ vừa rút khỏi sân trường, các thầy cô nhanh chóng vào các vùng bị cô lập bằng bè mảng tự chế để dọn trường lớp, bếp ăn bán trú khi khai giảng sắp cận kề.
+- Tuyến đường ven biển Độc Lập, TP Tuy Hòa vừa được tỉnh Phú Yên quy hoạch với nhiều công trình điểm nhấn, không gian công cộng.
+- 'Nghe tin nước lũ dâng cao tới sân trường, cả đêm tôi không ngủ được. Hôm sau tới trường đã thấy nước lên cao gần nửa phòng học, tôi quyết định bơi vào trường kiểm tra từng phòng học xem có thể vớt vát gì không', thầy Việt kể lại.
+- Từ tháng 5 đến nay, trường THCS Tạ Khoa (huyện Bắc Yên, tỉnh Sơn La) chịu bốn trận lũ lớn. Đây là năm thứ bảy trường này bị lũ tràn vào.
+- Bên cạnh tạm đình chỉ công tác hiệu trưởng Nguyễn Thanh Phong, huyện Vĩnh Thuận cũng chỉ đạo khẩn trương thanh tra trách nhiệm đối với ông.
+- Tự tư duy đề tài, sinh viên ra chợ, ra đường, đến các khu dân cư, trại trẻ mồ côi, các con kênh ô nhiễm để chụp ảnh đăng báo, trình bày sản phẩm truyền thông.
+- Cử tri Quảng Trị cho rằng giáo viên mầm non là nghề nặng nhọc, đi sớm về trễ, đòi hỏi phản xạ nhanh, sức khỏe tốt… nên đề nghị giảm tuổi hưu xuống 5 năm.
 - Mong muốn bảo toàn hương vị cà phê, nhóm sinh viên Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) đã tìm ra phương pháp thủy nướng, giữ nguyên bản vị gốc và hàm lượng dinh dưỡng cao.
 - Đài truyền hình Việt Nam cùng Herbalife Việt Nam tiếp tục đồng hành cùng tổ chức mùa thứ hai chương trình truyền hình thực tế "Sinh viên thế hệ mới 2024"
 - Vinamilk trao giải thưởng đặc biệt cho các tài năng robot trong Robotacon WRO 2024.
@@ -24,45 +31,38 @@
 - Theo thống kê mới nhất, 20.000 trường mầm non ở nước này đã phải đóng cửa vì không có học sinh, khiến giới chức Trung Quốc đang “sốt vó” tìm kiếm giải pháp cấp bách khi lực lượng lao động giảm do tỉ lệ sinh giảm.
 - Nhiều ý kiến cho rằng học thêm là nhu cầu có thật của học sinh, nhưng không ít ý kiến nói khó kiểm soát tiêu cực khi ‘mở cửa’ dạy thêm.
 - Hiện toàn tỉnh Đồng Tháp còn thiếu hơn 1.300 giáo viên, thiếu nhiều nhất là giáo viên mầm non và tiểu học. Năm học này dự kiến miễn học phí cho học sinh mầm non, giảm 50% học phí cấp trung học cơ sở.
-- Để tạo điều kiện cho thí sinh chưa thực hiện việc xác nhận nhập học đại học năm 2024, Bộ Giáo dục và Đào tạo gia hạn xác nhận nhập học trực tuyến thêm 4 ngày.
-- Phòng Giáo dục và Đào tạo TP Buôn Ma Thuột (Đắk Lắk) cho biết đã xét công nhận tốt nghiệp cho một học sinh lớp 9 không có hồ sơ, học bạ.
-- Dự kiến từ năm 2025, kỳ thi tốt nghiệp THPT sẽ bổ sung thêm môn tin học, công nghệ (công nghiệp, nông nghiệp).
-- Chi cục Thuế khu vực quận 7, huyện Nhà Bè đề nghị UBND TP.HCM thu hồi giấy phép thành lập Trường Quốc tế Mỹ.
-- Giữa 'ma trận' thông tin trên mạng, Chương trình tư vấn tuyển sinh - hướng nghiệp của báo Tuổi Trẻ như 'bộ lọc' uy tín, giúp học sinh chọn ngành, trường phù hợp.
-- Ngoài kỹ năng học tập, trau dồi ngoại ngữ, tham gia các hoạt động ngoại khóa, tân sinh viên còn cần thêm những gì khi bước vào giảng đường đại học?
-- Theo Vụ Giáo dục đại học - Bộ Giáo dục và Đào tạo, tỉ lệ thí sinh nhập học chiếm 81,87% số thí sinh trúng tuyển đại học đợt 1 năm 2024.
 ![Edu](Edu.png)
 ## Thời Sự 
-- TP.HCM vừa có chỉ đạo mới nhất về việc triển khai bồi thường, giải phóng mặt bằng, tái định cư cho người dân liên quan đến dự án cao tốc TP.HCM - Mộc Bài.
-- Hiện có nhiều nhà đầu tư tại TP.HCM muốn tham gia kinh doanh lĩnh vực trạm sạc xe điện. Tuy nhiên vẫn còn nhiều bất cập về thủ tục, quy định.
-- Sáng sớm nay (30-8), tại nhiều tỉnh miền Bắc có mưa to đến rất to kèm theo sấm sét dày đặc khiến nhiều người bất ngờ.
-- Sau hơn 20 năm giao trên 100ha đất TP Nha Trang cho Hà Quang làm dự án bất động sản và bán cho hàng ngàn hộ dân, tỉnh Khánh Hòa mới quyết định giá thu tiền sử dụng đất lần đầu nhưng chủ dự án chưa chấp nhận nộp.
-- Sáng 30-8, thi thể của nạn nhân thứ 2 bị nước cuốn trôi khi qua ngầm tràn tại xã Đăk Hlơ, huyện Kbang (Gia Lai) đã được tìm thấy.
-- Một số tin tức đáng chú ý: Đường dây nóng phản ánh giao thông dịp lễ; TP.HCM hạn chế xe nhiều đường khu vực trung tâm...
-- Sau một ngày nắng, thời tiết Bắc Bộ có mưa trở lại, Trung Bộ vẫn nắng nóng diện rộng, Nam Bộ duy trì mưa dông chiều tối.
-- Đó là những khẳng định của Tổng Bí thư, Chủ tịch nước Tô Lâm tại lễ kỷ niệm 79 năm Quốc khánh, nhấn mạnh quyết tâm hiện thực hóa các mục tiêu phát triển đất nước, không để ai bị bỏ lại phía sau.
-- Tổng Bí thư, Chủ tịch nước Tô Lâm nêu rõ quy hoạch Ban Chấp hành Trung ương Đảng, Bộ Chính trị, Ban Bí thư là công việc rất hệ trọng, sẽ được thực hiện thường xuyên từ nay đến Đại hội XIV.
-- Tối 29-8, Thành ủy, HĐND, UBND, Ủy ban MTTQ Việt Nam TP.HCM tổ chức tiệc chiêu đãi chào mừng 79 năm Quốc khánh nước CHXHCN Việt Nam tại trụ sở UBND TP.HCM.
-- Sở Giao thông vận tải tỉnh Phú Yên vừa có văn bản yêu cầu các địa phương hoàn thành di dời hạ tầng kỹ thuật điện trong tháng 9 nhằm giải phóng mặt bằng dự án cao tốc Bắc - Nam tại các đoạn Chí Thạnh - Vân Phong, Quy Nhơn - Chí Thạnh.
-- Ngày 29-8, Thủ tướng Phạm Minh Chính ký ban hành Chỉ thị số 30/CT-TTg về phát triển các ngành công nghiệp văn hóa Việt Nam.
-- Hiện hầu hết các ca sởi đều tập trung ở các quận, huyện vùng ven, TP.HCM đang tập trung dồn toàn bộ nguồn lực để tiêm vắc xin sởi phòng dịch.
-- UBND TP.HCM vừa có văn bản gửi thủ trưởng các sở ban ngành, chủ tịch UBND quận, huyện và TP Thủ Đức hướng dẫn tổ chức thi tuyển chức danh lãnh đạo, quản lý cấp phòng và tương đương.
-- Lực lượng cảnh sát giao thông sẽ dùng flycam (drone) để tuần tra khu vực cầu Rạch Miễu trong dịp lễ 2-9, nhằm phát hiện các phương tiện đi sai làn và các sự cố trên cầu để kịp thời xử lý tránh kẹt xe.
-- Xe giường nằm biển kiểm soát tỉnh Quảng Nam bất ngờ bốc cháy trên cao tốc Cam Lâm - Vĩnh Hảo.
-- ACV cho rằng việc nhà thầu liên danh Đèo Cả đánh giá gói thầu 6.300 tỉ ở sân bay Long Thành có thể  thất thoát ngân sách là nhận định chủ quan.
-- Liên quan đến việc TP.HCM ngưng cấp phép tầng hầm, Sở Xây dựng đã đề xuất các giải pháp trước mắt. Tuy nhiên để đảm bảo đúng pháp luật, Sở Quy hoạch - Kiến trúc phải vận dụng nghị quyết 98, sớm trình bổ sung quy hoạch không gian ngầm.
-- Tình trạng cáp viễn thông, dây điện chằng chịt "như mạng nhện" xuất hiện khắp các con đường, ngõ hẻm ở TP.HCM. Nhiều người dân thắc mắc, lỡ dây cáp mắc trúng xe, người đi đường thì ai sẽ chịu trách nhiệm?
-- Một nhóm người ngoại tỉnh đến Đà Nẵng dùng thủ đoạn hack tài khoản Facebook của người khác nhằm lừa đảo chiếm đoạt tài sản vừa bị Công an Đà Nẵng phát hiện.
-- Hà Nội sẽ có thêm 6 dự án nhà ở xã hội với tổng diện tích gần 13ha tại quận Ba Đình, Long Biên, huyện Thanh Trì và Thạch Thất.
-- Trong khi dọn dẹp hiện trường vụ nổ trước đó làm hai vợ chồng tử vong ở huyện Quỳ Hợp (Nghệ An), một vụ nổ mới xảy ra làm hai người lái máy xúc gặp nạn.
-- Sau 2 ngày xét xử, Tòa án nhân dân tỉnh Quảng Trị tuyên phạt 'Quân Idol' và 3 đồng phạm mức án tử hình vì tội vận chuyển trái phép chất ma túy, các bị cáo khác bị phạt từ 5 - 15 năm tù.
-- Ủy ban Kiểm tra Trung ương đã kỷ luật cảnh cáo chủ tịch HĐND, UBND tỉnh Bắc Giang và nhiều cán bộ khác. Đồng thời đề nghị kỷ luật một số cán bộ.
-- Phó giám đốc Sở Du lịch TP.HCM Lê Trương Hiền Hòa cho rằng khách từ Ấn Độ khi đến du lịch Việt Nam lần đầu thường chọn thủ đô để du lịch văn hóa. TP.HCM cũng tổ chức nhiều hoạt động xúc tiến du lịch với thị trường Ấn Độ.
-- Sở Giao thông vận tải TP.HCM vừa ra kế hoạch phục vụ nhu cầu người dân đi lại và đảm bảo trật tự, an toàn giao thông trong dịp lễ 2-9.
-- Thanh niên không nghề nghiệp vào quán ăn giật giỏ xách của khách nữ để lấy tiền tiêu xài. Người này đã bị tạm giữ hình sự sau một thời gian lẩn trốn.
-- Công an TP.HCM đã nắm được phương thức hoạt động, cách thức tổ chức xổ số Labubu và đang thu thập tài liệu để xử lý nếu phát hiện vi phạm.
-- Tại điện đàm, Thủ tướng Thái Lan Paetongtarn Shinawatra nhận lời mời sớm thăm Việt Nam, mong gặp và trao đổi trực tiếp với Thủ tướng Phạm Minh Chính thời gian tới.
-- Vành đai 4 TP.HCM có chiều dài khoảng 207km nối 5 tỉnh thành trong vùng Đông Nam Bộ, có mốc hoàn thành thủ tục trước 15-9.
+- Một căn nhà trên đường Quang Trung, quận Gò Vấp, TP.HCM bị cháy lúc rạng sáng 31-8. Ba người may mắn thoát nạn.
+- Một dự án đoạn cao tốc dài 15,3km nối TP.HCM và Bình Dương (trùng với đường Mỹ Phước - Tân Vạn) đang được kỳ vọng 'giải cứu' cho dự án vành đai 3 TP.HCM.
+- Từ 5h sáng nay (ngày 31-8), Chủ tịch UBND TP.HCM Phan Văn Mãi cùng 3.000 người dân TP.HCM đã tham gia chương trình đi bộ đồng hành đóng góp quỹ 'Vì người nghèo'.
+- Chung cư ở huyện Thanh Trì xảy ra cháy lúc nửa đêm. Công an Hà Nội đã điều động 6 xe cứu hỏa cùng hàng chục cảnh sát đến dập lửa, cứu nạn.
+- Nước lũ vừa rút khỏi sân trường, các thầy cô nhanh chóng vào các vùng bị cô lập bằng bè mảng tự chế để dọn trường lớp, bếp ăn bán trú khi khai giảng sắp cận kề.
+- Tin tức đáng chú ý: Sớm quyết định phương án đầu tư mở rộng đoạn cao tốc TP.HCM - Long Thành; Năm 2025 dự kiến Thừa Thiên Huế trở thành thành phố trực thuộc trung ương; Nghiên cứu sửa đổi Luật An toàn thực phẩm...
+- Dự báo hôm nay 31-8, thời tiết Bắc Bộ tiếp tục có mưa trong ngày, Trung Bộ nắng nóng giảm, Nam Bộ chiều mưa dông.
+- Văn phòng Chính phủ vừa có các văn bản giới thiệu chữ ký của ba tân phó thủ tướng Chính phủ: ông Nguyễn Hòa Bình, ông Hồ Đức Phớc và ông Bùi Thanh Sơn.
+- Lần đầu tiên Tỉnh ủy Khánh Hòa tổ chức hội nghị bàn về các vấn đề văn hóa của tỉnh với quy mô lớn, tổng kết 10 năm thực hiện nghị quyết số 33/NQ-TW, nhằm thực hiện mục tiêu xây dựng Khánh Hòa là nơi đáng sống.
+- Thủ tướng Phạm Minh Chính vừa ký công điện số 84 ngày 30-8 về tăng cường công tác bảo đảm an ninh, trật tự, an toàn giao thông, phòng cháy, chữa cháy và an toàn thực phẩm dịp nghỉ lễ Quốc khánh 2-9.
+- Diện tích toàn tỉnh Thừa Thiên Huế hiện hữu được công nhận đạt tiêu chí đô thị loại I, sẵn sàng để tiến lên trở thành thành phố trực thuộc trung ương trong tương lai.
+- Dịp nghỉ lễ Quốc khánh 2-9, thời tiết miền Bắc có mưa dông hai ngày đầu nghỉ lễ, Trung Bộ không còn nắng nóng, Tây Nguyên và Nam Bộ mưa dông vào chiều tối.
+- Nhân dịp chào mừng 79 năm Quốc khánh 2-9, Thảo cầm viên Sài Gòn (TP.HCM) tổ chức triển lãm ảnh Hướng về Trường Sa - Nhà giàn thân yêu.
+- Sở Giao thông vận tải TP.HCM vừa thông báo cấm xe tại hàng chục tuyến đường khu vực trung tâm phục vụ bắn pháo hoa đêm lễ 2-9.
+- Chiều tối 30-8, các cửa ngõ tại TP.HCM bắt đầu đông hơn vì nhiều người tranh thủ sau giờ làm để về quê, đi du lịch. Ngày mai bắt đầu lịch nghỉ lễ dịp 2-9.
+- Đắk Lắk giao doanh nghiệp 171ha rừng và đất lâm nghiệp để thực hiện dự án nuôi bò nhưng chuồng bò đang bỏ hoang, tình trạng mất rừng liên tục xảy ra.
+- Chủ đầu tư dự án du lịch Ninh Chữ Sailing Bay (Ninh Thuận) có tổng vốn đầu tư hơn 4.779 tỉ đồng vừa có công văn gửi Sở Kế hoạch và Đầu tư tỉnh đề nghị hướng dẫn thủ tục chấm dứt hoạt động dự án.
+- Ngày 30-8, Ủy ban Kiểm tra Tỉnh ủy Bình Thuận thông báo kết quả kỳ họp thứ 39 về việc xem xét, đề nghị thi hành kỷ luật ông Nguyễn Ngọc - cựu phó chủ tịch UBND tỉnh - cùng nhiều cựu cán bộ khác.
+- Ngay đầu giờ chiều 30-8, trời nắng nóng nhưng nhiều tuyến đường ở Hà Nội đã lâm vào cảnh ùn tắc kéo dài do người dân về quê, đi du lịch dịp nghỉ lễ.
+- Tỉnh Lâm Đồng ấn định 140 ngày tập trung tháo gỡ khó khăn, hoàn tất thủ tục đầu tư hai cao tốc Tân Phú - Bảo Lộc và Bảo Lộc - Liên Khương nối Đà Lạt đến TP.HCM.
+- Chuyến bay Vietjet Air, mang số hiệu VJ3321 đưa gần 300 khách Đài Loan đáp xuống sân bay quốc tế Phú Quốc chiều 30-8 để bắt đầu chuyến nghỉ lễ 2-9 ở hòn đảo xinh đẹp này.
+- Đường Hiệp Thành 43 ở quận 12, TP.HCM nhỏ hẹp, ngập nước nhiều năm nay đã hoàn thành nâng cấp, mở rộng, giúp việc đi lại của người dân thuận tiện hơn.
+- Liên quan vụ người phụ nữ tử vong vì tai nạn giao thông, trong máu có nồng độ cồn, tòa đã tuyên án người gây ra tai nạn.
+- Ông Nguyễn Huỳnh Đạt Nhân - giám đốc Công ty TNHH MTV nông thủy sản Tây Nam và một cựu cán bộ ngân hàng kháng cáo bản án của tòa Cần Thơ.
+- Tỉnh Lâm Đồng yêu cầu ngưng toàn bộ hoạt động sửa đường đến hết lễ Quốc khánh 2-9 để đảm bảo thuận lợi cho du khách đi du lịch.
+- Để giảm đi những tai nạn thương tâm, các trung tâm lái xe phải tăng cường dạy đạo đức cho người học.
+- Ngày 30-8, Ban Quản lý đường sắt đô thị TP.HCM cho biết các kỹ thuật viên lái tàu metro số 1 đã chạy thử nghiệm toàn tuyến.
+- Liên quan đến vụ nổ súng bắn hai vợ chồng ở Đồng Nai vào sáng 30-8 tại TP Biên Hòa, các bác sĩ cho hay người chồng đang trong tình trạng nguy kịch.
+- Cơ quan chức năng ghi nhận trên đèo Bảo Lộc (quốc lộ 20, đoạn qua tỉnh Lâm Đồng) có tình trạng đá lăn, chảy đất, tiềm ẩn sạt lở nguy hiểm.
+- Bà Sểnh Vlog (tên thật Triệu Thị L., 54 tuổi, ở thị trấn Lăng Can, huyện Lâm Bình, tỉnh Tuyên Quang) không may bị lũ cuốn tử vong sáng 30-8.
 ![New](News.png)
 ## Nhịp sống số 
 - Apple chính thức thông báo sẽ tổ chức sự kiện ra mắt iPhone 16, một trong những sự kiện công nghệ được mong đợi nhất hành tinh, vào ngày 9-9.
