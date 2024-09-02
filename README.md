@@ -1,13 +1,18 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Đoạn clip ghi lại cảnh giảng viên một trường đại học ở TP.HCM đọc điểm của sinh viên bằng biệt danh đang gây sốt trên mạng xã hội, thu hút hàng triệu người xem một cách thích thú.
+- Lớp học 'không giáo viên' đầu tiên sẽ khai giảng ở Anh tháng này. Tuy nhiên, ý tưởng giao phó việc giáo dục trẻ em cho AI lại gây tranh cãi.
+- Thăm học sinh Trường Hy Vọng tại Đà Nẵng, Thủ tướng Phạm Minh Chính mong các em được định hướng học những ngành như AI, chip bán dẫn.
+- Nhóm sinh viên tại TP.HCM đã chế tạo ra bọt rửa mặt chiết xuất từ lá đu đủ, được doanh nghiệp đầu tư 300 triệu đồng phát triển dự án.
+- Nhiều ngành có điểm chuẩn đợt 1 trên 27 điểm vẫn xét tuyển bổ sung. Trong khi đó có ngành điểm chuẩn đợt 2 tăng 8-10 điểm.
 - Từ nay đến năm 2030, Việt Nam sẽ đầu tư khoảng 26.000 tỉ đồng để đào tạo 50.000 kỹ sư bán dẫn. Và các trường đại học năm nay đồng loạt mở ngành thiết kế vi mạch, bán dẫn.
 - Những năm qua tại Đà Nẵng đã có hàng loạt ngôi trường mới có thiết kế đẹp ra đời. Những ngôi trường mang tính thẩm mỹ có tác dụng kích thích năng khiếu sáng tạo và cảm hứng học tập cho học sinh.
 - Ông Cao Thanh Bình, trưởng Ban Văn hóa xã hội (Hội đồng nhân dân TP.HCM), cho biết cơ quan này đã kết nối với cơ quan đồng cấp tại Hà Nội để phối hợp yêu cầu các cơ quan chức năng giải quyết cho bé N. đi học trở lại sau thời gian dài bé nghỉ học.
 - Các doanh nghiệp lĩnh vực vi mạch, bán dẫn trong khu vực đang có nhu cầu nhân lực rất lớn, nếu TP Đà Nẵng không có những chính sách thu hút nhân lực thì sẽ dễ chảy máu chất xám.
 - Nhiều cha mẹ hiện nay tư vấn chọn nghề cho con theo tiêu chí nghề nào giàu hơn, nghề nào tốt hơn. Theo GS Phan Văn Trường, đó là một sai lầm của cha mẹ khiến tương lai con cái nhiều bất ổn.
 - N.N.N. (ngụ quận 7, TP.HCM) năm nay gần 12 tuổi, đáng lẽ sẽ bước vào lớp 7 như hầu hết các bạn cùng trang lứa khác. Nhưng trước thềm năm học mới 2024-2025, N. tiếp tục có nguy cơ bị thất học vì… cha mẹ tranh chấp quyền nuôi con, 'giam' học bạ.
-- Một giảng viên Phổ thông Cao đẳng FPT Polytechnic, TP.HCM vừa bị buộc thôi việc vì có những lời nói không phù hợp với sinh viên.
+- Một giảng viên Phổ thông Cao đẳng FPT Polytechnic, TP.HCM vừa bị buộc thôi việc vì 'có những lời nói không phù hợp với sinh viên'.
 - 'Công ty chúng tôi đang thu hút nhân lực ngành bán dẫn ở nước ngoài, trong đó có Việt Nam đến làm việc', bà Lý Huệ Linh - phó tổng giám đốc phụ trách nhân sự Công ty Tekcore (Nam Đầu, Đài Loan), khẳng định.
 - Nước lũ vừa rút khỏi sân trường, các thầy cô nhanh chóng vào các vùng bị cô lập bằng bè mảng tự chế để dọn trường lớp, bếp ăn bán trú khi khai giảng sắp cận kề.
 - Tuyến đường ven biển Độc Lập, TP Tuy Hòa vừa được tỉnh Phú Yên quy hoạch với nhiều công trình điểm nhấn, không gian công cộng.
@@ -26,43 +31,38 @@
 - 270.000 là con số được chú ý nhất những ngày qua tại Úc. Đây là 'mức trần' tổng số du học sinh Chính phủ Úc cho phép các đại học, trường nghề tiếp nhận trong năm 2025.
 - Một số trường ở Đắk Nông bị sạt lở, sụt lún không an toàn để dạy học, cạnh đó là thiếu đến 2.100 giáo viên các cấp.
 - Kỳ thi Olympic thiên văn và vật lý thiên văn quốc tế 2024, Việt Nam có 5 học sinh dự thi và đều đoạt giải.
-- Đến nay có thêm hàng loạt trường đại học phía Nam công bố xét tuyển bổ sung đại học chính quy, với hàng ngàn chỉ tiêu nhiều ngành.
-- Sở Giáo dục và Đào tạo TP.HCM vừa có văn bản hướng dẫn về việc thực hiện chương trình nhà trường ngoài giờ chính khóa năm học 2024 - 2025.
-- Sở Giáo dục và Đào tạo Hà Nội công bố đề minh họa các môn thi vào lớp 10 năm học 2025-2026. Đây là kỳ thi tuyển sinh lớp 10 đầu tiên theo chương trình mới.
-- Ngày 29-8, ông Huỳnh Ngọc Nguyên - phó chủ tịch UBND huyện Vĩnh Thuận, tỉnh Kiên Giang - ký văn bản gửi Phòng Giáo dục và Đào tạo huyện về việc “khai giảng năm học mới và tổ chức giảng dạy, học tập của Trường THCS Thị Trấn”.
-- Dạy thêm, học thêm một khi trở thành nhu cầu thực tế thì mọi việc cấm đoán hay nới lỏng đều có thể mang lại những hệ quả tiêu cực.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Từ ngày 1-9, chính thức áp dụng quy định mới về tạm ngừng lưu thông, phong tỏa, niêm phong, tạm giữ và xử lý với tiền, tài sản liên quan khủng bố, tài trợ khủng bố.
-- Nằm khiêm tốn sát đường ray và quốc lộ 1 ở phía bắc đèo Cả (thị xã Đông Hòa, tỉnh Phú Yên) có một tấm bia vừa phục dựng cách đây chưa lâu.
-- Đồng Tháp là một trong những tỉnh tiên phong trong lĩnh vực chuyển đổi số ở khu vực Đồng bằng sông Cửu Long, lấy chính quyền số, kinh tế số, xã hội số làm trụ cột.
-- UBND phường 2, TP Sóc Trăng quản lý 2 chợ là chợ phường 2 và chợ Khánh Hùng với tổng số 302 sạp và 51 ki ốt. Do quản lý lỏng lẻo nên để xảy ra nhiều sai phạm về tài chính.
-- Hôm nay 1-9, thời tiết cả nước đều có mưa, có nơi mưa vừa, mưa to đến rất to. Vài nơi hửng nắng thời gian ngắn trong ngày.
-- Ghen tuông vì bạn gái đi sống với người đàn ông khác, Nguyễn Văn Linh cùng ba đồng phạm bàn bạc nhét ma túy vào cốp xe máy của tình địch nhằm "đẩy" anh này vào tù.
-- Quỹ Giải thưởng Ramon Magsaysay vừa công bố GS Nguyễn Thị Ngọc Phượng là một trong năm chủ nhân của mùa giải năm 2024.
-- Ủy ban An toàn giao thông quốc gia đánh giá nguyên nhân ùn tắc tại cửa ngõ hai thành phố lớn trong ngày đầu nghỉ lễ là do lưu lượng tham gia giao thông tăng đột biến, vượt quá năng lực của hệ thống kết cấu hạ tầng.
-- Ngày 31-8, Công an tỉnh Tây Ninh có quyết định khởi tố vụ án, khởi tố bắt tạm giam 45 bị can liên quan đến vụ dùng súng, cây chĩa 3 răng giải quyết mâu thuẫn gây chết người.
-- Chiều 31-8, lượng xe cộ di chuyển trên đường Nguyễn Thị Định vào cảng và phà Cát Lái đông đúc nên xảy ra tình trạng ùn ứ, lực lượng cảnh sát giao thông phải 'căng mình' phân luồng giao thông.
-- Do ảnh hưởng của triều cường dâng cao kết hợp mưa nhiều khiến bờ sông ở tỉnh Bến Tre liên tục bị sạt lở, ảnh hưởng đến cuộc sống người dân.
-- Thanh tra TP Cần Thơ không tiếp tục thực hiện kết luận của chính mình ban hành 7 năm trước, tức sẽ không thu hồi 10 giấy chứng nhận được cấp trái pháp luật.
-- Chiều 31-8, TP Đà Nẵng tổ chức hội nghị quán triệt, triển khai nghị quyết 136 của Quốc hội về tổ chức chính quyền đô thị và thí điểm một số cơ chế, chính sách đặc thù phát triển TP Đà Nẵng.
-- Đẩy nhanh việc cấp giấy phép khai thác thủy sản cho tàu cá “3 không” nhằm góp phần chống khai thác thủy sản bất hợp pháp (IUU), gỡ thẻ vàng EC.
-- Chủ tịch HĐND huyện Long Mỹ bị kỷ luật do vi phạm về đất đai, xây dựng, đồng thời vi phạm về những điều Đảng viên không được làm và trách nhiệm nêu gương.
-- Sau cú tông mạnh vào hộ lan đường Mai Chí Thọ (TP Thủ Đức), chiếc “siêu xe” (ô tô hiệu Maserati Levante) tiếp tục văng xa vài chục mét. Bánh xe cùng nhiều bộ phận khác của xe vương vãi khắp nơi.
-- Đến ngày thứ năm sau phẫu thuật, nam bệnh nhân 37 tuổi, người được ghép tim từ trái tim hiến tặng của "chàng trai Hà Nội" N.Đ.T. đã có thể đứng thẳng, tự ăn cháo và trò chuyện vui vẻ với mọi người.
-- Bộ Giao thông vận tải đang lấy ý kiến dự thảo thông tư mới trong đó có quy định về tải trọng, khổ giới hạn của đường bộ.
-- Sáng 31-8, mặt đường cầu vượt Nguyễn Hữu Cảnh (quận Bình Thạnh, TP.HCM) bị đọng nước cục bộ. Vị trí này nằm ngay nhịp chính giữa, nơi từng gặp sự cố đứt cáp dự ứng lực 2 năm trước.
-- Tàu SE2 hành trình từ Nam ra Bắc khi đến đoạn đường sắt thuộc huyện Phú Lộc, Thừa Thiên Huế lại trật bánh.
-- Bác sĩ Bệnh viện Đa khoa quốc tế Vinmec Phú Quốc vừa kịp thời mổ, cứu thành công một bệnh nhân nam bị tai nạn giao thông làm vỡ gan, máu tràn đầy ổ bụng và nguy cơ tử vong cao.
-- Tập đoàn Đức Long Gia Lai cho hay chưa thu lợi đồng nào từ dự án trồng cao su trên hàng trăm ha đất rừng mà Thanh tra Chính phủ vừa yêu cầu thu hồi đất.
-- Đường vành đai 4 TP.HCM dài 207km qua 5 tỉnh thành của vùng Đông Nam Bộ có tầm quan trọng đặc biệt trong việc kết nối giao thông và phát triển kinh tế.
-- Đây là một trong những nhiệm vụ mà Thủ tướng Phạm Minh Chính đề ra trong việc nâng cao hiệu quả cung cấp và sử dụng dịch vụ công trực tuyến.
-- Để người dân hiểu rõ hơn về ngày Quốc khánh 2-9, bộ đội biên phòng mang những lá cờ đỏ thắm xuống các buôn làng tặng bà con. Các điểm du lịch cũng tặng du khách mũ in hình cờ đỏ sao vàng...
-- Cao tốc TP.HCM - Mộc Bài có quy mô lần lượt 4 và 6 làn xe với các nút giao, cầu vượt, đường gom dân sinh hiện đại, khang trang.
-- Sáng 31-8, UBND tỉnh Bình Định tổ chức lễ khánh thành tuyến đường kết nối đường ven biển (ĐT639) với tổng vốn đầu tư 786 tỉ đồng trên địa bàn thị xã Hoài Nhơn.
-- Thời gian tới Bến Tre sẽ có cầu Cửa Đại kết nối với Tiền Giang, cầu Cổ Chiên 2 kết nối với Trà Vinh và cầu Đình Khao kết nối với tỉnh Vĩnh Long.
-- Từ đầu năm đến nay, cả nước xảy ra hơn 16.000 vụ tai nạn giao thông khiến hơn 7.000 người chết và hơn 12.000 người bị thương.
-- Sau hai cuộc nhậu, men lú cả người, L.T.Ơ. 'nổi hứng' chê vợ bạn nhậu già, xấu quá. Từ đây xảy ra cự cãi và mâu thuẫn nối tiếp, Ơ. bị bạn nhậu chém suýt chết.
+- Chào mừng 79 năm Quốc khánh 2-9, nghi lễ thượng cờ cấp Quốc gia đã được tổ chức trang nghiêm tại quảng trường Ba Đình (Hà Nội) vào sáng nay 2-9.
+- Lãnh đạo UBND phường Tân Lập (TP Nha Trang, tỉnh Khánh Hòa) cho biết người đàn ông tử vong nghi rơi từ tầng cao ở một tòa nhà có căn hộ du lịch là người Nga.
+- Công an TP Bảo Lộc (tỉnh Lâm Đồng) xác định tài xế ô tô 7 chỗ có nồng độ cồn và lấn trái đường, tông vào xe máy làm 2 người tử vong.
+- Lời tòa soạn: Kỷ niệm 79 năm Quốc khánh 2-9, Tổng Bí thư, Chủ tịch nước Tô Lâm có bài viết: 'Chuyển đổi số - Động lực quan trọng phát triển lực lượng sản xuất, hoàn thiện quan hệ sản xuất đưa đất nước bước vào kỷ nguyên mới'.
+- Hôm nay 2-9, mưa vẫn là chủ đạo trên cả nước, nhiều nơi mưa to, thời tiết này ảnh hưởng khá lớn đến việc đi lại, vui chơi của người dân.
+- Tối 1-9, cầu truyền hình mang tên 'Niềm tin và khát vọng' kỷ niệm 70 năm Hiệp định Genève và chuyến tàu tập kết năm 1954 - diễn ra ở TP.HCM, Đồng Tháp và Thanh Hóa.
+- Lực lượng chức năng TP Nha Trang đang khẩn trương điều tra vụ người đàn ông nghi rơi từ tầng cao tử vong đêm 1-9.
+- TP.HCM ghi nhận 432 ca bệnh sởi trong 3 tháng gần đây, trong khi 3 năm trước đó chỉ ghi nhận duy nhất 1 ca.
+- Khu vực chợ Thủ Đức - rốn ngập của TP Thủ Đức - tiếp tục gánh chịu những trận ngập sau mưa.
+- Ngày thứ 2 nghỉ lễ có hơn 15.200 trường hợp vi phạm bị cảnh sát xử phạt trong lĩnh vực giao thông đường bộ. Trong đó, 4.049 tài xế vi phạm nồng độ cồn, tăng mạnh so với 2.572 trường hợp hôm qua.
+- Sau nhiều giờ cố gắng khắc phục, đến 16h ngày 1-9, toàn bộ khách hàng bị ảnh hưởng bởi sự cố cháy trạm biến áp 220kV Cai Lậy tối 31-8 đã được cấp điện bình thường trở lại.
+- Ngày thứ 2 kỳ nghỉ lễ Quốc khánh, đường phố Hà Nội vắng vẻ. Các cửa ngõ, trục vành đai là điểm nóng ùn tắc nay cũng thưa thớt xe cộ, cả trong giờ cao điểm.
+- Các địa điểm di tích lịch sử như Nhà tù Hỏa Lò, Văn Miếu - Quốc Tử Giám... được nhiều gia đình, bạn trẻ lựa chọn trải nghiệm trong ngày Tết Độc lập để tìm hiểu văn hóa, lịch sử.
+- Ngày 1-9 (nhằm ngày 29 tháng bảy âm lịch), tỉnh Bình Định long trọng tổ chức lễ giỗ Hoàng đế Quang Trung tại đền thờ Tây Sơn tam kiệt nhân kỷ niệm 232 năm ngày mất của ông (1792 - 2024).
+- Từ năm 2021 đến nay, cả nước đã hoàn thành khoảng 40.600 căn nhà ở xã hội, trong đó Bắc Ninh, Hà Nội, Bắc Giang, Khánh Hòa, Thanh Hóa, Tây Ninh, Bình Dương… dẫn đầu cả nước.
+- Nhiều khu đất sau khi trúng đấu giá ở Hà Nội bỏ không, chưa xây dựng nhà cửa, chủ yếu phục vụ mua đi bán lại.
+- Khám phá ngôi nhà xưa, vườn trái cây, chụp ảnh ở cung đường tràm cho đến trải nghiệm các tour du lịch biển đảo Hòn Sơn, Nam Du (huyện Kiên Hải) và Phú Quốc (Kiên Giang) sẽ để lại cho du khách nhiều kỷ niệm đẹp trong kỳ nghỉ lễ 2-9.
+- Thăm học sinh Trường Hy Vọng tại Đà Nẵng, Thủ tướng Phạm Minh Chính mong các em được định hướng học những ngành như AI, chip bán dẫn.
+- 2 mỏ cát có trữ lượng và diện tích lớn nằm trên sông Trà Khúc được UBND tỉnh yêu cầu doanh nghiệp tham gia đấu giá phải đặt cọc hơn 1 tỉ đồng.
+- Thủ tướng Phạm Minh Chính đồng ý chủ trương lấn biển để tạo quỹ đất mới, mở rộng không gian làm khu thương mại tự do Đà Nẵng.
+- 9 cây cầu đi bộ kết nối ga metro số 1 dần lộ rõ hình dáng là một tín hiệu đáng mừng cho việc người dân sắp được trải nghiệm tuyến đường sắt đô thị hiện đại sau cả thập kỷ chờ đợi.
+- Sầu riêng Việt Nam có lợi thế vì mùa cung ứng kéo dài, trái cây chất lượng cao và xuất khẩu trực tiếp sang Trung Quốc bằng đường bộ thuận lợi hơn nhiều đối thủ cạnh tranh.
+- Bán 3 trái sầu riêng cổ, Dona, Ri6 đã thu về hơn 2,55 tỉ đồng, trong đó "nữ hoàng sầu riêng" Ri6 có mức giá hơn 1,4 tỉ đồng.
+- Tổng công ty Truyền tải điện quốc gia (EVNNPT) vừa thông tin đã xác định nguyên nhân ban đầu diễn ra sự cố cháy trạm biến áp 220kV Cai Lậy là sét đánh.
+- Tổng Thanh tra Chính phủ Đoàn Hồng Phong đã nêu ra khi trả lời kiến nghị cử tri TP.HCM gửi trước kỳ họp thứ 7 của Quốc hội về biện pháp xử lý tham nhũng vặt.
+- Trưa 1-9, lượng xe vào đường dẫn cao tốc TP.HCM - Long Thành - Dầu Giây ngày càng đông, gây ùn ứ kéo dài. Vì vậy lực lượng chức năng đã đóng mở cao tốc liên tục để điều tiết.
+- Cháy trạm biến áp cấp điện cho 16 xã, phường tại thị xã Cai Lậy cùng 15 xã, thị trấn của huyện Cai Lậy nên sự cố ảnh hưởng cả trăm nghìn người dân, đơn vị sản xuất, kinh doanh.
+- Từ sáng đến trưa 1-9, nhiều người dân đi lại dọc các tuyến đường TP.HCM cho biết cảm thấy cay mắt và tầm nhìn bị giảm do sương mù.
+- Tuần này thời tiết cả nước chủ đạo là mưa, trong đó miền Nam nhiều nơi mưa rất to.
+- Tài xế container thiếu quan sát va chạm với xe máy khiến 2 dì cháu chết tại chỗ.
 ![New](News.png)
 ## Nhịp sống số 
 - Đây là một trong những nhiệm vụ mà Thủ tướng Phạm Minh Chính đề ra trong việc nâng cao hiệu quả cung cấp và sử dụng dịch vụ công trực tuyến.
