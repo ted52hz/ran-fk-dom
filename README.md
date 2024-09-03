@@ -1,6 +1,10 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Là gen Z với những thế mạnh, năng lực riêng nhưng Trần Hương Lan, Lâm Nguyễn Thanh Thảo và Ngô An Hà Trang có chung niềm đam mê với môn STEM.
+- Theo Chính phủ Hà Lan, điện thoại di động và các thiết bị thông minh khác làm học sinh 'xao nhãng', làm giảm hiệu suất học tập và tương tác xã hội.
+- Không sử dụng bóng bay trong lễ khai giảng nhằm đảm bảo an toàn và góp phần bảo vệ môi trường. Đó là một trong những nội dung của công văn về chuẩn bị năm học mới do UBND quận 10, TP.HCM phát hành.
+- Bộ Giáo dục và Đào tạo vừa ban hành quy chế thi tốt nghiệp THPT năm 2025 với nhiều thay đổi. Đây là năm đầu tiên tổ chức thi theo chương trình giáo dục phổ thông 2018.
 - Đoạn clip ghi lại cảnh giảng viên một trường đại học ở TP.HCM đọc điểm của sinh viên bằng biệt danh đang gây sốt trên mạng xã hội, thu hút hàng triệu người xem một cách thích thú.
 - Lớp học 'không giáo viên' đầu tiên sẽ khai giảng ở Anh tháng này. Tuy nhiên, ý tưởng giao phó việc giáo dục trẻ em cho AI lại gây tranh cãi.
 - Thăm học sinh Trường Hy Vọng tại Đà Nẵng, Thủ tướng Phạm Minh Chính mong các em được định hướng học những ngành như AI, chip bán dẫn.
@@ -27,44 +31,41 @@
 - Hai đơn vị ký kết hợp tác trên nhiều lĩnh vực, trong đó có các hoạt động phục vụ cộng đồng.
 - Phụ huynh ở nhiều nước châu Âu đang đối diện nhiều áp lực khi chi phí mua đồng phục và đồ dùng học tập cho con tăng cao trước thềm bắt đầu năm học mới 2024 - 2025.
 - Các trường mầm non, tiểu học trên địa bàn TP.HCM đã phát hiện 21 học sinh bị bệnh sởi trong tháng 8-2024.
-- Ngày 29-8, tại Trường đại học Đại Diệp (Chương Hóa, Đài Loan), một số trường cao đẳng, trung cấp từ TP.HCM đã có những ký kết hợp tác đào tạo nhân lực ngành bán dẫn với đại học này.
-- 270.000 là con số được chú ý nhất những ngày qua tại Úc. Đây là 'mức trần' tổng số du học sinh Chính phủ Úc cho phép các đại học, trường nghề tiếp nhận trong năm 2025.
-- Một số trường ở Đắk Nông bị sạt lở, sụt lún không an toàn để dạy học, cạnh đó là thiếu đến 2.100 giáo viên các cấp.
-- Kỳ thi Olympic thiên văn và vật lý thiên văn quốc tế 2024, Việt Nam có 5 học sinh dự thi và đều đoạt giải.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Chào mừng 79 năm Quốc khánh 2-9, nghi lễ thượng cờ cấp Quốc gia đã được tổ chức trang nghiêm tại quảng trường Ba Đình (Hà Nội) vào sáng nay 2-9.
-- Lãnh đạo UBND phường Tân Lập (TP Nha Trang, tỉnh Khánh Hòa) cho biết người đàn ông tử vong nghi rơi từ tầng cao ở một tòa nhà có căn hộ du lịch là người Nga.
-- Công an TP Bảo Lộc (tỉnh Lâm Đồng) xác định tài xế ô tô 7 chỗ có nồng độ cồn và lấn trái đường, tông vào xe máy làm 2 người tử vong.
-- Lời tòa soạn: Kỷ niệm 79 năm Quốc khánh 2-9, Tổng Bí thư, Chủ tịch nước Tô Lâm có bài viết: 'Chuyển đổi số - Động lực quan trọng phát triển lực lượng sản xuất, hoàn thiện quan hệ sản xuất đưa đất nước bước vào kỷ nguyên mới'.
-- Hôm nay 2-9, mưa vẫn là chủ đạo trên cả nước, nhiều nơi mưa to, thời tiết này ảnh hưởng khá lớn đến việc đi lại, vui chơi của người dân.
-- Tối 1-9, cầu truyền hình mang tên 'Niềm tin và khát vọng' kỷ niệm 70 năm Hiệp định Genève và chuyến tàu tập kết năm 1954 - diễn ra ở TP.HCM, Đồng Tháp và Thanh Hóa.
-- Lực lượng chức năng TP Nha Trang đang khẩn trương điều tra vụ người đàn ông nghi rơi từ tầng cao tử vong đêm 1-9.
-- TP.HCM ghi nhận 432 ca bệnh sởi trong 3 tháng gần đây, trong khi 3 năm trước đó chỉ ghi nhận duy nhất 1 ca.
-- Khu vực chợ Thủ Đức - rốn ngập của TP Thủ Đức - tiếp tục gánh chịu những trận ngập sau mưa.
-- Ngày thứ 2 nghỉ lễ có hơn 15.200 trường hợp vi phạm bị cảnh sát xử phạt trong lĩnh vực giao thông đường bộ. Trong đó, 4.049 tài xế vi phạm nồng độ cồn, tăng mạnh so với 2.572 trường hợp hôm qua.
-- Sau nhiều giờ cố gắng khắc phục, đến 16h ngày 1-9, toàn bộ khách hàng bị ảnh hưởng bởi sự cố cháy trạm biến áp 220kV Cai Lậy tối 31-8 đã được cấp điện bình thường trở lại.
-- Ngày thứ 2 kỳ nghỉ lễ Quốc khánh, đường phố Hà Nội vắng vẻ. Các cửa ngõ, trục vành đai là điểm nóng ùn tắc nay cũng thưa thớt xe cộ, cả trong giờ cao điểm.
-- Các địa điểm di tích lịch sử như Nhà tù Hỏa Lò, Văn Miếu - Quốc Tử Giám... được nhiều gia đình, bạn trẻ lựa chọn trải nghiệm trong ngày Tết Độc lập để tìm hiểu văn hóa, lịch sử.
-- Ngày 1-9 (nhằm ngày 29 tháng bảy âm lịch), tỉnh Bình Định long trọng tổ chức lễ giỗ Hoàng đế Quang Trung tại đền thờ Tây Sơn tam kiệt nhân kỷ niệm 232 năm ngày mất của ông (1792 - 2024).
-- Từ năm 2021 đến nay, cả nước đã hoàn thành khoảng 40.600 căn nhà ở xã hội, trong đó Bắc Ninh, Hà Nội, Bắc Giang, Khánh Hòa, Thanh Hóa, Tây Ninh, Bình Dương… dẫn đầu cả nước.
-- Nhiều khu đất sau khi trúng đấu giá ở Hà Nội bỏ không, chưa xây dựng nhà cửa, chủ yếu phục vụ mua đi bán lại.
-- Khám phá ngôi nhà xưa, vườn trái cây, chụp ảnh ở cung đường tràm cho đến trải nghiệm các tour du lịch biển đảo Hòn Sơn, Nam Du (huyện Kiên Hải) và Phú Quốc (Kiên Giang) sẽ để lại cho du khách nhiều kỷ niệm đẹp trong kỳ nghỉ lễ 2-9.
-- Thăm học sinh Trường Hy Vọng tại Đà Nẵng, Thủ tướng Phạm Minh Chính mong các em được định hướng học những ngành như AI, chip bán dẫn.
-- 2 mỏ cát có trữ lượng và diện tích lớn nằm trên sông Trà Khúc được UBND tỉnh yêu cầu doanh nghiệp tham gia đấu giá phải đặt cọc hơn 1 tỉ đồng.
-- Thủ tướng Phạm Minh Chính đồng ý chủ trương lấn biển để tạo quỹ đất mới, mở rộng không gian làm khu thương mại tự do Đà Nẵng.
-- 9 cây cầu đi bộ kết nối ga metro số 1 dần lộ rõ hình dáng là một tín hiệu đáng mừng cho việc người dân sắp được trải nghiệm tuyến đường sắt đô thị hiện đại sau cả thập kỷ chờ đợi.
-- Sầu riêng Việt Nam có lợi thế vì mùa cung ứng kéo dài, trái cây chất lượng cao và xuất khẩu trực tiếp sang Trung Quốc bằng đường bộ thuận lợi hơn nhiều đối thủ cạnh tranh.
-- Bán 3 trái sầu riêng cổ, Dona, Ri6 đã thu về hơn 2,55 tỉ đồng, trong đó "nữ hoàng sầu riêng" Ri6 có mức giá hơn 1,4 tỉ đồng.
-- Tổng công ty Truyền tải điện quốc gia (EVNNPT) vừa thông tin đã xác định nguyên nhân ban đầu diễn ra sự cố cháy trạm biến áp 220kV Cai Lậy là sét đánh.
-- Tổng Thanh tra Chính phủ Đoàn Hồng Phong đã nêu ra khi trả lời kiến nghị cử tri TP.HCM gửi trước kỳ họp thứ 7 của Quốc hội về biện pháp xử lý tham nhũng vặt.
-- Trưa 1-9, lượng xe vào đường dẫn cao tốc TP.HCM - Long Thành - Dầu Giây ngày càng đông, gây ùn ứ kéo dài. Vì vậy lực lượng chức năng đã đóng mở cao tốc liên tục để điều tiết.
-- Cháy trạm biến áp cấp điện cho 16 xã, phường tại thị xã Cai Lậy cùng 15 xã, thị trấn của huyện Cai Lậy nên sự cố ảnh hưởng cả trăm nghìn người dân, đơn vị sản xuất, kinh doanh.
-- Từ sáng đến trưa 1-9, nhiều người dân đi lại dọc các tuyến đường TP.HCM cho biết cảm thấy cay mắt và tầm nhìn bị giảm do sương mù.
-- Tuần này thời tiết cả nước chủ đạo là mưa, trong đó miền Nam nhiều nơi mưa rất to.
-- Tài xế container thiếu quan sát va chạm với xe máy khiến 2 dì cháu chết tại chỗ.
+- Lực lượng dân quân thường trực giải cứu thành công người phụ nữ bế theo con nhỏ có ý định nhảy cầu.
+- Sáng nay (3-9), bão Yagi đi vào vùng biển phía đông bắc của khu vực Bắc Biển Đông, trở thành cơn bão số 3 trong năm 2024. Dự báo bão có thể mạnh cấp 13, giật cấp 16.
+- Hai người nước ngoài dùng nhiều thủ đoạn tinh vi lừa đảo, lấy cắp thông tin, chiếm đoạt, sử dụng thẻ tín dụng của nhiều người để mua hàng hóa giá trị cao rồi bán lại lấy tiền.
+- Trong sổ tay phóng viên của tôi, bốn chữ "hội nhập quốc tế" xuất hiện từ những năm 1990. Tuy nhiên, để đến được cụm từ hay lạ đó, Việt Nam đã phải chòi đạp khai phá con đường đổi mới và mở cửa từ năm 1986.
+- Ông Hùng Ky lùa đàn bò đi suốt trên cánh đồng nắng An Hải (huyện Ninh Phước, tỉnh Ninh Thuận). Đàn bò tìm cỏ, tìm nước, còn ông tìm đường thoát nghèo.
+- Hôm nay 3-9, thời tiết Bắc Bộ hửng nắng, về chiều có mưa dông. Trung Bộ mưa rào còn Nam Bộ, Tây Nguyên mưa to chiều tối.
+- Chiếc ô tô 7 chỗ lao nhanh, lấn qua làn ngược lại, tông hàng loạt xe máy đang đậu bên đường.
+- Eurowindow Nha Trang đầu tư tại khu du lịch bắc bán đảo Cam Ranh, hiện đã nộp lại hơn 11 tỉ đồng tiền thuê đất dự án vốn trước đó được tỉnh Khánh Hòa ưu đãi miễn 10 năm trái quy định pháp luật.
+- Tối 2-9, người dân TP.HCM đổ về trung tâm thành phố để vui chơi và xem bắn pháo hoa mừng 79 năm Quốc khánh 2-9.
+- Dự báo khoảng đêm 3-9, bão Yagi đi vào Biển Đông và gió mạnh tối đa có thể lên tới cấp 12, giật cấp 15 vùng gần tâm bão.
+- Từ ngày 5-9, đường Nguyễn Văn Bứa (đoạn từ Khu công nghiệp Nhị Xuân đến Ngã Ba Giồng) sẽ cấm xe đầu kéo theo hướng Long An đi TP.HCM trong khoảng thời gian từ 6h-8h, 11h-13h, 16h-18h.
+- Đang đổ dốc thì mất phanh, tài xế xe khách đã lao vào cổng nhà dân bên đường để tránh dòng xe đang chờ đèn đỏ ở chân dốc.
+- Một chiếc sà lan chở cát, gạch chạy đến khu vực biển thuộc xã đảo Hòn Tre (Kiên Giang) thì bị chìm khiến ba thuyền viên trôi dạt trên biển nhiều giờ.
+- Thời gian qua, nhiều bạn đọc phản ánh đến Tuổi Trẻ Online việc đăng ký học lái ô tô mà đợi mãi không được xếp lịch đi học và thi.
+- Nhiều người quay trở lại Hà Nội sớm một ngày dù chưa hết kỳ nghỉ lễ. Trên cao tốc Pháp Vân, cảnh sát giao thông dùng mô tô đặc chủng để tuần tra, chặn xe đi vào làn khẩn cấp.
+- Đến 16h ngày 2-9, nhiều tuyến đường ở TP Thủ Đức, TP.HCM vẫn bị ngập sâu do trận mưa lớn chiều hôm trước. Một số đường bị ngập nước cục bộ, đẩy người dân vào thế buộc phải để xe lội nước.
+- Trong Lễ hội sầu riêng huyện Krông Pắk (Đắk Lắk) lần 2, người dân và du khách vô cùng ấn tượng với sự xuất hiện của con rồng dài 120m đang được xác lập kỷ lục.
+- Bên cạnh việc chắc tay súng, chủ động, sẵn sàng, cán bộ, chiến sĩ nhà giàn DK 1 còn tham gia nhiều hoạt động văn hóa, thể thao dịp lễ Quốc khánh 2-9.
+- Sau một năm khai thác, kênh đào Nghĩa Hưng nối sông Đáy với sông Ninh Cơ tại Nam Định đã giúp gần 12.800 lượt tàu tải trọng đến 3.000 tấn qua lại, giảm được 5 tiếng trên 80km đường sông quanh co, chật hẹp.
+- Đi làm dịp nghỉ lễ Quốc khánh 2-9, người lao động được nhận tiền lương cao hơn so với ngày thường, vậy cụ thể công thức tính như thế nào?
+- Ba ngày vừa qua, tại TP.HCM và các tỉnh Nam Bộ mưa to, có nơi mưa rất to, bão có phải nguyên nhân khiến mưa dai dẳng?
+- Cơ quan chuyên môn của tỉnh Khánh Hòa nghi ngờ lượng dầu vón cục dạt vào biển Nha Trang trong những ngày qua xuất phát từ các tàu viễn dương.
+- Nút giao An Phú vốn đầu tư 3.400 tỉ đồng được đánh giá là nút giao hiện đại bậc nhất TP.HCM. Cùng với một số công trình trọng điểm khác, dịp lễ 2-9 này, nút giao An Phú vẫn được thi công xuyên suốt, không nghỉ.
+- Theo quyết định về tín dụng thực hiện cấp nước sạch và vệ sinh môi trường nông thôn, đối tượng vay vốn là hộ gia đình cư trú tại vùng nông thôn nơi đăng ký thường trú hoặc tạm trú.
+- Trên công trường cao tốc Quảng Ngãi - Hoài Nhơn những ngày lễ 2-9 vẫn nườm nượp công nhân, kỹ sư làm việc. Cả nghìn người cùng xe cơ giới, thiết bị căng mình thi công, gắng đưa cao tốc về đích đúng hoặc vượt tiến độ.
+- Theo Trung tâm Dự báo khí tượng thủy văn quốc gia ngày 2-9, ở vùng biển phía đông đảo Luzon (Philippines) có bão Yagi đang hoạt động với cường độ mạnh cấp 8, giật cấp 11. Dự báo chiều tối mai bão đi vào Biển Đông.
+- Sở Tài nguyên và Môi trường trình UBND TP Hà Nội dự thảo quy định điều kiện tách thửa, hợp thửa và diện tích, kích thước tối thiểu được tách với từng loại đất.
+- Đoạn quốc lộ 20 nối nội ô Đà Lạt - Cầu Đất dẫn đi Ninh Thuận sau đêm mưa lớn kéo dài bị sạt lở dài 18m.
+- Theo quy định của Luật Trật tự, an toàn giao thông đường bộ, bằng lái xe hạng B1 được cấp từ 1-1-2025 sẽ không còn được lái ô tô như trước đây.
+- Chủ tịch UBND TP Đà Lạt Đặng Quang Tú đã gởi thư đến Công ty Chang Shin Việt Nam để cảm ơn, vì đã dành quỹ phúc lợi đưa nhân viên đến Đà Lạt du lịch.
 ![New](News.png)
 ## Nhịp sống số 
+- Xã hội Trí tuệ nhân tạo được phác thảo là một xã hội ứng dụng sâu rộng trí tuệ nhân tạo vào mọi mặt chính trị, xã hội, kinh tế, khoa học công nghệ, kinh doanh, văn hóa, giáo dục.
 - Đây là một trong những nhiệm vụ mà Thủ tướng Phạm Minh Chính đề ra trong việc nâng cao hiệu quả cung cấp và sử dụng dịch vụ công trực tuyến.
 - Apple chính thức thông báo sẽ tổ chức sự kiện ra mắt iPhone 16, một trong những sự kiện công nghệ được mong đợi nhất hành tinh, vào ngày 9-9.
 - Nhiều nghiên cứu cho thấy trẻ dùng smartphone đối mặt nhiều nguy cơ, đặc biệt là chức năng thần kinh bị ảnh hưởng, bị 'đầu độc' và bắt nạt trực tuyến...
@@ -94,5 +95,4 @@
 - Hàng không Nga không bị ảnh hưởng bởi sự cố CrowdStrike vì các sân bay nước này sử dụng phần mềm bảo mật Astra, do chính doanh nghiệp Nga phát triển.
 - Cơ quan tình báo mạng của Úc cảnh báo một số trang web độc hại và mã không chính thức đang được phát tán sau sự cố sập dịch vụ đám mây của Microsoft.
 - Công ty phần mềm an ninh mạng CrowdStrike thông báo đã tìm được nguyên nhân vụ sập hệ thống máy tính toàn cầu.
-- Thực hiện chủ trương tắt sóng 2G của Bộ Thông tin và Truyền thông vào tháng 9-2024, VinaPhone triển khai loạt ưu đãi khách hàng nâng cấp lên điện thoại 4G miễn phí và nhiều ưu đãi hấp dẫn khác để duy trì liên lạc mà không phải lo lắng về chi phí.
 ![life](Life.png)
