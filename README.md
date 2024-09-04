@@ -1,6 +1,9 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Chiều 3-9, Trường phổ thông cao đẳng FPT Polytechnic xác nhận giảng viên L.V.M.D. sẽ tiếp tục tham gia giảng dạy tại trường.
+- Lãnh đạo Tổng cục Giáo dục nghề nghiệp cho biết Vụ Nhà giáo thuộc Tổng cục đang kiểm tra vụ giảng viên Trường Phổ thông cao đẳng FPT bị cho thôi việc.
+- Trong ngày tựu trường 2-9, hơn 18 triệu trẻ em Nga và hàng triệu trẻ em Ukraine chính thức bước vào năm học mới, trong đó có nhiều trẻ em Ukraine đang tị nạn ở nước ngoài.
 - Là gen Z với những thế mạnh, năng lực riêng nhưng Trần Hương Lan, Lâm Nguyễn Thanh Thảo và Ngô An Hà Trang có chung niềm đam mê với môn STEM.
 - Theo Chính phủ Hà Lan, điện thoại di động và các thiết bị thông minh khác làm học sinh 'xao nhãng', làm giảm hiệu suất học tập và tương tác xã hội.
 - Không sử dụng bóng bay trong lễ khai giảng nhằm đảm bảo an toàn và góp phần bảo vệ môi trường. Đó là một trong những nội dung của công văn về chuẩn bị năm học mới do UBND quận 10, TP.HCM phát hành.
@@ -28,41 +31,38 @@
 - Mong muốn bảo toàn hương vị cà phê, nhóm sinh viên Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) đã tìm ra phương pháp thủy nướng, giữ nguyên bản vị gốc và hàm lượng dinh dưỡng cao.
 - Đài truyền hình Việt Nam cùng Herbalife Việt Nam tiếp tục đồng hành cùng tổ chức mùa thứ hai chương trình truyền hình thực tế "Sinh viên thế hệ mới 2024"
 - Vinamilk trao giải thưởng đặc biệt cho các tài năng robot trong Robotacon WRO 2024.
-- Hai đơn vị ký kết hợp tác trên nhiều lĩnh vực, trong đó có các hoạt động phục vụ cộng đồng.
-- Phụ huynh ở nhiều nước châu Âu đang đối diện nhiều áp lực khi chi phí mua đồng phục và đồ dùng học tập cho con tăng cao trước thềm bắt đầu năm học mới 2024 - 2025.
-- Các trường mầm non, tiểu học trên địa bàn TP.HCM đã phát hiện 21 học sinh bị bệnh sởi trong tháng 8-2024.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Từ sản xuất vật liệu xanh đến xây dựng các công trình xanh đang là xu hướng của ngành xây dựng trong nước, thậm chí trở thành tiêu chuẩn bắt buộc.
+- Đường Tên Lửa ở quận Bình Tân, TP.HCM đã được kéo dài ra 300m với 6 làn xe, giúp kết nối trực tiếp tỉnh lộ 10 với đường Kinh Dương Vương, giảm áp lực giao thông cho khu vực.
+- Rạng sáng nay (4-9), bão số 3 (Yagi) tiếp tục mạnh lên cấp 11, giật cấp 13. Dự báo trong 24 giờ tới, cường độ bão sẽ mạnh thêm 2 cấp.
+- Dù ở rất xa nhưng bão số 3 cũng gây ảnh hưởng gián tiếp khiến TP.HCM, Nam Bộ và Tây Nguyên có mưa to.
+- Một số tin tức đáng chú ý: Mưa cổ tức sau nghỉ lễ, có doanh nghiệp mạnh tay chi khủng 250%; Chủ chuỗi rạp chiếu phim Galaxy báo lỗ liêu xiêu; Ái nữ nhà chủ tịch bất động sản Phát Đạt muốn bán ra cả triệu cổ phần...
+- Hôm nay 4-9, thời tiết Bắc Bộ đến tận Bình Thuận ngày nắng, có nơi nắng nóng. Nam Bộ và Tây Nguyên mưa to.
+- Nhiều dự án tại Đà Nẵng đang vướng mắc liên quan pháp lý hoặc "mắc kẹt" trong các kết luận thanh tra, bản án: Cocobay, Golden Hills City, khu công nghệ thông tin tập trung...
+- Dự báo bão số 3 (Yagi) có thể đạt cường độ cấp 14, giật cấp 17 ở trên Biển Đông và có hai kịch bản đổ bộ vào đất liền Việt Nam.
+- Một vụ va chạm liên hoàn 5 ô tô vừa xảy ra trên cao tốc Phan Thiết - Dầu Giây, đoạn gần trạm thu phí khiến nhiều xe hư hỏng nặng, kẹt xe kéo dài.
+- Thời điểm kiểm tra, ô tô 5 chỗ chở 8 người, tài xế vi phạm nồng độ cồn, trên xe có chứa ma túy.
+- Hai cuộc điện đàm và hội đàm trực tuyến của Tổng Bí thư, Chủ tịch nước Tô Lâm diễn ra trong cùng chiều 3-9. Nhiều biện pháp tăng cường quan hệ giữa Việt Nam với hai nước đã được nêu ra.
+- 4 ngày nghỉ lễ 2-9, lực lượng cảnh sát giao thông toàn TP.HCM xử lý 5.845 trường hợp vi phạm, trong đó 1.743 trường hợp vi phạm nồng độ cồn.
+- Phát hiện con chim có mỏ lớn đậu trên nhánh cây, anh Đặng Minh Thắng đuổi nhưng chim không bay đi mà sau đó bay về phía mình, nên anh đã bắt lại rồi giao kiểm lâm. Tiếp nhận chim đưa về cứu hộ, kiểm lâm xác định đây là chim cao cát bụng trắng.
+- Tổng thống Guinea-Bissau Umaro Sissoco Embaló sẽ thăm Việt Nam từ ngày 5 đến 8-9, với nhiều hoạt động tại Hà Nội.
+- Cảnh sát giao thông hai tỉnh Tiền Giang và Bến Tre đã phối hợp nhịp nhàng, chặn một chiều, xả một chiều để giải phóng nhanh lượng xe ùn ứ, nhờ đó giải quyết được tình trạng kẹt xe cầu Rạch Miễu trong dịp lễ 2-9.
+- Tổng thống Mỹ Joe Biden nhấn mạnh cam kết ủng hộ một Việt Nam mạnh, độc lập, thịnh vượng và tự cường. Tổng thống Hàn Quốc, Indonesia, Philippines và lãnh đạo nhiều nước khác cũng đã có điện mừng Quốc khánh Việt Nam.
+- Một người làm việc tại Đội cảnh sát bảo vệ thuộc Trại giam A2 gây tai nạn giao thông, trong hơi thở có nồng độ cồn.
+- Chiều 3-9, dòng xe ào ạt về hướng phà Cát Lái (phía Đồng Nai về TP.HCM) sau kỳ nghỉ lễ 2-9 gây ùn tắc. Để giải tỏa bớt lượng xe cộ, nhân viên phà phải chia làm nhiều nhóm, bán vé từ xa.
+- Từ đầu giờ chiều 3-9, khắp các cửa ngõ, tuyến đường chính của Hà Nội, người dân bắt đầu trở lại sau kỳ nghỉ lễ Quốc khánh 2-9.
+- Dự báo mới nhất cho thấy bão số 3 (bão Yagi) là một trong những cơn bão mạnh nhất năm 2024 hoạt động trên Biển Đông, có khả năng sẽ đổ bộ trực tiếp vào các tỉnh Bắc Bộ ở cường độ rất mạnh.
+- So với cùng kỳ năm 2023, số tài xế vi phạm nồng độ cồn bị xử lý trong 4 ngày nghỉ lễ tăng 6.997 trường hợp.
+- Bộ Công an đề xuất quy định mới giải quyết việc phạm nhân có nguyện vọng hiến mô, một phần bộ phận cơ thể con người.
+- Thủ tướng Phạm Minh Chính vừa ký ban hành công điện chỉ đạo về việc khẩn trương triển khai ứng phó bão số 3.
+- Qua 4 ngày nghỉ lễ 2-9, khách du lịch trong và ngoài nước đến Phú Quốc có tăng nhưng không cao, nguyên nhân do đâu?
+- Trong 2 ngày tới, bão số 3 (bão Yagi) sẽ liên tục tăng cường độ, có thể lên cấp 13, giật cấp 16 khi vào vùng biển phía đông đảo Hải Nam (Trung Quốc).
+- Các bằng lái xe gồm bằng B1 cấp trước ngày Luật Trật tự, an toàn giao thông đường bộ có hiệu lực được tiếp tục sử dụng theo thời hạn ghi trên bằng.
+- Hai học sinh lớp 5 ở Bình Phước vào đập nước chơi không may bị nước cuốn, cả hai cùng chết đuối thương tâm.
+- Cảnh sát dừng một thanh niên dùng chân điều khiển xe máy để xử lý thì phát hiện người này dương tính với chất ma túy.
+- Đồng Nai vừa ghi nhận ca mắc bệnh Whitmore (còn gọi là 'vi khuẩn ăn thịt người') ở bé gái 14 tuổi.
 - Lực lượng dân quân thường trực giải cứu thành công người phụ nữ bế theo con nhỏ có ý định nhảy cầu.
-- Sáng nay (3-9), bão Yagi đi vào vùng biển phía đông bắc của khu vực Bắc Biển Đông, trở thành cơn bão số 3 trong năm 2024. Dự báo bão có thể mạnh cấp 13, giật cấp 16.
-- Hai người nước ngoài dùng nhiều thủ đoạn tinh vi lừa đảo, lấy cắp thông tin, chiếm đoạt, sử dụng thẻ tín dụng của nhiều người để mua hàng hóa giá trị cao rồi bán lại lấy tiền.
-- Trong sổ tay phóng viên của tôi, bốn chữ "hội nhập quốc tế" xuất hiện từ những năm 1990. Tuy nhiên, để đến được cụm từ hay lạ đó, Việt Nam đã phải chòi đạp khai phá con đường đổi mới và mở cửa từ năm 1986.
-- Ông Hùng Ky lùa đàn bò đi suốt trên cánh đồng nắng An Hải (huyện Ninh Phước, tỉnh Ninh Thuận). Đàn bò tìm cỏ, tìm nước, còn ông tìm đường thoát nghèo.
-- Hôm nay 3-9, thời tiết Bắc Bộ hửng nắng, về chiều có mưa dông. Trung Bộ mưa rào còn Nam Bộ, Tây Nguyên mưa to chiều tối.
-- Chiếc ô tô 7 chỗ lao nhanh, lấn qua làn ngược lại, tông hàng loạt xe máy đang đậu bên đường.
-- Eurowindow Nha Trang đầu tư tại khu du lịch bắc bán đảo Cam Ranh, hiện đã nộp lại hơn 11 tỉ đồng tiền thuê đất dự án vốn trước đó được tỉnh Khánh Hòa ưu đãi miễn 10 năm trái quy định pháp luật.
-- Tối 2-9, người dân TP.HCM đổ về trung tâm thành phố để vui chơi và xem bắn pháo hoa mừng 79 năm Quốc khánh 2-9.
-- Dự báo khoảng đêm 3-9, bão Yagi đi vào Biển Đông và gió mạnh tối đa có thể lên tới cấp 12, giật cấp 15 vùng gần tâm bão.
-- Từ ngày 5-9, đường Nguyễn Văn Bứa (đoạn từ Khu công nghiệp Nhị Xuân đến Ngã Ba Giồng) sẽ cấm xe đầu kéo theo hướng Long An đi TP.HCM trong khoảng thời gian từ 6h-8h, 11h-13h, 16h-18h.
-- Đang đổ dốc thì mất phanh, tài xế xe khách đã lao vào cổng nhà dân bên đường để tránh dòng xe đang chờ đèn đỏ ở chân dốc.
-- Một chiếc sà lan chở cát, gạch chạy đến khu vực biển thuộc xã đảo Hòn Tre (Kiên Giang) thì bị chìm khiến ba thuyền viên trôi dạt trên biển nhiều giờ.
-- Thời gian qua, nhiều bạn đọc phản ánh đến Tuổi Trẻ Online việc đăng ký học lái ô tô mà đợi mãi không được xếp lịch đi học và thi.
-- Nhiều người quay trở lại Hà Nội sớm một ngày dù chưa hết kỳ nghỉ lễ. Trên cao tốc Pháp Vân, cảnh sát giao thông dùng mô tô đặc chủng để tuần tra, chặn xe đi vào làn khẩn cấp.
-- Đến 16h ngày 2-9, nhiều tuyến đường ở TP Thủ Đức, TP.HCM vẫn bị ngập sâu do trận mưa lớn chiều hôm trước. Một số đường bị ngập nước cục bộ, đẩy người dân vào thế buộc phải để xe lội nước.
-- Trong Lễ hội sầu riêng huyện Krông Pắk (Đắk Lắk) lần 2, người dân và du khách vô cùng ấn tượng với sự xuất hiện của con rồng dài 120m đang được xác lập kỷ lục.
-- Bên cạnh việc chắc tay súng, chủ động, sẵn sàng, cán bộ, chiến sĩ nhà giàn DK 1 còn tham gia nhiều hoạt động văn hóa, thể thao dịp lễ Quốc khánh 2-9.
-- Sau một năm khai thác, kênh đào Nghĩa Hưng nối sông Đáy với sông Ninh Cơ tại Nam Định đã giúp gần 12.800 lượt tàu tải trọng đến 3.000 tấn qua lại, giảm được 5 tiếng trên 80km đường sông quanh co, chật hẹp.
-- Đi làm dịp nghỉ lễ Quốc khánh 2-9, người lao động được nhận tiền lương cao hơn so với ngày thường, vậy cụ thể công thức tính như thế nào?
-- Ba ngày vừa qua, tại TP.HCM và các tỉnh Nam Bộ mưa to, có nơi mưa rất to, bão có phải nguyên nhân khiến mưa dai dẳng?
-- Cơ quan chuyên môn của tỉnh Khánh Hòa nghi ngờ lượng dầu vón cục dạt vào biển Nha Trang trong những ngày qua xuất phát từ các tàu viễn dương.
-- Nút giao An Phú vốn đầu tư 3.400 tỉ đồng được đánh giá là nút giao hiện đại bậc nhất TP.HCM. Cùng với một số công trình trọng điểm khác, dịp lễ 2-9 này, nút giao An Phú vẫn được thi công xuyên suốt, không nghỉ.
-- Theo quyết định về tín dụng thực hiện cấp nước sạch và vệ sinh môi trường nông thôn, đối tượng vay vốn là hộ gia đình cư trú tại vùng nông thôn nơi đăng ký thường trú hoặc tạm trú.
-- Trên công trường cao tốc Quảng Ngãi - Hoài Nhơn những ngày lễ 2-9 vẫn nườm nượp công nhân, kỹ sư làm việc. Cả nghìn người cùng xe cơ giới, thiết bị căng mình thi công, gắng đưa cao tốc về đích đúng hoặc vượt tiến độ.
-- Theo Trung tâm Dự báo khí tượng thủy văn quốc gia ngày 2-9, ở vùng biển phía đông đảo Luzon (Philippines) có bão Yagi đang hoạt động với cường độ mạnh cấp 8, giật cấp 11. Dự báo chiều tối mai bão đi vào Biển Đông.
-- Sở Tài nguyên và Môi trường trình UBND TP Hà Nội dự thảo quy định điều kiện tách thửa, hợp thửa và diện tích, kích thước tối thiểu được tách với từng loại đất.
-- Đoạn quốc lộ 20 nối nội ô Đà Lạt - Cầu Đất dẫn đi Ninh Thuận sau đêm mưa lớn kéo dài bị sạt lở dài 18m.
-- Theo quy định của Luật Trật tự, an toàn giao thông đường bộ, bằng lái xe hạng B1 được cấp từ 1-1-2025 sẽ không còn được lái ô tô như trước đây.
-- Chủ tịch UBND TP Đà Lạt Đặng Quang Tú đã gởi thư đến Công ty Chang Shin Việt Nam để cảm ơn, vì đã dành quỹ phúc lợi đưa nhân viên đến Đà Lạt du lịch.
 ![New](News.png)
 ## Nhịp sống số 
 - Xã hội Trí tuệ nhân tạo được phác thảo là một xã hội ứng dụng sâu rộng trí tuệ nhân tạo vào mọi mặt chính trị, xã hội, kinh tế, khoa học công nghệ, kinh doanh, văn hóa, giáo dục.
