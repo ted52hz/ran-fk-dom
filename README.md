@@ -1,6 +1,16 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- "Lần đầu đi biệt phái ngay trước khai giảng năm học mới, tôi đã khóc suốt trên đường vì nhớ nhà, nhớ con, bỡ ngỡ với nơi mình sắp gắn bó một năm. Nhưng không ngờ đó lại là khởi đầu cho một kỷ niệm đáng nhớ trong đời dạy học".
+- Bộ trưởng Bộ Giáo dục và Đào tạo yêu cầu các sở giáo dục và đào tạo căn cứ tình hình thực tế ở địa phương cho học sinh các cấp nghỉ học để tránh bão số 3.
+- Với những thành viên của Royal School, sự gắn kết tạo nên sức mạnh, giúp “hạt mầm” hạnh phúc vươn mình.
+- Hội đồng Giáo sư nhà nước vừa công bố danh sách 673 ứng viên được hội đồng giáo sư cơ sở đề nghị xét công nhận giáo sư, phó giáo sư năm 2024.
+- Chủ tịch UBND xã Hành Đức, huyện Nghĩa Hành, Quảng Ngãi đứng ra bảo lãnh để 'cháu bé 6 tuổi vẫn chưa có giấy khai sinh' được trường tiếp nhận vào học lớp 1 như bạn bè.
+- Chưa năm học nào ghi nhận làn sóng cấm học sinh dùng điện thoại trong giờ học lại bùng nổ mạnh mẽ như năm học 2024-2025.
+- Cục Đào tạo, Bộ Công an vừa công bố điểm chuẩn trúng tuyển vào hệ trung cấp Công an nhân dân năm 2024.
+- Mang bệnh tim trong người, đôi lúc nói chuyện bị hụt hơi nhưng với niềm yêu nghề giáo, chàng trai trẻ Tấn Phát vẫn sắp xếp đến lớp dạy cho các em.
+- Trường tiểu học Trần Hưng Đạo (quận 1, TP.HCM) đã tổ chức buổi lễ khai giảng gọn nhẹ, ấm tình thầy trò nhưng đầy niềm vui cho trẻ thơ ngày đầu đến trường.
+- Dẹp hàng rong trước cổng trường vừa tránh ngộ độc thực phẩm, vừa hạn chế học sinh ganh đua xài tiền, ăn vặt không cần thiết.
 - Sở Giáo dục và Đào tạo các tỉnh Bắc Ninh, Lạng Sơn, Thái Nguyên cho học sinh nghỉ học ngày 7-9 để tránh bão Yagi (bão số 3).
 - Một buổi lễ khai giảng đặc biệt đã được Vinamilk tổ chức cho các học sinh tại huyện Ba Tri, tỉnh Bến Tre như một món quà ý nghĩa đón các em đến trường đầu năm học mới.
 - Chào mừng năm học mới, Agribank triển khai chương trình ‘Thêm con chữ, bớt đói nghèo’, nhằm trao tặng tủ sách, thiết bị học tập, mang niềm vui tới thầy cô giáo và các em học sinh.
@@ -21,48 +31,38 @@
 - Sở Giáo dục và Đào tạo tỉnh Bắc Giang cho học sinh nghỉ học ngày 7-9 để tránh siêu bão Yagi (bão số 3). TP Hải Phòng và tỉnh Quảng Ninh cũng có chỉ đạo cho học sinh nghỉ học để tránh bão.
 - Diễn viên Chi Bảo - người sáng lập quỹ Hiểu về trái tim - cho biết toàn bộ chi phí từ học phí, đồng phục, dụng cụ học tập, bảo hiểm y tế… đều được nhà trường tài trợ 100%.
 - Sở Giáo dục và Đào tạo TP.HCM vừa ban hành quy định mới về thi học sinh giỏi cấp thành phố lớp 9, lớp 12.
-- Em N.N.N. sau một năm thất học đã bắt đầu năm học mới 2024-2025 tại Trường THCS Nguyễn Thị Thập (quận 7, TP.HCM).
-- Bộ Giáo dục và Đào tạo vừa cho phép thành lập phân hiệu Trường đại học Sư phạm TP.HCM tại Gia Lai, trên cơ sở tiếp nhận Trường cao đẳng Sư phạm Gia Lai.
-- Chúng ta nghĩ rằng chỉ cần cho con ngôi trường tốt thì con sẽ vững bước vào năm học mới. Nhưng còn một điều mà bố mẹ quên mất...
-- Mạng xã hội xuất hiện thông tin phụ huynh phải đưa cho trưởng Phòng Giáo dục và Đào tạo TP Quảng Ngãi 30 triệu mới vào được Trường THCS Nguyễn Nghiêm. Bước đầu cơ quan chức năng xác định tin gốc do một tài khoản ở nước ngoài đăng tải.
-- Không có tên trong danh sách học sinh, cháu vẫn được mẹ đưa đến trường dự lễ khai giảng. Nhưng ngày mai, khi tất cả học sinh đi học thì đứa trẻ ấy vẫn chưa thể bước vào lớp 1 vì không có giấy khai sinh.
-- Tại lễ khai giảng sáng 5-9, Trường đại học Công nghệ thông tin (Đại học Quốc gia TP.HCM) vinh danh các học sinh giỏi quốc gia vừa trúng tuyển vào trường.
-- Lễ khai giảng của cô trò ở điểm trường Tả Lủng, xã Sảng Tủng, huyện Đồng Văn, Hà Giang không hoa, không bài phát biểu, nhưng ấm áp tình thầy trò.
-- Nhiều trẻ mồ côi đã được Công an tỉnh Đắk Nông hỗ trợ xây nhà, cấp học bổng nhân dịp lễ khai giảng để các cháu tự tin bước vào năm học mới.
-- Ngay tại thủ đô, ngày ngày, nhiều giáo viên phải vượt sông ra đảo dạy học. Ngược lại, do đảo chưa có trường THPT nên nhiều học sinh cũng phải vượt sông vào đất liền tìm con chữ.
-- 'Đừng bao giờ để đến ngày mai những việc bạn có thể làm hôm nay' là lời nhắn nhủ đến học sinh Trường phổ thông liên cấp Marie Curie Hà Nội, nhân ngày khai giảng năm học mới.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Khuya 6-9, VNG bất ngờ công bố ông Kelly Wong, phó tổng giám đốc VNG, sẽ đảm nhiệm cương vị quyền tổng giám đốc thay ông Lê Hồng Minh.
-- Với tốc độ di chuyển 15-20km/h, theo hướng tây và Tây Tây Bắc, khu vực Móng Cái (Quảng Ninh) là nơi đón gió mạnh đầu tiên (cấp 6) từ 1-4h sáng 7-9.
-- Để phòng chống bão Yagi, người Hà Nội áp dụng nhiều biện pháp. Đáng chú ý, một số cửa hàng dùng xe container chặn trước cửa, phòng gió 'giật' vỡ kính.
-- Phó chủ nhiệm Ủy ban Tư pháp cho biết theo nhóm nghiên cứu của ủy ban, kết quả xử lý trường hợp kê khai tài sản không trung thực chưa tương xứng với thực tế.
-- Thủ tướng Chính phủ Phạm Minh Chính ký công điện số 88 yêu cầu các bộ ngành, địa phương tập trung ứng phó bão số 3 và mưa lũ sau bão.
-- Dự báo trong ngày 7-9, bão số 3 (Yagi) đổ bộ vào các tỉnh Bắc Bộ với trọng tâm là các tỉnh, thành Quảng Ninh, Hải Phòng, Thái Bình, Nam Định. Cơ quan khí tượng đã đưa ra cảnh báo rủi ro thiên tai cấp 4 đối với Quảng Ninh, Hải Phòng.
-- Một số tin tức đáng chú ý: Ông Nguyễn Huy Dũng là chủ tịch tỉnh Thái Nguyên; Ngân hàng 'đua' phát hành trái phiếu; Lượng khách quốc tế đến Việt Nam tăng 24,5% trong tháng 8-2024; Được đưa tối đa 1.000 lao động Việt sang Úc làm nông nghiệp...
-- Hôm nay 7-9, bão số 3 đổ bộ gây mưa gió dữ dội cho thời tiết Bắc Bộ. Trung Bộ và Nam Bộ mưa rào đến mưa to.
-- Để ứng phó với những diễn biến phức tạp của bão Yagi (bão số 3), chủ tịch UBND TP Hà Nội yêu cầu các cấp, ngành đình hoãn các cuộc họp không cấp bách để tập trung chống bão, lũ.
-- Người dân tại khu biệt thự, nhà liền kề ở Hà Nội cấp tập dùng bao cát, tấm inox che chắn, ngăn mưa lớn gây ngập nước vào hầm xe khi bão số 3 (Yagi) đổ bộ.
-- Thứ trưởng Bộ Tư pháp Mai Lương Khôi cho hay nhà 31 Phạm Hồng Thái (quận Hải Châu, TP Đà Nẵng) của Phan Văn Anh Vũ dưới 11 tỉ đồng mà bán đấu giá tới 10 lần chưa ai mua.
-- Sở Giáo dục và Đào tạo các tỉnh Bắc Ninh, Lạng Sơn, Thái Nguyên cho học sinh nghỉ học ngày 7-9 để tránh bão Yagi (bão số 3).
-- Trong đêm tối, tiếng loa phát thanh vận động người dân di dời vang lên liên hồi, hòa cùng tiếng bước chân dồn dập gọi nhau "chạy" bão Yagi của những hộ dân trong chung cư cũ nát tại Hải Phòng.
-- UBND TP Nha Trang vừa báo cáo 60 dự án đầu tư các hạng mục để thực hiện “Đồ án thiết kế ý tưởng đô thị phía đông đường Trần Phú - Phạm Văn Đồng” trên toàn bộ bờ biển Nha Trang, kéo dài 16,4km.
-- Để đảm bảo an toàn cho máy bay đang khai thác, bảo dưỡng tại sân bay Nội Bài, Vietnam Airlines đã triển khai chằng néo máy bay, đưa máy bay về khu vực an toàn trước khi bão vào.
-- Hai trẻ từ mái ấm Hoa Hồng chuyển đến Trung tâm Nuôi dưỡng bảo trợ trẻ em Gò Vấp trở nặng đã được đưa vào Bệnh viện Nhi đồng 2 khám và điều trị.
-- Chiều 6-9, đoàn cựu chiến binh và thân nhân lính thủy đánh bộ Mỹ, do đại sứ Mỹ tại Việt Nam, ông Marc Knapper dẫn đầu, đã đến thăm các nạn nhân chất độc da cam tại Đà Nẵng.
-- Ngày 6-9, Công an tỉnh Kiên Giang cho biết đơn vị đã phối hợp với Bộ đội biên phòng tỉnh Kiên Giang tiếp nhận 60 người bị lừa “việc nhẹ lương cao”, bị lực lượng chức năng Campuchia bắt giữ vừa qua.
-- Đó là chia sẻ của Tổng thống Guinea-Bissau Umaro Sissoco Embaló trong cuộc hội đàm với Tổng Bí thư, Chủ tịch nước Tô Lâm chiều 6-9 tại Phủ Chủ tịch.
-- Đây là lần đầu tiên hai nhà lãnh đạo gặp nhau trên cương vị mới, cũng là chuyến thăm Việt Nam đầu tiên của một tổng thống Guinea-Bissau kể từ khi hai nước thiết lập quan hệ ngoại giao.
-- Sở Giao thông vận tải TP.HCM đã hoàn thiện đề án với nhiều chính sách hấp dẫn để các doanh nghiệp chuyển đổi phương tiện xe buýt điện...
-- UBND TP.HCM chỉ đạo Sở Giáo dục và Đào tạo TP.HCM phối hợp trung tâm y tế, trạm y tế tổ chức tiêm chủng tại trường học hoặc trạm y tế, để đảm bảo trẻ được tiêm vắc xin sởi càng sớm càng tốt.
-- "Vì tư tưởng chờ quyết định sắp xếp ở trên, nhiều cơ sở vật chất, tài sản công không chỉ những thứ phục vụ khu phố mà cả đơn vị hành chính, sự nghiệp, thiết chế văn hóa, thể thao không làm gì cả”, Phó chủ tịch UBND TP.HCM Võ Văn Hoan nói.
-- Tổng Bí thư, Chủ tịch nước Tô Lâm chủ trì họp Bộ Chính trị cho ý kiến dự thảo báo cáo đánh giá thực hiện chiến lược phát triển kinh tế - xã hội.
-- Mỗi khi bão đến, dân miền Trung quê tôi đã có nhiều cách chống chọi để giảm thiểu thiệt hại, đảm bảo an toàn tính mạng, tài sản.
-- Dự báo khoảng 22h đêm 6-9, bão số 3 đi vào vịnh Bắc Bộ, gió mạnh cấp 14-15 và vẫn duy trì gió giật cấp 17.
-- Nam thanh niên ở An Giang lừa đảo, chiếm đoạt tiền của nhiều người bằng chiêu mua bán ‘xe hải quan’.
-- Chính phủ vừa có nghị định về công tác xã hội, trong đó quy định cụ thể 6 hành vi bị nghiêm cấm như trục lợi chính sách, xâm phạm lợi ích nhà nước...
-- Đang trên đường đi đón con, người phụ nữ 52 tuổi ở TP.HCM bị nhánh cây từ độ cao gần 20m rơi trúng tử vong. Cậu sinh viên năm 2 từ nay mồ côi mẹ…
-- Sau nhiều năm đấu tranh với nạn làm giả khoai tây Đà Lạt ngay bên trong Đà Lạt, các vựa nông sản đã dời đi khỏi TP này với cách hoạt động tinh vi hơn.
+- Dự thảo quy định tách thửa, hợp thửa đất ở TP.HCM theo Luật Đất đai mới đã bỏ điều kiện quy hoạch tỉ lệ 1/2000, tỉ lệ 1/500.
+- Một vụ sạt lở đất xảy ra rạng sáng 8-9 tại huyện Đà Bắc, tỉnh Hòa Bình làm sập nhà khiến 4 người thiệt mạng thương tâm, 1 người bị thương.
+- Tuổi Trẻ làm cầu nối cùng bạn đọc chia sẻ với đồng bào khó khăn sau cơn bão số 3.
+- Ảnh hưởng của bão Yagi đã khiến nhiều tỉnh thành miền Bắc và nhiều địa bàn của Hà Nội bị mất điện trên diện rộng.
+- Vào sáng sớm nay 8-9, sau khi bão số 3 quét qua vào tối, đêm qua, nhiều khu vực ở Hà Đông, Hoài Đức (Hà Nội) rất nhiều cây xanh gãy, bật gốc.
+- Tin tức đáng chú ý: Chủ tịch Quốc hội Trần Thanh Mẫn và đoàn đại biểu cấp cao Việt Nam lên đường thăm chính thức Liên bang Nga; Vô hiệu hóa hơn 400.000 website, tài khoản nghi vấn hoạt động lừa đảo trực tuyến...
+- Bí thư Thành ủy Hà Nội Bùi Thị Minh Hoài nói như vậy khi trao đổi với báo chí đêm muộn 7-9 về tình hình ứng phó với cơn bão số 3 tại thủ đô.
+- Hôm nay 8-9, các tỉnh Bắc Bộ vẫn duy trì mưa to đến rất to do ảnh hưởng của bão số 3 suy yếu. Nam Bộ mưa to về chiều.
+- Thứ trưởng Bộ Tài nguyên và Môi trường Lê Minh Ngân chia sẻ với báo chí khi nói về việc điều chỉnh bảng giá đất.
+- Bão số 3 ảnh hưởng trực tiếp tới thủ đô Hà Nội với sức gió mạnh cấp 10, giật cấp 12 khiến nhiều cây xanh ngã đổ, đường phố tan hoang.
+- Phó thủ tướng Trần Hồng Hà chỉ đạo các địa phương cần nỗ lực cao nhất, khôi phục ngay lưới điện, hệ thống liên lạc, đường giao thông để nhanh chóng khắc phục hậu quả sau bão số 3.
+- Chiều 7-9, mây đen cuồn cuộn và mưa trút xuống nhiều nơi tại TP.HCM. Trong mưa kèm theo dông, gió giật mạnh.
+- Trao đổi với Tuổi Trẻ, đại diện của Tổng công ty Điện lực Hà Nội (EVNHANOI) cho hay thông tin lan truyền trên mạng và một số trang báo về việc Hà Nội sẽ cắt điện toàn thành phố vào 19h tối nay là sai sự thật.
+- Dù mái ấm Hoa Hồng hoạt động vượt so với cấp phép trên 100% nhưng thanh tra, kiểm tra chưa xử lý được, theo thứ trưởng Bộ Lao động - Thương binh và Xã hội: "Có vấn đề liên quan đến buông lỏng quản lý".
+- Cục trưởng Cục Quản lý đê điều và phòng chống thiên tai cho biết chưa thể thống kê thiệt hại nhưng ghi nhận sơ bộ đến chiều 7-9 có một người thiệt mạng, 6 tàu chìm.
+- Một người đàn ông 46 tuổi ở TP Phan Rang - Tháp Chàm (Ninh Thuận) đi câu cá không may bị trượt chân rơi xuống biển tử vong.
+- Tính đến 17h chiều 7-9, bão số 3 đã làm người 4 người chết (Quảng Ninh 3 người và Hải Dương 1 người) và 78 người bị thương.
+- Một nam thanh niên ở Đà Nẵng nhận tiền chuyển nhầm 300 triệu đồng, dù nạn nhân xin trả lại và công an có thông báo đề nghị trả tiền chuyển nhầm nhưng người này vẫn không thực hiện.
+- Bão số 3 vẫn còn gió mạnh cấp 12, giật cấp 13 và đi sâu vào đất liền. Bão gây gió mạnh cấp 6-7, giật cấp 9-10 tại Hà Nội trong chiều và đêm 7-9, cơ quan khí tượng khuyến cáo người dân không ra khỏi nhà.
+- Thanh tra tỉnh Bạc Liêu xác định hàng loạt vụ việc có dấu hiệu tội phạm liên quan tới đất đai xảy ra tại Sở Tài nguyên và Môi trường, UBND thành phố Bạc Liêu...
+- Dù không phải là địa phương tâm bão số 3, nhưng đêm 6, sáng 7-9, ảnh hưởng từ cơn bão này đã gây lốc xoáy, mưa lớn làm 60 nhà dân ở huyện vùng cao, biên giới Mường Lát (Thanh Hóa) tốc mái.
+- Dọc tuyến đường nối giữa thành phố Cẩm Phả và huyện Vân Đồn (Quảng Ninh), hàng loạt cột điện, cây xanh gãy đổ ngổn ngang.
+- Báo cáo của viện trưởng Viện kiểm sát nhân dân tối cao nêu rõ việc các cơ quan chức năng đã tạm giữ, kê biên, ngừng giao dịch số tài sản lớn trong các vụ án tham nhũng, kinh tế.
+- Bão số 3 đã suy yếu thành áp thấp nhiệt đới. Khu vực Bắc Bộ và Thanh Hóa có mưa to đến rất to.
+- Vụ lúa hè thu 2024 của người dân ở Cà Mau, Kiên Giang đã và đang bước vào thu hoạch nhưng lại bị sập do ảnh hưởng mưa bão. Công an Kiên Giang cử lực lượng xuống hỗ trợ bà con thu hoạch lúa, chạy ngập.
+- Thủ tướng yêu cầu Bộ Tài chính đẩy mạnh tăng thu, tiết kiệm chi, thu đúng, thu đủ và nghiên cứu huy động thêm khoảng 100.000 tỉ đồng trái phiếu cho đầu tư phát triển hạ tầng chiến lược.
+- Phó thủ tướng Trần Hồng Hà yêu cầu địa phương ven biển phải duy trì cấm đường, hạn chế tối đa người dân ra khỏi nhà đến sau 20h để giảm thiểu thiệt hại về sức khỏe, tính mạng cho nhân dân do bão số 3 gây ra.
+- Hai vợ chồng bị chó cắn khi cho vật nuôi uống thuốc, 3 tháng sau người vợ phát bệnh và tử vong do mắc bệnh dại.
+- Được dự báo có thể ảnh hưởng mưa lớn, dông lốc do bão số 3 (bão Yagi), nông dân Nghệ An đang hối hả thu hoạch lúa hè thu.
+- Nhiều người dân có hoàn cảnh khó khăn tại TP.HCM bị đục thủy tinh thể được đội ngũ bác sĩ, chuyên gia tại TP.HCM khám và mổ mắt miễn phí.
 ![New](News.png)
 ## Nhịp sống số 
 - Với Galaxy Z Fold6, bạn có thể thoải mái sáng tạo và sáng tác bất cứ khi nào, bất cứ nơi đâu, đặc biệt hữu ích với những bạn trong ngành thiết kế, đồ họa, truyền thông…
