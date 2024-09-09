@@ -1,6 +1,9 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Đại học Bách khoa Hà Nội, Trường đại học Nông - Lâm Bắc Giang cùng nhiều trường đại học vừa thông báo điều chỉnh kế hoạch học tập, cho sinh viên tiếp tục nghỉ học hoặc học trực tuyến sau bão số 3.
+- Bắc Ninh, Hải Phòng, Cao Bằng và nhiều tỉnh/thành phố vừa tiếp tục thông báo cho học sinh nghỉ học thứ hai, ngày 9-9 để khắc phục hậu quả sau bão số 3.
+- Trường Phổ thông dân tộc bán trú THCS Trung Lý (Thanh Hóa) không cho học sinh về nhà cuối tuần, nấu cơm cho 460 học sinh ăn ngày mưa bão.
 - "Lần đầu đi biệt phái ngay trước khai giảng năm học mới, tôi đã khóc suốt trên đường vì nhớ nhà, nhớ con, bỡ ngỡ với nơi mình sắp gắn bó một năm. Nhưng không ngờ đó lại là khởi đầu cho một kỷ niệm đáng nhớ trong đời dạy học".
 - Bộ trưởng Bộ Giáo dục và Đào tạo yêu cầu các sở giáo dục và đào tạo căn cứ tình hình thực tế ở địa phương cho học sinh các cấp nghỉ học để tránh bão số 3.
 - Với những thành viên của Royal School, sự gắn kết tạo nên sức mạnh, giúp “hạt mầm” hạnh phúc vươn mình.
@@ -28,41 +31,38 @@
 - Trong lễ khai giảng 5-9, nhiều trường học đã gửi đến học trò và cả giáo viên của mình những thông điệp ý nghĩa, cảm xúc cho năm học mới.
 - Ở cao nguyên đá Đồng Văn (Hà Giang), từ tờ mờ sáng trong sương sớm, người mẹ đưa con đến trường.
 - Hiệu trưởng Trường đại học Công nghệ thông tin (Đại học Quốc gia TP.HCM) nhắn nhủ tân sinh viên ‘đừng chìm đắm trong mạng xã hội, TikTok’.
-- Sở Giáo dục và Đào tạo tỉnh Bắc Giang cho học sinh nghỉ học ngày 7-9 để tránh siêu bão Yagi (bão số 3). TP Hải Phòng và tỉnh Quảng Ninh cũng có chỉ đạo cho học sinh nghỉ học để tránh bão.
-- Diễn viên Chi Bảo - người sáng lập quỹ Hiểu về trái tim - cho biết toàn bộ chi phí từ học phí, đồng phục, dụng cụ học tập, bảo hiểm y tế… đều được nhà trường tài trợ 100%.
-- Sở Giáo dục và Đào tạo TP.HCM vừa ban hành quy định mới về thi học sinh giỏi cấp thành phố lớp 9, lớp 12.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Dự thảo quy định tách thửa, hợp thửa đất ở TP.HCM theo Luật Đất đai mới đã bỏ điều kiện quy hoạch tỉ lệ 1/2000, tỉ lệ 1/500.
-- Một vụ sạt lở đất xảy ra rạng sáng 8-9 tại huyện Đà Bắc, tỉnh Hòa Bình làm sập nhà khiến 4 người thiệt mạng thương tâm, 1 người bị thương.
-- Tuổi Trẻ làm cầu nối cùng bạn đọc chia sẻ với đồng bào khó khăn sau cơn bão số 3.
-- Ảnh hưởng của bão Yagi đã khiến nhiều tỉnh thành miền Bắc và nhiều địa bàn của Hà Nội bị mất điện trên diện rộng.
-- Vào sáng sớm nay 8-9, sau khi bão số 3 quét qua vào tối, đêm qua, nhiều khu vực ở Hà Đông, Hoài Đức (Hà Nội) rất nhiều cây xanh gãy, bật gốc.
-- Tin tức đáng chú ý: Chủ tịch Quốc hội Trần Thanh Mẫn và đoàn đại biểu cấp cao Việt Nam lên đường thăm chính thức Liên bang Nga; Vô hiệu hóa hơn 400.000 website, tài khoản nghi vấn hoạt động lừa đảo trực tuyến...
-- Bí thư Thành ủy Hà Nội Bùi Thị Minh Hoài nói như vậy khi trao đổi với báo chí đêm muộn 7-9 về tình hình ứng phó với cơn bão số 3 tại thủ đô.
-- Hôm nay 8-9, các tỉnh Bắc Bộ vẫn duy trì mưa to đến rất to do ảnh hưởng của bão số 3 suy yếu. Nam Bộ mưa to về chiều.
-- Thứ trưởng Bộ Tài nguyên và Môi trường Lê Minh Ngân chia sẻ với báo chí khi nói về việc điều chỉnh bảng giá đất.
-- Bão số 3 ảnh hưởng trực tiếp tới thủ đô Hà Nội với sức gió mạnh cấp 10, giật cấp 12 khiến nhiều cây xanh ngã đổ, đường phố tan hoang.
-- Phó thủ tướng Trần Hồng Hà chỉ đạo các địa phương cần nỗ lực cao nhất, khôi phục ngay lưới điện, hệ thống liên lạc, đường giao thông để nhanh chóng khắc phục hậu quả sau bão số 3.
-- Chiều 7-9, mây đen cuồn cuộn và mưa trút xuống nhiều nơi tại TP.HCM. Trong mưa kèm theo dông, gió giật mạnh.
-- Trao đổi với Tuổi Trẻ, đại diện của Tổng công ty Điện lực Hà Nội (EVNHANOI) cho hay thông tin lan truyền trên mạng và một số trang báo về việc Hà Nội sẽ cắt điện toàn thành phố vào 19h tối nay là sai sự thật.
-- Dù mái ấm Hoa Hồng hoạt động vượt so với cấp phép trên 100% nhưng thanh tra, kiểm tra chưa xử lý được, theo thứ trưởng Bộ Lao động - Thương binh và Xã hội: "Có vấn đề liên quan đến buông lỏng quản lý".
-- Cục trưởng Cục Quản lý đê điều và phòng chống thiên tai cho biết chưa thể thống kê thiệt hại nhưng ghi nhận sơ bộ đến chiều 7-9 có một người thiệt mạng, 6 tàu chìm.
-- Một người đàn ông 46 tuổi ở TP Phan Rang - Tháp Chàm (Ninh Thuận) đi câu cá không may bị trượt chân rơi xuống biển tử vong.
-- Tính đến 17h chiều 7-9, bão số 3 đã làm người 4 người chết (Quảng Ninh 3 người và Hải Dương 1 người) và 78 người bị thương.
-- Một nam thanh niên ở Đà Nẵng nhận tiền chuyển nhầm 300 triệu đồng, dù nạn nhân xin trả lại và công an có thông báo đề nghị trả tiền chuyển nhầm nhưng người này vẫn không thực hiện.
-- Bão số 3 vẫn còn gió mạnh cấp 12, giật cấp 13 và đi sâu vào đất liền. Bão gây gió mạnh cấp 6-7, giật cấp 9-10 tại Hà Nội trong chiều và đêm 7-9, cơ quan khí tượng khuyến cáo người dân không ra khỏi nhà.
-- Thanh tra tỉnh Bạc Liêu xác định hàng loạt vụ việc có dấu hiệu tội phạm liên quan tới đất đai xảy ra tại Sở Tài nguyên và Môi trường, UBND thành phố Bạc Liêu...
-- Dù không phải là địa phương tâm bão số 3, nhưng đêm 6, sáng 7-9, ảnh hưởng từ cơn bão này đã gây lốc xoáy, mưa lớn làm 60 nhà dân ở huyện vùng cao, biên giới Mường Lát (Thanh Hóa) tốc mái.
-- Dọc tuyến đường nối giữa thành phố Cẩm Phả và huyện Vân Đồn (Quảng Ninh), hàng loạt cột điện, cây xanh gãy đổ ngổn ngang.
-- Báo cáo của viện trưởng Viện kiểm sát nhân dân tối cao nêu rõ việc các cơ quan chức năng đã tạm giữ, kê biên, ngừng giao dịch số tài sản lớn trong các vụ án tham nhũng, kinh tế.
-- Bão số 3 đã suy yếu thành áp thấp nhiệt đới. Khu vực Bắc Bộ và Thanh Hóa có mưa to đến rất to.
-- Vụ lúa hè thu 2024 của người dân ở Cà Mau, Kiên Giang đã và đang bước vào thu hoạch nhưng lại bị sập do ảnh hưởng mưa bão. Công an Kiên Giang cử lực lượng xuống hỗ trợ bà con thu hoạch lúa, chạy ngập.
-- Thủ tướng yêu cầu Bộ Tài chính đẩy mạnh tăng thu, tiết kiệm chi, thu đúng, thu đủ và nghiên cứu huy động thêm khoảng 100.000 tỉ đồng trái phiếu cho đầu tư phát triển hạ tầng chiến lược.
-- Phó thủ tướng Trần Hồng Hà yêu cầu địa phương ven biển phải duy trì cấm đường, hạn chế tối đa người dân ra khỏi nhà đến sau 20h để giảm thiểu thiệt hại về sức khỏe, tính mạng cho nhân dân do bão số 3 gây ra.
-- Hai vợ chồng bị chó cắn khi cho vật nuôi uống thuốc, 3 tháng sau người vợ phát bệnh và tử vong do mắc bệnh dại.
-- Được dự báo có thể ảnh hưởng mưa lớn, dông lốc do bão số 3 (bão Yagi), nông dân Nghệ An đang hối hả thu hoạch lúa hè thu.
-- Nhiều người dân có hoàn cảnh khó khăn tại TP.HCM bị đục thủy tinh thể được đội ngũ bác sĩ, chuyên gia tại TP.HCM khám và mổ mắt miễn phí.
+- Nước sông Cầu dâng cao trên mức báo động 3, Thái Nguyên di dời hơn 200 người dân tại chung cư Tiến Bộ trong đêm.
+- Ông Đào Văn Hồng (57 tuổi, quê Thái Bình) nói như vậy khi xuồng của cảnh sát biển đưa ông cùng 42 người khác từ biển về Hạ Long chiều 8-9.
+- Mưa lớn do hoàn lưu bão số 3 khiến lũ trên sông Hồng dâng cao gây ngập lụt nhiều khu vực ở phường Hồng Hà, Nguyễn Thái Học, thành phố Yên Bái, tỉnh Yên Bái.
+- Một số tin tức đáng chú ý: Lộ diện cổ phiếu tăng giá mạnh nhất sàn UpCOM; TP.HCM lắp camera khảo sát, nghiên cứu nâng cấp quốc lộ 22; Đào tạo 100.000 doanh nghiệp Việt ứng dụng thương mại điện tử...
+- Do ảnh hưởng rãnh áp thấp nên thời tiết Bắc Bộ tiếp tục mưa to đến rất to. Trung Bộ nắng nóng, còn Nam Bộ ngày nắng, chiều tối mưa dông.
+- Tối 8-9, nhiều khu dân cư trung tâm Hải Phòng vẫn chưa được cấp điện trở lại, đường tối om, xe cộ đi lại khó khăn.
+- Hà Nội có thêm 1 người tử vong do bão số 3, nâng tổng số người chết lên con số 4. Hơn 25.000 cây xanh bị gãy, đổ do bão.
+- Chiều 8-9, các Phó thủ tướng Nguyễn Hòa Bình, Hồ Đức Phớc, Bùi Thanh Sơn và Lê Thành Long đã đi kiểm tra công tác khắc phục hậu quả bão số 3 tại các tỉnh cơn bão đi qua.
+- ​Công viên địa chất Lạng Sơn được Hội đồng Công viên địa chất toàn cầu đánh giá, biểu quyết công nhận là Công viên địa chất toàn cầu UNESCO.
+- Sạt lở đất đá vào chiều 8-9 ở Bắc Kạn đè trúng hai ngôi nhà. Một người phụ nữ phía trong kịp thời chạy ra ngoài.
+- Chủ tịch UBND TP Hà Nội Trần Sỹ Thanh yêu cầu với cây xanh cần bảo tồn, các cây quý hiếm có giá trị bị nghiêng, đổ sau bão số 3 cần kiểm tra, đánh giá để chống dựng, trồng lại ngay.
+- Thủ tướng Phạm Minh Chính yêu cầu Hải Phòng rà soát, làm chính sách với các gia đình bị thiệt hại mất mát, nhất là các gia đình có người mất, bị thương và "cần khắc phục ngay việc mất điện, mất sóng" sau bão Yagi.
+- Mưa lớn do bão số 3 gây ra khiến nhiều tuyến quốc lộ, đường tỉnh tại các tỉnh phía Bắc bị sạt lở, ngập nước gây cản trở giao thông.
+- Dãy công viên, vườn hoa nối dài hàng km, qua nhiều tuyến đường trung tâm thành phố cảng Hải Phòng có nhiều cây cổ thụ bật gốc, gãy đổ do ảnh hưởng của bão số 3.
+- Báo cáo của Bộ Nông nghiệp và Phát triển nông thôn cho biết bão số 3 và mưa lũ sau bão khiến 21 người thiệt mạng. Sa Pa vừa xảy ra một vụ sạt lở đất vùi lấp 4 hộ gia đình.
+- Trận mưa rất to từ đêm đến rạng sáng 8-9 đã làm suối làng Sảng, xã Bản Mù, huyện Trạm Tấu, tỉnh Yên Bái dâng cao tới nóc nhà.
+- Tỉnh Quảng Trị vừa triển khai mô hình “cà phê doanh nhân”. Theo đó, lãnh đạo tỉnh và doanh nghiệp sẽ uống cà phê cùng nhau mỗi tuần để gặp gỡ, kết nối và "gần" nhau hơn.
+- Một ngày sau khi bão số 3 đổ bộ vào Quảng Ninh, công tác khắc phục hậu quả sau bão vẫn bộn bề khó khăn.
+- Đảm bảo an toàn tuyệt đối cho công nhân thi công cầu Rạch Miễu 2, chủ đầu tư đã yêu cầu các đơn vị trực thuộc thường xuyên theo dõi cường độ gió, bên cạnh đó công nhân phải đeo đai an toàn trong suốt quá trình làm việc.
+- Thủ tướng đi kiểm tra tình hình thiệt hại, chỉ đạo triển khai các biện pháp cấp bách khắc phục hậu quả cơn bão Yagi tại Quảng Ninh và Hải Phòng.
+- Lực lượng cảnh sát biển Việt Nam đã đưa 43 ngư dân mắc kẹt trong bão về Hạ Long, Quảng Ninh an toàn.
+- Bí thư Thành ủy Hà Nội yêu cầu phải cứu, trồng lại những cây xanh đổ do bão, bởi trồng được một cây xanh trưởng thành mất rất nhiều thời gian.
+- Chiều 8-9, chuyên cơ chở Tổng thống Mozambique Filipe Nyusi và phu nhân hạ cánh xuống sân bay Nội Bài (Hà Nội).
+- Trong khó khăn, hoạn nạn đôi khi xuất hiện những điều kỳ diệu.
+- Dự kiến ngày mai 9-9 sẽ có đoàn 100 thanh niên tỉnh Thừa Thiên Huế lên đường đi Hải Phòng để hỗ trợ người dân bị thiệt hại nặng nề sau bão Yagi.
+- Trung tâm Dự báo khí tượng thủy văn quốc gia cảnh báo nguy cơ lũ tại một số sông ở các tỉnh Bắc Bộ, đặc biệt là sạt lở tại tỉnh Yên Bái.
+- Ghi nhận của Tuổi Trẻ Online, đến 15h chiều 8-9, nhiều khu vực ở Hải Phòng vẫn chưa được cấp điện, mạng viễn thông trở lại sau bão.
+- Trong đêm bão Yagi đổ bộ, khoa cấp cứu Bệnh viện E luôn sáng đèn và liên tiếp tiếp nhận nhiều người dân bị thương do tai nạn liên quan cơn bão.
+- Bão Yagi gây thiệt hại lớn cho Hải Phòng về kinh tế, nhiều nhà xưởng trong khu công nghiệp, cụm công nghiệp ngập chìm trong nước.
+- Đến chiều 8-9, nhiều tuyến đường trung tâm Hải Phòng vẫn ngập, cây cối ngổn ngang, điện vẫn chưa được cấp lại.
 ![New](News.png)
 ## Nhịp sống số 
 - Với Galaxy Z Fold6, bạn có thể thoải mái sáng tạo và sáng tác bất cứ khi nào, bất cứ nơi đâu, đặc biệt hữu ích với những bạn trong ngành thiết kế, đồ họa, truyền thông…
