@@ -1,6 +1,16 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Các nhà nghiên cứu đã tiến gần hơn đến việc hiểu lý do tại sao trẻ em khó tập trung vào các nhiệm vụ đang làm.
+- Bí thư Hà Nội Bùi Thị Minh Hoài giao Ban Cán sự đảng UBND TP chỉ đạo bảo đảm lưu thông an toàn qua các cầu, các cầu yếu không bảo đảm an toàn phải dừng lưu thông.
+- Chỉ trong 10 ngày (từ 28-8 đến 6-9), số vụ liên quan đến deepfake ở Hàn Quốc đã lên tới 238 vụ. Tổng cộng 588 học sinh và 27 giáo viên bị ảnh hưởng.
+- Bộ Giáo dục và Đào tạo đang kêu gọi chung tay hỗ trợ sách giáo khoa, đồ dùng học tập cho học sinh chịu thiệt hại do bão số 3.
+- Do khác biệt văn hóa Đông - Tây nên một số giáo viên bản ngữ dạy tiếng Anh ở Việt Nam gặp không ít rắc rối.
+- Phó bí thư Thành ủy, Chủ tịch Ủy ban MTTQ Việt Nam TP.HCM Nguyễn Phước Lộc đến thăm Trường tiểu học Lý Nhơn sau sự cố tốc mái.
+- Khảo sát cho thấy 86% giáo viên ở độ tuổi 20-30 muốn bỏ nghề vì không hài lòng với mức lương, cũng như áp lực từ cha mẹ học sinh.
+- Không còn bó hẹp trong không gian một lớp học mà rộng mở hơn, trẻ em vùng cao nhờ đó lần đầu được biết đến nhiều điều mới mẻ ở Hà Nội, ở mũi Cà Mau hay ở một đất nước khác qua các lớp học "kết nối".
+- Cấm học sinh sử dụng điện thoại trong lớp là rất cần thiết, nhưng thực tế nhiều học sinh luôn tìm cách "lách luật".
+- Các trường đại học đều xét và cấp học bổng sau mỗi học kỳ, năm học. Chinh phục những học bổng này có khó?
 - Đại học Bách khoa Hà Nội, Trường đại học Nông - Lâm Bắc Giang cùng nhiều trường đại học vừa thông báo điều chỉnh kế hoạch học tập, cho sinh viên tiếp tục nghỉ học hoặc học trực tuyến sau bão số 3.
 - Bắc Ninh, Hải Phòng, Cao Bằng và nhiều tỉnh/thành phố vừa tiếp tục thông báo cho học sinh nghỉ học thứ hai, ngày 9-9 để khắc phục hậu quả sau bão số 3.
 - Trường Phổ thông dân tộc bán trú THCS Trung Lý (Thanh Hóa) không cho học sinh về nhà cuối tuần, nấu cơm cho 460 học sinh ăn ngày mưa bão.
@@ -21,50 +31,42 @@
 - Ở lớp học tình thương tại quận Tân Phú, TP.HCM có một lễ khai giảng đặc biệt không kém gì hoàn cảnh của học sinh ở đây.
 - Thông tin cá nhân của khoảng 80.000 sinh viên đã tốt nghiệp của Đại học Nữ sinh Ewha bị rò rỉ sau khi trang web trường bị tấn công mạng.
 - Phụ huynh tố cáo bữa ăn của con em tại lớp mầm non ở Hà Nội bị cắt xén, suất cháo chim bồ câu mà như cháo trắng, suất bún thì nước trong như nước lọc... Trong lúc nhà trường chưa trả lời báo chí, UBND phường đã vào cuộc kiểm tra.
-- Chào mừng năm học mới 2024-2025, UBND tỉnh Long An cùng VPBank đã tổ chức lễ khánh thành và khai giảng năm học mới tại Trường THPT Võ Văn Tần (Long An). Công trình do VPBank tài trợ 100 tỉ đồng.
-- Sở Giáo dục và Đào tạo chỉ đạo các nhà trường cho học sinh nghỉ học ngày 7-9, bao gồm cả giờ học chính khóa và hoạt động ngoài giờ để tránh bão.
-- Thay vì bó hẹp vào một chuyên môn, sinh viên có thể mở rộng thêm nhiều kiến thức, kỹ năng ở các lĩnh vực có liên quan.
-- Những nụ cười rạng rỡ, những chia sẻ đầy tự hào, đầy yêu thương, cảm xúc phấn khởi đã đánh dấu thời khắc đặc biệt tại Royal School.
-- Sau sáp nhập, Trường cao đẳng Cơ điện Hà Nội có 7 cơ sở đào tạo, quy mô đào tạo lên tới 10.000 học sinh, sinh viên.
-- 4 học sinh dự Olympic Tin học quốc tế (IOI) năm 2024 đều có giải với 2 huy chương vàng, 1 huy chương bạc, 1 huy chương đồng.
-- Sử dụng điện thoại để tìm kiếm thông tin phục vụ học tập là tốt, nhưng đừng để điện thoại biến học sinh thành "tù binh" của mạng xã hội và game.
-- Trong lễ khai giảng 5-9, nhiều trường học đã gửi đến học trò và cả giáo viên của mình những thông điệp ý nghĩa, cảm xúc cho năm học mới.
-- Ở cao nguyên đá Đồng Văn (Hà Giang), từ tờ mờ sáng trong sương sớm, người mẹ đưa con đến trường.
-- Hiệu trưởng Trường đại học Công nghệ thông tin (Đại học Quốc gia TP.HCM) nhắn nhủ tân sinh viên ‘đừng chìm đắm trong mạng xã hội, TikTok’.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Nước sông Cầu dâng cao trên mức báo động 3, Thái Nguyên di dời hơn 200 người dân tại chung cư Tiến Bộ trong đêm.
-- Ông Đào Văn Hồng (57 tuổi, quê Thái Bình) nói như vậy khi xuồng của cảnh sát biển đưa ông cùng 42 người khác từ biển về Hạ Long chiều 8-9.
-- Mưa lớn do hoàn lưu bão số 3 khiến lũ trên sông Hồng dâng cao gây ngập lụt nhiều khu vực ở phường Hồng Hà, Nguyễn Thái Học, thành phố Yên Bái, tỉnh Yên Bái.
-- Một số tin tức đáng chú ý: Lộ diện cổ phiếu tăng giá mạnh nhất sàn UpCOM; TP.HCM lắp camera khảo sát, nghiên cứu nâng cấp quốc lộ 22; Đào tạo 100.000 doanh nghiệp Việt ứng dụng thương mại điện tử...
-- Do ảnh hưởng rãnh áp thấp nên thời tiết Bắc Bộ tiếp tục mưa to đến rất to. Trung Bộ nắng nóng, còn Nam Bộ ngày nắng, chiều tối mưa dông.
-- Tối 8-9, nhiều khu dân cư trung tâm Hải Phòng vẫn chưa được cấp điện trở lại, đường tối om, xe cộ đi lại khó khăn.
-- Hà Nội có thêm 1 người tử vong do bão số 3, nâng tổng số người chết lên con số 4. Hơn 25.000 cây xanh bị gãy, đổ do bão.
-- Chiều 8-9, các Phó thủ tướng Nguyễn Hòa Bình, Hồ Đức Phớc, Bùi Thanh Sơn và Lê Thành Long đã đi kiểm tra công tác khắc phục hậu quả bão số 3 tại các tỉnh cơn bão đi qua.
-- ​Công viên địa chất Lạng Sơn được Hội đồng Công viên địa chất toàn cầu đánh giá, biểu quyết công nhận là Công viên địa chất toàn cầu UNESCO.
-- Sạt lở đất đá vào chiều 8-9 ở Bắc Kạn đè trúng hai ngôi nhà. Một người phụ nữ phía trong kịp thời chạy ra ngoài.
-- Chủ tịch UBND TP Hà Nội Trần Sỹ Thanh yêu cầu với cây xanh cần bảo tồn, các cây quý hiếm có giá trị bị nghiêng, đổ sau bão số 3 cần kiểm tra, đánh giá để chống dựng, trồng lại ngay.
-- Thủ tướng Phạm Minh Chính yêu cầu Hải Phòng rà soát, làm chính sách với các gia đình bị thiệt hại mất mát, nhất là các gia đình có người mất, bị thương và "cần khắc phục ngay việc mất điện, mất sóng" sau bão Yagi.
-- Mưa lớn do bão số 3 gây ra khiến nhiều tuyến quốc lộ, đường tỉnh tại các tỉnh phía Bắc bị sạt lở, ngập nước gây cản trở giao thông.
-- Dãy công viên, vườn hoa nối dài hàng km, qua nhiều tuyến đường trung tâm thành phố cảng Hải Phòng có nhiều cây cổ thụ bật gốc, gãy đổ do ảnh hưởng của bão số 3.
-- Báo cáo của Bộ Nông nghiệp và Phát triển nông thôn cho biết bão số 3 và mưa lũ sau bão khiến 21 người thiệt mạng. Sa Pa vừa xảy ra một vụ sạt lở đất vùi lấp 4 hộ gia đình.
-- Trận mưa rất to từ đêm đến rạng sáng 8-9 đã làm suối làng Sảng, xã Bản Mù, huyện Trạm Tấu, tỉnh Yên Bái dâng cao tới nóc nhà.
-- Tỉnh Quảng Trị vừa triển khai mô hình “cà phê doanh nhân”. Theo đó, lãnh đạo tỉnh và doanh nghiệp sẽ uống cà phê cùng nhau mỗi tuần để gặp gỡ, kết nối và "gần" nhau hơn.
-- Một ngày sau khi bão số 3 đổ bộ vào Quảng Ninh, công tác khắc phục hậu quả sau bão vẫn bộn bề khó khăn.
-- Đảm bảo an toàn tuyệt đối cho công nhân thi công cầu Rạch Miễu 2, chủ đầu tư đã yêu cầu các đơn vị trực thuộc thường xuyên theo dõi cường độ gió, bên cạnh đó công nhân phải đeo đai an toàn trong suốt quá trình làm việc.
-- Thủ tướng đi kiểm tra tình hình thiệt hại, chỉ đạo triển khai các biện pháp cấp bách khắc phục hậu quả cơn bão Yagi tại Quảng Ninh và Hải Phòng.
-- Lực lượng cảnh sát biển Việt Nam đã đưa 43 ngư dân mắc kẹt trong bão về Hạ Long, Quảng Ninh an toàn.
-- Bí thư Thành ủy Hà Nội yêu cầu phải cứu, trồng lại những cây xanh đổ do bão, bởi trồng được một cây xanh trưởng thành mất rất nhiều thời gian.
-- Chiều 8-9, chuyên cơ chở Tổng thống Mozambique Filipe Nyusi và phu nhân hạ cánh xuống sân bay Nội Bài (Hà Nội).
-- Trong khó khăn, hoạn nạn đôi khi xuất hiện những điều kỳ diệu.
-- Dự kiến ngày mai 9-9 sẽ có đoàn 100 thanh niên tỉnh Thừa Thiên Huế lên đường đi Hải Phòng để hỗ trợ người dân bị thiệt hại nặng nề sau bão Yagi.
-- Trung tâm Dự báo khí tượng thủy văn quốc gia cảnh báo nguy cơ lũ tại một số sông ở các tỉnh Bắc Bộ, đặc biệt là sạt lở tại tỉnh Yên Bái.
-- Ghi nhận của Tuổi Trẻ Online, đến 15h chiều 8-9, nhiều khu vực ở Hải Phòng vẫn chưa được cấp điện, mạng viễn thông trở lại sau bão.
-- Trong đêm bão Yagi đổ bộ, khoa cấp cứu Bệnh viện E luôn sáng đèn và liên tiếp tiếp nhận nhiều người dân bị thương do tai nạn liên quan cơn bão.
-- Bão Yagi gây thiệt hại lớn cho Hải Phòng về kinh tế, nhiều nhà xưởng trong khu công nghiệp, cụm công nghiệp ngập chìm trong nước.
-- Đến chiều 8-9, nhiều tuyến đường trung tâm Hải Phòng vẫn ngập, cây cối ngổn ngang, điện vẫn chưa được cấp lại.
+- Theo dõi bản đồ mây vệ tinh cho thấy vùng mây dông hiện tại vẫn bao trùm Bắc Bộ và kéo dài đến tận Đà Nẵng, mưa to xảy ra nhiều nơi.
+- Dòng nước lũ chảy xiết, mực nước ngày càng dâng cao khiến công tác lắp cầu phao tạm thay thế cầu Phong Châu (Phú Thọ) vừa bị sập sáng 9-9 chưa thể tiến hành.
+- Vẫn còn khoảng 1,5 triệu khách hàng bị mất điện do bão số 3, trong khi cả ngàn trạm biến áp bị ngập úng. Ngành điện đang tìm đủ cách để sớm cấp điện lại cho người dân và doanh nghiệp.
+- Nhu cầu tôn thép để sửa chữa mái nhà, các công trình hư hại sau bão số 3 khiến nhiều nơi khan hàng. Dù nguồn cung chưa kịp thời đáp ứng nhưng giá cả vẫn tương đối ổn định.
+- Hai ngày sau khi bão số 3 đổ bộ, dọc đường Hạ Long (phường Bãi Cháy, thành phố Hạ Long, tỉnh Quảng Ninh) vẫn ngổn ngang.
+- Nhiều đơn vị sản xuất rau cung cấp cho Hà Nội gần như mất trắng sau cơn bão số 3. Việc cung ứng rau xanh cho người dân có thể bị ảnh hưởng nhưng các hệ thống bán lẻ đang tích cực tăng cung, thậm chí có lúc cung vượt cầu.
+- Chủ tịch UBND TP Hà Nội Trần Sỹ Thanh vừa ký, ban hành công văn hỏa tốc việc tập trung ứng phó lũ lớn trên các tuyến sông sau bão số 3 Yagi.
+- Hà Nội cấm xe khách, xe hợp đồng, xe du lịch trên 9 chỗ; cấm xe tải có tải trọng trên 0,5 tấn lưu thông trên cầu Chương Dương từ 8h30 sáng nay 10-9.
+- Có người thiệt hại gần 10 tỉ, có người trên dưới 1 tỉ... Nhiều hộ kinh doanh ở Cát Bà thẫn thờ không biết sẽ hồi phục ra sao.
+- Lúc 5h sáng 10-9, lũ trên sông Thao (sông Hồng) ở Bảo Hà (Lào Cai) và Yên Bái đã vượt mức lịch sử năm 2008 và 1968 gần 1m. Dự báo hôm nay lũ trên sông Hồng còn tiếp tục lên.
+- UBND TP.HCM vừa yêu cầu các doanh nghiệp, đơn vị có chuyên môn về hạ tầng công chính khẩn trương cử lực lượng đến các tỉnh thành phía Bắc để hỗ trợ khắc phục hậu quả bão số 3.
+- Thủ tướng yêu cầu khẩn trương vận chuyển lương thực, thực phẩm, lương khô, mì tôm, các nhu yếu phẩm, nước uống, nước sạch… để cung cấp cho người dân bị ảnh hưởng bởi cơn bão số 3 và hoàn lưu sau bão.
+- Hôm nay 10-9, thời tiết Bắc Bộ tiếp tục mưa to, mực nước tại các sông suối tiếp tục dâng cao. Nam Bộ ngày nắng, chiều tối mưa dông.
+- Nước sông Hồng lên nhanh vào khuya 9-9, rạng sáng 10-9 khiến nhiều khu dân cư ở quận Ba Đình, Tây Hồ, Hoàn Kiếm bị ngập. Nhiều người hối hả di dời đồ đạc, chạy lũ xuyên đêm.
+- Mực nước lũ trên sông Cầu chảy qua huyện Sóc Sơn và sông Bùi qua huyện Chương Mỹ, Mỹ Đức (Hà Nội) lên mức báo động 3. Sở Nông nghiệp và Phát triển nông thôn Hà Nội yêu cầu các địa phương sẵn sàng phương án sơ tán dân.
+- Một số tin tức đáng chú ý: Dự báo lãi suất huy động sẽ tiếp tục tăng về cuối năm; Chủ đầu tư khu đô thị Phú Mỹ Hưng lãi đậm; Nhà mạng hỗ trợ cuộc gọi, data miễn phí cho người dân các tỉnh vùng bão; TP.HCM nhắn tin nhắc tiêm vắc xin sởi cho trẻ...
+- "Chưa khi nào nước lên như vậy, chúng tôi cần thuyền và áo phao". Nhiều tiếng gọi từ Thái Nguyên, và đáp lại lời kêu gọi, ngay trong đêm 9-9, nhiều đội hỗ trợ từ Hà Nội chở thuyền lên ứng cứu.
+- Đến tối 9-9, nhiều nơi ở miền Bắc vẫn tiếp tục có mưa lớn, lũ trên một số sông vượt mức lịch sử. Vậy bao giờ miền Bắc hết mưa, giảm lũ?
+- Cho đến tối nay, cơ quan chức năng đã sơ bộ xác định có 8 người mất tích, 3 người bị thương đang điều trị tại bệnh viện trong vụ sập cầu Phong Châu, Phú Thọ sáng 9-9.
+- Bí thư Hà Nội Bùi Thị Minh Hoài giao Ban Cán sự đảng UBND TP chỉ đạo bảo đảm lưu thông an toàn qua các cầu, các cầu yếu không bảo đảm an toàn phải dừng lưu thông.
+- Cơ quan khí tượng dự báo trong đêm nay lũ trên sông Hồng đoạn qua tỉnh Lào Cai và Yên Bái sẽ vượt mức lũ lịch sử năm 1968 và 2008.
+- Tính đến 20h tối 9-9, lực lượng cứu nạn, cứu hộ tỉnh Cao Bằng đã tìm thấy 17 người thiệt mạng do lũ, sạt lở đất tại huyện Nguyên Bình, ngoài ra còn có gần 20 nạn nhân đang bị mất tích.
+- Công ty TNHH Công viên cây xanh TP.HCM được sự chỉ đạo của UBND TP.HCM đã huy động 48 cán bộ, công nhân chia làm hai mũi đến Hà Nội và Hải Phòng để tiếp sức, hỗ trợ hai TP trên khắc phục sau bão. Lãnh đạo công ty nói gì về việc làm này?
+- Khoảnh khắc cứu được một nạn nhân đang trôi trong dòng lũ, anh Khanh nhớ lại “lúc ấy tôi cũng run lắm”.
+- Mưa lớn gây sạt lở đất đá khiến một bé gái 14 tuổi ở Quảng Ninh bị mắc kẹt, sau gần 3 giờ đồng hồ lực lượng cứu hộ cứu nạn đã đưa cháu bé ra ngoài an toàn.
+- Chiều 9-9, Phó thủ tướng Lê Thành Long cùng đoàn công tác của Chính phủ đã kiểm tra tình hình mưa, lũ tại Lào Cai.
+- Bão Yagi (bão số 3) và hoàn lưu sau bão, các vụ sập cầu, lở đất khiến 58 người tử vong, 40 người mất tích, chưa tính số người bị thương các mức độ khác nhau. Tại Cao Bằng, đến 20h tối nay đã tìm thấy 17 thi thể nạn nhân của vụ sạt lở đất cùng ngày.
+- Sở Thông tin và Truyền thông tỉnh Quảng Ninh cảnh báo tình trạng fanpage mạo danh Hội Chữ thập đỏ Quảng Ninh lừa đảo kêu gọi quyên góp ủng hộ người dân vùng bão.
+- Trưa 9-9 (theo giờ địa phương), Chủ tịch Duma Quốc gia, Quốc hội Liên bang Nga Vyacheslav Victorovich Volodin đã chủ trì lễ đón, hội đàm với Chủ tịch Quốc hội Trần Thanh Mẫn.
+- Ngày 9-9, có hai tàu từ Trung Quốc trôi dạt về phía tỉnh Lào Cai, có nguy cơ gây hỏng các cầu trên sông Hồng.
 ![New](News.png)
 ## Nhịp sống số 
+- Ông Elon Musk đang trên đà trở thành tỉ phú nghìn tỉ (trillionaire) đầu tiên trên thế giới vào năm 2027.
+- Các nhà sản xuất điện thoại smartphone từ Trung Quốc đã làm lung lay vị thế dẫn đầu lâu đời của Samsung tại thị trường Đông Nam Á.
 - Với Galaxy Z Fold6, bạn có thể thoải mái sáng tạo và sáng tác bất cứ khi nào, bất cứ nơi đâu, đặc biệt hữu ích với những bạn trong ngành thiết kế, đồ họa, truyền thông…
 - Hai đối tượng đã lắp đặt thiết bị đánh cắp thông tin thẻ ngân hàng tại một số máy ATM ở Úc, sau đó rút tiền từ tài khoản của nạn nhân.
 - Xã hội Trí tuệ nhân tạo được phác thảo là một xã hội ứng dụng sâu rộng trí tuệ nhân tạo vào mọi mặt chính trị, xã hội, kinh tế, khoa học công nghệ, kinh doanh, văn hóa, giáo dục.
@@ -93,6 +95,4 @@
 - Thay vì loại bỏ cookie của bên thứ ba, Google sẽ giới thiệu trải nghiệm mới trên Chrome.
 - Trung tâm Giám sát an toàn không gian mạng quốc gia phát hiện thêm 68 website giả mạo thương hiệu của các cơ quan, tổ chức, ngân hàng để lừa đảo người dân.
 - Ngày 19-7, thế giới đã chứng kiến hàng loạt hệ thống mạng vận hành sân bay, bệnh viện, ngân hàng... ở khắp nơi bị tê liệt.
-- Các chuyên gia cho biết điều tồi tệ nhất trong sự cố CrowdStrike đã qua nhưng cảnh báo sẽ còn những sự cố trong tương lai nếu không tìm ra cách khắc phục.
-- Hàng không Nga không bị ảnh hưởng bởi sự cố CrowdStrike vì các sân bay nước này sử dụng phần mềm bảo mật Astra, do chính doanh nghiệp Nga phát triển.
 ![life](Life.png)
