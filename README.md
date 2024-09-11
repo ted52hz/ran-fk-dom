@@ -1,6 +1,17 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Ngày 10-9, học sinh ở nhiều địa phương phía Bắc vẫn phải nghỉ học vì trường học chưa đảm bảo an toàn, nhiều nơi đường đến trường bị chia cắt vì lũ.
+- Trước thực trạng lũ lụt chưa từng có ở miền Bắc gây ra nhiều thiệt hại về người và tài sản, để đảm bảo an toàn cho cán bộ, giảng viên, sinh viên, có thêm nhiều trường đại học tiếp tục cho sinh viên nghỉ học hoặc chuyển sang học trực tuyến.
+- Ngày 10-9, Bộ trưởng Bộ Giáo dục và Đào tạo tiếp tục có công điện gửi giám đốc các sở giáo dục và đào tạo về việc hỗ trợ giáo viên, học sinh và khắc phục thiệt hại do bão lũ.
+- Thủ tướng Úc hé lộ lộ trình thông qua quy định về độ tuổi tối thiểu được tham gia mạng xã hội, khả năng cao trong khoảng 14 - 16 tuổi.
+- Trong nỗi bức xúc, một phụ huynh nói nếu giải quyết không ổn thỏa, sẽ trả lại giấy khen học sinh xuất sắc của con cho trường.
+- Dù thông báo đấu giá nhiều lần nhưng hai khu đất làm trường học không được doanh nghiệp quan tâm, nên phải điều chỉnh quy hoạch.
+- Sở Giáo dục và Đào tạo TP.HCM vừa có văn bản về tăng cường công tác quản lý các khoản thu trong lĩnh vực giáo dục, đào tạo; vận động tài trợ cho giáo dục và kinh phí hoạt động cha mẹ học sinh năm học 2024-2025.
+- Phó giáo sư Shannon Gramse (Đại học Alaska, Anchorage, Mỹ) vừa kết thúc gần ba tháng hè tại Việt Nam. Ông rong ruổi từ thành thị đến nông thôn chia sẻ nhiều kiến thức thú vị cho học sinh Việt Nam.
+- Sau khi bão Yagi (bão số 3) gây thiệt hại ở nhiều địa phương, mưa lũ lại tiếp tục ở một số tỉnh miền núi phía Bắc. Nhiều trường học vẫn chưa thể cho học sinh quay lại trường.
+- Ngay sau khi nghe tin cầu Phong Châu sập, hai nhà xe đã hợp sức huy động 3 xe chở hàng trăm học sinh đi đường vòng 50km đến trường...
+- Trường tiểu học Ninh Phụng (thị xã Ninh Hòa, tỉnh Khánh Hòa) chưa lấy ý kiến của người dân nhưng đã dồn học sinh của điểm trường này sang điểm trường khác, khiến phụ huynh bức xúc.
 - Các nhà nghiên cứu đã tiến gần hơn đến việc hiểu lý do tại sao trẻ em khó tập trung vào các nhiệm vụ đang làm.
 - Bí thư Hà Nội Bùi Thị Minh Hoài giao Ban Cán sự đảng UBND TP chỉ đạo bảo đảm lưu thông an toàn qua các cầu, các cầu yếu không bảo đảm an toàn phải dừng lưu thông.
 - Chỉ trong 10 ngày (từ 28-8 đến 6-9), số vụ liên quan đến deepfake ở Hàn Quốc đã lên tới 238 vụ. Tổng cộng 588 học sinh và 27 giáo viên bị ảnh hưởng.
@@ -20,49 +31,38 @@
 - Hội đồng Giáo sư nhà nước vừa công bố danh sách 673 ứng viên được hội đồng giáo sư cơ sở đề nghị xét công nhận giáo sư, phó giáo sư năm 2024.
 - Chủ tịch UBND xã Hành Đức, huyện Nghĩa Hành, Quảng Ngãi đứng ra bảo lãnh để 'cháu bé 6 tuổi vẫn chưa có giấy khai sinh' được trường tiếp nhận vào học lớp 1 như bạn bè.
 - Chưa năm học nào ghi nhận làn sóng cấm học sinh dùng điện thoại trong giờ học lại bùng nổ mạnh mẽ như năm học 2024-2025.
-- Cục Đào tạo, Bộ Công an vừa công bố điểm chuẩn trúng tuyển vào hệ trung cấp Công an nhân dân năm 2024.
-- Mang bệnh tim trong người, đôi lúc nói chuyện bị hụt hơi nhưng với niềm yêu nghề giáo, chàng trai trẻ Tấn Phát vẫn sắp xếp đến lớp dạy cho các em.
-- Trường tiểu học Trần Hưng Đạo (quận 1, TP.HCM) đã tổ chức buổi lễ khai giảng gọn nhẹ, ấm tình thầy trò nhưng đầy niềm vui cho trẻ thơ ngày đầu đến trường.
-- Dẹp hàng rong trước cổng trường vừa tránh ngộ độc thực phẩm, vừa hạn chế học sinh ganh đua xài tiền, ăn vặt không cần thiết.
-- Sở Giáo dục và Đào tạo các tỉnh Bắc Ninh, Lạng Sơn, Thái Nguyên cho học sinh nghỉ học ngày 7-9 để tránh bão Yagi (bão số 3).
-- Một buổi lễ khai giảng đặc biệt đã được Vinamilk tổ chức cho các học sinh tại huyện Ba Tri, tỉnh Bến Tre như một món quà ý nghĩa đón các em đến trường đầu năm học mới.
-- Chào mừng năm học mới, Agribank triển khai chương trình ‘Thêm con chữ, bớt đói nghèo’, nhằm trao tặng tủ sách, thiết bị học tập, mang niềm vui tới thầy cô giáo và các em học sinh.
-- Nhiều học sinh ở thôn Bình Lập (xã Cam Lập, TP Cam Ranh, tỉnh Khánh Hòa) không thể đi học vào ngày khai giảng và ngày hôm nay, vì phụ huynh không đồng ý chuyển trường.
-- Ở lớp học tình thương tại quận Tân Phú, TP.HCM có một lễ khai giảng đặc biệt không kém gì hoàn cảnh của học sinh ở đây.
-- Thông tin cá nhân của khoảng 80.000 sinh viên đã tốt nghiệp của Đại học Nữ sinh Ewha bị rò rỉ sau khi trang web trường bị tấn công mạng.
-- Phụ huynh tố cáo bữa ăn của con em tại lớp mầm non ở Hà Nội bị cắt xén, suất cháo chim bồ câu mà như cháo trắng, suất bún thì nước trong như nước lọc... Trong lúc nhà trường chưa trả lời báo chí, UBND phường đã vào cuộc kiểm tra.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Theo dõi bản đồ mây vệ tinh cho thấy vùng mây dông hiện tại vẫn bao trùm Bắc Bộ và kéo dài đến tận Đà Nẵng, mưa to xảy ra nhiều nơi.
-- Dòng nước lũ chảy xiết, mực nước ngày càng dâng cao khiến công tác lắp cầu phao tạm thay thế cầu Phong Châu (Phú Thọ) vừa bị sập sáng 9-9 chưa thể tiến hành.
-- Vẫn còn khoảng 1,5 triệu khách hàng bị mất điện do bão số 3, trong khi cả ngàn trạm biến áp bị ngập úng. Ngành điện đang tìm đủ cách để sớm cấp điện lại cho người dân và doanh nghiệp.
-- Nhu cầu tôn thép để sửa chữa mái nhà, các công trình hư hại sau bão số 3 khiến nhiều nơi khan hàng. Dù nguồn cung chưa kịp thời đáp ứng nhưng giá cả vẫn tương đối ổn định.
-- Hai ngày sau khi bão số 3 đổ bộ, dọc đường Hạ Long (phường Bãi Cháy, thành phố Hạ Long, tỉnh Quảng Ninh) vẫn ngổn ngang.
-- Nhiều đơn vị sản xuất rau cung cấp cho Hà Nội gần như mất trắng sau cơn bão số 3. Việc cung ứng rau xanh cho người dân có thể bị ảnh hưởng nhưng các hệ thống bán lẻ đang tích cực tăng cung, thậm chí có lúc cung vượt cầu.
-- Chủ tịch UBND TP Hà Nội Trần Sỹ Thanh vừa ký, ban hành công văn hỏa tốc việc tập trung ứng phó lũ lớn trên các tuyến sông sau bão số 3 Yagi.
-- Hà Nội cấm xe khách, xe hợp đồng, xe du lịch trên 9 chỗ; cấm xe tải có tải trọng trên 0,5 tấn lưu thông trên cầu Chương Dương từ 8h30 sáng nay 10-9.
-- Có người thiệt hại gần 10 tỉ, có người trên dưới 1 tỉ... Nhiều hộ kinh doanh ở Cát Bà thẫn thờ không biết sẽ hồi phục ra sao.
-- Lúc 5h sáng 10-9, lũ trên sông Thao (sông Hồng) ở Bảo Hà (Lào Cai) và Yên Bái đã vượt mức lịch sử năm 2008 và 1968 gần 1m. Dự báo hôm nay lũ trên sông Hồng còn tiếp tục lên.
-- UBND TP.HCM vừa yêu cầu các doanh nghiệp, đơn vị có chuyên môn về hạ tầng công chính khẩn trương cử lực lượng đến các tỉnh thành phía Bắc để hỗ trợ khắc phục hậu quả bão số 3.
-- Thủ tướng yêu cầu khẩn trương vận chuyển lương thực, thực phẩm, lương khô, mì tôm, các nhu yếu phẩm, nước uống, nước sạch… để cung cấp cho người dân bị ảnh hưởng bởi cơn bão số 3 và hoàn lưu sau bão.
-- Hôm nay 10-9, thời tiết Bắc Bộ tiếp tục mưa to, mực nước tại các sông suối tiếp tục dâng cao. Nam Bộ ngày nắng, chiều tối mưa dông.
-- Nước sông Hồng lên nhanh vào khuya 9-9, rạng sáng 10-9 khiến nhiều khu dân cư ở quận Ba Đình, Tây Hồ, Hoàn Kiếm bị ngập. Nhiều người hối hả di dời đồ đạc, chạy lũ xuyên đêm.
-- Mực nước lũ trên sông Cầu chảy qua huyện Sóc Sơn và sông Bùi qua huyện Chương Mỹ, Mỹ Đức (Hà Nội) lên mức báo động 3. Sở Nông nghiệp và Phát triển nông thôn Hà Nội yêu cầu các địa phương sẵn sàng phương án sơ tán dân.
-- Một số tin tức đáng chú ý: Dự báo lãi suất huy động sẽ tiếp tục tăng về cuối năm; Chủ đầu tư khu đô thị Phú Mỹ Hưng lãi đậm; Nhà mạng hỗ trợ cuộc gọi, data miễn phí cho người dân các tỉnh vùng bão; TP.HCM nhắn tin nhắc tiêm vắc xin sởi cho trẻ...
-- "Chưa khi nào nước lên như vậy, chúng tôi cần thuyền và áo phao". Nhiều tiếng gọi từ Thái Nguyên, và đáp lại lời kêu gọi, ngay trong đêm 9-9, nhiều đội hỗ trợ từ Hà Nội chở thuyền lên ứng cứu.
-- Đến tối 9-9, nhiều nơi ở miền Bắc vẫn tiếp tục có mưa lớn, lũ trên một số sông vượt mức lịch sử. Vậy bao giờ miền Bắc hết mưa, giảm lũ?
-- Cho đến tối nay, cơ quan chức năng đã sơ bộ xác định có 8 người mất tích, 3 người bị thương đang điều trị tại bệnh viện trong vụ sập cầu Phong Châu, Phú Thọ sáng 9-9.
-- Bí thư Hà Nội Bùi Thị Minh Hoài giao Ban Cán sự đảng UBND TP chỉ đạo bảo đảm lưu thông an toàn qua các cầu, các cầu yếu không bảo đảm an toàn phải dừng lưu thông.
-- Cơ quan khí tượng dự báo trong đêm nay lũ trên sông Hồng đoạn qua tỉnh Lào Cai và Yên Bái sẽ vượt mức lũ lịch sử năm 1968 và 2008.
-- Tính đến 20h tối 9-9, lực lượng cứu nạn, cứu hộ tỉnh Cao Bằng đã tìm thấy 17 người thiệt mạng do lũ, sạt lở đất tại huyện Nguyên Bình, ngoài ra còn có gần 20 nạn nhân đang bị mất tích.
-- Công ty TNHH Công viên cây xanh TP.HCM được sự chỉ đạo của UBND TP.HCM đã huy động 48 cán bộ, công nhân chia làm hai mũi đến Hà Nội và Hải Phòng để tiếp sức, hỗ trợ hai TP trên khắc phục sau bão. Lãnh đạo công ty nói gì về việc làm này?
-- Khoảnh khắc cứu được một nạn nhân đang trôi trong dòng lũ, anh Khanh nhớ lại “lúc ấy tôi cũng run lắm”.
-- Mưa lớn gây sạt lở đất đá khiến một bé gái 14 tuổi ở Quảng Ninh bị mắc kẹt, sau gần 3 giờ đồng hồ lực lượng cứu hộ cứu nạn đã đưa cháu bé ra ngoài an toàn.
-- Chiều 9-9, Phó thủ tướng Lê Thành Long cùng đoàn công tác của Chính phủ đã kiểm tra tình hình mưa, lũ tại Lào Cai.
-- Bão Yagi (bão số 3) và hoàn lưu sau bão, các vụ sập cầu, lở đất khiến 58 người tử vong, 40 người mất tích, chưa tính số người bị thương các mức độ khác nhau. Tại Cao Bằng, đến 20h tối nay đã tìm thấy 17 thi thể nạn nhân của vụ sạt lở đất cùng ngày.
-- Sở Thông tin và Truyền thông tỉnh Quảng Ninh cảnh báo tình trạng fanpage mạo danh Hội Chữ thập đỏ Quảng Ninh lừa đảo kêu gọi quyên góp ủng hộ người dân vùng bão.
-- Trưa 9-9 (theo giờ địa phương), Chủ tịch Duma Quốc gia, Quốc hội Liên bang Nga Vyacheslav Victorovich Volodin đã chủ trì lễ đón, hội đàm với Chủ tịch Quốc hội Trần Thanh Mẫn.
-- Ngày 9-9, có hai tàu từ Trung Quốc trôi dạt về phía tỉnh Lào Cai, có nguy cơ gây hỏng các cầu trên sông Hồng.
+- Sáng nay các bản đồ mây vệ tinh cho thấy mây dông vẫn bao phủ Bắc Bộ, mưa to tiếp tục xảy ra nhiều nơi.
+- Đến sáng 11-9, lực lượng cứu hộ cứu nạn tỉnh Lào Cai xác định đã có 18 người chết trong vụ lũ quét, sạt lở đất kinh hoàng, vùi lấp cả bản Làng Nủ, xã Phúc Khánh, huyện Bảo Yên.
+- Do trời mưa, đường trơn trượt khiến xe khách chạy trên quốc lộ 14 bị mất lái rồi lật khiến bốn người tử vong, nhiều người bị thương.
+- Sáng 11-9, lũ sông Hồng tại Hà Nội đạt 10,76m, trên báo động 2 là 0,26m khiến nhiều ngôi nhà ngập trong nước, người dân vật lộn với nước lũ.
+- Hôm qua (10-9), để kịp thời hỗ trợ người dân vùng lũ phía Bắc, báo Tuổi Trẻ phối hợp cùng Tỉnh Đoàn Yên Bái đã trao cứu trợ khẩn cấp 100 suất quà của bạn đọc đến bà con vùng lũ Yên Bái.
+- Theo Đài Khí tượng Thủy văn tỉnh Hải Dương, mực nước thực đo lúc 6h sáng 11-9 tại trạm thủy văn Cát Khê (tả Thái Bình, thuộc địa phận xã Hiệp Cát, huyện Nam Sách) đạt 5,16 m (báo động III là 5 m).
+- Theo thông tin từ Trung tâm Dự báo khí tượng thủy văn quốc gia, lúc 5h sáng 11-9, lũ trên sông Hồng tại Hà Nội đạt 10,76m, trên báo động 2 là 0,26m.
+- Tối 10-9, Công an xã Bảo Nhai, huyện Bắc Hà (Lào Cai) triệu tập một người dùng tài khoản Facebook Đoàn Như Quỳnh đăng tải tin sai sự thật về việc đập thủy điện Cốc Ly bị vỡ, gây hoang mang cho người dân trong thời điểm mưa lũ.
+- Một số tin tức đáng chú ý: Xuất cấp 200 tấn gạo hỗ trợ người dân vùng bão lũ; TP.HCM cảnh báo nguy cơ ngộ độc so biển; Người Việt Nam nằm trong nhóm ít vận động nhất...
+- Hôm nay 11-9, thời tiết mưa to vẫn duy trì khắp các tỉnh thành Bắc Bộ. Tại Nam Bộ, mưa có xu hướng gia tăng.
+- Người lội bì bõm, người bơi thuyền qua nước lũ… để nhận đồ cứu trợ, họ đều là những người dân bị cô lập vì trận lụt lịch sử tại Thái Nguyên.
+- Theo vtv.vn tối 10-9, ông Giang Tuấn Anh - chủ tịch UBND huyện Sơn Dương, tỉnh Tuyên Quang - thông tin đoạn đê sông Lô qua xã Quyết Thắng, huyện Sơn Dương đã bị vỡ do nước sông lên cao.
+- Tiếp tục chuyến thăm chính thức Nga, Chủ tịch Quốc hội Trần Thanh Mẫn đã hội kiến Tổng thống Nga Vladimir Putin tại Điện Kremlin ở thủ đô Matxcơva.
+- Thứ trưởng Ngoại giao Triều Tiên Pak Sang Gil là quan chức thứ hai của Triều Tiên đến Việt Nam trong năm 2024.
+- Dự báo đêm nay đến sáng mai 11-9, lũ trên sông Thao (sông Hồng) tại Yên Bái xuống chậm nhưng vẫn trên mức lũ lịch sử, còn tại Hà Nội tiếp tục lên nhanh mức báo động 2.
+- Lũ trên sông Hồng đoạn qua Hà Nội lên nhanh trong đêm 10-9, khiến người dân phải lọ mọ di chuyển đồ đạc chạy lũ.
+- Trước thực trạng lũ lụt chưa từng có ở miền Bắc gây ra nhiều thiệt hại về người và tài sản, để đảm bảo an toàn cho cán bộ, giảng viên, sinh viên, có thêm nhiều trường đại học tiếp tục cho sinh viên nghỉ học hoặc chuyển sang học trực tuyến.
+- 5 người được cho mất tích khi nhà điều hành của Nhà máy thủy điện Đông Nam Á - Nậm Lúc (xã Bản Cái, huyện Bắc Hà, Lào Cai) bị sập.
+- Tiếp tục chương trình thăm chính thức Nga ngày 10-9, Chủ tịch Quốc hội Trần Thanh Mẫn đã tiếp lãnh đạo một số chính đảng lớn và địa phương Nga, gặp một số doanh nghiệp tại Nga.
+- Đại diện báo Tuổi Trẻ đã trao tận tay những suất quà cứu trợ khẩn cấp đầu tiên đến với người dân vùng lũ ở Yên Bái.
+- Binh chủng Công binh đã tập kết trang thiết bị, sẵn sàng lắp đặt cầu phao thay thế cầu Phong Châu vừa bị sập khi điều kiện cho phép.
+- Tỉnh Quảng Nam hỗ trợ 22 tỉ đồng cho các tỉnh phía Bắc bị thiệt hại do bão số 3, mưa lũ. Trong một ngày, Quảng Bình huy động được gần 5 tỉ đồng ủng hộ vùng bão lũ phía Bắc.
+- Dự án đường Hồ Chí Minh đi qua địa bàn Kiên Giang có chiều dài hơn 45km. Địa phương hiện cần hơn 97 tỉ đồng để các huyện chi trả, giải phóng mặt bằng.
+- Thủ tướng Phạm Minh Chính yêu cầu triển khai lực lượng, phương tiện tiếp cận bằng được để hỗ trợ vận chuyển lương thực cho người dân.
+- Chiều 10-9, tại trụ sở Chính phủ, Thủ tướng Phạm Minh Chính đã hội kiến Tổng Bí thư, Chủ tịch nước Lào Thongloun Sisoulith.
+- Bộ Tài nguyên và Môi trường thống nhất với TP.HCM về sự cần thiết điều chỉnh bảng giá đất, nhưng lưu ý cần cân nhắc so với mặt bằng giá đất tại địa phương.
+- Đội cơn mưa chiều tối 10-9, nhiều bạn đọc đến tòa soạn báo Tuổi Trẻ góp số tiền dành dụm bấy lâu để ủng hộ bà con miền Bắc đang oằn mình bởi bão lớn lũ dữ.
+- Ba máy bay trực thăng thuộc Trung đoàn không quân 916, Sư đoàn 371 sẽ tham gia công tác cứu hộ, cứu nạn người dân vùng lũ tại tỉnh Yên Bái và Cao Bằng.
+- Trận lũ quét xảy ra ở huyện Bảo Yên, Lào Cai đã vùi lấp toàn bộ thôn Làng Nủ nơi có 35 hộ dân, 128 người cư trú.
+- Ngành đường sắt đã có kết luận nguyên nhân khiến tàu Bắc Nam liên tục bị trật bánh khi đi ngang qua ga Lăng Cô (Thừa Thiên Huế).
 ![New](News.png)
 ## Nhịp sống số 
 - Ông Elon Musk đang trên đà trở thành tỉ phú nghìn tỉ (trillionaire) đầu tiên trên thế giới vào năm 2027.
