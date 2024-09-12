@@ -1,6 +1,14 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Sau bốn mùa thành công, Speak Up 2024 tiếp tục trở thành “ngôi nhà chung” hội tụ hàng ngàn tài năng nhí với nhiều bất ngờ mới.
+- Nhiều giáo viên sau khi hết giờ dạy đã xung phong ở lại trường để cùng đồng nghiệp nấu cơm dành tặng bà con đến trường sơ tán tránh mưa lũ.
+- Sau khi sáp nhập, đại học mới trở thành một trong những trường lớn nhất tại Úc và nằm trong nhóm 8 đại học Úc hàng đầu về nghiên cứu (G8).
+- Dưới hang Câu - địa điểm du lịch nổi tiếng ở đảo Lý Sơn, những học trò cùng nhau sáng tác tranh theo các chủ đề được Cảnh sát biển gợi ý. Bức tranh vẽ cầu Long Biên trong lũ cuồn cuộn rất thời sự được trao giải nhất.
+- Chiều tối 9-9, tại Trường quốc tế Tesla (phường 13, quận Tân Bình, TP.HCM) đã xảy ra vụ việc một bảo vệ của trường này đánh bảo mẫu chảy máu mũi, miệng, gãy mũi.
+- 15 năm qua, tiến sĩ - dược sĩ Phạm Đức Hùng đã hỗ trợ hàng trăm sinh viên, học viên người Việt nhận được các học bổng khủng của đại học nước ngoài.
+- TS Phan Hồng Hải - hiệu trưởng Trường đại học Công nghiệp TP.HCM quyết định dành tặng chiếc xe máy là phần thưởng ông vừa đoạt giải hội thi triển lãm sinh vật cảnh, cho sinh viên có hoàn cảnh khó khăn của trường.
+- Sau khi cháu bé 13 tháng tuổi bị gãy chân, chủ cơ sở mầm non đã không thông tin, báo cáo các cấp quản lý.
 - Ngày 10-9, học sinh ở nhiều địa phương phía Bắc vẫn phải nghỉ học vì trường học chưa đảm bảo an toàn, nhiều nơi đường đến trường bị chia cắt vì lũ.
 - Trước thực trạng lũ lụt chưa từng có ở miền Bắc gây ra nhiều thiệt hại về người và tài sản, để đảm bảo an toàn cho cán bộ, giảng viên, sinh viên, có thêm nhiều trường đại học tiếp tục cho sinh viên nghỉ học hoặc chuyển sang học trực tuyến.
 - Ngày 10-9, Bộ trưởng Bộ Giáo dục và Đào tạo tiếp tục có công điện gửi giám đốc các sở giáo dục và đào tạo về việc hỗ trợ giáo viên, học sinh và khắc phục thiệt hại do bão lũ.
@@ -23,48 +31,42 @@
 - Cấm học sinh sử dụng điện thoại trong lớp là rất cần thiết, nhưng thực tế nhiều học sinh luôn tìm cách "lách luật".
 - Các trường đại học đều xét và cấp học bổng sau mỗi học kỳ, năm học. Chinh phục những học bổng này có khó?
 - Đại học Bách khoa Hà Nội, Trường đại học Nông - Lâm Bắc Giang cùng nhiều trường đại học vừa thông báo điều chỉnh kế hoạch học tập, cho sinh viên tiếp tục nghỉ học hoặc học trực tuyến sau bão số 3.
-- Bắc Ninh, Hải Phòng, Cao Bằng và nhiều tỉnh/thành phố vừa tiếp tục thông báo cho học sinh nghỉ học thứ hai, ngày 9-9 để khắc phục hậu quả sau bão số 3.
-- Trường Phổ thông dân tộc bán trú THCS Trung Lý (Thanh Hóa) không cho học sinh về nhà cuối tuần, nấu cơm cho 460 học sinh ăn ngày mưa bão.
-- "Lần đầu đi biệt phái ngay trước khai giảng năm học mới, tôi đã khóc suốt trên đường vì nhớ nhà, nhớ con, bỡ ngỡ với nơi mình sắp gắn bó một năm. Nhưng không ngờ đó lại là khởi đầu cho một kỷ niệm đáng nhớ trong đời dạy học".
-- Bộ trưởng Bộ Giáo dục và Đào tạo yêu cầu các sở giáo dục và đào tạo căn cứ tình hình thực tế ở địa phương cho học sinh các cấp nghỉ học để tránh bão số 3.
-- Với những thành viên của Royal School, sự gắn kết tạo nên sức mạnh, giúp “hạt mầm” hạnh phúc vươn mình.
-- Hội đồng Giáo sư nhà nước vừa công bố danh sách 673 ứng viên được hội đồng giáo sư cơ sở đề nghị xét công nhận giáo sư, phó giáo sư năm 2024.
-- Chủ tịch UBND xã Hành Đức, huyện Nghĩa Hành, Quảng Ngãi đứng ra bảo lãnh để 'cháu bé 6 tuổi vẫn chưa có giấy khai sinh' được trường tiếp nhận vào học lớp 1 như bạn bè.
-- Chưa năm học nào ghi nhận làn sóng cấm học sinh dùng điện thoại trong giờ học lại bùng nổ mạnh mẽ như năm học 2024-2025.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Sáng nay các bản đồ mây vệ tinh cho thấy mây dông vẫn bao phủ Bắc Bộ, mưa to tiếp tục xảy ra nhiều nơi.
-- Đến sáng 11-9, lực lượng cứu hộ cứu nạn tỉnh Lào Cai xác định đã có 18 người chết trong vụ lũ quét, sạt lở đất kinh hoàng, vùi lấp cả bản Làng Nủ, xã Phúc Khánh, huyện Bảo Yên.
-- Do trời mưa, đường trơn trượt khiến xe khách chạy trên quốc lộ 14 bị mất lái rồi lật khiến bốn người tử vong, nhiều người bị thương.
-- Sáng 11-9, lũ sông Hồng tại Hà Nội đạt 10,76m, trên báo động 2 là 0,26m khiến nhiều ngôi nhà ngập trong nước, người dân vật lộn với nước lũ.
-- Hôm qua (10-9), để kịp thời hỗ trợ người dân vùng lũ phía Bắc, báo Tuổi Trẻ phối hợp cùng Tỉnh Đoàn Yên Bái đã trao cứu trợ khẩn cấp 100 suất quà của bạn đọc đến bà con vùng lũ Yên Bái.
-- Theo Đài Khí tượng Thủy văn tỉnh Hải Dương, mực nước thực đo lúc 6h sáng 11-9 tại trạm thủy văn Cát Khê (tả Thái Bình, thuộc địa phận xã Hiệp Cát, huyện Nam Sách) đạt 5,16 m (báo động III là 5 m).
-- Theo thông tin từ Trung tâm Dự báo khí tượng thủy văn quốc gia, lúc 5h sáng 11-9, lũ trên sông Hồng tại Hà Nội đạt 10,76m, trên báo động 2 là 0,26m.
-- Tối 10-9, Công an xã Bảo Nhai, huyện Bắc Hà (Lào Cai) triệu tập một người dùng tài khoản Facebook Đoàn Như Quỳnh đăng tải tin sai sự thật về việc đập thủy điện Cốc Ly bị vỡ, gây hoang mang cho người dân trong thời điểm mưa lũ.
-- Một số tin tức đáng chú ý: Xuất cấp 200 tấn gạo hỗ trợ người dân vùng bão lũ; TP.HCM cảnh báo nguy cơ ngộ độc so biển; Người Việt Nam nằm trong nhóm ít vận động nhất...
-- Hôm nay 11-9, thời tiết mưa to vẫn duy trì khắp các tỉnh thành Bắc Bộ. Tại Nam Bộ, mưa có xu hướng gia tăng.
-- Người lội bì bõm, người bơi thuyền qua nước lũ… để nhận đồ cứu trợ, họ đều là những người dân bị cô lập vì trận lụt lịch sử tại Thái Nguyên.
-- Theo vtv.vn tối 10-9, ông Giang Tuấn Anh - chủ tịch UBND huyện Sơn Dương, tỉnh Tuyên Quang - thông tin đoạn đê sông Lô qua xã Quyết Thắng, huyện Sơn Dương đã bị vỡ do nước sông lên cao.
-- Tiếp tục chuyến thăm chính thức Nga, Chủ tịch Quốc hội Trần Thanh Mẫn đã hội kiến Tổng thống Nga Vladimir Putin tại Điện Kremlin ở thủ đô Matxcơva.
-- Thứ trưởng Ngoại giao Triều Tiên Pak Sang Gil là quan chức thứ hai của Triều Tiên đến Việt Nam trong năm 2024.
-- Dự báo đêm nay đến sáng mai 11-9, lũ trên sông Thao (sông Hồng) tại Yên Bái xuống chậm nhưng vẫn trên mức lũ lịch sử, còn tại Hà Nội tiếp tục lên nhanh mức báo động 2.
-- Lũ trên sông Hồng đoạn qua Hà Nội lên nhanh trong đêm 10-9, khiến người dân phải lọ mọ di chuyển đồ đạc chạy lũ.
-- Trước thực trạng lũ lụt chưa từng có ở miền Bắc gây ra nhiều thiệt hại về người và tài sản, để đảm bảo an toàn cho cán bộ, giảng viên, sinh viên, có thêm nhiều trường đại học tiếp tục cho sinh viên nghỉ học hoặc chuyển sang học trực tuyến.
-- 5 người được cho mất tích khi nhà điều hành của Nhà máy thủy điện Đông Nam Á - Nậm Lúc (xã Bản Cái, huyện Bắc Hà, Lào Cai) bị sập.
-- Tiếp tục chương trình thăm chính thức Nga ngày 10-9, Chủ tịch Quốc hội Trần Thanh Mẫn đã tiếp lãnh đạo một số chính đảng lớn và địa phương Nga, gặp một số doanh nghiệp tại Nga.
-- Đại diện báo Tuổi Trẻ đã trao tận tay những suất quà cứu trợ khẩn cấp đầu tiên đến với người dân vùng lũ ở Yên Bái.
-- Binh chủng Công binh đã tập kết trang thiết bị, sẵn sàng lắp đặt cầu phao thay thế cầu Phong Châu vừa bị sập khi điều kiện cho phép.
-- Tỉnh Quảng Nam hỗ trợ 22 tỉ đồng cho các tỉnh phía Bắc bị thiệt hại do bão số 3, mưa lũ. Trong một ngày, Quảng Bình huy động được gần 5 tỉ đồng ủng hộ vùng bão lũ phía Bắc.
-- Dự án đường Hồ Chí Minh đi qua địa bàn Kiên Giang có chiều dài hơn 45km. Địa phương hiện cần hơn 97 tỉ đồng để các huyện chi trả, giải phóng mặt bằng.
-- Thủ tướng Phạm Minh Chính yêu cầu triển khai lực lượng, phương tiện tiếp cận bằng được để hỗ trợ vận chuyển lương thực cho người dân.
-- Chiều 10-9, tại trụ sở Chính phủ, Thủ tướng Phạm Minh Chính đã hội kiến Tổng Bí thư, Chủ tịch nước Lào Thongloun Sisoulith.
-- Bộ Tài nguyên và Môi trường thống nhất với TP.HCM về sự cần thiết điều chỉnh bảng giá đất, nhưng lưu ý cần cân nhắc so với mặt bằng giá đất tại địa phương.
-- Đội cơn mưa chiều tối 10-9, nhiều bạn đọc đến tòa soạn báo Tuổi Trẻ góp số tiền dành dụm bấy lâu để ủng hộ bà con miền Bắc đang oằn mình bởi bão lớn lũ dữ.
-- Ba máy bay trực thăng thuộc Trung đoàn không quân 916, Sư đoàn 371 sẽ tham gia công tác cứu hộ, cứu nạn người dân vùng lũ tại tỉnh Yên Bái và Cao Bằng.
-- Trận lũ quét xảy ra ở huyện Bảo Yên, Lào Cai đã vùi lấp toàn bộ thôn Làng Nủ nơi có 35 hộ dân, 128 người cư trú.
-- Ngành đường sắt đã có kết luận nguyên nhân khiến tàu Bắc Nam liên tục bị trật bánh khi đi ngang qua ga Lăng Cô (Thừa Thiên Huế).
+- Đó là câu chuyện ở Làng Nủ, xã Phúc Khánh, huyện Bảo Yên, tỉnh Lào Cai.
+- Từ chiều tối 11-9 đến sáng nay 12-9, tại cầu Hàm Rồng, TP Thanh Hóa xuất hiện khe co giãn số 2 phía thượng, mố nam, phía phải đường sắt, phần đường bộ bị bong bật bản cao su chưa xác định nguyên nhân.
+- Ngày 11-9, lũ trên sông Hồng đo được tại Hà Nội là 11,3m, dưới báo động 3 khoảng 20cm đã khiến khu vực ngoài đê thuộc quận Hoàn Kiếm, Ba Đình, Tây Hồ mênh mông trong "biển nước".
+- Hôm qua 11-9, ghi nhận tại nhiều địa phương, những chuyến hàng cứu trợ mang theo triệu tấm lòng của người dân cả nước đã hướng về vùng lũ các tỉnh phía Bắc, chia sẻ với bà con đang đối mặt với rất nhiều khó khăn, thiếu thốn.
+- Công tác cứu hộ cứu nạn nơi đây tiếp tục được triển khai từ sáng sớm khi dưới lớp đất đá vẫn còn nhiều người bị vùi lấp.
+- Việc xác định hòn Sơn Chà ở Hải Vân nằm giữa địa giới hành chính Thừa Thiên Huế và Đà Nẵng lâu nay vẫn chưa thống nhất do nhiều yếu tố lịch sử để lại. Văn phòng Chính phủ đã có thông báo liên quan đến vấn đề này.
+- Sau khi đạt đỉnh, lũ trên sông Hồng dao động ở mức dưới báo động (BĐ) 3 khoảng 20-30cm. Dự báo trong ngày hôm nay sẽ rút chậm.
+- Theo thông tin từ lực lượng chức năng lúc 7h15 đã phát hiện thêm 2 thi thể tại khu vực hạ nguồn nơi xảy ra lũ quét.
+- Dự kiến đến năm 2030, TP.HCM phủ xanh 100% xe buýt điện. Các tuyến buýt mở mới từ năm 2025 trở đi sẽ sử dụng 100% phương tiện điện, năng lượng xanh.
+- Tin tức đáng chú ý: Bão số 3 và hoàn lưu, sạt đất, sập cầu làm 326 người chết, mất tích; Lũ trên sông Thao tại Yên Bái tiếp tục xuống mức báo động 2; Lợi nhuận công ty phần mềm diệt virus của ông Nguyễn Tử Quảng lao dốc...
+- Hôm nay 12-9, thời tiết cả nước đều có mưa. Bắc Bộ vẫn duy trì mưa to, Nam Bộ mưa có xu hướng tăng.
+- Trở về nhà sau khi mưa lũ ngớt, bà con ở hồ thủy điện Thác Bà vẫn chưa hết bàng hoàng nhớ lại cảnh tháo chạy ngay trong đêm.
+- Cô giáo Thu Nguyệt là giáo viên Trường Phổ thông vùng cao Việt Bắc ở tỉnh Thái Nguyên và đồng nghiệp đã có chuyến đi gần một ngày đến Bắc Hà, tỉnh Lào Cai để đưa học trò Thào Xuân Nhi vừa nhập học lớp 10 về nhà tiễn bố lần cuối cùng.
+- Xác định được nguyên nhân ngập úng tại Công ty TNHH Samsung Industrial Việt Nam, Phó chủ tịch UBND tỉnh Lê Xuân Lợi chỉ đạo triển khai nhanh phương án tiêu thoát nước.
+- Thủ tướng Phạm Minh Chính vừa ký công điện số 93 về việc tập trung ứng phó lũ lớn, đảm bảo an toàn đê điều trên các sông ở Bắc Bộ, nhất là hệ thống sông Hồng, sông Thái Bình.
+- Thể hiện sự xúc động trước các cựu quân tình nguyện Việt Nam tại Lào, Tổng Bí thư, Chủ tịch nước Lào Thongloun Sisoulith nhấn mạnh quan hệ Việt - Lào được đúc kết bởi bốn chữ tình: 'Tình đồng chí, Tình đoàn kết, Tình anh em, Tình bạn'.
+- Bộ Kế hoạch và Đầu tư đang lấy ý kiến góp ý với dự thảo Luật sửa đổi, bổ sung một số điều của Luật Quy hoạch, Luật Đầu tư, Luật Đầu tư theo phương thức đối tác công tư và Luật Đấu thầu.
+- Đến cuối ngày 11-9, lực lượng tìm kiếm cứu nạn đã tìm thấy 7 thi thể nạn nhân vụ sạt lở đất, vẫn còn 11 người mất tích.
+- Ngày 11-9, Đại tướng Phan Văn Giang - bộ trưởng Bộ Quốc phòng - đã gửi thư tới cán bộ, chiến sĩ Quân đội nhân dân và dân quân tự vệ thực hiện nhiệm vụ phòng, chống, khắc phục hậu quả cơn bão số 3.
+- Đây là một trong những bất cập được nêu ra để đề xuất bổ sung quy định về công chứng xác thực thông tin doanh nghiệp, bảo đảm minh bạch hoạt động kinh tế.
+- Chủ tịch UBND phường Phú Hài, TP Phan Thiết bị đình chỉ do liên quan đến vụ sai phạm cụm nhà hàng, khu nghỉ dưỡng ở dốc 'Hoàng Hôn'.
+- Nhiều doanh nghiệp đã đến tòa soạn báo Tuổi Trẻ đóng góp cho bà con miền Bắc đang chịu thiệt hại bởi bão lũ.
+- Sạt lở đất ở Cao Bằng khiến nhiều xe bị đẩy xuống suối, bị nước cuốn. Sự việc khiến khoảng 30 người chết và mất tích, trong đó có 2 cán bộ Công an tỉnh.
+- Ga Đà Lạt tăng giá vé gấp 10 lần (mức ban đầu là 5.000 đồng), tỉnh Lâm Đồng đề nghị cân nhắc cho phù hợp. Du khách cho rằng không nên tận thu di sản ga Đà Lạt.
+- Nhiều người dân ở phường Phúc Tân, quận Hoàn Kiếm vẫn đang chật vật với lũ, người lội nước ngang bụng bê vác đồ đạc sơ tán, người nhờ thuyền chở xe máy, xe đạp ra chỗ cao...
+- Với tinh thần tương thân tương ái, lá lành đùm lá rách, người dân TP.HCM đã có nhiều hoạt động thiết thực hướng về đồng bào miền Bắc chịu ảnh hưởng bão số 3.
+- Ban tổ chức cho biết sự kiện nhằm ghi nhận, vinh danh và ủng hộ những đóng góp cũng như tài năng đội ngũ sáng tạo nội dung số tại Việt Nam.
+- Tối 11-9, Đại sứ quán Úc tại Việt Nam thông báo nước này sẽ cung cấp cho Việt Nam khoản viện trợ ban đầu trị giá 3 triệu AUD (đô la Úc). Một lô hàng cứu trợ khẩn cấp đầu tiên cũng được chuyển đến trong ngày 11-9.
+- Chiều 11-9, lượng xe đổ về cầu Nhật Tân, Vĩnh Tuy (Hà Nội) hướng ra ngoại thành rất lớn do một số cầu khác bị cấm, hạn chế xe do mưa lũ.
+- Ngành xuất bản là ngành đặc thù, cần tạo điều kiện đặc thù, tạo điều kiện cơ chế thù lao, nhuận bút cho đội ngũ xuất bản, tạo hành lang pháp lý đủ rộng để linh hoạt trong sửa luật.
 ![New](News.png)
 ## Nhịp sống số 
+- Ban tổ chức cho biết sự kiện nhằm ghi nhận, vinh danh và ủng hộ những đóng góp cũng như tài năng đội ngũ sáng tạo nội dung số tại Việt Nam.
+- Quyết định rút khỏi thị trường Việt Nam của Gojek để lại nhiều tiếc nuối cho các đối tác tài xế, nhà hàng và người dùng, những người đã đồng hành cùng hãng xe công nghệ thời gian qua.
 - Ông Elon Musk đang trên đà trở thành tỉ phú nghìn tỉ (trillionaire) đầu tiên trên thế giới vào năm 2027.
 - Các nhà sản xuất điện thoại smartphone từ Trung Quốc đã làm lung lay vị thế dẫn đầu lâu đời của Samsung tại thị trường Đông Nam Á.
 - Với Galaxy Z Fold6, bạn có thể thoải mái sáng tạo và sáng tác bất cứ khi nào, bất cứ nơi đâu, đặc biệt hữu ích với những bạn trong ngành thiết kế, đồ họa, truyền thông…
@@ -93,6 +95,4 @@
 - CrowdStrike thừa nhận sự cố sập hệ thống vi tính toàn cầu là do lỗi trong quá trình kiểm soát chất lượng các bản cập nhật phần mềm của công ty này.
 - Việc Google giữ cookie đồng nghĩa dữ liệu cá nhân của 3 tỉ người dùng Chrome vẫn đang bị các trang mạng theo dõi.
 - Thay vì loại bỏ cookie của bên thứ ba, Google sẽ giới thiệu trải nghiệm mới trên Chrome.
-- Trung tâm Giám sát an toàn không gian mạng quốc gia phát hiện thêm 68 website giả mạo thương hiệu của các cơ quan, tổ chức, ngân hàng để lừa đảo người dân.
-- Ngày 19-7, thế giới đã chứng kiến hàng loạt hệ thống mạng vận hành sân bay, bệnh viện, ngân hàng... ở khắp nơi bị tê liệt.
 ![life](Life.png)
