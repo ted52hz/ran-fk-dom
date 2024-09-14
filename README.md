@@ -1,6 +1,16 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Hàng loạt trường đại học sau các đợt xét tuyển bổ sung đến nay vẫn còn thiếu cả ngàn chỉ tiêu. Nhiều trường quyết định khép lại mùa tuyển sinh 2024 do cạn nguồn tuyển.
+- Đại học Kinh tế TP.HCM đã triển khai nhiều chương trình hỗ trợ sinh viên các tỉnh phía Bắc bị ảnh hưởng bão lũ đang theo học tại nhà trường.
+- Mạng xã hội lan truyền tin giả trưởng Phòng Giáo dục và Đào tạo TP Quảng Ngãi nhận 30 triệu đồng/suất để 'chạy' vào Trường THCS Nguyễn Nghiêm. Qua kiểm tra, không có học sinh nào tuyển trái tuyến.
+- Trưởng ban Văn hóa Xã Hội, Hội đồng Nhân dân TP.HCM - cho biết hàng trăm trẻ có nhân khẩu đặc biệt tại TP.HCM đã được rà soát và cấp các giấy tờ tùy thân.
+- HĐND tỉnh Khánh Hòa vừa thông qua nghị quyết hỗ trợ 100% học phí cho các cấp học phổ thông công lập.
+- Ngày 13-9, UBND tỉnh Kiên Giang tổ chức hội nghị công bố thành lập Quỹ Khuyến học tỉnh Kiên Giang nhằm giúp các bạn sinh viên nghèo ở địa phương viết tiếp giấc mơ đến trường.
+- 92 sinh viên là anh, chị em sinh đôi cùng học chung một trường đại học ở TP.HCM được trường giảm 50% học phí.
+- Cứu trợ đồng bào bị bão lũ mà xếp hàng chờ tới lượt. Đó là tư liệu phong phú để trang giáo án của tôi tới đây thêm những bài học về tình người.
+- Trường đại học Khoa học xã hội và Nhân văn (Đại học Quốc gia TP.HCM) quyết định không tổ chức lễ khai giảng năm học mới để lấy kinh phí ủng hộ đồng bào vùng lũ.
+- Nhiều sinh viên đang chật vật với chứng chỉ tiếng Anh để đủ điều kiện ra trường theo quy định của trường.
 - Trường THPT Trường Chinh (quận 12, TP.HCM) không cho học sinh sử dụng điện thoại thông minh trong khuôn viên trường.
 - Đây là một trong những lời chúc được học sinh Trường tiểu học Hà Nội viết và dán lên những lọ muối vừng do chính tay các em làm để gửi tới vùng lũ.
 - Mạng xã hội xuất hiện thông tin hướng dẫn mua bộ đề ôn thi viên chức ngành giáo dục năm 2024 tại Quảng Ngãi với giá từ 300.000-400.000 đồng, đây là hình thức lừa đảo, mọi người cần cảnh giác.
@@ -21,50 +31,41 @@
 - 15 năm qua, tiến sĩ - dược sĩ Phạm Đức Hùng đã hỗ trợ hàng trăm sinh viên, học viên người Việt nhận được các học bổng khủng của đại học nước ngoài.
 - TS Phan Hồng Hải - hiệu trưởng Trường đại học Công nghiệp TP.HCM quyết định dành tặng chiếc xe máy là phần thưởng ông vừa đoạt giải hội thi triển lãm sinh vật cảnh, cho sinh viên có hoàn cảnh khó khăn của trường.
 - Sau khi cháu bé 13 tháng tuổi bị gãy chân, chủ cơ sở mầm non đã không thông tin, báo cáo các cấp quản lý.
-- Ngày 10-9, học sinh ở nhiều địa phương phía Bắc vẫn phải nghỉ học vì trường học chưa đảm bảo an toàn, nhiều nơi đường đến trường bị chia cắt vì lũ.
-- Trước thực trạng lũ lụt chưa từng có ở miền Bắc gây ra nhiều thiệt hại về người và tài sản, để đảm bảo an toàn cho cán bộ, giảng viên, sinh viên, có thêm nhiều trường đại học tiếp tục cho sinh viên nghỉ học hoặc chuyển sang học trực tuyến.
-- Ngày 10-9, Bộ trưởng Bộ Giáo dục và Đào tạo tiếp tục có công điện gửi giám đốc các sở giáo dục và đào tạo về việc hỗ trợ giáo viên, học sinh và khắc phục thiệt hại do bão lũ.
-- Thủ tướng Úc hé lộ lộ trình thông qua quy định về độ tuổi tối thiểu được tham gia mạng xã hội, khả năng cao trong khoảng 14 - 16 tuổi.
-- Trong nỗi bức xúc, một phụ huynh nói nếu giải quyết không ổn thỏa, sẽ trả lại giấy khen học sinh xuất sắc của con cho trường.
-- Dù thông báo đấu giá nhiều lần nhưng hai khu đất làm trường học không được doanh nghiệp quan tâm, nên phải điều chỉnh quy hoạch.
-- Sở Giáo dục và Đào tạo TP.HCM vừa có văn bản về tăng cường công tác quản lý các khoản thu trong lĩnh vực giáo dục, đào tạo; vận động tài trợ cho giáo dục và kinh phí hoạt động cha mẹ học sinh năm học 2024-2025.
-- Phó giáo sư Shannon Gramse (Đại học Alaska, Anchorage, Mỹ) vừa kết thúc gần ba tháng hè tại Việt Nam. Ông rong ruổi từ thành thị đến nông thôn chia sẻ nhiều kiến thức thú vị cho học sinh Việt Nam.
-- Sau khi bão Yagi (bão số 3) gây thiệt hại ở nhiều địa phương, mưa lũ lại tiếp tục ở một số tỉnh miền núi phía Bắc. Nhiều trường học vẫn chưa thể cho học sinh quay lại trường.
-- Ngay sau khi nghe tin cầu Phong Châu sập, hai nhà xe đã hợp sức huy động 3 xe chở hàng trăm học sinh đi đường vòng 50km đến trường...
 ![Edu](Edu.png)
 ## Thời Sự 
-- Hà Nội rút báo động 2 trên sông Hồng, sông Đuống khi nước lũ tại các dòng sông này đã bắt đầu rút  từ ngày 12-9.
-- Trước tình hình ảnh hưởng của bão số 3, ngành y tế TP.HCM đã phát động chương trình 'Túi thuốc gia đình' hỗ trợ 10 tỉnh, thành miền Bắc.
-- Tối 12-9, ông Nguyễn Quốc Nghi, bí thư Đảng ủy xã Cốc Lầu, huyện Bắc Hà, tỉnh Lào Cai, cho biết thông tin về việc tìm thấy 17 hộ dân ở Kho Vàng, tại xã Cốc Lầu, là không chính xác.
-- Lợi dụng thiệt hại do cơn bão số 3 gây ra trên địa bàn tỉnh Yên Bái, một số người sử dụng hình ảnh, thông tin tại các địa điểm bị thiệt hại do bão, lũ gây ra đăng tin trên Zalo, Facebook để lừa đảo khi kêu gọi người hảo tâm gửi đồ ăn, đồ dùng, tiền.
-- 3 ngày sau vụ lũ quét, sạt lở đất đặc biệt nghiêm trọng tại bản Làng Nủ (xã Phúc Khánh, huyện Bảo Yên, tỉnh Lào Cai) vẫn còn 50 người mất tích.
-- "Tôi chạy vội hô cả làng ở, sập đồi, chết hết rồi nhưng mọi thứ quá nhanh, chỉ trong vài phút, cả làng bị sập hết cả", ông Hoàng Văn Tiện nhớ lại.
-- Nam Bộ chịu ảnh hưởng của rãnh áp thấp, cùng với đó gió mùa tây nam hoạt động mạnh lên khiến trời mưa to từ nay tới 18-9.
-- Thụy Sĩ sẽ cử 6 chuyên gia đến Việt Nam, đồng thời cung cấp 1 triệu franc để hỗ trợ người dân bị ảnh hưởng bởi bão số 3 (bão Yagi) vừa qua.
-- Đoàn kiểm tra của Ban Thường vụ Tỉnh ủy Khánh Hòa về “kiểm tra khi có dấu hiệu vi phạm đối với Ban cán sự Đảng UBND tỉnh” đã làm việc với chủ dự án hệ thống thoát lũ từ cầu Phú Vinh về đầu sông Tắc, TP Nha Trang.
-- Một số tin tức đáng chú ý: Loạt công ty bất động sản ở TP.HCM bị xử phạt; Chốt ngày cổ phiếu HBC và HNG giao dịch trên sàn UpCOM; Nhiều doanh nghiệp xuất khẩu thủy sản thiệt hại sau bão số 3...
-- Hôm nay 13-9, thời tiết Bắc Bộ sẽ có nắng sau nhiều ngày mưa dai dẳng, về chiều tối khu vực có mưa rào. Nam Bộ hôm nay mưa to đến rất to.
-- Chiều muộn 12-9, Phó thủ tướng Trần Hồng Hà cùng đoàn công tác đã đến Ninh Bình kiểm tra phương án thoát lũ sông Hoàng Long, có nguy cơ ảnh hưởng đến 60.000 người dân thuộc hai huyện của tỉnh này.
-- Chiều tối 12-9, Tổng Bí thư, Chủ tịch nước Tô Lâm đã kiểm tra công tác phòng chống lụt bão và thăm hỏi, động viên nhân dân vùng lụt, bão tại tỉnh Phú Thọ.
-- Đây là một trong những lời chúc được học sinh Trường tiểu học Hà Nội viết và dán lên những lọ muối vừng do chính tay các em làm để gửi tới vùng lũ.
-- Ủy ban Trung ương Mặt trận Tổ quốc Việt Nam đã đăng tải 12.028 trang sao kê tiền ủng hộ đồng bào bị ảnh hưởng bởi bão số 3, với tổng số tiền lên tới 527,8 tỉ đồng.
-- Trước sự cố tại các trạm bơm quan trọng sát sông Thương, sông Thái Bình, chủ tịch UBND tỉnh Bắc Giang, Bắc Ninh trực tiếp xuống hiện trường chỉ đạo, huy động nhân lực khắc phục.
-- Sau phản ánh của Tuổi Trẻ Online về việc cầu Trà Khúc 1 trơ sắt, chủ tịch UBND tỉnh Quảng Ngãi đã yêu cầu kiểm tra tất cả các cây cầu.
-- Chủ tịch Tập đoàn Adani Gautam Adani - tập đoàn lớn nhất Ấn Độ chuyên về cơ sở hạ tầng, năng lượng - nói sẽ đóng góp 1 triệu USD hỗ trợ Việt Nam khắc phục hậu quả của bão số 3 (Yagi).
-- Thiếu tá quân nhân chuyên nghiệp Tăng Bá Hưng đã hy sinh khi đang làm nhiệm vụ giúp dân khắc phục hậu quả cơn bão số 3.
-- Đường sá gần như bị tê liệt, hàng trăm người phải đi bộ vượt núi vài tiếng đồng hồ để tiếp cận hiện trường vụ sạt lở khiến 15 người mất tích ở Nậm Lúc, Lào Cai.
-- 17 hộ dân tại thôn Kho Vàng, xã Cốc Lầu, huyện Bắc Hà (Lào Cai) với hơn 70 nhân khẩu đã dựng lán trại trên đồi để ở, tránh lũ và sạt lở đất.
-- Hai tỉnh Hà Nam và Ninh Bình đã di dời hàng ngàn hộ dân do nước lũ sông Đáy, sông Hoàng Long dâng cao vượt mức báo động 3 (ngày 11 và 12-9).
-- Nhiều khu dân cư ngoài đê sông Hồng, trong đó có làng gốm Bát Tràng (Hà Nội) đang phải dùng thuyền đi lại trong nước lũ.
-- Hệ thống mầm non song ngữ Little Sol Montessori đã dừng tổ chức lễ kỷ niệm 10 năm thành lập, chuyển kinh phí 300 triệu đồng ủng hộ đồng bào bị bão lũ thông qua báo Tuổi Trẻ.
-- Ngày 12-9, Chủ tịch Quốc hội Trần Thanh Mẫn đã đi thăm, động viên và kiểm tra tình hình, chỉ đạo khắc phục thiệt hại do bão số 3 và mưa lũ sau bão gây ra trên địa bàn tỉnh Thái Nguyên.
-- Những ngày qua, nhiều người dân sống tại chung cư Picity (quận 12, TP.HCM) phản ánh việc nước sinh hoạt bỗng nhiên chuyển sang màu vàng, không đảm bảo an toàn.
-- Dự án xây dựng hạ tầng, cải tạo môi trường kênh Tham Lương - Bến Cát - rạch Nước Lên hiện đang có tiến độ 40%.
-- Ông Nguyễn Đức Hiển - phó trưởng Ban Kinh tế Trung ương - được điều động làm phó bí thư Tỉnh ủy Cà Mau.
-- Sau nhiều ngày ngập nước, các vùng trũng ven sông Cầu, sông Đu tại tỉnh Thái Nguyên đã rút nước. Người dân tranh thủ dọn dẹp, vệ sinh trở về nhà sau trận "đại hồng thủy".
-- Sau gần 2 năm thi công, cầu Nhơn Trạch đã hợp long những nhịp đầu tiên và đặt mục tiêu hoàn thành vào tháng 4-2025.
+- Ông Trần Hoàng Tuân - trưởng Ban Tuyên giáo Huyện ủy Bắc Hà (Lào Cai) - cho hay đến chiều 13-9, toàn huyện có 20 người chết, 14 người mất tích và bị thương 17 người vì bão lũ, sạt lở. Và tại nơi đây tình thương cũng nở hoa.
+- Ngày thứ tư sau vụ lũ quét thôn Làng Nủ (Phúc Khánh, Bảo Yên, Lào Cai), công tác tìm kiếm người mất tích vẫn được triển khai tích cực.
+- Chia sẻ với những khó khăn, mất mát của bà con vùng lũ phía Bắc, nhiều hoạt động hỗ trợ bằng sức người, sức của ở khắp nơi và bằng nhiều cách vẫn được tiếp tục ghi nhận trong ngày 13-9.
+- Ủy ban Trung ương Mặt trận Tổ quốc Việt Nam đã tiếp tục đăng tải 2.009 trang sao kê tiền ủng hộ đồng bào bị ảnh hưởng bởi bão số 3 từ ngày 10 đến 12-9.
+- Thủ tướng Chính phủ Phạm Minh Chính vừa ký công điện về tăng cường công tác cung ứng hàng hóa thiết yếu phục vụ nhân dân các địa phương bị ảnh hưởng của cơn bão số 3.
+- Một số tin tức đáng chú ý: Giá USD tự do xuống dưới 25.000 đồng; Chặn hơn 13.000 tên miền độc hại; TP.HCM thêm 60 điểm tiêm vắc xin sởi miễn phí cho trẻ...
+- Hôm nay 14-9, thời tiết Bắc Bộ nắng, chiều tối đến đêm có mưa rào, lũ tại các sông có xu hướng xuống chậm. Trung Bộ và Nam Bộ mưa to.
+- Lực lượng cứu hộ chỉ có cuốc, xẻng và bới bùn bằng tay không tìm kiếm nạn nhân bị vùi lấp trong vụ sạt lở kinh hoàng ở xã Nậm Lúc, huyện Bắc Hà, Lào Cai.
+- 2/3 lô hàng cứu trợ cho người dân ảnh hưởng bão số 3 (Yagi) của Trung tâm điều phối khu vực ASEAN về hỗ trợ nhân đạo thiên tai (Trung tâm AHA) đã tới sân bay Nội Bài ngày 13-9.
+- Khu bảo tồn thiên nhiên Đakrông có gần 1.000ha rừng trồng keo xen cây bản địa từ năm 2005. Số cây này đã đạt kích thước tối đa nhưng không thể khai thác, đe dọa cháy rừng, ảnh hưởng đa dạng sinh học…
+- Ngày 13-9, Bộ Văn hóa, Thể thao và Du lịch có văn bản về việc đề nghị các cơ quan chức năng xử lý thông tin xuyên tạc, sai sự thật gây ảnh hưởng xấu tới ngành.
+- Ngày 13-9, thông tin từ Trung ương Hội Chữ thập đỏ Việt Nam, thời gian gần đây trên mạng xã hội đã xuất hiện nhiều trang cá nhân và fanpage giả mạo, lợi dụng danh nghĩa của Hội Chữ thập đỏ Việt Nam.
+- Tính đến 16h30 ngày 13-9, Ủy ban MTTQ Việt Nam TP.HCM - Quỹ Cứu trợ TP đã tiếp nhận 19,7 tỉ đồng từ các tổ chức, cá nhân hướng về đồng bào bị ảnh hưởng bão số 3.
+- Ngày 13-9, Phòng an ninh mạng và phòng, chống tội phạm sử dụng công nghệ cao, Công an tỉnh Hà Nam đã ra quyết định xử phạt vi phạm hành chính 7,5 triệu đồng hai người.
+- Những ngày qua, hay tin bão số 3 gây ảnh hưởng nghiêm trọng đến một số tỉnh miền Bắc, lãnh đạo các nước và một số tổ chức quốc tế đã gửi điện thăm hỏi đến lãnh đạo Đảng, Nhà nước và nhân dân Việt Nam.
+- Công ty An Hưng Phát bị xử phạt 300 triệu đồng do xây dựng khu dân cư nhưng chưa hoàn thành công trình bảo vệ môi trường phục vụ giai đoạn vận hành.
+- Tuyên bố chung Việt Nam - Lào sau chuyến thăm của Tổng Bí thư, Chủ tịch nước Lào Thongloun Sisoulith gồm 10 điểm, nhấn mạnh các định hướng lớn tăng cường hơn nữa quan hệ đặc biệt giữa hai nước.
+- Nước lũ trên các sông ở Ninh Bình và Hà Nam đã rút nhưng nhiều khu dân cư ngoài đê vẫn bị ngập sâu, giao thông chia cắt.
+- Sao kê để các tổ chức, cá nhân có thể thấy được, yên tâm sự đóng góp đã đến đúng địa chỉ và sẽ về được với người dân bị thiệt hại.
+- Tính đến chiều 13-9, đã có 4.057 lượt bạn đọc là cá nhân và tổ chức ủng hộ hơn 6,5 tỉ đồng cho bà con vùng bão lũ các tỉnh phía Bắc.
+- Mạng lưới thông tin Cứu nạn khẩn cấp - ERIN vừa được một nhóm kỹ sư người Việt trên toàn cầu hợp sức đưa vào hoạt động được 24 giờ, đã tiếp nhận thông tin của hơn 1.300 hộ dân cần ứng cứu từ vùng lũ lụt.
+- Cơ quan công an vào cuộc điều tra và xác định nghi phạm “thụt két” của công ty chính là… giám đốc.
+- Đọc những thông tin mưa bão, lũ lụt qua từng trang báo của Tuổi Trẻ, thầy Nguyễn Văn Dững - nguyên trưởng khoa báo chí Học viện Báo chí và Tuyên truyền - đã đến Văn phòng báo Tuổi Trẻ tại Hà Nội, gửi 1 tháng lương hưu ủng hộ đồng bào vùng bão lũ.
+- Mạng xã hội đang lan truyền thông tin về một ‘biệt phủ’ như ‘Đại Nội thu nhỏ’, được cho của một giám đốc sở còn đương nhiệm ở Huế.
+- Bộ Chính trị nhất trí trình Hội nghị Trung ương Đảng lần thứ 10 cho ý kiến về chủ trương theo quy định về thành lập TP Huế trực thuộc Trung ương.
+- Tổng Bí thư, Chủ tịch nước Tô Lâm gửi thư cho các cháu thiếu niên, nhi đồng nhân dịp Tết Trung thu năm 2024.
+- Nước sông Cầu lên cao khiến nơi ở của 1.300 hộ dân, trên 5.200 người ở Bắc Giang bị ngập sâu, nhiều chỗ bị chia cắt một tuần.
+- Để hỗ trợ các tỉnh miền Bắc khắc phục hậu quả do bão lũ gây ra, Cục Đường bộ Việt Nam đề nghị các nhà đầu tư các tuyến đường BOT miễn thu phí đường bộ với xe chở hàng cứu trợ.
+- Chiều 13-9, Ủy ban MTTQ Việt Nam TP.HCM tổ chức lễ xuất quân, với những chuyến xe chở hơn 30 tấn hàng hóa đi hỗ trợ đồng bào miền Bắc bị thiệt hại do bão số 3.
+- Ngay sau khi về nước, Tổng Bí thư, Chủ tịch nước Lào Thongloun Sisoulith đã có thư cảm ơn, gửi Tổng Bí thư, Chủ tịch nước Tô Lâm vì sự tiếp đón nồng ấm vừa qua.
 ![New](News.png)
 ## Nhịp sống số 
+- Cục Viễn thông đang đề xuất lùi thời gian tắt sóng 2G, để các nhà mạng có thêm thời gian hỗ trợ 3,4 triệu khách hàng chuyển đổi từ thuê 2G lên 4G.
 - Ban tổ chức cho biết sự kiện nhằm ghi nhận, vinh danh và ủng hộ những đóng góp cũng như tài năng đội ngũ sáng tạo nội dung số tại Việt Nam.
 - Quyết định rút khỏi thị trường Việt Nam của Gojek để lại nhiều tiếc nuối cho các đối tác tài xế, nhà hàng và người dùng, những người đã đồng hành cùng hãng xe công nghệ thời gian qua.
 - Ông Elon Musk đang trên đà trở thành tỉ phú nghìn tỉ (trillionaire) đầu tiên trên thế giới vào năm 2027.
@@ -94,5 +95,4 @@
 - Gần một tuần sau sự cố sập mạng toàn cầu, CrowdStrike cho biết 97% máy tính sử dụng hệ điều hành Windows bị ảnh hưởng đã hoạt động trở lại.
 - CrowdStrike thừa nhận sự cố sập hệ thống vi tính toàn cầu là do lỗi trong quá trình kiểm soát chất lượng các bản cập nhật phần mềm của công ty này.
 - Việc Google giữ cookie đồng nghĩa dữ liệu cá nhân của 3 tỉ người dùng Chrome vẫn đang bị các trang mạng theo dõi.
-- Thay vì loại bỏ cookie của bên thứ ba, Google sẽ giới thiệu trải nghiệm mới trên Chrome.
 ![life](Life.png)
