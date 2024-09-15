@@ -1,6 +1,12 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Hiện có quá nhiều thông tin tư vấn, cách tổ chức khá giống nhau khiến cho học sinh 'ngộp'. Do vậy rất cần chương trình tư vấn tuyển sinh chất lượng.
+- Tổ chức giáo dục Ormiston Academies Trust sẽ tiên phong trong việc cấm học sinh sử dụng điện thoại thông minh (smartphone) trong trường học.
+- 'Bão lũ đang gây hậu quả vô cùng nghiêm trọng cho đồng bào các tỉnh phía Bắc. Nhìn thấy những hình ảnh đau xót, chúng tôi không thể đứng ngoài cuộc”, TS Phan Hồng Hải, hiệu trưởng Trường đại học Công nghiệp TP.HCM, chia sẻ.
+- GS.TS Đào Văn Đông được bổ nhiệm làm hiệu trưởng Trường đại học Thái Bình Dương kể từ năm học 2024-2025.
+- Giải thưởng khoa học và công nghệ dành cho giảng viên trẻ trong các cơ sở giáo dục đại học định kỳ tổ chức 3 năm một lần.
+- Bài báo "'Cấm học sinh sử dụng điện thoại trong trường' (Tuổi Trẻ ngày 13-9) thu hút sự quan tâm của dư luận.
 - Hàng loạt trường đại học sau các đợt xét tuyển bổ sung đến nay vẫn còn thiếu cả ngàn chỉ tiêu. Nhiều trường quyết định khép lại mùa tuyển sinh 2024 do cạn nguồn tuyển.
 - Đại học Kinh tế TP.HCM đã triển khai nhiều chương trình hỗ trợ sinh viên các tỉnh phía Bắc bị ảnh hưởng bão lũ đang theo học tại nhà trường.
 - Mạng xã hội lan truyền tin giả trưởng Phòng Giáo dục và Đào tạo TP Quảng Ngãi nhận 30 triệu đồng/suất để 'chạy' vào Trường THCS Nguyễn Nghiêm. Qua kiểm tra, không có học sinh nào tuyển trái tuyến.
@@ -25,44 +31,38 @@
 - Trước diễn biến phức tạp của mưa lũ, nhiều trường học tại Hà Nội và các địa phương đã chuyển sang dạy trực tuyến, trò học online.
 - Sau bốn mùa thành công, Speak Up 2024 tiếp tục trở thành “ngôi nhà chung” hội tụ hàng ngàn tài năng nhí với nhiều bất ngờ mới.
 - Nhiều giáo viên sau khi hết giờ dạy đã xung phong ở lại trường để cùng đồng nghiệp nấu cơm dành tặng bà con đến trường sơ tán tránh mưa lũ.
-- Sau khi sáp nhập, đại học mới trở thành một trong những trường lớn nhất tại Úc và nằm trong nhóm 8 đại học Úc hàng đầu về nghiên cứu (G8).
-- Dưới hang Câu - địa điểm du lịch nổi tiếng ở đảo Lý Sơn, những học trò cùng nhau sáng tác tranh theo các chủ đề được Cảnh sát biển gợi ý. Bức tranh vẽ cầu Long Biên trong lũ cuồn cuộn rất thời sự được trao giải nhất.
-- Chiều tối 9-9, tại Trường quốc tế Tesla (phường 13, quận Tân Bình, TP.HCM) đã xảy ra vụ việc một bảo vệ của trường này đánh bảo mẫu chảy máu mũi, miệng, gãy mũi.
-- 15 năm qua, tiến sĩ - dược sĩ Phạm Đức Hùng đã hỗ trợ hàng trăm sinh viên, học viên người Việt nhận được các học bổng khủng của đại học nước ngoài.
-- TS Phan Hồng Hải - hiệu trưởng Trường đại học Công nghiệp TP.HCM quyết định dành tặng chiếc xe máy là phần thưởng ông vừa đoạt giải hội thi triển lãm sinh vật cảnh, cho sinh viên có hoàn cảnh khó khăn của trường.
-- Sau khi cháu bé 13 tháng tuổi bị gãy chân, chủ cơ sở mầm non đã không thông tin, báo cáo các cấp quản lý.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Ông Trần Hoàng Tuân - trưởng Ban Tuyên giáo Huyện ủy Bắc Hà (Lào Cai) - cho hay đến chiều 13-9, toàn huyện có 20 người chết, 14 người mất tích và bị thương 17 người vì bão lũ, sạt lở. Và tại nơi đây tình thương cũng nở hoa.
-- Ngày thứ tư sau vụ lũ quét thôn Làng Nủ (Phúc Khánh, Bảo Yên, Lào Cai), công tác tìm kiếm người mất tích vẫn được triển khai tích cực.
-- Chia sẻ với những khó khăn, mất mát của bà con vùng lũ phía Bắc, nhiều hoạt động hỗ trợ bằng sức người, sức của ở khắp nơi và bằng nhiều cách vẫn được tiếp tục ghi nhận trong ngày 13-9.
-- Ủy ban Trung ương Mặt trận Tổ quốc Việt Nam đã tiếp tục đăng tải 2.009 trang sao kê tiền ủng hộ đồng bào bị ảnh hưởng bởi bão số 3 từ ngày 10 đến 12-9.
-- Thủ tướng Chính phủ Phạm Minh Chính vừa ký công điện về tăng cường công tác cung ứng hàng hóa thiết yếu phục vụ nhân dân các địa phương bị ảnh hưởng của cơn bão số 3.
-- Một số tin tức đáng chú ý: Giá USD tự do xuống dưới 25.000 đồng; Chặn hơn 13.000 tên miền độc hại; TP.HCM thêm 60 điểm tiêm vắc xin sởi miễn phí cho trẻ...
-- Hôm nay 14-9, thời tiết Bắc Bộ nắng, chiều tối đến đêm có mưa rào, lũ tại các sông có xu hướng xuống chậm. Trung Bộ và Nam Bộ mưa to.
-- Lực lượng cứu hộ chỉ có cuốc, xẻng và bới bùn bằng tay không tìm kiếm nạn nhân bị vùi lấp trong vụ sạt lở kinh hoàng ở xã Nậm Lúc, huyện Bắc Hà, Lào Cai.
-- 2/3 lô hàng cứu trợ cho người dân ảnh hưởng bão số 3 (Yagi) của Trung tâm điều phối khu vực ASEAN về hỗ trợ nhân đạo thiên tai (Trung tâm AHA) đã tới sân bay Nội Bài ngày 13-9.
-- Khu bảo tồn thiên nhiên Đakrông có gần 1.000ha rừng trồng keo xen cây bản địa từ năm 2005. Số cây này đã đạt kích thước tối đa nhưng không thể khai thác, đe dọa cháy rừng, ảnh hưởng đa dạng sinh học…
-- Ngày 13-9, Bộ Văn hóa, Thể thao và Du lịch có văn bản về việc đề nghị các cơ quan chức năng xử lý thông tin xuyên tạc, sai sự thật gây ảnh hưởng xấu tới ngành.
-- Ngày 13-9, thông tin từ Trung ương Hội Chữ thập đỏ Việt Nam, thời gian gần đây trên mạng xã hội đã xuất hiện nhiều trang cá nhân và fanpage giả mạo, lợi dụng danh nghĩa của Hội Chữ thập đỏ Việt Nam.
-- Tính đến 16h30 ngày 13-9, Ủy ban MTTQ Việt Nam TP.HCM - Quỹ Cứu trợ TP đã tiếp nhận 19,7 tỉ đồng từ các tổ chức, cá nhân hướng về đồng bào bị ảnh hưởng bão số 3.
-- Ngày 13-9, Phòng an ninh mạng và phòng, chống tội phạm sử dụng công nghệ cao, Công an tỉnh Hà Nam đã ra quyết định xử phạt vi phạm hành chính 7,5 triệu đồng hai người.
-- Những ngày qua, hay tin bão số 3 gây ảnh hưởng nghiêm trọng đến một số tỉnh miền Bắc, lãnh đạo các nước và một số tổ chức quốc tế đã gửi điện thăm hỏi đến lãnh đạo Đảng, Nhà nước và nhân dân Việt Nam.
-- Công ty An Hưng Phát bị xử phạt 300 triệu đồng do xây dựng khu dân cư nhưng chưa hoàn thành công trình bảo vệ môi trường phục vụ giai đoạn vận hành.
-- Tuyên bố chung Việt Nam - Lào sau chuyến thăm của Tổng Bí thư, Chủ tịch nước Lào Thongloun Sisoulith gồm 10 điểm, nhấn mạnh các định hướng lớn tăng cường hơn nữa quan hệ đặc biệt giữa hai nước.
-- Nước lũ trên các sông ở Ninh Bình và Hà Nam đã rút nhưng nhiều khu dân cư ngoài đê vẫn bị ngập sâu, giao thông chia cắt.
-- Sao kê để các tổ chức, cá nhân có thể thấy được, yên tâm sự đóng góp đã đến đúng địa chỉ và sẽ về được với người dân bị thiệt hại.
-- Tính đến chiều 13-9, đã có 4.057 lượt bạn đọc là cá nhân và tổ chức ủng hộ hơn 6,5 tỉ đồng cho bà con vùng bão lũ các tỉnh phía Bắc.
-- Mạng lưới thông tin Cứu nạn khẩn cấp - ERIN vừa được một nhóm kỹ sư người Việt trên toàn cầu hợp sức đưa vào hoạt động được 24 giờ, đã tiếp nhận thông tin của hơn 1.300 hộ dân cần ứng cứu từ vùng lũ lụt.
-- Cơ quan công an vào cuộc điều tra và xác định nghi phạm “thụt két” của công ty chính là… giám đốc.
-- Đọc những thông tin mưa bão, lũ lụt qua từng trang báo của Tuổi Trẻ, thầy Nguyễn Văn Dững - nguyên trưởng khoa báo chí Học viện Báo chí và Tuyên truyền - đã đến Văn phòng báo Tuổi Trẻ tại Hà Nội, gửi 1 tháng lương hưu ủng hộ đồng bào vùng bão lũ.
-- Mạng xã hội đang lan truyền thông tin về một ‘biệt phủ’ như ‘Đại Nội thu nhỏ’, được cho của một giám đốc sở còn đương nhiệm ở Huế.
-- Bộ Chính trị nhất trí trình Hội nghị Trung ương Đảng lần thứ 10 cho ý kiến về chủ trương theo quy định về thành lập TP Huế trực thuộc Trung ương.
-- Tổng Bí thư, Chủ tịch nước Tô Lâm gửi thư cho các cháu thiếu niên, nhi đồng nhân dịp Tết Trung thu năm 2024.
-- Nước sông Cầu lên cao khiến nơi ở của 1.300 hộ dân, trên 5.200 người ở Bắc Giang bị ngập sâu, nhiều chỗ bị chia cắt một tuần.
-- Để hỗ trợ các tỉnh miền Bắc khắc phục hậu quả do bão lũ gây ra, Cục Đường bộ Việt Nam đề nghị các nhà đầu tư các tuyến đường BOT miễn thu phí đường bộ với xe chở hàng cứu trợ.
-- Chiều 13-9, Ủy ban MTTQ Việt Nam TP.HCM tổ chức lễ xuất quân, với những chuyến xe chở hơn 30 tấn hàng hóa đi hỗ trợ đồng bào miền Bắc bị thiệt hại do bão số 3.
-- Ngay sau khi về nước, Tổng Bí thư, Chủ tịch nước Lào Thongloun Sisoulith đã có thư cảm ơn, gửi Tổng Bí thư, Chủ tịch nước Tô Lâm vì sự tiếp đón nồng ấm vừa qua.
+- Ngoài giải quyết chuyện người dân mất trắng tài sản cần được hỗ trợ để khôi phục sản xuất, ổn định kế sinh nhai, hậu quả của bão lũ còn ngồn ngộn các vấn đề khác. Đó là những vấn đề gì và cách xử lý thế nào?
+- 2 thanh niên quê Quảng Bình mang theo súng cùng 7 viên đạn "hộ tống” 26kg ma túy từ Lào về Việt Nam thì bị bắt.
+- Anh tranh thủ ngày nghỉ cuối tuần, phụ gia đình đốt thực bì rừng trồng thì bị ngạt khí, được đưa đi cấp cứu nhưng không qua khỏi.
+- Sau trận lũ quét kinh hoàng tại Làng Nủ (huyện Bảo Yên, Lào Cai) vào sáng 10-9, Hoàng Văn Thới (33 tuổi) mất đi mẹ, vợ và ba người con.
+- Sáng nay 15-9, nhiều nơi ở TP.HCM có mưa dông, dự báo những ngày tới mưa sẽ còn tiếp tục xảy ra.
+- Những thiệt hại về người, tài sản sau cơn bão Yagi (bão số 3) thật khủng khiếp (xem đồ họa). Việc tái thiết cơ sở hạ tầng, năng lực sản xuất...theo các chuyên gia và nhà quản lý, cần đến một quyết sách đủ mạnh.
+- Ngày 14-9, Bí thư Thành ủy Hà Nội Bùi Thị Minh Hoài cùng nhiều lãnh đạo TP đã cùng người dân dọn dẹp vệ sinh tại vườn hoa Vạn Xuân trong lễ phát động toàn dân tham gia tổng vệ sinh môi trường, khắc phục hậu quả cơn bão số 3.
+- Cầu Tân Thuận 1, Sài Gòn, Bình Triệu 1... có tuổi đời hàng chục, hàng trăm năm sắp được kiểm tra để đảm bảo an toàn trong mùa mưa bão.
+- Trung tâm Dự báo khí tượng thủy văn quốc gia dự báo từ nay (15-9) đến chiều tối 16-9, ở khu vực Tây Nguyên và Nam Bộ có mưa vừa, mưa to và dông, cục bộ có nơi mưa rất to.
+- Lực lượng chức năng tỉnh Phú Thọ vừa phát hiện thi thể một người phụ nữ và xác định là nạn nhân trong vụ sập cầu Phong Châu xảy ra hôm 9-9.
+- Thứ trưởng Bộ Nông nghiệp và Phát triển nông thôn Nguyễn Hoàng Hiệp kể lại những giờ phút 'gay cấn' và 'chưa có tiền lệ' trong bão số 3 (Yagi) ngay trên sóng chương trình truyền hình trực tiếp Hướng về đồng bào nơi bão lũ.
+- Tin tức đáng chú ý: Hệ thống đê điều ghi nhận trên 300 sự cố trong đợt lũ lụt lớn phía Bắc vừa qua; Hiện nước trên các sông vẫn xuống nhưng chậm, vẫn ngập tại một số vùng; Kỷ niệm 55 năm thành lập Bệnh viện Nội tiết trung ương...
+- Hôm nay 15-9, thời tiết Bắc Bộ nắng đến nắng nóng, trời giảm mưa nhưng lũ các sông vẫn xuống chậm, nguy cơ sạt lở vẫn chực chờ khắp nơi.
+- Từ nay đến cuối năm có thể có từ 6 - 8 cơn bão, áp thấp nhiệt đới hoạt động trên khu vực Biển Đông, trong đó khoảng 3 - 4 cơn ảnh hưởng trực tiếp nước ta.
+- Đội thanh niên công nhân đảm bảo an ninh trật tự trên địa bàn Khu công nghiệp Tân Thới Hiệp vừa được ra mắt tối nay.
+- Dù các đơn vị đã nỗ lực khắc phục các vị trí sạt lở các quốc lộ tại miền Bắc nhưng đến 15h ngày 14-9 vẫn còn 13 điểm sạt lở, sụt lún chưa thể khắc phục.
+- Đến nay các lực lượng của quân đội đã đưa 374.000 người đến nơi an toàn trước, trong và sau bão số 3.
+- Mặt trận Tổ quốc Việt Nam đã tiếp tục đăng tải 335 trang sao kê tiền ủng hộ đồng bào bị ảnh hưởng bởi bão số 3 từ ngày 1 đến 12-9, trong đó có tên nhiều nghệ sĩ.
+- Phó thủ tướng thường trực Nguyễn Hòa Bình dự lễ Trung thu Đêm hội trăng rằm tại Đắk Lắk - nơi kết nối, sẻ chia niềm vui với thiếu nhi 13 tỉnh, thành phố khác.
+- Chỉ vài giờ sau khi mạng xã hội lan truyền đoạn video clip cho rằng hai người cho thuê xe điện cân bằng ở phố Nguyễn Huệ (phường Bến Nghé, quận 1) 'chặt chém' streamer nổi tiếng IshowSpeed, công an đã mời 2 người này về làm việc.
+- Hơn 500 trẻ em, trong đó chủ yếu các em nhỏ có hoàn cảnh gia đình khó khăn, bị mồ côi do đại dịch COVID-19 đã đón Tết Trung thu sớm.
+- Chính phủ Anh khẳng định sát cánh cùng người dân Việt Nam. Cộng đồng doanh nghiệp Singapore tại Việt Nam cũng chung tay quyên góp.
+- Ngày 14-9, đã có gần 5.200 lượt bạn đọc là cá nhân và tổ chức ủng hộ hơn 7 tỉ đồng cho đồng bào vùng bão lũ các tỉnh phía Bắc.
+- Sáu ngày qua, gia đình bà Sáu (ở xã Thạch Đồng) vẫn dầm mưa, dãi nắng đi tìm vợ chồng anh trai bị mất tích sau vụ sập cầu Phong Châu.
+- Quán cơm miễn phí đầy nghĩa tình của cảnh sát giao thông Quảng Ngãi để tiếp tinh thần cho các đoàn ra cứu trợ bão lũ miền Bắc.
+- Đến 18h ngày 14-9, hàng dài ôtô vẫn 'rồng rắn' nối đuôi vô phà Cát Lái (hướng Đồng Nai về TP.HCM).
+- Các tổ chức, cá nhân đã chuyển về tài khoản của Ban Vận động cứu trợ Trung ương là 1.001 tỉ để ủng hộ đồng bào thiệt hại do bão số 3.
+- Đa phần bánh trung thu chứa nhiều đường, chất béo và calo, nên nếu ăn không đúng cách dễ gây béo phì, tăng đường huyết, gây hại đến tim mạch.
+- Công an TP Long Xuyên, tỉnh An Giang khởi tố nhóm thanh niên bắt giữ một phụ nữ để đòi nợ theo kiểu cưỡng đoạt tài sản.
+- Tối nay, mưa lớn có thể xảy ra nhiều nơi tại TP.HCM. Mưa kèm theo dông lốc, có khả năng gây ngập ở các vùng trũng, ven sông và kênh rạch.
 ![New](News.png)
 ## Nhịp sống số 
 - Cục Viễn thông đang đề xuất lùi thời gian tắt sóng 2G, để các nhà mạng có thêm thời gian hỗ trợ 3,4 triệu khách hàng chuyển đổi từ thuê 2G lên 4G.
