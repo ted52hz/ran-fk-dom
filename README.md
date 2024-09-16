@@ -1,6 +1,10 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Để tránh những hệ lụy đau lòng xuất phát từ việc sử dụng mạng xã hội thiếu ý thức và yếu kỹ năng, gia đình - nhà trường - xã hội phải quyết liệt vào cuộc.
+- Từ hơn 300 thí sinh, cuộc thi học thuật cấp thành 'Hướng dẫn viên du lịch tiềm năng' đã tìm ra quán quân.
+- Không chỉ kêu gọi cán bộ, giảng viên ủng hộ ít nhất một ngày lương, trích tiền quỹ ra ủng hộ đồng bào vùng lũ, nhiều trường còn rà soát tổng số sinh viên trong trường bị ảnh hưởng bởi lũ lụt để lên phương án hỗ trợ.
+- Đây là một trong những mục tiêu trong mục tiêu hợp tác của Trường đại học Luật TP.HCM và UBND tỉnh Khánh Hòa.
 - Hiện có quá nhiều thông tin tư vấn, cách tổ chức khá giống nhau khiến cho học sinh 'ngộp'. Do vậy rất cần chương trình tư vấn tuyển sinh chất lượng.
 - Tổ chức giáo dục Ormiston Academies Trust sẽ tiên phong trong việc cấm học sinh sử dụng điện thoại thông minh (smartphone) trong trường học.
 - 'Bão lũ đang gây hậu quả vô cùng nghiêm trọng cho đồng bào các tỉnh phía Bắc. Nhìn thấy những hình ảnh đau xót, chúng tôi không thể đứng ngoài cuộc”, TS Phan Hồng Hải, hiệu trưởng Trường đại học Công nghiệp TP.HCM, chia sẻ.
@@ -27,44 +31,41 @@
 - Nếu vi phạm lệnh cấm dùng điện thoại di động trong trường, học sinh có thể bị đình chỉ từ 1 đến 3 ngày.
 - "Em mong là sẽ không ai bị mất người thân trong cơn lũ. Em xem hình ảnh nhà cửa bị cuốn đi, thấy thương".
 - Sáng nay 12-9, hàng loạt trường đại học tại TP.HCM phát động viên chức, người lao động đóng góp tối thiểu một ngày lương hỗ trợ đồng bào miền Bắc bị bão lũ.
-- Nhà giáo Huỳnh Duy Thủy được Chủ tịch nước Tô Lâm ký quyết định ngày 27-6-2024 về việc phong tặng danh hiệu Nhà giáo nhân dân.
-- Trước diễn biến phức tạp của mưa lũ, nhiều trường học tại Hà Nội và các địa phương đã chuyển sang dạy trực tuyến, trò học online.
-- Sau bốn mùa thành công, Speak Up 2024 tiếp tục trở thành “ngôi nhà chung” hội tụ hàng ngàn tài năng nhí với nhiều bất ngờ mới.
-- Nhiều giáo viên sau khi hết giờ dạy đã xung phong ở lại trường để cùng đồng nghiệp nấu cơm dành tặng bà con đến trường sơ tán tránh mưa lũ.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Ngoài giải quyết chuyện người dân mất trắng tài sản cần được hỗ trợ để khôi phục sản xuất, ổn định kế sinh nhai, hậu quả của bão lũ còn ngồn ngộn các vấn đề khác. Đó là những vấn đề gì và cách xử lý thế nào?
-- 2 thanh niên quê Quảng Bình mang theo súng cùng 7 viên đạn "hộ tống” 26kg ma túy từ Lào về Việt Nam thì bị bắt.
-- Anh tranh thủ ngày nghỉ cuối tuần, phụ gia đình đốt thực bì rừng trồng thì bị ngạt khí, được đưa đi cấp cứu nhưng không qua khỏi.
-- Sau trận lũ quét kinh hoàng tại Làng Nủ (huyện Bảo Yên, Lào Cai) vào sáng 10-9, Hoàng Văn Thới (33 tuổi) mất đi mẹ, vợ và ba người con.
-- Sáng nay 15-9, nhiều nơi ở TP.HCM có mưa dông, dự báo những ngày tới mưa sẽ còn tiếp tục xảy ra.
-- Những thiệt hại về người, tài sản sau cơn bão Yagi (bão số 3) thật khủng khiếp (xem đồ họa). Việc tái thiết cơ sở hạ tầng, năng lực sản xuất...theo các chuyên gia và nhà quản lý, cần đến một quyết sách đủ mạnh.
-- Ngày 14-9, Bí thư Thành ủy Hà Nội Bùi Thị Minh Hoài cùng nhiều lãnh đạo TP đã cùng người dân dọn dẹp vệ sinh tại vườn hoa Vạn Xuân trong lễ phát động toàn dân tham gia tổng vệ sinh môi trường, khắc phục hậu quả cơn bão số 3.
-- Cầu Tân Thuận 1, Sài Gòn, Bình Triệu 1... có tuổi đời hàng chục, hàng trăm năm sắp được kiểm tra để đảm bảo an toàn trong mùa mưa bão.
-- Trung tâm Dự báo khí tượng thủy văn quốc gia dự báo từ nay (15-9) đến chiều tối 16-9, ở khu vực Tây Nguyên và Nam Bộ có mưa vừa, mưa to và dông, cục bộ có nơi mưa rất to.
-- Lực lượng chức năng tỉnh Phú Thọ vừa phát hiện thi thể một người phụ nữ và xác định là nạn nhân trong vụ sập cầu Phong Châu xảy ra hôm 9-9.
-- Thứ trưởng Bộ Nông nghiệp và Phát triển nông thôn Nguyễn Hoàng Hiệp kể lại những giờ phút 'gay cấn' và 'chưa có tiền lệ' trong bão số 3 (Yagi) ngay trên sóng chương trình truyền hình trực tiếp Hướng về đồng bào nơi bão lũ.
-- Tin tức đáng chú ý: Hệ thống đê điều ghi nhận trên 300 sự cố trong đợt lũ lụt lớn phía Bắc vừa qua; Hiện nước trên các sông vẫn xuống nhưng chậm, vẫn ngập tại một số vùng; Kỷ niệm 55 năm thành lập Bệnh viện Nội tiết trung ương...
-- Hôm nay 15-9, thời tiết Bắc Bộ nắng đến nắng nóng, trời giảm mưa nhưng lũ các sông vẫn xuống chậm, nguy cơ sạt lở vẫn chực chờ khắp nơi.
-- Từ nay đến cuối năm có thể có từ 6 - 8 cơn bão, áp thấp nhiệt đới hoạt động trên khu vực Biển Đông, trong đó khoảng 3 - 4 cơn ảnh hưởng trực tiếp nước ta.
-- Đội thanh niên công nhân đảm bảo an ninh trật tự trên địa bàn Khu công nghiệp Tân Thới Hiệp vừa được ra mắt tối nay.
-- Dù các đơn vị đã nỗ lực khắc phục các vị trí sạt lở các quốc lộ tại miền Bắc nhưng đến 15h ngày 14-9 vẫn còn 13 điểm sạt lở, sụt lún chưa thể khắc phục.
-- Đến nay các lực lượng của quân đội đã đưa 374.000 người đến nơi an toàn trước, trong và sau bão số 3.
-- Mặt trận Tổ quốc Việt Nam đã tiếp tục đăng tải 335 trang sao kê tiền ủng hộ đồng bào bị ảnh hưởng bởi bão số 3 từ ngày 1 đến 12-9, trong đó có tên nhiều nghệ sĩ.
-- Phó thủ tướng thường trực Nguyễn Hòa Bình dự lễ Trung thu Đêm hội trăng rằm tại Đắk Lắk - nơi kết nối, sẻ chia niềm vui với thiếu nhi 13 tỉnh, thành phố khác.
-- Chỉ vài giờ sau khi mạng xã hội lan truyền đoạn video clip cho rằng hai người cho thuê xe điện cân bằng ở phố Nguyễn Huệ (phường Bến Nghé, quận 1) 'chặt chém' streamer nổi tiếng IshowSpeed, công an đã mời 2 người này về làm việc.
-- Hơn 500 trẻ em, trong đó chủ yếu các em nhỏ có hoàn cảnh gia đình khó khăn, bị mồ côi do đại dịch COVID-19 đã đón Tết Trung thu sớm.
-- Chính phủ Anh khẳng định sát cánh cùng người dân Việt Nam. Cộng đồng doanh nghiệp Singapore tại Việt Nam cũng chung tay quyên góp.
-- Ngày 14-9, đã có gần 5.200 lượt bạn đọc là cá nhân và tổ chức ủng hộ hơn 7 tỉ đồng cho đồng bào vùng bão lũ các tỉnh phía Bắc.
-- Sáu ngày qua, gia đình bà Sáu (ở xã Thạch Đồng) vẫn dầm mưa, dãi nắng đi tìm vợ chồng anh trai bị mất tích sau vụ sập cầu Phong Châu.
-- Quán cơm miễn phí đầy nghĩa tình của cảnh sát giao thông Quảng Ngãi để tiếp tinh thần cho các đoàn ra cứu trợ bão lũ miền Bắc.
-- Đến 18h ngày 14-9, hàng dài ôtô vẫn 'rồng rắn' nối đuôi vô phà Cát Lái (hướng Đồng Nai về TP.HCM).
-- Các tổ chức, cá nhân đã chuyển về tài khoản của Ban Vận động cứu trợ Trung ương là 1.001 tỉ để ủng hộ đồng bào thiệt hại do bão số 3.
-- Đa phần bánh trung thu chứa nhiều đường, chất béo và calo, nên nếu ăn không đúng cách dễ gây béo phì, tăng đường huyết, gây hại đến tim mạch.
-- Công an TP Long Xuyên, tỉnh An Giang khởi tố nhóm thanh niên bắt giữ một phụ nữ để đòi nợ theo kiểu cưỡng đoạt tài sản.
-- Tối nay, mưa lớn có thể xảy ra nhiều nơi tại TP.HCM. Mưa kèm theo dông lốc, có khả năng gây ngập ở các vùng trũng, ven sông và kênh rạch.
+- Đường Cộng Hòa (quận Tân Bình, TP.HCM) có chiều dài chỉ khoảng 3km nhưng hầu như ngày nào cũng kẹt xe.
+- Một tối trong tuần, ông Hồng chạy xe ba gác ghé tòa soạn. Ông gom hết tiền lẻ trong túi, góp xong, ông ngồi viết vài dòng: "Kính gửi đồng bào miền Bắc...".
+- Công chức, viên chức, người lao động Sở Xây dựng TP.HCM ủng hộ 707 triệu đồng cho đồng bào vùng bão, lũ phía Bắc do cơn bão số 3 (Yagi).
+- Lực lượng chức năng đang nỗ lực tìm kiếm người mất tích ở 2 điểm đau thương nhất hiện nay là cầu Phong Châu (Phú Thọ) và thôn Làng Nủ (Lào Cai).
+- Trận mưa lớn đổ xuống TP Hà Nội từ đêm 15, rạng sáng 16-9 đã khiến nhiều tuyến phố bị ngập nặng và ùn tắc nghiêm trọng trong sáng sớm đầu tuần.
+- Trung tâm Dự báo khí tượng thủy văn quốc gia cho biết ở vùng biển phía đông đảo Luzon (Philippines) có một áp thấp nhiệt đới đang hoạt động.
+- Một số tin tức đáng chú ý: Xuất cấp lương thực, vật tư, hóa chất khử khuẩn khắc phục hậu quả bão số 3; Biến động lãnh đạo ở Chứng khoán Phố Wall; Chủ thương hiệu Kem Tràng Tiền báo lỗ.
+- Hôm nay 16-9, thời tiết Bắc Bộ nắng gián đoạn, mưa dông xuất hiện trở lại, có nơi mưa to. Nam Bộ mưa to đến rất to.
+- Tối 15-9, Ủy ban Trung ương Mặt trận Tổ quốc Việt Nam tiếp tục đăng tải 9.899 trang sao kê tiền ủng hộ đồng bào bị ảnh hưởng bởi bão số 3 trong ngày 12-9.
+- Khu tái định cư mới được chọn xây dựng tại khu vực đồi sim, cách Nhà văn hóa thôn Làng Nủ (Lào Cai) khoảng 2km.
+- Sau nỗ lực khắc phục 45 điểm sạt lở nền đường do mưa lũ gây ra, ngày 15-9 tuyến đường sắt Hà Nội - Lào Cai đã được khai thông, gần 700 tấn hàng cứu trợ đang được các đoàn tàu chở tới vùng lũ.
+- Không chỉ tài sản của người dân, doanh nghiệp, trụ sở các cơ quan bị thiệt hại, mà những cánh rừng xanh biếc ở Cát Bà cũng hóa màu nâu sẫm sau khi bão số 3 quét qua.
+- Ủy ban Trung ương Mặt trận Tổ quốc Việt Nam đăng tải 9.194 trang sao kê tiền ủng hộ đồng bào bị ảnh hưởng bởi bão số 3 trong ngày 11-9.
+- Tỉnh Lâm Đồng phối hợp Hà Giang kêu gọi góp sức xây cầu Tân Điền nối vào quốc lộ 279. Riêng người dân Lâm Đồng tặng 2 tỉ đồng.
+- Thiếu tướng Đặng Quốc Bảo, nguyên trưởng Ban Khoa giáo Trung ương, nguyên bí thư thứ nhất Trung ương Đoàn, đã từ trần hồi 9h02 ngày 15-9.
+- Cơn mưa tầm tã ngày cuối tuần 15-9 không ngăn được bước chân của những bạn đọc hảo tâm đến tòa soạn báo Tuổi Trẻ.
+- Chiều cuối tuần, lượng xe từ các nơi bắt đầu dồn về cao tốc TP.HCM - Long Thành, cộng một làn đường trên cầu Long Thành được rào chắn để sửa khe co giãn nên xảy ra ùn ứ kéo dài.
+- Thấy chiếc nhẫn vàng để quên trong chiếc áo cứu trợ bà con vùng lũ, người phụ nữ liền đăng tin và báo công an tìm chủ nhân, hành động này được cư dân mạng chia sẻ và dành 'cơn mưa' lời khen.
+- Trong hai ngày tới Nam Bộ mưa to nhiều nơi, đây là đợt mưa diện rộng dài ngày.
+- Ngày 15-9, UBND tỉnh Điện Biên tổ chức hội thảo khoa học về nghiên cứu, đề xuất phục dựng đền thờ Đức Thánh Trần tại di tích Đồi A1.
+- Tuyến đường nối từ Nguyễn Văn Cừ đến đê Ngọc Thụy (Long Biên, Hà Nội) đang hoàn thiện những công đoạn cuối, chuẩn bị khánh thành dịp 70 năm Giải phóng thủ đô (10-10).
+- Theo thống kê mới nhất cập nhật tình hình thiệt hại sau bão số 3, Quảng Ninh (23.770 tỉ đồng) và Hải Phòng (11.000 tỉ đồng) tổng thiệt hại 34.770 tỉ đồng.
+- Ủy ban Trung ương Mặt trận Tổ quốc Việt Nam đã công bố danh sách chuyển tiền đợt 1 với 385 tỉ đồng cho 20 địa phương bị thiệt hại do bão số 3 gây ra.
+- Theo đại diện Sở Kế hoạch và Đầu tư TP.HCM, các dự án mới ở giai đoạn chuẩn bị, đợi điều chỉnh quy hoạch, thủ tục chậm... là những nguyên nhân khiến việc giải ngân vốn đầu tư các công trình giao thông bị chậm.
+- Tàu SE6 khi đi qua đoạn đường sắt thuộc huyện Phú Lộc (Thừa Thiên Huế) thì bị trật bánh. Đây là vụ trật bánh tàu Bắc - Nam thứ tư trong vòng hơn 1 tháng ở đoạn đường sắt này.
+- Trong lúc bị đưa về xử lý hành vi chạy quá tốc độ, nam thanh niên bất ngờ đấm nhiều cái vào mặt chiến sĩ cảnh sát cơ động hòng bỏ trốn nhưng bất thành.
+- Sạt lở là vấn đề nghiêm trọng thường xuyên xảy ra vào mùa mưa lũ tại Quảng Ngãi. Chủ tịch UBND tỉnh phát đi văn bản hỏa tốc triển khai phương án ứng phó.
+- Các bác sĩ của Bệnh viện Bạch Mai và chuyên gia Nhật đã có buổi hội chẩn toàn viện sáng nay 15-9, tập trung hết sức cứu bé gái 11 tuổi được chuyển đến từ Làng Nủ, Bảo Yên, Lào Cai.
+- Lô hàng viện trợ của Nhật Bản sau bão số 3 (Yagi) đã đến sân bay Nội Bài - sớm hơn một ngày so với dự kiến. Nhóm chuyên gia Thụy Sĩ sẽ đến tỉnh Yên Bái vào tuần sau.
+- Dự báo cơn bão Bebinca đang hoạt động ở tây bắc Thái Bình Dương sẽ đổ bộ vào khu vực phía đông Trung Quốc, không ảnh hưởng đến Việt Nam.
 ![New](News.png)
 ## Nhịp sống số 
+- Mô hình o1 của OpenAI được nói là sẽ 'suy nghĩ' trước khi trả lời, có thể giải quyết các vấn đề khó hơn về khoa học, toán học hay lập trình.
 - Cục Viễn thông đang đề xuất lùi thời gian tắt sóng 2G, để các nhà mạng có thêm thời gian hỗ trợ 3,4 triệu khách hàng chuyển đổi từ thuê 2G lên 4G.
 - Ban tổ chức cho biết sự kiện nhằm ghi nhận, vinh danh và ủng hộ những đóng góp cũng như tài năng đội ngũ sáng tạo nội dung số tại Việt Nam.
 - Quyết định rút khỏi thị trường Việt Nam của Gojek để lại nhiều tiếc nuối cho các đối tác tài xế, nhà hàng và người dùng, những người đã đồng hành cùng hãng xe công nghệ thời gian qua.
@@ -94,5 +95,4 @@
 - Điện thoại gập mới ra mắt của Samsung nâng cao hiệu suất làm việc, giải trí với những tính năng độc nhất.
 - Gần một tuần sau sự cố sập mạng toàn cầu, CrowdStrike cho biết 97% máy tính sử dụng hệ điều hành Windows bị ảnh hưởng đã hoạt động trở lại.
 - CrowdStrike thừa nhận sự cố sập hệ thống vi tính toàn cầu là do lỗi trong quá trình kiểm soát chất lượng các bản cập nhật phần mềm của công ty này.
-- Việc Google giữ cookie đồng nghĩa dữ liệu cá nhân của 3 tỉ người dùng Chrome vẫn đang bị các trang mạng theo dõi.
 ![life](Life.png)
