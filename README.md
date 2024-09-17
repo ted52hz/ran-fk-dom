@@ -1,6 +1,18 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Sau những ngày nỗ lực khắc phục hậu quả của bão lũ số 3, học sinh nhiều địa phương miền Bắc đã dần trở lại trường lớp trong nỗ lực của địa phương và các thầy cô giáo.
+- Nhiếp ảnh gia Hồ Trung Lâm là người đoạt giải cao nhất tại cuộc thi The ASEAN SX Photo Contest 2024 với chủ đề ASEAN Biodiversity (Đa dạng sinh học ASEAN), do Hiệp hội Nhiếp ảnh Hoàng gia Thái Lan tổ chức.
+- Với không gian xanh mát và bền vững, Victoria School - Nam Sài Gòn đã giành Giải thưởng Kiến trúc Quốc tế.
+- Hải Phòng cấm vận động phụ huynh tài trợ sau bão số 3, cũng như lợi dụng danh nghĩa Ban đại diện cha mẹ học sinh để thu các khoản thu ngoài quy định.
+- Công an huyện Krông Búk, tỉnh Đắk Lắk đã triệu tập, ra quyết định tạm giữ hình sự phụ huynh lùi xe bán tải khiến một học sinh lớp 2 tử vong.
+- Chiều 16-9, đại diện Công ty Dai-ichi Life Việt Nam đã đến báo Tuổi Trẻ trao 500 triệu đồng cho chương trình Tiếp sức đến trường 2024.
+- Gần 100 học sinh khu vực thôn Làng Nủ đã có mặt tại Trường tiểu học và trung học cơ sở Phúc Khánh (Bảo Yên, Lào Cai) tập trung và học tập trở lại.
+- Đến chiều 16-9, tổng số tiền mà hệ thống Trường Ngô Thời Nhiệm quyên góp ủng hộ đồng bào miền Bắc được là 1.221.880.000 đồng.
+- Đã ghi nhận 52 học sinh, trẻ em bị tử vong, 3 học sinh bị mất tích, 3 giáo viên tử vong, 1 giáo viên mất tích, do bão số 3 và hoàn lưu bão.
+- Tại hội nghị tổng kết năm học 2023-2024, Sở Giáo dục và Đào tạo TP.HCM quyết định thí điểm đưa tiếng Anh thành ngôn ngữ dạy học thứ hai trong nhà trường.
+- Trường đại học Công nghiệp TP.HCM vừa tuyển chọn và ký hợp đồng đưa 39 sinh viên thực tập hưởng lương tại Nhật Bản trong vòng 1 năm.
+- Đoàn Việt Nam còn giành thêm 3 chứng chỉ nghề xuất sắc trong kỳ thi Kỹ năng nghề thế giới (WorldSkills) năm nay.
 - Để tránh những hệ lụy đau lòng xuất phát từ việc sử dụng mạng xã hội thiếu ý thức và yếu kỹ năng, gia đình - nhà trường - xã hội phải quyết liệt vào cuộc.
 - Từ hơn 300 thí sinh, cuộc thi học thuật cấp thành 'Hướng dẫn viên du lịch tiềm năng' đã tìm ra quán quân.
 - Không chỉ kêu gọi cán bộ, giảng viên ủng hộ ít nhất một ngày lương, trích tiền quỹ ra ủng hộ đồng bào vùng lũ, nhiều trường còn rà soát tổng số sinh viên trong trường bị ảnh hưởng bởi lũ lụt để lên phương án hỗ trợ.
@@ -19,50 +31,38 @@
 - Ngày 13-9, UBND tỉnh Kiên Giang tổ chức hội nghị công bố thành lập Quỹ Khuyến học tỉnh Kiên Giang nhằm giúp các bạn sinh viên nghèo ở địa phương viết tiếp giấc mơ đến trường.
 - 92 sinh viên là anh, chị em sinh đôi cùng học chung một trường đại học ở TP.HCM được trường giảm 50% học phí.
 - Cứu trợ đồng bào bị bão lũ mà xếp hàng chờ tới lượt. Đó là tư liệu phong phú để trang giáo án của tôi tới đây thêm những bài học về tình người.
-- Trường đại học Khoa học xã hội và Nhân văn (Đại học Quốc gia TP.HCM) quyết định không tổ chức lễ khai giảng năm học mới để lấy kinh phí ủng hộ đồng bào vùng lũ.
-- Nhiều sinh viên đang chật vật với chứng chỉ tiếng Anh để đủ điều kiện ra trường theo quy định của trường.
-- Trường THPT Trường Chinh (quận 12, TP.HCM) không cho học sinh sử dụng điện thoại thông minh trong khuôn viên trường.
-- Đây là một trong những lời chúc được học sinh Trường tiểu học Hà Nội viết và dán lên những lọ muối vừng do chính tay các em làm để gửi tới vùng lũ.
-- Mạng xã hội xuất hiện thông tin hướng dẫn mua bộ đề ôn thi viên chức ngành giáo dục năm 2024 tại Quảng Ngãi với giá từ 300.000-400.000 đồng, đây là hình thức lừa đảo, mọi người cần cảnh giác.
-- Cô Nự và các giáo viên mầm non thôn Làng Nủ không thể ngờ chỉ vài ngày sau khai giảng, những đồ vật được các con yêu thích đã trở thành những kỷ vật cuối cùng.
-- Trong danh sách ứng viên được hội đồng giáo sư cơ sở đề nghị xét công nhận đạt tiêu chuẩn chức danh giáo sư, phó giáo sư năm 2024, có nhiều lãnh đạo các trường đại học.
-- Gần 22 năm nay, lớp học tình thương chùa Long Cát tại huyện Thuận Bắc (Ninh Thuận) luôn ê a tiếng đánh vần vào các buổi chiều tối. Nhờ đó, nhiều em học sinh là người đồng bào Raglai đã biết đọc, biết viết.
-- Ngày 23-8, Tổ chức xếp hạng đại học QS (Quacquarelli Symonds - Anh) công bố Trường đại học Kinh tế - Tài chính TP.HCM (UEF) tiếp tục đạt chứng nhận quốc tế QS Stars 4 Sao, chu kỳ 2.
-- Nếu vi phạm lệnh cấm dùng điện thoại di động trong trường, học sinh có thể bị đình chỉ từ 1 đến 3 ngày.
-- "Em mong là sẽ không ai bị mất người thân trong cơn lũ. Em xem hình ảnh nhà cửa bị cuốn đi, thấy thương".
-- Sáng nay 12-9, hàng loạt trường đại học tại TP.HCM phát động viên chức, người lao động đóng góp tối thiểu một ngày lương hỗ trợ đồng bào miền Bắc bị bão lũ.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Đường Cộng Hòa (quận Tân Bình, TP.HCM) có chiều dài chỉ khoảng 3km nhưng hầu như ngày nào cũng kẹt xe.
-- Một tối trong tuần, ông Hồng chạy xe ba gác ghé tòa soạn. Ông gom hết tiền lẻ trong túi, góp xong, ông ngồi viết vài dòng: "Kính gửi đồng bào miền Bắc...".
-- Công chức, viên chức, người lao động Sở Xây dựng TP.HCM ủng hộ 707 triệu đồng cho đồng bào vùng bão, lũ phía Bắc do cơn bão số 3 (Yagi).
-- Lực lượng chức năng đang nỗ lực tìm kiếm người mất tích ở 2 điểm đau thương nhất hiện nay là cầu Phong Châu (Phú Thọ) và thôn Làng Nủ (Lào Cai).
-- Trận mưa lớn đổ xuống TP Hà Nội từ đêm 15, rạng sáng 16-9 đã khiến nhiều tuyến phố bị ngập nặng và ùn tắc nghiêm trọng trong sáng sớm đầu tuần.
-- Trung tâm Dự báo khí tượng thủy văn quốc gia cho biết ở vùng biển phía đông đảo Luzon (Philippines) có một áp thấp nhiệt đới đang hoạt động.
-- Một số tin tức đáng chú ý: Xuất cấp lương thực, vật tư, hóa chất khử khuẩn khắc phục hậu quả bão số 3; Biến động lãnh đạo ở Chứng khoán Phố Wall; Chủ thương hiệu Kem Tràng Tiền báo lỗ.
-- Hôm nay 16-9, thời tiết Bắc Bộ nắng gián đoạn, mưa dông xuất hiện trở lại, có nơi mưa to. Nam Bộ mưa to đến rất to.
-- Tối 15-9, Ủy ban Trung ương Mặt trận Tổ quốc Việt Nam tiếp tục đăng tải 9.899 trang sao kê tiền ủng hộ đồng bào bị ảnh hưởng bởi bão số 3 trong ngày 12-9.
-- Khu tái định cư mới được chọn xây dựng tại khu vực đồi sim, cách Nhà văn hóa thôn Làng Nủ (Lào Cai) khoảng 2km.
-- Sau nỗ lực khắc phục 45 điểm sạt lở nền đường do mưa lũ gây ra, ngày 15-9 tuyến đường sắt Hà Nội - Lào Cai đã được khai thông, gần 700 tấn hàng cứu trợ đang được các đoàn tàu chở tới vùng lũ.
-- Không chỉ tài sản của người dân, doanh nghiệp, trụ sở các cơ quan bị thiệt hại, mà những cánh rừng xanh biếc ở Cát Bà cũng hóa màu nâu sẫm sau khi bão số 3 quét qua.
-- Ủy ban Trung ương Mặt trận Tổ quốc Việt Nam đăng tải 9.194 trang sao kê tiền ủng hộ đồng bào bị ảnh hưởng bởi bão số 3 trong ngày 11-9.
-- Tỉnh Lâm Đồng phối hợp Hà Giang kêu gọi góp sức xây cầu Tân Điền nối vào quốc lộ 279. Riêng người dân Lâm Đồng tặng 2 tỉ đồng.
-- Thiếu tướng Đặng Quốc Bảo, nguyên trưởng Ban Khoa giáo Trung ương, nguyên bí thư thứ nhất Trung ương Đoàn, đã từ trần hồi 9h02 ngày 15-9.
-- Cơn mưa tầm tã ngày cuối tuần 15-9 không ngăn được bước chân của những bạn đọc hảo tâm đến tòa soạn báo Tuổi Trẻ.
-- Chiều cuối tuần, lượng xe từ các nơi bắt đầu dồn về cao tốc TP.HCM - Long Thành, cộng một làn đường trên cầu Long Thành được rào chắn để sửa khe co giãn nên xảy ra ùn ứ kéo dài.
-- Thấy chiếc nhẫn vàng để quên trong chiếc áo cứu trợ bà con vùng lũ, người phụ nữ liền đăng tin và báo công an tìm chủ nhân, hành động này được cư dân mạng chia sẻ và dành 'cơn mưa' lời khen.
-- Trong hai ngày tới Nam Bộ mưa to nhiều nơi, đây là đợt mưa diện rộng dài ngày.
-- Ngày 15-9, UBND tỉnh Điện Biên tổ chức hội thảo khoa học về nghiên cứu, đề xuất phục dựng đền thờ Đức Thánh Trần tại di tích Đồi A1.
-- Tuyến đường nối từ Nguyễn Văn Cừ đến đê Ngọc Thụy (Long Biên, Hà Nội) đang hoàn thiện những công đoạn cuối, chuẩn bị khánh thành dịp 70 năm Giải phóng thủ đô (10-10).
-- Theo thống kê mới nhất cập nhật tình hình thiệt hại sau bão số 3, Quảng Ninh (23.770 tỉ đồng) và Hải Phòng (11.000 tỉ đồng) tổng thiệt hại 34.770 tỉ đồng.
-- Ủy ban Trung ương Mặt trận Tổ quốc Việt Nam đã công bố danh sách chuyển tiền đợt 1 với 385 tỉ đồng cho 20 địa phương bị thiệt hại do bão số 3 gây ra.
-- Theo đại diện Sở Kế hoạch và Đầu tư TP.HCM, các dự án mới ở giai đoạn chuẩn bị, đợi điều chỉnh quy hoạch, thủ tục chậm... là những nguyên nhân khiến việc giải ngân vốn đầu tư các công trình giao thông bị chậm.
-- Tàu SE6 khi đi qua đoạn đường sắt thuộc huyện Phú Lộc (Thừa Thiên Huế) thì bị trật bánh. Đây là vụ trật bánh tàu Bắc - Nam thứ tư trong vòng hơn 1 tháng ở đoạn đường sắt này.
-- Trong lúc bị đưa về xử lý hành vi chạy quá tốc độ, nam thanh niên bất ngờ đấm nhiều cái vào mặt chiến sĩ cảnh sát cơ động hòng bỏ trốn nhưng bất thành.
-- Sạt lở là vấn đề nghiêm trọng thường xuyên xảy ra vào mùa mưa lũ tại Quảng Ngãi. Chủ tịch UBND tỉnh phát đi văn bản hỏa tốc triển khai phương án ứng phó.
-- Các bác sĩ của Bệnh viện Bạch Mai và chuyên gia Nhật đã có buổi hội chẩn toàn viện sáng nay 15-9, tập trung hết sức cứu bé gái 11 tuổi được chuyển đến từ Làng Nủ, Bảo Yên, Lào Cai.
-- Lô hàng viện trợ của Nhật Bản sau bão số 3 (Yagi) đã đến sân bay Nội Bài - sớm hơn một ngày so với dự kiến. Nhóm chuyên gia Thụy Sĩ sẽ đến tỉnh Yên Bái vào tuần sau.
-- Dự báo cơn bão Bebinca đang hoạt động ở tây bắc Thái Bình Dương sẽ đổ bộ vào khu vực phía đông Trung Quốc, không ảnh hưởng đến Việt Nam.
+- Thào A De và Thào Thị Nhè bị mất cả cha mẹ trong vụ sạt lở đất tại thôn Phìn Chải 2 ngày 9-9 vừa qua. Hai anh em mồ côi vừa mất nhà vừa mất cha mẹ, đang phải ở nhờ nhà văn hóa thôn cùng sáu hộ dân khác ở Phìn Chải 2.
+- Với tình hình mưa lớn nhiều ngày qua ở Lào và Thái Lan, cộng với việc xả lũ các đập thủy điện ở thượng nguồn, dự báo mực nước trên sông Cửu Long sẽ cao hơn, lũ xuất hiện sớm tại Đồng bằng sông Cửu Long. Nhưng liệu có đáng lo?
+- Sau những ngày nỗ lực khắc phục hậu quả của bão lũ số 3, học sinh nhiều địa phương miền Bắc đã dần trở lại trường lớp trong nỗ lực của địa phương và các thầy cô giáo.
+- Theo số liệu dự báo hệ thống giám sát và dự báo sông Mekong của Ủy hội sông Mekong (MRC) ngày 16-9, trong 24 giờ qua trên lưu vực sông Mekong có mưa vừa đến mưa to.
+- Hầm chui Tân Kỳ Tân Quý là một gói thầu thuộc dự án đường nối Trần Quốc Hoàn - Cộng Hòa (quận Tân Bình, TP.HCM). Tuy nhiên, gói thầu này chưa thể làm đồng bộ vì vướng ranh dự án metro số 2.
+- Dự báo hôm nay (17-9), áp thấp nhiệt đới vượt qua đảo Luzon (Philippines), đi vào Biển Đông và có thể mạnh lên thành bão trong 24 giờ tới.
+- Một số tin tức đáng chú ý: Công bố danh sách chi hơn 1.000 tỉ đồng cứu trợ đồng bào bị bão lũ; Yêu cầu Bến Tre đảm bảo cung cấp cát cho công trình giao thông trọng điểm...
+- Hôm nay 17-9, thời tiết cả nước mưa nhiều nơi, về chiều mưa to đến rất to, Biển Đông đón vùng áp thấp nhiệt đới sẽ mạnh lên thành bão số 4.
+- Tối 16-9, tại huyện Yên Sơn (Tuyên Quang) xảy ra vụ sập hầm chui dân sinh đang thi công, thuộc dự án đường cao tốc Tuyên Quang - Hà Giang làm một người tử vong.
+- Mô hình tuyến đường Thái Văn Lung tại quận 1 sẽ góp phần thúc đẩy phát triển kinh tế đô thị, du lịch, làm tiền đề để nhân rộng ở các tuyến đường khác.
+- Thủ tướng yêu cầu khẩn trương nghiên cứu đầu tư xây dựng cầu Phong Châu mới, trình phương án và thủ tục trước ngày 1-10.
+- Nhiều cá nhân, doanh nghiệp đã đóng góp rồi quay lại góp tiếp để chung tay sẻ chia với đồng bào miền Bắc bị bão lũ.
+- 20 nước và tổ chức quốc tế đã quyết định hoặc dự kiến hỗ trợ Việt Nam 22 triệu USD (khoảng 550 tỉ đồng) để khắc phục hậu quả của bão số 3, tính đến ngày 16-9.
+- Vợ chồng Sùng A Giàng và em gái (Phìn Chải 2, xã A Lù, Bát Xát, Lào Cai) đang ở nhờ chuồng trâu hàng xóm chịu tang 5 người thân đã mất vì sạt lở.
+- Cơ quan chức năng thông báo rút lệnh báo động số 2 trên triền sông Cầu. Còn tại Bắc Giang, lực lượng chức năng đang gấp rút hoàn thành đường tránh tạm nối với Quảng Ninh.
+- Một đoạn clip đang lan truyền trên mạng xã hội ghi cảnh người đàn ông dùng tay, mỏ lết đánh tới tấp tài xế. Hiện tại lực lượng chức năng TP Thủ Đức (TP.HCM) đang xác minh, điều tra vụ việc.
+- Những người đến viếng, đưa tang đôi vợ chồng trẻ tử nạn trên đường đi họp phụ huynh không kìm được nước mắt, khi nhìn 2 đứa con nhỏ của họ bưng di ảnh cha mẹ đưa về nơi an nghỉ cuối cùng...
+- Vành đai 4 TP.HCM là dự án đường bộ lớn nhất vùng Đông Nam Bộ từ trước đến nay, có tổng vốn 136.593 tỉ đồng.
+- Đến 15h chiều 16-9, vẫn còn 9 vị trí trên các quốc lộ tại miền Bắc chưa thông do sạt lở, sụt lún nền đường với khối lượng lớn, địa hình khó khăn để đưa máy móc vào thi công.
+- TP Phan Thiết vừa báo cáo tỉnh Bình Thuận về việc xử lý cụm nhà hàng, quán cà phê, khu nghỉ dưỡng vi phạm tại khu vực dốc 'Hoàng Hôn'.
+- Do tuyến đường sắt Hà Nội - Lào Cai vẫn còn 20 điểm phải hạn chế tốc độ chạy tàu và khách du lịch đến Sa Pa ít, nên ngày 23-9 tàu khách tuyến Hà Nội - Lào Cai mới khai thác trở lại.
+- Quan trọng nhất là xác định đúng người, rõ việc trong tổ chức thực hiện tháo gỡ khó khăn, vướng mắc đối với các dự án, đất đai trong các kết luận thanh tra, kiểm tra, bản án.
+- Chiều 16-9, Ủy ban Trung ương Mặt trận Tổ quốc Việt Nam tiếp tục đăng tải 13.358 trang sao kê tiền ủng hộ đồng bào bị ảnh hưởng bởi bão số 3 trong ngày 13-9.
+- Thủ tướng Phạm Minh Chính ký quyết định phê chuẩn kết quả bầu chức vụ chủ tịch UBND tỉnh Hải Dương nhiệm kỳ 2021 - 2026 đối với ông Lê Ngọc Châu.
+- Ở Abyei, những người lính "mũ nồi xanh" Việt Nam đã giới thiệu cho người dân và trẻ em địa phương về Tết Trung thu, về hình ảnh cây đa, chú Cuội, đặc sắc nhất là màn giới thiệu bằng video hoạt hình tiếng Anh.
+- UBND TP Đà Nẵng vừa phê quyệt quy hoạch phân khu đổi mới sáng tạo, tỉ lệ 1/2000, có tổng diện tích 3.770,3ha.
+- Trên đường đi nhận quà trung thu về nhà, hai anh em bị tai nạn giao thông trên quốc lộ 14 (qua huyện Ea H'leo, tỉnh Đắk Lắk), tử vong tại chỗ.
+- Sau 5 ngày vận động, 2.278 tổ chức, cá nhân ở Bình Phước đã góp hơn 4,3 tỉ đồng ủng hộ đồng bào các tỉnh, thành miền Bắc khắc phục hậu quả do cơn bão số 3 gây ra.
+- Tất cả các mô hình dự báo của quốc tế và Việt Nam nhận định cường độ của áp thấp nhiệt đới sau khi mạnh lên thành bão không thể mạnh như bão Yagi (bão số 3).
+- Cơ quan chức năng tỉnh Phú Thọ xác định thi thể nam giới trôi trên sông Hồng đoạn qua xã Bản Nguyên (huyện Lâm Thao) trưa 16-9 là người mất tích trong vụ sập cầu Phong Châu.
 ![New](News.png)
 ## Nhịp sống số 
 - Mô hình o1 của OpenAI được nói là sẽ 'suy nghĩ' trước khi trả lời, có thể giải quyết các vấn đề khó hơn về khoa học, toán học hay lập trình.
