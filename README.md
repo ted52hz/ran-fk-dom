@@ -1,6 +1,24 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Tỉnh Thừa Thiên Huế đã phát thông báo cho học sinh toàn tỉnh nghỉ học để ứng phó với cơn bão số 4 có khả năng đổ bộ trực tiếp tỉnh này.
+- Ngày 18-9, Sở Giáo dục và Đào tạo Thanh Hóa cho biết dự kiến năm học 2025-2026, Trường THPT chuyên Lam Sơn sẽ tuyển sinh một lớp chuyên tiếng Trung Quốc.
+- Ngày 18-9, Nhà xuất bản Giáo Dục Việt Nam cho biết sẽ cung ứng bổ sung 18 triệu bản sách giáo khoa cho vùng bị bão lũ.
+- Do ảnh hưởng của áp thấp nhiệt đới khả năng mạnh lên thành bão, ngày mai 19-9, học sinh toàn tỉnh Quảng Nam được nghỉ học để đảm bảo an toàn.
+- Ngày 18-9, tiệm chè và trà sữa Cô Ba Sài Gòn đã đóng cửa, tạm dừng hoạt động sau khi có nghi vấn trà sữa tại đây gây ngộ độc cho hàng chục học sinh.
+- Bữa ăn có thịt và nhiều rau xanh. Hơn 100 em học sinh Làng Nủ ở bán trú ăn ngon lành sau những ngày mưa lũ, thiếu thực phẩm.
+- Học sinh Trường THCS Nam Phương Tiến A có thể phải nghỉ học đến hết tháng 9 vì ảnh hưởng của mưa lũ.
+- Tại Ngày hội STEM sáng 18-9, các em học sinh giới thiệu hơn 600 sản phẩm tự làm từ những thứ tưởng chừng bỏ đi như vỏ chai nhựa, túi ni lông, hộp giấy...
+- Sở Giáo dục và Đào tạo chỉ tổ chức một số cuộc thi gắn liền với hoạt động dạy và học chương trình giáo dục phổ thông.
+- Ngày 18-9, tin từ UBND huyện Hàm Thuận Bắc, tỉnh Bình Thuận cho biết đã chỉ đạo công an xác minh, điều tra vụ việc cháu bé nghi bị bạo hành tại nhóm trẻ tư thục.
+- Sở Giáo dục và Đào tạo TP Đà Nẵng thông báo cho học sinh nghỉ học do áp thấp nhiệt đới khả năng mạnh lên thành bão, gây mưa lớn.
+- Trên sân khấu lễ khai giảng năm học mới của Trường đại học Ngoại thương có một 'lẵng hoa' đặc biệt in mã QR...
+- Vai trò quản lý nhà nước của bộ trong việc giám sát, chuẩn hóa và đảm bảo chất lượng thông tin tuyển sinh là vô cùng quan trọng để bảo vệ quyền lợi của người học và phụ huynh.
+- Ngành giáo dục tỉnh Lào Cai bị thiệt hại gần 502 tỉ đồng do bão lũ, chiếm hơn 1/3 tổng thiệt hại của 18 tỉnh khu vực phía Bắc.
+- Sáng sớm vào Làng Nủ, tối muộn mới về. Nhà ngập ngổn ngang nhưng đành cứ để đấy... Nhiều thầy cô giáo đã và đang dốc sức để học trò có thể sớm đi học trở lại.
+- Nhiều nước đã thành công trong việc giảng dạy tiếng Anh như ngôn ngữ thứ hai trong trường học. Tuy nhiên không phải không có thử thách.
+- Để tránh những trường hợp đáng tiếc, nhà trường nên cấm phụ huynh lái ô tô vào trong sân trường đưa đón học sinh.
+- Hàng trăm học sinh ở Trường tiểu học Quang Kim, Bát Xát, Lào Cai mất sách vở vì không kịp chạy lũ. Những ngày đầu tiên đi học trở lại, nhiều chiếc ba lô nhẹ bâng vì thiếu sách vở.
 - Nhiều thí sinh đạt điểm cao trong kỳ thi Tốt nghiệp THPT năm 2024 đã đến với Đại học (ĐH) Duy Tân để tìm hiểu trong năm 2024 này.
 - Nhà giáo Nguyễn Xuân Khang, chủ tịch hội đồng Trường phổ thông liên cấp Marie Curie (Hà Nội), quyết định trường sẽ nhận nuôi những trẻ em từ 15 tuổi trở xuống ở thôn Làng Nủ.
 - Để luyện áp lực thời gian, căng thẳng như thi thật, thí sinh thi Kỹ năng nghề thế giới (WorldSkills) tìm đối thủ thi đấu online hoặc sang Áo, Hàn Quốc để nâng cao tay nghề.
@@ -13,58 +31,42 @@
 - Công an huyện Krông Búk, tỉnh Đắk Lắk đã triệu tập, ra quyết định tạm giữ hình sự phụ huynh lùi xe bán tải khiến một học sinh lớp 2 tử vong.
 - Chiều 16-9, đại diện Công ty Dai-ichi Life Việt Nam đã đến báo Tuổi Trẻ trao 500 triệu đồng cho chương trình Tiếp sức đến trường 2024.
 - Gần 100 học sinh khu vực thôn Làng Nủ đã có mặt tại Trường tiểu học và trung học cơ sở Phúc Khánh (Bảo Yên, Lào Cai) tập trung và học tập trở lại.
-- Đến chiều 16-9, tổng số tiền mà hệ thống Trường Ngô Thời Nhiệm quyên góp ủng hộ đồng bào miền Bắc được là 1.221.880.000 đồng.
-- Đã ghi nhận 52 học sinh, trẻ em bị tử vong, 3 học sinh bị mất tích, 3 giáo viên tử vong, 1 giáo viên mất tích, do bão số 3 và hoàn lưu bão.
-- Tại hội nghị tổng kết năm học 2023-2024, Sở Giáo dục và Đào tạo TP.HCM quyết định thí điểm đưa tiếng Anh thành ngôn ngữ dạy học thứ hai trong nhà trường.
-- Trường đại học Công nghiệp TP.HCM vừa tuyển chọn và ký hợp đồng đưa 39 sinh viên thực tập hưởng lương tại Nhật Bản trong vòng 1 năm.
-- Đoàn Việt Nam còn giành thêm 3 chứng chỉ nghề xuất sắc trong kỳ thi Kỹ năng nghề thế giới (WorldSkills) năm nay.
-- Để tránh những hệ lụy đau lòng xuất phát từ việc sử dụng mạng xã hội thiếu ý thức và yếu kỹ năng, gia đình - nhà trường - xã hội phải quyết liệt vào cuộc.
-- Từ hơn 300 thí sinh, cuộc thi học thuật cấp thành 'Hướng dẫn viên du lịch tiềm năng' đã tìm ra quán quân.
-- Không chỉ kêu gọi cán bộ, giảng viên ủng hộ ít nhất một ngày lương, trích tiền quỹ ra ủng hộ đồng bào vùng lũ, nhiều trường còn rà soát tổng số sinh viên trong trường bị ảnh hưởng bởi lũ lụt để lên phương án hỗ trợ.
-- Đây là một trong những mục tiêu trong mục tiêu hợp tác của Trường đại học Luật TP.HCM và UBND tỉnh Khánh Hòa.
-- Hiện có quá nhiều thông tin tư vấn, cách tổ chức khá giống nhau khiến cho học sinh 'ngộp'. Do vậy rất cần chương trình tư vấn tuyển sinh chất lượng.
-- Tổ chức giáo dục Ormiston Academies Trust sẽ tiên phong trong việc cấm học sinh sử dụng điện thoại thông minh (smartphone) trong trường học.
-- 'Bão lũ đang gây hậu quả vô cùng nghiêm trọng cho đồng bào các tỉnh phía Bắc. Nhìn thấy những hình ảnh đau xót, chúng tôi không thể đứng ngoài cuộc”, TS Phan Hồng Hải, hiệu trưởng Trường đại học Công nghiệp TP.HCM, chia sẻ.
-- GS.TS Đào Văn Đông được bổ nhiệm làm hiệu trưởng Trường đại học Thái Bình Dương kể từ năm học 2024-2025.
-- Giải thưởng khoa học và công nghệ dành cho giảng viên trẻ trong các cơ sở giáo dục đại học định kỳ tổ chức 3 năm một lần.
-- Bài báo "'Cấm học sinh sử dụng điện thoại trong trường' (Tuổi Trẻ ngày 13-9) thu hút sự quan tâm của dư luận.
-- Hàng loạt trường đại học sau các đợt xét tuyển bổ sung đến nay vẫn còn thiếu cả ngàn chỉ tiêu. Nhiều trường quyết định khép lại mùa tuyển sinh 2024 do cạn nguồn tuyển.
-- Đại học Kinh tế TP.HCM đã triển khai nhiều chương trình hỗ trợ sinh viên các tỉnh phía Bắc bị ảnh hưởng bão lũ đang theo học tại nhà trường.
-- Mạng xã hội lan truyền tin giả trưởng Phòng Giáo dục và Đào tạo TP Quảng Ngãi nhận 30 triệu đồng/suất để 'chạy' vào Trường THCS Nguyễn Nghiêm. Qua kiểm tra, không có học sinh nào tuyển trái tuyến.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Chính quyền và đơn vị thi công quyết tâm xây dựng thôn Làng Nủ mới xong trước ngày 31-12-2024 để người dân an cư lạc nghiệp.
-- Dù chỉ mới là đợt mưa bão đầu mùa nhưng với kinh nghiệm xương máu sau nhiều đợt lụt, người dân Đà Nẵng lên mạng chia sẻ và hối thúc nhau tìm cách ứng phó.
-- Trời vẫn đang mưa rất to khiến nhiều tuyến phố Đà Nẵng ngập nước, việc đi lại của người dân gặp nhiều khó khăn.
-- Các chính sách, giải pháp hỗ trợ phải nhanh, khả thi, kịp thời, hiệu quả, có trọng tâm, trọng điểm, trực tiếp vào các đối tượng bị ảnh hưởng với thủ tục đơn giản nhất.
-- Ảnh hưởng dải hội tụ nhiệt đới nối với áp thấp nhiệt đới trên Biển Đông, sáng sớm nay thời tiết TP.HCM mưa nhiều nơi.
-- Tin tức đáng chú ý: Vietravel Airlines thay tổng giám đốc; Phấn đấu hết 2025 TP.HCM hết nhà tạm, nhà dột nát; Ủy ban Chứng khoán sắp đình chỉ một kiểm toán viên...
-- Hôm nay 18-9, thời tiết cả nước có mưa to, nhiều nơi mưa rất to, cùng với đó dự báo áp thấp nhiệt đới mạnh lên thành bão số 4 tại Biển Đông.
-- Hiện áp thấp nhiệt đới đang di chuyển nhanh và có khả năng mạnh lên thành bão trong 24 giờ tới. Từ hôm nay (18-9) ở miền Trung bắt đầu có mưa to đến rất to.
-- Trong vô vàn sự kính nể và tình cảm yêu quý mà nhân dân thế giới và Việt Nam dành cho Đại tướng Võ Nguyên Giáp chắc chắn có công xây đắp to lớn của người vợ hiền son sắt, một tri âm của Đại tướng - phó giáo sư Đặng Bích Hà.
-- Airbus đã trao cho Việt Nam ảnh vệ tinh quang học Pléiades và ảnh vệ tinh radar TerraSAR-X tại một số khu vực bị ngập lụt nặng nề nhất, để hỗ trợ công tác cứu hộ cũng như đánh giá thiệt hại do bão số 3 gây ra.
-- Trong lúc tiếp nhận, phân loại hàng cứu trợ của bà con Đà Nẵng gửi lên đồng bào vùng lũ Lào Cai, thành viên một nhóm thiện nguyện tá hỏa khi thấy một túi vàng nữ trang nằm lẫn trong thùng giấy.
-- Tổng Bí thư, Chủ tịch nước Tô Lâm nhấn mạnh yêu cầu xây dựng Học viện Chính trị quốc gia Hồ Chí Minh trở thành hình mẫu về công tác xây dựng Đảng.
-- Hai ngôi nhà cùng nhiều tài sản trên đất đã bị cưỡng chế để bàn giao mặt bằng cho đơn vị thi công cao tốc Bắc - Nam đoạn qua Quảng Bình.
-- Đến 17h ngày 17-9, tài khoản của Ban Vận động cứu trợ Trung ương đã tiếp nhận tổng số tiền là 1.344 tỉ đồng ủng hộ đồng bào bị thiệt hại do bão số 3.
-- Người dân từ TP Thủ Đức và 10 quận huyện có thể đặt xe qua app, để được đưa đón đến bến xe Miền Đông mới và ngược lại.
-- Để ứng phó với áp thấp nhiệt đới có thể trở thành bão số 4 trên Biển Đông đổ bộ vào khu vực miền Trung, 2 tỉnh Bình Định, Phú Yên có các chỉ đạo khẩn trương ứng phó.
-- Ngày 17-9, UBND tỉnh Đồng Nai đã có quyết định chấp thuận liên danh 5 nhà đầu tư sẽ thực hiện dự án khu đô thị Hiệp Hòa, trị giá hơn 72.000 tỉ đồng ở Cù lao Phố.
-- Đến nay, phần kết cấu mái thép và mái nhôm lớp 1 quan trọng nhất của nhà ga T3 Tân Sơn Nhất hoàn thành. Chủ đầu tư cùng các đơn vị thi công phấn đấu xong toàn dự án này trước dịp 30-4-2025.
-- Chiều 17-9, Ủy ban Mặt trận Tổ quốc Việt Nam huyện Gio Linh đã thay thế văn bản kêu gọi đóng góp ủng hộ đồng bào vùng lũ phía Bắc nhưng lại đưa ra mức tiền ủng hộ tối thiểu.
-- Tính đến chiều 17-9, thông qua báo Tuổi Trẻ đã có hơn 5.800 lượt bạn đọc cá nhân và doanh nghiệp đóng góp số tiền gần 16 tỉ đồng.
-- Áp thấp nhiệt đới đang di chuyển nhanh, khả năng mạnh lên thành bão trong 24 giờ tới và khả năng cao (xác suất 70%) đi vào khu vực Thanh Hóa đến Quảng Ngãi.
-- Thực hiện công điện của Thủ tướng, UBND TP.HCM yêu cầu các đơn vị chủ động tăng cường cung ứng hàng hóa cho các tỉnh thành chịu ảnh hưởng bão số 3, giám sát chặt thị trường, không để găm hàng, nâng giá.
-- Thủ tướng yêu cầu các cơ quan xử lý nghiêm nếu có cán bộ, công chức vi phạm nồng độ cồn khi lái xe, hoặc không hợp tác với lực lượng chức năng trong xử lý vi phạm.
-- Hòn Trứng - Côn Đảo vừa được Tổ chức Kỷ lục Việt Nam xác nhận là sân chim biển có mật độ sinh sản nhiều nhất Việt Nam, với mỗi mét vuông trung bình 4,88 trứng
-- Ban Chấp hành Đảng bộ tỉnh Quảng Ninh thống nhất chủ trương dành 1.000 tỉ đồng từ nguồn tiết kiệm chi thường xuyên để khắc phục hậu quả bão số 3 (Yagi).
-- Chiều 17-9, Thủ tướng Phạm Minh Chính, trưởng Ban Chỉ đạo nhà nước các công trình, dự án quan trọng quốc gia, trọng điểm ngành giao thông vận tải, chủ trì họp phiên thứ 14.
-- Đà Nẵng còn 68 tàu thuyền và hơn 500 lao động trên biển, tập trung chủ yếu ở khu vực bắc Biển Đông - Hoàng Sa là đường đi của áp thấp nhiệt đới có thể mạnh lên thành bão.
-- Nếu không sớm giải quyết các vướng mắc, cao tốc Biên Hòa - Vũng Tàu có nguy cơ trễ hẹn về đích như kế hoạch đã đề ra.
-- Do ảnh hưởng dải hội tụ nhiệt đới, áp thấp nhiệt đới (sau có thể là bão) ở khu vực Bắc và Trung Trung Bộ khả năng xảy ra một đợt mưa lớn diện rộng. Lượng mưa từ 100-300mm, có nơi trên 500mm.
-- Ngày 17-9, Tổng Bí thư, Chủ tịch nước Tô Lâm đã tiếp tân đại sứ Trung Quốc và nhiều nước khác đến trình quốc thư.
+- Dự báo hôm nay, bão số 4 hướng vào ven biển Quảng Trị - Quảng Nam rồi đi vào đất liền các tỉnh miền Trung. Hiện nay ở khu vực này có nơi mưa to.
+- Trung tâm Dự báo khí tượng thủy văn quốc gia dẫn các dự báo quốc tế đều nhận định áp thấp nhiệt đới sẽ mạnh lên thành bão số 4 khi đi qua quần đảo Hoàng Sa. Các tỉnh dọc dải đất miền Trung đang chủ động chuẩn bị nhiều phương án ứng phó khi bão đổ bộ.
+- Khi vụ bạo hành trẻ ở mái ấm Hoa Hồng (quận 12, TP.HCM) bị phanh phui, cơ quan chức năng kiểm tra thì lộ ra cơ sở có đến 85 trẻ, chứ không phải chỉ 39 trẻ như đăng ký.
+- Nhiều đoạn suối vách đá dựng đứng, các chiến sĩ công an, quân đội... tay không bám đá, vượt dòng suối dữ, tìm nạn nhân mất tích trong vụ sạt lở núi cuốn hơn 30 người xuống suối ở Cao Bằng.
+- Dự báo hôm nay, bão số 4 hướng vào ven biển Quảng Trị - Quảng Nam rồi đi vào đất liền các tỉnh miền Trung. Cơ quan khí tượng cảnh báo tại Quảng Bình, Quảng Trị, Thừa Thiên Huế, Đà Nẵng có mưa rất lớn trong sáng nay.
+- Tỉnh Thừa Thiên Huế đã phát thông báo cho học sinh toàn tỉnh nghỉ học để ứng phó với cơn bão số 4 có khả năng đổ bộ trực tiếp tỉnh này.
+- Cục Hàng không Việt Nam quyết định tạm ngừng tiếp thu, khai thác tàu bay tại cảng hàng không Đồng Hới từ 15h - 22h ngày 22-9 để tránh bão số 4.
+- Sáng sớm nay (19-9), áp thấp nhiệt đới trên khu vực phía Đông Bắc quần đảo Hoàng Sa đã mạnh lên thành bão. Đây là cơn bão số 4 hoạt động trên Biển Đông trong năm 2024.
+- Một số tin tức đáng chú ý: Giá nhà miền Bắc tiếp tục tăng mạnh, miền Nam biến động không quá lớn; Một doanh nghiệp bất động sản 'khất' nợ trái phiếu đến lần thứ hai; Kế toán trưởng FLC xin chấm dứt hợp đồng lao động...
+- Vụ tai nạn nghiêm trọng giữa 2 xe giường nằm hãng Phương Trang và Hồng Sơn vừa xảy ra khoảng 0h ngày 19-9 tại km191+500 cao tốc Vĩnh Hảo - Phan Thiết khiến 2 người chết, nhiều người bị thương.
+- Ảnh hưởng của dải hội tụ nhiệt đới nối với áp thấp nhiệt đới trên biển, hôm nay 19-9, thời tiết cả nước mưa to đến rất to.
+- Thủ tướng Phạm Minh Chính vừa ký công điện số 98 ngày 18-9 chỉ đạo tập trung ứng phó áp thấp nhiệt đới có khả năng mạnh lên thành bão và mưa lũ.
+- Tập đoàn Dầu khí quốc gia Việt Nam sẽ đảm nhận việc tái thiết khu dân cư thôn Kho Vàng và sẽ triển khai ngay để đến ngày 31-12 người dân được về nơi ở mới.
+- Bộ Chính trị nêu rõ mục tiêu chung xây dựng tuyến đường sắt tốc độ cao nhằm đáp ứng nhu cầu vận tải, góp phần tái cơ cấu thị phần vận tải trên hành lang Bắc - Nam một cách tối ưu, bền vững.
+- Tối 18-9, Công ty cổ phần Thủy điện Đak Mi đã có thông báo về việc điều tiết nước qua cửa van hồ chứa thủy điện Đak Mi 4.
+- Nhận tin tàu hàng bị chìm trên vùng biển Quảng Nam, 8 thuyền viên đã lên bè cứu sinh trôi nổi trên biển và đang cầu cứu, tàu cảnh sát biển đã cứu thành công cả 8 người, trong điều kiện biển động do ảnh hưởng của áp thấp nhiệt đới.
+- Phó thủ tướng thường trực Nguyễn Hòa Bình nhấn mạnh khi chủ trì cuộc họp xét duyệt danh sách đề nghị Chủ tịch nước đặc xá tha tù trước thời hạn cho các phạm nhân đủ điều kiện.
+- Xe tải chở hàng trên quốc lộ 14 bị Đội quản lý thị trường số 1 tỉnh Kon Tum chặn lại kiểm tra rồi tạm giữ 21 ngày, xong thả ra với lý do hết thời hạn tạm giữ.
+- Tính đến chiều 18-9, đã có gần 6.000 lượt bạn đọc là cá nhân và doanh nghiệp đóng góp số tiền hơn 17 tỉ đồng.
+- Khi đi giải tỏa đất rừng bị lấn chiếm, một thành viên của Ban quản lý rừng Lâm Viên (Đà Lạt) bị dính bẫy bàn chông kim tiêm.
+- “Người chưa thành niên khi lớn lên là một người tốt, không nên nhắc gì đến những chuyện trong thời họ chưa thành niên vi phạm, giúp họ tái nhập vào trong cộng đồng một cách an tâm”.
+- Cựu thứ trưởng Đỗ Thắng Hải cùng các bị can là cựu lãnh đạo cấp vụ của Bộ Công Thương nhận hối lộ tổng số tiền 315.000 USD để 'tạo điều kiện' cấp phép kinh doanh xăng dầu cho Xuyên Việt Oil.
+- Phó thủ tướng Nguyễn Hòa Bình vừa ký các quyết định của Thủ tướng Chính phủ thi hành kỷ luật nguyên thứ trưởng và thứ trưởng Bộ Tài chính.
+- Do ảnh hưởng của áp thấp nhiệt đới khả năng mạnh lên thành bão, ngày mai 19-9, học sinh toàn tỉnh Quảng Nam được nghỉ học để đảm bảo an toàn.
+- Trung tâm Dự báo khí tượng thủy văn quốc gia khẳng định áp thấp nhiệt đới đang ở khu vực quần đảo Hoàng Sa, sáng mai (19-9) mới tiến gần bờ và gây mưa to gió mạnh. Không có chuyện đã vào đất liền khu vực Trung Bộ như mạng xã hội đồn thổi.
+- Bữa ăn có thịt và nhiều rau xanh. Hơn 100 em học sinh Làng Nủ ở bán trú ăn ngon lành sau những ngày mưa lũ, thiếu thực phẩm.
+- Người lừa đảo giả danh công an gọi điện hù dọa cụ bà 80 tuổi tại huyện Đức Cơ (tỉnh Gia Lai) có liên quan vụ án rửa tiền, và suýt lừa trót lọt 800 triệu đồng.
+- Lo ngại bão có thể đổ bộ vào, nên nhiều ngư dân Đà Nẵng thuê xe cẩu thuyền từ dưới bờ biển lên, đưa đi tránh bão.
+- Điểm sạt lở mới được công bố tình huống khẩn cấp là điểm sạt lở thứ hai xảy ra gần đây ở huyện Cần Giuộc, Long An.
+- Trước dự báo miền Trung có mưa lớn do áp thấp nhiệt đới, lãnh đạo Bộ Nông nghiệp và Phát triển nông thôn đề nghị các địa phương rà soát lại việc ứng phó. Quân đội sẵn sàng 10 máy bay cứu hộ và tiếp tế thực phẩm.
 ![New](News.png)
 ## Nhịp sống số 
+- Ứng dụng Instagram đã cho ra mắt tính năng được thiết kế dành riêng cho lứa tuổi thanh thiếu niên nhằm tăng cường các biện pháp bảo vệ nhóm đối tượng này.
+- Với sự phát triển chóng mặt của trí tuệ nhân tạo (AI), những kẻ lừa đảo chỉ mất 3 phút để tạo app giả, trang web, fanpage mạo danh.
 - Năm 2024, một chiếc laptop sinh viên chuẩn mực ngoài yếu tố hiệu năng và giá cả còn cần thêm các tiêu chí về sự linh hoạt, công nghệ AI cũng như màn hình OLED. Đây cũng chính là các tính năng trên các dòng laptop sinh viên ASUS.
 - Mô hình o1 của OpenAI được nói là sẽ 'suy nghĩ' trước khi trả lời, có thể giải quyết các vấn đề khó hơn về khoa học, toán học hay lập trình.
 - Cục Viễn thông đang đề xuất lùi thời gian tắt sóng 2G, để các nhà mạng có thêm thời gian hỗ trợ 3,4 triệu khách hàng chuyển đổi từ thuê 2G lên 4G.
@@ -93,6 +95,4 @@
 - Theo khảo sát của các công ty nghiên cứu thị trường, thị trường nhà thông minh tại Việt Nam đang phát triển mạnh mẽ và sôi động.
 - Vivobook S 15 (5507) là thế hệ laptop AI Copilot+ PC của ASUS với thiết kế mỏng nhẹ, pin lên tới 18 giờ, màn hình Lumina OLED và hiệu năng mạnh.
 - 'Chatbot AI gặp khó với toán vì chúng chưa bao giờ được thiết kế để làm toán', ông Kristian Hammond, nhà nghiên cứu AI tại Đại học Northwestern (Mỹ), cho biết.
-- Điện thoại gập mới ra mắt của Samsung nâng cao hiệu suất làm việc, giải trí với những tính năng độc nhất.
-- Gần một tuần sau sự cố sập mạng toàn cầu, CrowdStrike cho biết 97% máy tính sử dụng hệ điều hành Windows bị ảnh hưởng đã hoạt động trở lại.
 ![life](Life.png)
