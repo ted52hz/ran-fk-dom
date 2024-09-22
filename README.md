@@ -1,6 +1,12 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Sách giáo khoa cũng là thứ được nhiều cá nhân, các nhóm thiện nguyện tính đến trong danh mục hàng cứu trợ gửi đến các địa phương vùng bị bão lũ.
+- Sau giờ học, nam sinh lớp 11 Trường THPT Bù Đăng ra khỏi trường thì bị một học sinh cùng trường và bạn đánh gây chấn thương, gãy 4 chiếc răng.
+- Chủ tịch hội đồng trường và hiệu trưởng Trường đại học Kinh Bắc (Bắc Ninh) phát hiện con dấu pháp nhân của trường không còn ở nơi lưu trữ.
+- Ngày 21-9, Chủ tịch UBND huyện Châu Đức (tỉnh Bà Rịa - Vũng Tàu) cho biết huyện đã có quyết định thanh tra toàn diện Trường mầm non Ánh Dương.
+- Nhiều phụ huynh và học sinh Trường THPT Thủ Đức, TP.HCM nhận được tin nhắn, điện thoại mạo danh nhà trường yêu cầu đi khám sức khỏe.
+- Những trận mưa xối xả sau bão số 3 khiến đất đá sạt xuống khắp nơi ở xã biên giới Nậm Chạc, huyện Bát Xát (Lào Cai).
 - Ngành giáo dục An Giang yêu cầu các trường chấn chỉnh việc tiếp nhận các dự án tài trợ, viện trợ và khắc phục ngay hoạt động game show ‘biệt đội GenZ’.
 - Mưa lũ gây sạt lở công trình hai tầng 8 phòng học Trường THCS Lâm Phú, buộc hơn 260 học sinh phải sơ tán.
 - Chiều 20-9, nhiều tài khoản trên mạng xã hội đồng loạt chia sẻ hình ảnh trước cổng Trường tiểu học - THCS Đào Thịnh (Yên Bái) có hàng nghìn cuốn sách giáo khoa của học sinh được thầy cô đem phơi hai bên đường và trước cổng trường sau mưa lũ.
@@ -25,44 +31,38 @@
 - Nhiều trường học tại TP.HCM đã dành ngày làm việc tốt "gửi nắng yêu thương" hướng về đồng bào vùng bão lũ.
 - Năm học 2024-2025, Trường đại học Cần Thơ triển khai đề án nâng cấp trường thành trung tâm đào tạo nguồn nhân lực chất lượng cao, nghiên cứu, ứng dụng khoa học của TP Cần Thơ và vùng Đồng bằng sông Cửu Long.
 - Để chủ động và linh hoạt trong ứng phó bão số 4, đảm bảo an toàn cho thầy và trò, Bộ Giáo dục và Đào tạo lưu ý 17 tỉnh, thành cân nhắc cho học sinh nghỉ học khi cần.
-- "Tham gia nhiều giải đấu nhưng bạn vẫn cân bằng được việc học, rồi còn rất tích cực trong các hoạt động của trường, thiện nguyện. Tiếp xúc với bạn, tôi thấy có nhiều động lực để phát triển bản thân hơn".
-- Tỉnh Thừa Thiên Huế đã phát thông báo cho học sinh toàn tỉnh nghỉ học để ứng phó với cơn bão số 4 có khả năng đổ bộ trực tiếp tỉnh này.
-- Ngày 18-9, Sở Giáo dục và Đào tạo Thanh Hóa cho biết dự kiến năm học 2025-2026, Trường THPT chuyên Lam Sơn sẽ tuyển sinh một lớp chuyên tiếng Trung Quốc.
-- Ngày 18-9, Nhà xuất bản Giáo Dục Việt Nam cho biết sẽ cung ứng bổ sung 18 triệu bản sách giáo khoa cho vùng bị bão lũ.
-- Do ảnh hưởng của áp thấp nhiệt đới khả năng mạnh lên thành bão, ngày mai 19-9, học sinh toàn tỉnh Quảng Nam được nghỉ học để đảm bảo an toàn.
-- Ngày 18-9, tiệm chè và trà sữa Cô Ba Sài Gòn đã đóng cửa, tạm dừng hoạt động sau khi có nghi vấn trà sữa tại đây gây ngộ độc cho hàng chục học sinh.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Bộ Quốc phòng phản hồi kiến nghị cử tri tỉnh Hưng Yên về việc thanh niên đỗ các trường được bảo lưu kết quả nhưng phải đi nghĩa vụ quân sự trước, đi học sau.
-- Tin tức đáng chú ý: Triển khai xây dựng đường cao tốc Bắc - Nam phía Tây đoạn Gia Nghĩa - Chơn Thành; Hỗ trợ đổi máy 4G miễn phí cho 700.000 khách hàng đang dùng mạng 2G; Tỉnh Thanh Hóa di dời khẩn cấp 300 học sinh đến địa điểm mới do sạt lở...
-- Bão Yagi vào đất liền đã khiến hơn 300 người dân nước ta thiệt mạng, trong đó có không ít những trẻ em. Câu chuyện xót xa từ Làng Nủ (tỉnh Lào Cai) nhắc nhớ về việc phổ cập kỹ năng thoát hiểm với trẻ em.
-- Hôm nay 21-9, thời tiết Bắc Bộ mưa to đến rất to. Trung Bộ mưa giảm, Nam Bộ mưa rào diện rộng.
-- Ngày 20-9, Tập đoàn Ninja Van đã hoàn tất thanh toán các khoản lương quá hạn vào tài khoản ngân hàng của nhân viên ECRM Nobita - công ty con tại Việt Nam. ECRM Nobita hoàn toàn tách biệt với hoạt động cốt lõi trong lĩnh vực vận chuyển Ninja Van.
-- Giữa đêm đen, chiếc ô tô con bị nước cuốn ra vùng nước ngập mênh mông ở huyện Quốc Oai (Hà Nội). Hai người đàn ông đứng trên nóc xe được đôi vợ chồng làm nghề chài lưới giải cứu.
-- Công an đang tạm giữ, lấy lời khai người đàn ông cầm dao chém người nhiều nhát giữa trung tâm TP Quy Nhơn.
-- Công an đang điều tra vụ một bệnh nhân nghi sốc thuốc ở phòng khám tư rồi đưa đến bệnh viện, nhưng người này đã tử vong.
-- Lãnh đạo Cục Quản lý đê điều và Phòng chống thiên tai khẳng định Bộ Nông nghiệp và Phát triển nông thôn không giữ, quản lý khoảng 2.000 tỉ đồng quỹ phòng chống thiên tai. Đây là số tiền quỹ tồn mà 63 tỉnh, thành phố đang giữ, quản lý.
-- Người phụ nữ ở huyện Anh Sơn, Nghệ An bị nước lũ cuốn mất tích khi đang trên đường chở hai con từ trường về nhà.
-- Triều cường vượt 1,65m cộng thêm mưa lớn khiến đường Trần Xuân Soạn (quận 7, TP.HCM) ngập nhiều đoạn. Người dân gặp khó khăn trong việc buôn bán, đi lại.
-- Phó thủ tướng Lê Thành Long vừa ký quyết định bãi bỏ 37 văn bản quy phạm pháp luật của Thủ tướng Chính phủ.
-- Chiều 20-9, khi thực hiện trục vớt xe phương tiện, tìm kiếm người bị nạn trong vụ sập cầu Phong Châu, lực lượng chức năng tỉnh Phú Thọ phát hiện một thi thể bên trong cabin xe.
-- Thay vì trả tiền lương cho công nhân thì đối tượng quản lý xây dựng công trình lại trả bằng ma túy.
-- Hơn 30 xe ba bánh bị Công an TP Quảng Ngãi tiêu hủy. Khi tuần tra kiểm soát, cảnh sát giao thông dừng xe kiểm tra, các xe ba bánh này chung cảnh '5 không' nên bị tịch thu.
-- Thực hiện chương trình làm việc toàn khóa, Hội nghị lần thứ 10 Ban Chấp hành Trung ương Đảng khóa XIII họp từ ngày 18-9 đến ngày 20-9 tại thủ đô Hà Nội.
-- Lãnh đạo UBND TP.HCM giao UBND quận 12 khẩn trương xử lý trách nhiệm của các tập thể, cá nhân quản lý nhà nước để xảy ra vụ việc bạo hành trẻ em.
-- Quyết định khám xe cùng số và ngày ký nhưng kỳ lạ là hai bản được cán bộ quản lý thị trường cung cấp cho tài xế tại hai thời điểm lại không giống nhau!
-- Sau nhiều ngày liên hệ để tìm lại chủ nhân số nữ trang là vàng và ngọc trai thất lạc trong thùng hàng cứu trợ từ Đà Nẵng gửi bà con vùng lũ, chiều 20-9 tại trụ sở Công an xã Xuân Quang (Bảo Thắng, Lào Cai), số vàng trên đã trao lại cho chủ nhân.
-- Hội Nữ doanh nhân tỉnh Kiên Giang không chỉ kết nối sản phẩm OCOP mà còn góp phần an sinh xã hội xây nhà tình nghĩa, trao học bổng cho học sinh mồ côi cha mẹ do đại dịch COVID-19 có thêm điều kiện đến trường.
-- Ngành đường sắt mở bán vé tàu Tết sớm hơn mọi năm, đặc biệt không bán ghế phụ hoặc ghế chuyển đổi.
-- Ông Kha Văn Tám - chủ tịch Liên đoàn Lao động tỉnh Nghệ An - cho biết Công đoàn Nghệ An đang tích cực chuẩn bị cho ngày khởi tranh Giải bóng đá công nhân, viên chức năm 2024.
-- Đồng bằng sông Cửu Long đang có nhiều lợi thế nhưng vì sao vốn đầu tư đổ vào vùng này thấp, vì sao số doanh nghiệp thành lập mới không hơn số doanh nghiệp bị 'khai tử'?
-- Từ ngày 21 đến 22-9, rãnh áp thấp có khả năng hình thành vùng áp thấp ảnh hưởng trực tiếp đến khu vực bắc Biển Đông và vịnh Bắc Bộ.
-- Trung ương đã ghi phiếu giới thiệu nhân sự quy hoạch Bộ Chính trị, Ban Bí thư khóa XIV, nhiệm kỳ 2026 - 2031 và bổ sung quy hoạch Ban Chấp hành Trung ương Đảng khóa XIV.
-- Sở Giao thông vận tải TP.HCM vừa có văn bản gửi các đơn vị liên quan yêu cầu đảm bảo an ninh trật tự, an toàn giao thông khu vực BOT Phú Hữu (TP Thủ Đức).
-- Mưa lũ gây sạt lở công trình hai tầng 8 phòng học Trường THCS Lâm Phú, buộc hơn 260 học sinh phải sơ tán.
-- Dù đã khởi động từ năm 2022, đường Lò Lu (Thủ Đức, TP.HCM) chỉ mới xong được 200m cống. Dọc tuyến đầy rẫy 'hố bom' sâu hơn gang tay rất nguy hiểm.
-- Chiều 20-9, Tổng Bí thư, Chủ tịch nước Tô Lâm đã có bài phát biểu quan trọng bế mạc Hội nghị Trung ương Đảng lần thứ 10 khóa XIII.
-- Giải báo chí Nam Trung Bộ lần 1-2024 có 22 tác phẩm đoạt giải ở các loại hình báo in, báo điện tử, phát thanh và truyền hình.
+- UBND TP.HCM vừa cho phép lấy bảng giá đất hiện hành nhân (x) hệ số để tính thuế đất từ 1-8-2024.
+- Công an tỉnh Đồng Nai vừa bắt giam ba cán bộ xã ở huyện Định Quán, tỉnh Đồng Nai vì đã buông lỏng quản lý tài nguyên, khoáng sản.
+- Sau chuyến bay hơn 19 tiếng từ thủ đô Hà Nội, chiều 21-9 (giờ địa phương), Tổng Bí thư, Chủ tịch nước Tô Lâm và Phu nhân đã đến New York, Mỹ.
+- Ảnh hưởng không khí lạnh đầu mùa, Bắc Bộ có mưa to đến rất to, Nam Bộ dù giảm mưa nhưng vẫn có mưa rào nhiều nơi.
+- Một số tin tức đáng chú ý: Đề xuất nghỉ hưu được thanh toán tiền đóng bảo hiểm thất nghiệp; Hàng chục nghìn tỉ trái phiếu có nguy cơ chậm trả nợ gốc; Sếp Thế Giới Di Động liên tục muốn bán ra cổ phiếu.
+- Thủ tướng yêu cầu Ngân hàng Nhà nước, hệ thống ngân hàng nghiên cứu chính sách giãn, hoãn, khoanh nợ, chính sách tín chấp, gói lãi suất 0 đồng... để hỗ trợ doanh nghiệp, người dân bị thiệt hại do bão lũ.
+- Nhiều tình nguyện viên và người dân lập team để chung tay làm sạch bãi biển Tuần Châu (Hạ Long).
+- “Khẩn trương khắc phục hậu quả bão lũ, nhanh chóng ổn định đời sống nhân dân, tích cực khôi phục sản xuất kinh doanh, thúc đẩy tăng trưởng kinh tế”.
+- Cục Thuế TP.HCM yêu cầu các chi cục thuế làm việc cả các ngày thứ bảy, chủ nhật để giải quyết hồ sơ tồn đọng và nhấn mạnh không được để phát sinh phiền hà, nhũng nhiễu, tiêu cực.
+- Sau hai ngày xét xử, chiều 21-9, TAND TP Đà Nẵng tuyên phạt Huỳnh Thị Châu (49 tuổi, trú quận Cẩm Lệ, Đà Nẵng) 20 năm tù về tội lừa đảo chiếm đoạt tài sản.
+- Cư dân, doanh nghiệp khu vực BOT Phú Hữu kiến nghị miễn thu phí đối với xe rác, xe đưa rước học sinh... Đồng thời giảm 50% xe nhân viên, doanh nghiệp có trụ sở gần trạm.
+- Hai bé gái ở thị xã Nghĩa Lộ (Yên Bái) đạp xe đạp qua ngầm tràn bị nước cuốn trôi. Rất may người dân phát hiện và lao xuống cứu kịp thời.
+- Vụ tai nạn lao động nghiêm trọng xảy ra chiều 21-9 tại xã Ninh An, huyện Hoa Lư, Ninh Bình khiến hai người tử vong.
+- Cuối ngày 21-9, UBND TP.HCM có văn bản cho phép sử dụng bảng giá đất hiện hành để tính thuế trong lúc chờ ban hành bảng giá đất mới.
+- Vợ điện liên tục nên tài xế Phượng Quầy Châu quyết định bỏ lại ô tô, đi bộ băng qua đoạn sạt lở giữa đêm để về nhà, thoát khỏi thảm họa lở núi đẩy hơn 30 người cùng nhiều xe xuống suối.
+- Bộ Tổng tham mưu Quân đội nhân dân Việt Nam thông báo dừng diễu binh, diễu hành trong lễ kỷ niệm 80 năm Ngày thành lập Quân đội nhân dân Việt Nam để tập trung khắc phục hậu quả bão số 3.
+- Chủ tịch UBND tỉnh Lào Cai Trịnh Xuân Trường nhấn mạnh sẽ quyết tâm xây dựng lại một Làng Nủ mới đẹp hơn, đáng sống hơn, an toàn hơn, nghĩa tình hơn.
+- Dự án chống sạt lở núi Van Cà Vãi được đầu tư khẩn cấp, thi công trong 108 ngày, nhưng sau 60 ngày chỉ mới làm hơn 23% khối lượng.
+- 'Trước khi dòng nước lũ ập về, tôi cũng được xem là giàu có nhưng giờ trắng tay rồi, không còn gì kể cả nhà để ở'.
+- Sau khi bệnh nhân tử vong nghi sốc thuốc ở phòng khám tư, Sở Y tế Đắk Lắk lập đoàn thanh tra để kiểm thảo nguyên nhân tử vong.
+- Xuất hiện vết nứt lớn ở quả đồi sau khu dân cư có 11 hộ dân, chủ tịch tỉnh Quảng Nam yêu cầu địa phương khẩn trương chọn vị trí an toàn xây dựng khu tái định cư, hỗ trợ kinh phí để người dân di dời đến nơi ở mới trước Tết.
+- Sáng 21-9, UBND TP Hà Nội đã tổ chức lễ khánh thành Cung thiếu nhi Hà Nội và gắn biển công trình chào mừng kỷ niệm 70 năm Ngày Giải phóng thủ đô.
+- Mức bồi thường chi phí đầu tư vào đất còn lại khi Nhà nước thu hồi đất tại TP Hà Nội từ 20-9-2024.
+- Ngày 21-9, Hiệp hội Phần mềm và Dịch vụ công nghệ thông tin Việt Nam (VINASA) vừa công bố Top 10 Doanh nghiệp Công nghệ số xuất sắc Việt Nam 2024.
+- TP.HCM sẽ dùng vốn ngân sách để đầu tư đoạn đường dẫn cao tốc TP.HCM - Long Thành - Dầu Giây.
+- Đợt triều cường cuối tháng 9-2024 kết hợp với nước lũ từ thượng nguồn sông Mekong đổ về có thể gây ngập nhiều ở khu vực Đồng bằng sông Cửu Long.
+- Ngày 21-9, Chủ tịch UBND huyện Châu Đức (tỉnh Bà Rịa - Vũng Tàu) cho biết huyện đã có quyết định thanh tra toàn diện Trường mầm non Ánh Dương.
+- Hàng ngàn lô nền trống không, nhà vượt lũ hoang phế không người ở, khiến ai cũng có thể cảm nhận về sự lãng phí và mong mỏi sớm tìm ra cách khắc phục.
+- Chi cục Kiểm lâm TP.HCM vừa phối hợp với Vườn quốc gia Bù Gia Mập (tỉnh Bình Phước) thả một con tê tê Java và 4 con cu li nhỏ về môi trường tự nhiên.
+- Lễ viếng bà Đặng Bích Hà, phu nhân Đại tướng Võ Nguyên Giáp, được tổ chức vào ngày 28-9 tại Nhà tang lễ Quốc gia.
 ![New](News.png)
 ## Nhịp sống số 
 - Sở Y tế TP.HCM đã triển khai phần mềm tra cứu thuốc cấp cứu, với 14 bệnh viện tham gia tra cứu, chia sẻ 37 loại thuốc cấp cứu.
