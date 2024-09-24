@@ -1,6 +1,15 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Để giúp doanh nghiệp "quen" trúng các gói thầu, cựu chủ tịch Nhà xuất bản Giáo Dục Việt Nam chỉ đạo  thực hiện lựa chọn mua sắm giấy in theo phương thức chào hàng cạnh tranh rút gọn trái quy định.
+- Ngày 23-9, Tổ chức QS công bố VinUni đã đạt chứng nhận QS 5 sao toàn diện.
+- Dưới ánh nắng chói chang cùng những cơn gió đông bắc đầu mùa, những cô cậu trò nhỏ ngồi sát nhau trong 3 lớp học tạm bằng bạt...
+- Bệnh viện quận 6 (TP.HCM) tiếp nhận bé trai K., 2 tuổi, nhập viện trong tình trạng tím tái, hôn mê, ngưng tim, ngưng thở và tử vong sau đó.
+- Cựu chủ tịch Nhà xuất bản Giáo Dục Việt Nam Nguyễn Đức Thái bị cáo buộc nhận hối lộ định kỳ hằng năm ngay tại phòng làm việc, với tổng số 24,9 tỉ đồng.
+- Sau khi sạt lở đất nghiêm trọng vào trường học, đe dọa tính mạng giáo viên, học sinh, ngày 22-9, UBND tỉnh Thanh Hóa đã công bố tình huống khẩn cấp sạt lở đồi đất tại Trường THCS Lâm Phú, huyện Lang Chánh và Trường THCS-THPT Như Xuân.
+- 18 trường đại học công lập sẽ được ưu tiên xem xét đầu tư phòng thí nghiệm bán dẫn để đào tạo, phát triển nhân lực ngành bán dẫn.
+- Mạng xã hội mấy hôm nay xôn xao chuyện một giáo sư nổi tiếng lên tiếng về hiện tượng một số nhà khoa học 'kiếm thêm' từ việc đứng tên trường khác trong các bài báo quốc tế.
+- Trước tình hình mưa lớn kéo dài gây nguy cơ ngập cục bộ một số tuyến đường các huyện miền núi ở Hà Tĩnh, các cơ sở giáo dục tại đây đã cho hơn 9.000 học sinh nghỉ học để đảm bảo an toàn.
 - 'Bạn không học được, cần bằng đã có người thi hộ. Người thật, thi thật, nói không với chứng chỉ giả. Bảo hành kết quả trọn đời, không đạt hoàn 200% phí'. Đó là một trong những kiểu mời chào hấp dẫn có trên mạng xã hội.
 - Thấy nguy cơ sạt lở đất đá vào ký túc xá rất cao, cô giáo Bùi Thị Châm buông đũa bữa cơm trưa chạy lên ký túc xá gọi học sinh đi sơ tán. 10 phút sau, đất đá đổ xuống ầm ầm, 3 phòng bị phá nát.
 - Do mưa lũ kéo dài nhiều ngày qua làm sạt lở đất đá vào khu ký túc xá, chiều 22-9, chính quyền xã Trung Lý, huyện Mường Lát và nhà trường đã di dời khẩn cấp 214 học sinh đến nơi an toàn.
@@ -22,49 +31,41 @@
 - Năm học 2024 - 2025, sinh viên Đại học Bách khoa Hà Nội đi xe buýt sẽ được nhà trường cấp minh chứng làm căn cứ để cộng điểm rèn luyện.
 - Một số phụ huynh đưa đón con đi học bằng xe máy vẫn vô tư để con đầu trần, trong khi mình đội nón bảo hiểm.
 - Đã hơn 10 ngày trôi qua nhưng vẫn còn những trường và điểm trường ở miền Bắc chưa thể mở lại sau ảnh hưởng của bão Yagi, học sinh vẫn nghỉ học.
-- "Các em bé ở Làng Nủ đã có cơm nóng, thịt tươi, rau xanh", những tấm ảnh chụp bữa ăn ấm áp ở nhà bán trú tại Lào Cai làm ấm lòng tất cả.
-- Mưa lớn đã làm mực nước trên các sông Ngàn Sâu và Ngàn Phố gần lên mức báo động 2, sông La ở mức báo động 1.
-- Nhiều thầy cô giáo tâm sự họ phải quay cuồng với các cuộc thi, thậm chí có những cuộc thi không liên quan gì tới việc giảng dạy.
-- Thông tin một phụ huynh lùi xe trong sân trường làm học sinh lớp 2 tử vong khiến nhiều người đau xót nghẹn ngào.
-- Đó là chia sẻ của ông Luke Turner, giám đốc điều hành Trường song ngữ quốc tế Emasi Nam Long, TP.HCM, về việc tổ chức "Tuần lễ sẻ chia" hướng về vùng bão lũ cho học sinh.
-- Những học sinh vùng lũ ở Trấn Yên (Yên Bái) đón nhận niềm vui trẻ thơ, sau nhiều ngày cùng gia đình vượt qua đợt mưa lũ lịch sử.
-- Huân chương Cành cọ hàn lâm ghi nhận nỗ lực không ngừng nghỉ của TS Phan Thị San Hà trong việc xây dựng và phát triển Trung tâm CARE cũng như bồi đắp mối quan hệ giữa Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) và các đối tác Pháp.
-- Chiều 19-9, báo Tuổi Trẻ và Trường đại học Nguyễn Tất Thành tổng kết khóa 1 dự án hợp tác đào tạo sinh viên giữa hai bên.
-- Trước những thiệt hại do bão số 3, Bộ Giáo dục và Đào tạo yêu cầu các trường thực hiện các giải pháp dạy học linh hoạt, không gây áp lực, quá tải cho giáo viên và học sinh.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Mưa lớn kéo dài suốt đêm tới sáng khiến nhiều tuyến phố ở TP Vinh, Nghệ An bị ngập nặng trong sáng nay 23-9.
-- Tổng Bí thư, Chủ tịch nước Tô Lâm đã gặp các lãnh đạo, chuyên gia tập đoàn công nghệ hàng đầu của Mỹ về bán dẫn và trí tuệ nhân tạo (AI) chiều 22-9 giờ New York.
-- Đang chạy trên đường Nguyễn Văn Linh (huyện Bình Chánh, TP.HCM), ô tô tông xe tải khiến hai người chết. Lực lượng chức năng đang điều tra nguyên nhân tai nạn.
-- Từ ngày 20-9-2024, TP Hà Nội áp dụng cơ chế thưởng bằng tiền đối với trường hợp bàn giao mặt bằng đúng tiến độ.
-- Tin tức đáng chú ý: Bão số 4 và hoàn lưu đã làm 5 người chết, mất tích; Giá thịt heo cả nước đồng loạt tăng; Bộ Nông nghiệp và Phát triển nông thôn kiểm tra công tác khắc phục hậu quả thiên tai tại huyện Nguyên Bình, Cao Bằng...
-- Hôm nay 23-9, không khí lạnh lan tới Bắc Trung Bộ gây mưa to cho khu vực này. Bắc Bộ và Nam Bộ giảm mưa.
-- Tổng Bí thư, Chủ tịch nước Tô Lâm đánh giá cao và trân trọng những tình cảm tốt đẹp của Giáo hoàng Francis và Thủ tướng Tòa thánh Vatican dành cho Việt Nam.
-- Tổng Bí thư, Chủ tịch nước Tô Lâm kêu gọi cần tăng cường đoàn kết, hợp tác và tôn trọng lẫn nhau, tuân thủ luật pháp quốc tế.
-- Tổng Bí thư, Chủ tịch nước Tô Lâm đã dành hoạt động đầu tiên cho những người Việt xa quê, nhấn mạnh bà con là một phần không thể tách rời của dân tộc Việt Nam.
-- Chiều 22-9, Thủ tướng Phạm Minh Chính tiếp lãnh đạo một số doanh nghiệp dự kiến sẽ đầu tư lớn tại tỉnh Bắc Ninh trong thời gian tới, gồm Samsung, Phú Mỹ Hưng và Aeon Mall.
-- Do ảnh hưởng của bão số 4, hai ngày qua tại huyện Mường Lát có mưa lớn, lượng mưa đạt 106,6mm gây sạt lở đất đá, ngập lụt nhiều nơi.
-- Cục Quản lý thị trường tỉnh Kon Tum cho hay hiện đoàn kiểm tra của Tổng cục Quản lý thị trường đang làm rõ các nội dung liên quan vụ chặn khám xe chở hàng.
-- Tỉnh Bắc Ninh trao nhiều quyết định chủ trương đầu tư, giấy chứng nhận đăng ký đầu tư, biên bản ghi nhớ cho Samsung, Công ty CP Đầu tư Công đoàn Ngân hàng Công Thương, Foxconn, Amkor, Goertek... với tổng vốn đầu tư hơn 5,5 tỉ USD.
-- Chùa Vạn Phật tại TP Pleiku (Gia Lai) bốc cháy lớn gây thiệt hại nhiều tài sản và đồ vật trong nhà chùa, cơ quan chức năng đang thống kê thiệt hại.
-- Ghi nhận thực tế tại các chi cục thuế ở TP.HCM trong ngày hôm nay 22-9 cho thấy hồ sơ thuế nhà đất đang tồn rất nhiều.
-- Có nhà ở xã hội thuộc sở hữu nhà nước chiếm tỉ lệ cao trên cả nước, Đà Nẵng sẽ hỗ trợ hộ nghèo khi xây mới số tiền 80 triệu đồng/nhà, nếu sửa chữa thì hỗ trợ tối đa 30 triệu đồng/nhà...
-- Mùa mưa bão năm nay đã đến, tại tỉnh Phú Yên có nhiều cây cầu xuống cấp, hư hỏng... đang là mối lo cho người dân khi lưu thông qua cầu.
-- Quả đồi sau Trường tiểu học Quang Trung (huyện Đạ Tẻh, tỉnh Lâm Đồng) đã lở lói, đất đá tràn tứ tung, nguy cơ sạt lở, uy hiếp sự an toàn gần 600 học sinh.
-- Ô tô tải và xe con đi trên quốc lộ 6 thì bị khối đất đá sạt lở xuống và đè trúng. Sự việc xảy ra vào chiều 22-9 tại xã Chiềng Hắc, huyện Mộc Châu, tỉnh Sơn La.
-- Mưa to khiến lưu lượng nước về hồ thủy điện Hòa Bình tăng nhanh, bộ trưởng Bộ Nông nghiệp và Phát triển nông thôn phải lệnh mở liên tiếp 3 cửa xả đáy trong trưa và chiều nay.
-- Liên quan đến vụ "một khách du lịch trượt chân rơi xuống biển mất tích", thi thể nam du khách được  đội lặn của Lữ đoàn đặc công nước 5 tỉnh Ninh Thuận tìm thấy, cách vị trí rơi khoảng 150m.
-- Mưa lũ đã cuốn trôi nhiều cột điện ở xã Sơn Thủy, huyện vùng cao Quan Sơn nên khu vực này đang bị mất điện.
-- Nút giao đường Rừng Sác với cao tốc Bến Lức - Long Thành sẽ giúp người dân các tỉnh đến Cần Giờ thuận tiện hơn.
-- Sau chấp thuận của UBND TP.HCM về lấy bảng giá đất hiện hành để tính thuế đất từ 1-8-2024, cơ quan thuế đang tập trung giải quyết hồ sơ tồn.
-- Tàu Cảnh sát biển 2011 tìm thấy một thi thể ngư dân mất tích. Ngư dân này đi trên tàu cá và bị một tàu hàng đâm chìm ở vùng biển Côn Đảo.
-- Trên công trường, Thủ tướng Phạm Minh Chính yêu cầu rút ngắn tiến độ, hoàn thành vành đai 4 qua Bắc Ninh vào cuối năm 2025.
-- Nhân viên hút hầm cầu báo giá hơn 10 triệu tiền công cho 19m đường ống đã thông, trong khi chiều dài thực tế chỉ có 6m.
-- Từ 10h ngày mai 23-9, Thủy điện Trị An sẽ tiến hành xả lũ điều tiết qua đập tràn để điều tiết hồ chứa.
-- Người dân ở Yên Bái cầm cờ, hoa đứng dọc hai bên đường vẫy chào, cảm ơn các chú bộ đội đã giúp bà con khắc phục hậu quả mưa lũ.
-- Thuyền trưởng vụ lật tàu du lịch ở biển Cửa Đại lãnh án 7 năm tù giam về tội vi phạm quy định về điều khiển phương tiện giao thông đường thủy.
+- Sau nhiều tuần số ca mắc liên tục tăng, đến nay dịch sởi tại TP.HCM đã có dấu hiệu chững lại, tỉ lệ bao phủ vắc xin của trẻ đã ở mức cao.
+- Trong khi nhiều người dân sốt ruột, cơ quan thuế cho biết đang đẩy mạnh tiến độ xử lý hồ sơ nhà đất sớm nhất có thể.
+- Các ngư phủ phải nhảy xuống biển để đào thoát, chịu đánh cược sinh mạng mình giữa trùng khơi, hay chống trả quyết liệt khi hết chịu nổi những trận đòn tàn khốc...
+- Sáng nay 24-9, tại Thanh Hóa ngớt mưa, có nơi tạnh. Nước lũ trên các sông đang xuống. Đường lên huyện vùng cao Mường Lát bị tắc hai ngày qua đã thông.
+- Một số tin tức đáng chú ý: Tiếp nhận 1.714 tỉ đồng ủng hộ đồng bào bị bão lũ; Ngân hàng bị rút tiền hàng loạt có thể được vay đặc biệt; Phạt chủ dự án The Holiday Ha Long 'ém' thông tin trái phiếu...
+- Hôm nay 24-9, thời tiết mưa xu hướng giảm trên các miền của nước ta, chỉ còn một vài nơi duy trì mưa to.
+- Rạng sáng 24-9, trên cao tốc Vĩnh Hảo - Phan Thiết xảy ra tai nạn giao thông nghiêm trọng giữa xe khách Thuận Thảo và một xe container làm 1 người chết, nhiều người bị thương.
+- Thủ tướng Phạm Minh Chính yêu cầu Bộ Công Thương “tuyệt đối không để gián đoạn nguồn cung xăng dầu”, chịu trách nhiệm trước Chính phủ, trước nhân dân nếu để xảy ra thiếu hụt, đứt gãy nguồn cung.
+- Tối 23-9, thông tin từ Đội Công binh số 2 tại Abyei, châu Phi, ngày 25-9 tới đây, đội chính thức kết thúc nhiệm kỳ thực hiện nhiệm vụ gìn giữ hòa bình tại phái bộ UNISFA, dự kiến về tới sân bay Nội Bài ngày 28-9.
+- Chủ tịch Ủy ban Trung ương Mặt trận Tổ quốc Việt Nam Đỗ Văn Chiến nêu rõ việc sử dụng đúng mục đích, không lãng phí, không để xảy ra tiêu cực với tiền ủng hộ.
+- Dưới ánh nắng chói chang cùng những cơn gió đông bắc đầu mùa, những cô cậu trò nhỏ ngồi sát nhau trong 3 lớp học tạm bằng bạt...
+- Tổng Kiểm toán Nhà nước Ngô Văn Tuấn nêu rõ trong quá trình kiểm toán, không chờ kết thúc mà khi phát hiện dấu hiệu vi phạm pháp luật, tham nhũng tiêu cực rõ ràng sẽ chuyển ngay cho các cơ quan chức năng.
+- Nhiều năm bỏ tâm huyết phục dựng lúa mùa, ông Lê Quốc Việt ở thị trấn Minh Lương (huyện Châu Thành, Kiên Giang) được vinh dự công nhận 'Nhà khoa học của nhà nông' lần thứ 4 năm 2024.
+- Đại sứ quán Việt Nam tại Ai Cập kiêm nhiệm Lebanon thông báo khẩn khuyến cáo công dân Việt Nam rời khỏi Lebanon.
+- Liên quan vụ gần 100 công nhân nhập viện sau bữa ăn tối, tỉnh Đồng Nai đã xử phạt công ty cung ứng suất ăn số tiền 180 triệu đồng và đình chỉ hoạt động 4 tháng.
+- Người đàn ông được phát hiện chết trên ban công Bệnh viện Đa khoa tỉnh Quảng Ngãi, thi thể đang phân hủy. Công an, viện kiểm sát đang có mặt tại hiện trường.
+- Dự án khắc phục hậu quả thiên tai tại cầu Phong Châu được triển khai theo lệnh khẩn cấp, với kinh phí tạm tính 9,13 tỉ đồng từ ngân sách nhà nước.
+- Một số hạng mục tại Khu lưu niệm Nữ tướng Nguyễn Thị Định, huyện Giồng Trôm, tỉnh Bến Tre sẽ được nâng cấp, sửa chữa với tổng mức đầu tư hơn 12 tỉ đồng.
+- Mái ta luy dương trong một con hẻm ở trung tâm TP Pleiku (Gia Lai) bị sạt lở, đe dọa an toàn nhiều nhà dân.
+- Cơ quan chức năng đã "siêu âm" rõ nguyên nhân Bệnh viện Đa khoa tỉnh Quảng Ngãi ngập liên tục. "Chẩn bệnh" thành công, nhưng rất khó "điều trị" dứt điểm.
+- Bà P.T.H. (Hà Nội) vừa bị Sở Thông tin và Truyền Thông Hà Nội ra quyết định xử phạt 30 triệu đồng vì đăng tải bản đồ có chứa "đường lưỡi bò" phi pháp.
+- Thời gian qua, tình trạng kẹt xe trên cầu vượt Nguyễn Thái Sơn (hướng về mũi tàu Phạm Ngũ Lão, quận Gò Vấp, TP.HCM) có chiều hướng căng thẳng.
+- Bằng thủ đoạn gian dối, giả hợp đồng cho thuê mặt bằng 2 khu đất do Bộ Công an và Bộ Quốc phòng quản lý, Nguyễn Tuấn Anh (46 tuổi, ngụ Tây Ninh) đã chiếm đoạt 2,26 tỉ đồng.
+- Sáng 23-9, lực lượng chức năng tỉnh Phú Thọ đã tìm thấy thêm một thi thể là nạn nhân trong vụ sập cầu Phong Châu xảy ra ngày 9-9. Đây cũng là nạn nhân tử vong thứ 4 được tìm thấy.
+- Sáng 23-9, chương trình trao tặng hơn 1,7 triệu mũ bảo hiểm cho học sinh lớp 1 trên toàn quốc trong năm học 2024 - 2025 đã được phát động tại Trường Tiểu học Vạn Bảo, Hà Đông, TP Hà Nội.
+- Trong 6 ngày, Đội K92 tỉnh Kiên Giang đã tìm kiếm, quy tập và cất bốc được một số bộ hài cốt liệt sĩ tại một xã của huyện Kiên Lương.
+- Chủ tịch UBND tỉnh Bà Rịa - Vũng Tàu Nguyễn Văn Thọ yêu cầu cả hệ thống chính trị của tỉnh vào cuộc để xử lý từ gốc các nguyên nhân gây tai nạn giao thông.
+- Nếu điều chỉnh quy hoạch, biệt thự đúng 100 năm tuổi này sẽ có cơ hội được giữ lại làm bảo tàng, phim trường...
+- Bộ Tư lệnh Thủ đô Hà Nội đề xuất UBND TP Hà Nội chỉ tổ chức bắn pháo hoa tại 1 điểm, 2 trận địa ở quận Hoàn Kiếm, từ 21h30 - 21h45 vào ngày 10-10-2024.
+- Do ảnh hưởng của rãnh áp thấp nối với vùng áp thấp và gió mùa Tây Nam, nhiều vùng biển trên cả nước có mưa dông, gió giật mạnh cấp 7-8.
 ![New](News.png)
 ## Nhịp sống số 
+- Nhằm giúp doanh nghiệp tiết kiệm chi phí mà vẫn có thể tận dụng nhiều lợi ích của các máy chủ cloud, Bizfly Cloud tung ra dòng máy chủ Cloud VPS giá rẻ hấp dẫn.
 - Sở Y tế TP.HCM đã triển khai phần mềm tra cứu thuốc cấp cứu, với 14 bệnh viện tham gia tra cứu, chia sẻ 37 loại thuốc cấp cứu.
 - Ứng dụng Instagram đã cho ra mắt tính năng được thiết kế dành riêng cho lứa tuổi thanh thiếu niên nhằm tăng cường các biện pháp bảo vệ nhóm đối tượng này.
 - Với sự phát triển chóng mặt của trí tuệ nhân tạo (AI), những kẻ lừa đảo chỉ mất 3 phút để tạo app giả, trang web, fanpage mạo danh.
@@ -94,5 +95,4 @@
 - Sau hơn 1 tháng xác thực sinh trắc học, số điểm phần trăm người dân đánh giá quá trình xác thực dễ dàng tăng thêm 7%, số người kêu khó giảm 9%.
 - Bang Texas cáo buộc các phần mềm của Meta đã nhận dạng và gắn thẻ mọi người trong ảnh mà không được sự cho phép của người dùng.
 - Theo khảo sát của các công ty nghiên cứu thị trường, thị trường nhà thông minh tại Việt Nam đang phát triển mạnh mẽ và sôi động.
-- Vivobook S 15 (5507) là thế hệ laptop AI Copilot+ PC của ASUS với thiết kế mỏng nhẹ, pin lên tới 18 giờ, màn hình Lumina OLED và hiệu năng mạnh.
 ![life](Life.png)
