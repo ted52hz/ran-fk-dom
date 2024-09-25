@@ -1,6 +1,17 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Trường tiểu học Lê Quý Đôn (quận Gò Vấp, TP.HCM) khen học sinh ủng hộ đồng bào miền Bắc từ 100.000 đồng trở lên bằng giấy khen do hiệu trưởng ký, và dưới mức đó chỉ được thư khen do giáo viên chủ nhiệm ký.
+- Con càng lớn, các bậc cha mẹ phải đương đầu, thậm chí căng thẳng vì con muốn sắm điện thoại bằng bạn bằng bè.
+- Dự thảo Luật Việc làm sửa đổi mới nhất trình Ủy ban Thường vụ Quốc hội đã bỏ quy định về giới hạn số giờ làm thêm của học sinh, sinh viên.
+- Cơ quan công an đã triệu tập thiếu niên 15 tuổi để điều tra về việc đánh học sinh lớp 11 gãy 4 chiếc răng, thương tích nặng.
+- Hà Nội có số lượng ứng viên đề nghị công nhận giáo sư, phó giáo sư nhiều nhất xét theo quê quán, Đại học Quốc gia TP.HCM dẫn đầu xét theo nơi làm việc.
+- Cơ quan cảnh sát điều tra cho rằng việc mua giấy in với giá cao sẽ làm tăng giá sách, từ đó kiến nghị Bộ Giáo dục và Đào tạo cần quy định cụ thể việc giám sát, kiểm soát hoạt động mua sắm thường xuyên của Nhà xuất bản Giáo Dục Việt Nam.
+- 11h, tiếng trống tan trường vừa cất lên, Đặng Thị Hà Vân (học sinh lớp 2 Trường tiểu học Yên Lạc, xã Yên Lạc, huyện Nguyên Bình, Cao Bằng) cùng các bạn ùa ra cổng trường, tíu tít về nhà. Sau trận lũ quét kinh hoàng, Vân đã mất cha và anh trai.
+- Tạp chí Scientometrics thuộc Nhà xuất bản Springer Nature, mới đây đăng tải nghiên cứu về danh sách các tác giả siêu năng suất (công bố hơn 60 bài/năm).
+- Không thể cứ hô hào khẩu hiệu nâng cao văn hóa ứng xử trên không gian mạng một cách lý thuyết suông.
+- Trong đau thương mất mát với học trò và người dân các tỉnh miền núi phía Bắc, thầy cô giáo trở thành điểm tựa.
+- Tính đến ngày 23-9, đã có hơn 6.000 lượt bạn đọc là cá nhân, tổ chức đóng góp số tiền gần 22 tỉ đồng chia sẻ với đồng bào vùng bão lũ các tỉnh phía Bắc thông qua báo Tuổi Trẻ.
 - Để giúp doanh nghiệp "quen" trúng các gói thầu, cựu chủ tịch Nhà xuất bản Giáo Dục Việt Nam chỉ đạo  thực hiện lựa chọn mua sắm giấy in theo phương thức chào hàng cạnh tranh rút gọn trái quy định.
 - Ngày 23-9, Tổ chức QS công bố VinUni đã đạt chứng nhận QS 5 sao toàn diện.
 - Dưới ánh nắng chói chang cùng những cơn gió đông bắc đầu mùa, những cô cậu trò nhỏ ngồi sát nhau trong 3 lớp học tạm bằng bạt...
@@ -20,51 +31,41 @@
 - Sách giáo khoa cũng là thứ được nhiều cá nhân, các nhóm thiện nguyện tính đến trong danh mục hàng cứu trợ gửi đến các địa phương vùng bị bão lũ.
 - Sau giờ học, nam sinh lớp 11 Trường THPT Bù Đăng ra khỏi trường thì bị một học sinh cùng trường và bạn đánh gây chấn thương, gãy 4 chiếc răng.
 - Chủ tịch hội đồng trường và hiệu trưởng Trường đại học Kinh Bắc (Bắc Ninh) phát hiện con dấu pháp nhân của trường không còn ở nơi lưu trữ.
-- Ngày 21-9, Chủ tịch UBND huyện Châu Đức (tỉnh Bà Rịa - Vũng Tàu) cho biết huyện đã có quyết định thanh tra toàn diện Trường mầm non Ánh Dương.
-- Nhiều phụ huynh và học sinh Trường THPT Thủ Đức, TP.HCM nhận được tin nhắn, điện thoại mạo danh nhà trường yêu cầu đi khám sức khỏe.
-- Những trận mưa xối xả sau bão số 3 khiến đất đá sạt xuống khắp nơi ở xã biên giới Nậm Chạc, huyện Bát Xát (Lào Cai).
-- Ngành giáo dục An Giang yêu cầu các trường chấn chỉnh việc tiếp nhận các dự án tài trợ, viện trợ và khắc phục ngay hoạt động game show ‘biệt đội GenZ’.
-- Mưa lũ gây sạt lở công trình hai tầng 8 phòng học Trường THCS Lâm Phú, buộc hơn 260 học sinh phải sơ tán.
-- Chiều 20-9, nhiều tài khoản trên mạng xã hội đồng loạt chia sẻ hình ảnh trước cổng Trường tiểu học - THCS Đào Thịnh (Yên Bái) có hàng nghìn cuốn sách giáo khoa của học sinh được thầy cô đem phơi hai bên đường và trước cổng trường sau mưa lũ.
-- Tại lễ khai giảng năm học mới của Trường đại học Nam Cần Thơ, tiến sĩ Nguyễn Văn Quang, hiệu trưởng, công bố thêm 8 chương trình đào tạo.
-- Trường đại học Khoa học Xã hội và Nhân văn Hà Nội hủy lễ khai giảng năm học mới, dành kinh phí ủng hộ đồng bào bị ảnh hưởng bởi bão Yagi.
-- Năm học 2024 - 2025, sinh viên Đại học Bách khoa Hà Nội đi xe buýt sẽ được nhà trường cấp minh chứng làm căn cứ để cộng điểm rèn luyện.
-- Một số phụ huynh đưa đón con đi học bằng xe máy vẫn vô tư để con đầu trần, trong khi mình đội nón bảo hiểm.
-- Đã hơn 10 ngày trôi qua nhưng vẫn còn những trường và điểm trường ở miền Bắc chưa thể mở lại sau ảnh hưởng của bão Yagi, học sinh vẫn nghỉ học.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Sau nhiều tuần số ca mắc liên tục tăng, đến nay dịch sởi tại TP.HCM đã có dấu hiệu chững lại, tỉ lệ bao phủ vắc xin của trẻ đã ở mức cao.
-- Trong khi nhiều người dân sốt ruột, cơ quan thuế cho biết đang đẩy mạnh tiến độ xử lý hồ sơ nhà đất sớm nhất có thể.
-- Các ngư phủ phải nhảy xuống biển để đào thoát, chịu đánh cược sinh mạng mình giữa trùng khơi, hay chống trả quyết liệt khi hết chịu nổi những trận đòn tàn khốc...
-- Sáng nay 24-9, tại Thanh Hóa ngớt mưa, có nơi tạnh. Nước lũ trên các sông đang xuống. Đường lên huyện vùng cao Mường Lát bị tắc hai ngày qua đã thông.
-- Một số tin tức đáng chú ý: Tiếp nhận 1.714 tỉ đồng ủng hộ đồng bào bị bão lũ; Ngân hàng bị rút tiền hàng loạt có thể được vay đặc biệt; Phạt chủ dự án The Holiday Ha Long 'ém' thông tin trái phiếu...
-- Hôm nay 24-9, thời tiết mưa xu hướng giảm trên các miền của nước ta, chỉ còn một vài nơi duy trì mưa to.
-- Rạng sáng 24-9, trên cao tốc Vĩnh Hảo - Phan Thiết xảy ra tai nạn giao thông nghiêm trọng giữa xe khách Thuận Thảo và một xe container làm 1 người chết, nhiều người bị thương.
-- Thủ tướng Phạm Minh Chính yêu cầu Bộ Công Thương “tuyệt đối không để gián đoạn nguồn cung xăng dầu”, chịu trách nhiệm trước Chính phủ, trước nhân dân nếu để xảy ra thiếu hụt, đứt gãy nguồn cung.
-- Tối 23-9, thông tin từ Đội Công binh số 2 tại Abyei, châu Phi, ngày 25-9 tới đây, đội chính thức kết thúc nhiệm kỳ thực hiện nhiệm vụ gìn giữ hòa bình tại phái bộ UNISFA, dự kiến về tới sân bay Nội Bài ngày 28-9.
-- Chủ tịch Ủy ban Trung ương Mặt trận Tổ quốc Việt Nam Đỗ Văn Chiến nêu rõ việc sử dụng đúng mục đích, không lãng phí, không để xảy ra tiêu cực với tiền ủng hộ.
-- Dưới ánh nắng chói chang cùng những cơn gió đông bắc đầu mùa, những cô cậu trò nhỏ ngồi sát nhau trong 3 lớp học tạm bằng bạt...
-- Tổng Kiểm toán Nhà nước Ngô Văn Tuấn nêu rõ trong quá trình kiểm toán, không chờ kết thúc mà khi phát hiện dấu hiệu vi phạm pháp luật, tham nhũng tiêu cực rõ ràng sẽ chuyển ngay cho các cơ quan chức năng.
-- Nhiều năm bỏ tâm huyết phục dựng lúa mùa, ông Lê Quốc Việt ở thị trấn Minh Lương (huyện Châu Thành, Kiên Giang) được vinh dự công nhận 'Nhà khoa học của nhà nông' lần thứ 4 năm 2024.
-- Đại sứ quán Việt Nam tại Ai Cập kiêm nhiệm Lebanon thông báo khẩn khuyến cáo công dân Việt Nam rời khỏi Lebanon.
-- Liên quan vụ gần 100 công nhân nhập viện sau bữa ăn tối, tỉnh Đồng Nai đã xử phạt công ty cung ứng suất ăn số tiền 180 triệu đồng và đình chỉ hoạt động 4 tháng.
-- Người đàn ông được phát hiện chết trên ban công Bệnh viện Đa khoa tỉnh Quảng Ngãi, thi thể đang phân hủy. Công an, viện kiểm sát đang có mặt tại hiện trường.
-- Dự án khắc phục hậu quả thiên tai tại cầu Phong Châu được triển khai theo lệnh khẩn cấp, với kinh phí tạm tính 9,13 tỉ đồng từ ngân sách nhà nước.
-- Một số hạng mục tại Khu lưu niệm Nữ tướng Nguyễn Thị Định, huyện Giồng Trôm, tỉnh Bến Tre sẽ được nâng cấp, sửa chữa với tổng mức đầu tư hơn 12 tỉ đồng.
-- Mái ta luy dương trong một con hẻm ở trung tâm TP Pleiku (Gia Lai) bị sạt lở, đe dọa an toàn nhiều nhà dân.
-- Cơ quan chức năng đã "siêu âm" rõ nguyên nhân Bệnh viện Đa khoa tỉnh Quảng Ngãi ngập liên tục. "Chẩn bệnh" thành công, nhưng rất khó "điều trị" dứt điểm.
-- Bà P.T.H. (Hà Nội) vừa bị Sở Thông tin và Truyền Thông Hà Nội ra quyết định xử phạt 30 triệu đồng vì đăng tải bản đồ có chứa "đường lưỡi bò" phi pháp.
-- Thời gian qua, tình trạng kẹt xe trên cầu vượt Nguyễn Thái Sơn (hướng về mũi tàu Phạm Ngũ Lão, quận Gò Vấp, TP.HCM) có chiều hướng căng thẳng.
-- Bằng thủ đoạn gian dối, giả hợp đồng cho thuê mặt bằng 2 khu đất do Bộ Công an và Bộ Quốc phòng quản lý, Nguyễn Tuấn Anh (46 tuổi, ngụ Tây Ninh) đã chiếm đoạt 2,26 tỉ đồng.
-- Sáng 23-9, lực lượng chức năng tỉnh Phú Thọ đã tìm thấy thêm một thi thể là nạn nhân trong vụ sập cầu Phong Châu xảy ra ngày 9-9. Đây cũng là nạn nhân tử vong thứ 4 được tìm thấy.
-- Sáng 23-9, chương trình trao tặng hơn 1,7 triệu mũ bảo hiểm cho học sinh lớp 1 trên toàn quốc trong năm học 2024 - 2025 đã được phát động tại Trường Tiểu học Vạn Bảo, Hà Đông, TP Hà Nội.
-- Trong 6 ngày, Đội K92 tỉnh Kiên Giang đã tìm kiếm, quy tập và cất bốc được một số bộ hài cốt liệt sĩ tại một xã của huyện Kiên Lương.
-- Chủ tịch UBND tỉnh Bà Rịa - Vũng Tàu Nguyễn Văn Thọ yêu cầu cả hệ thống chính trị của tỉnh vào cuộc để xử lý từ gốc các nguyên nhân gây tai nạn giao thông.
-- Nếu điều chỉnh quy hoạch, biệt thự đúng 100 năm tuổi này sẽ có cơ hội được giữ lại làm bảo tàng, phim trường...
-- Bộ Tư lệnh Thủ đô Hà Nội đề xuất UBND TP Hà Nội chỉ tổ chức bắn pháo hoa tại 1 điểm, 2 trận địa ở quận Hoàn Kiếm, từ 21h30 - 21h45 vào ngày 10-10-2024.
-- Do ảnh hưởng của rãnh áp thấp nối với vùng áp thấp và gió mùa Tây Nam, nhiều vùng biển trên cả nước có mưa dông, gió giật mạnh cấp 7-8.
+- Quyết tâm 500 ngày đêm hoàn thành 3.000km đường bộ cao tốc được Thủ tướng Phạm Minh Chính phát động vào tháng 8-2024, Phó thủ tướng thường trực Nguyễn Hòa Bình ban hành kế hoạch cụ thể với mục tiêu hoàn thành vào ngày 31-12-2025.
+- Tổng Bí thư, Chủ tịch nước Tô Lâm đã nhiều lần nhấn mạnh quyết tâm của Việt Nam để tiến vào kỷ nguyên mới - kỷ nguyên của tiên tiến, văn minh, hiện đại.
+- Trong ngày 23-9 (giờ Mỹ), Tổng Bí thư, Chủ tịch nước Tô Lâm đã có cuộc gặp với lãnh đạo nhiều doanh nghiệp, quỹ đầu tư lớn ở Mỹ như Apple, Meta, Supermicro, Blackstone và Warburg Pincus.
+- Nhiều chi cục thuế tại TP.HCM cho biết sẽ cố gắng hoàn tất việc giải quyết hồ sơ nhà đất tồn đọng trong vòng từ 7 - 10 ngày.
+- Sáng 25-9, tại TP.HCM bầu không khí bị phủ bởi một lớp mù khá dày, tầm nhìn hạn chế.
+- Tại trụ sở Liên Hiệp Quốc, Tổng Bí thư, Chủ tịch nước Tô Lâm đã gặp lãnh đạo các nước Bulgaria, Phần Lan và Kuwait.
+- Khi vụ tai nạn xe khách Phương Trang chưa "nguội", trên cao tốc Vĩnh Hảo - Phan Thiết lại xảy ra tai nạn nghiêm trọng giữa xe khách Thuận Thảo và xe đầu kéo khiến 1 người chết và hơn 10 hành khách bị thương.
+- Tổng Bí thư, Chủ tịch nước Tô Lâm phát biểu trong phiên thảo luận chung đầu tiên của Đại hội đồng Liên Hiệp Quốc khóa 79, nhấn mạnh thông điệp coi trọng chủ nghĩa đa phương và kêu gọi các nước cùng hành động.
+- Một số tin tức đáng chú ý: Giá trị tăng thêm ngành kinh doanh bất động sản đạt trên 103.954 tỉ đồng/năm; Bộ Y tế có cục trưởng Cục An toàn thực phẩm và chánh văn phòng mới; Một doanh nghiệp thép bán hơn 27.700m² đất ở Đà Nẵng...
+- Hôm nay 25-9, thời tiết cả nước tương đối tốt, ban ngày trời nhiều mây, có nắng, về chiều tối một số nơi xuất hiện mưa dông.
+- Chánh Văn phòng Sở Tài nguyên và Môi trường tỉnh Lâm Đồng bị bắt để điều tra tội 'lừa đảo chiếm đoạt tài sản'.
+- UBND TP.HCM yêu cầu chủ đầu tư triển khai metro số 1 đảm bảo tiến độ và chịu hoàn toàn trách nhiệm nếu dự án tiếp tục chậm trễ.
+- Liên quan đến biệt thự trăm tuổi ở Đồng Nai (nhà lầu ông Phủ), chủ tịch Hội đồng nhân dân tỉnh Đồng Nai có văn bản đề nghị chính quyền quan tâm bảo tồn biệt thự này.
+- Công an tỉnh Gia Lai cho biết tại thời điểm xảy ra tai nạn chết người, xe cứu nạn cứu hộ đang đi thực hiện nhiệm vụ cứu người bị lũ cuốn tại huyện Mang Yang.
+- Sở Quy hoạch - Kiến trúc TP.HCM vừa có văn bản gửi Trung tâm Báo chí TP.HCM, về trả lời báo chí các câu hỏi liên quan đến việc ga Bình Triệu (TP Thủ Đức) quy hoạch 'treo' đã hơn 20 năm.
+- Thủ tướng Chính phủ mong muốn các chủ đầu tư, nhà thầu nỗ lực để cơ bản hoàn thành giai đoạn 1 dự án sân bay Long Thành vào cuối năm 2025.
+- Mục đích chuyến thăm nhằm tăng cường và làm sâu sắc hơn mối quan hệ hợp tác chiến lược giữa Việt Nam và Liên bang Nga trong lĩnh vực giáo dục, khoa học và công nghệ, đổi mới sáng tạo.
+- Phát hiện vết nứt toác trên một ngọn núi thuộc huyện Minh Hóa, UBND tỉnh Quảng Bình đã ban bố tình trạng khẩn cấp để ứng phó sạt lở núi.
+- Biểu tượng Hữu nghị quốc tế đặt tại công viên bến Bạch Đằng đại diện cho mối quan hệ hợp tác bền chặt giữa TP.HCM và các địa phương, đối tác quốc tế.
+- Sở Xây dựng Quảng Ngãi đề xuất giảm mức tính thuế tài nguyên từ 230.000 đồng/m³ cát xây dựng còn 150.000 đồng/m³ cát. Từ đó giảm giá cát cho thị trường.
+- Một thanh niên bị nước cuốn trôi mắc kẹt vào bụi cây giữa sông suốt 9 ngày đã được người dân phát hiện và giải cứu.
+- Thật khó tin, ở tỉnh Quảng Ngãi có cây cầu mỗi năm ngập hơn 6 tháng. Việc này kéo dài từ năm 2011 đến nay, người dân chịu nhiều khó khăn, mùa mưa lũ lại nơm nớp.
+- Cục Quản lý lao động ngoài nước đề nghị Công an TP Hà Nội kiểm tra, xác minh, xử lý thông tin liên quan tới Công ty CP Thương mại và Dịch vụ Educa Việt Nam thu tiền, đưa lao động đi Hàn Quốc không giấy phép.
+- Ban Thường vụ Thành ủy Hà Nội chỉ đạo dừng kế hoạch bắn pháo hoa ở toàn bộ 30 quận, huyện, thị xã dịp kỷ niệm 70 năm Ngày Giải phóng thủ đô để tập trung khắc phục hậu quả sau bão số 3.
+- Hà Nội và TP.HCM phấn đấu đến năm 2035, đường sắt đô thị chiếm 30-35% thị phần vận tải hành khách công cộng, và tăng lên 55-70% sau năm 2035.
+- Ban Tuyên giáo Thành ủy TP.HCM ban hành phiếu khảo sát dư luận xã hội sau bão số 3, 4 và mưa lũ xảy ra tại miền Bắc, miền Trung. Trong đó có lấy ý kiến của người dân về giải pháp giảm ngập ở TP.HCM.
+- Công an Đà Nẵng là địa phương đầu tiên trên cả nước thực hiện mô hình cảnh sát giao thông phụ trách địa bàn cấp xã.
+- Lãnh đạo TP.HCM chia sẻ nhiều ý tưởng hợp tác trong cuộc tiếp Thứ trưởng Ngoại giao Nhật Bản Komura Masahiro trong khuôn khổ Đối thoại hữu nghị TP.HCM.
+- Một xe container chở sầu riêng chạy trên đèo Sông Pha, hướng từ tỉnh Lâm Đồng đi tỉnh Ninh Thuận thì bị mất lái, lao xuống vực, tài xế được đưa đi bệnh viện nhưng đã tử vong.
+- Đây là một trong những mục tiêu mà UBND TP.HCM đề ra khi triển khai quy hoạch hạ tầng phòng cháy chữa cháy và cứu nạn cứu hộ giai đoạn năm 2030, tầm nhìn 2050.
 ![New](News.png)
 ## Nhịp sống số 
+- Thông tin được ông Nguyễn Minh Hồng - chủ tịch Hội Truyền thông số Việt Nam - đưa ra tại hội thảo an toàn thông tin trong chuyển đổi số ngày 24-9, tại Cần Thơ.
 - Nhằm giúp doanh nghiệp tiết kiệm chi phí mà vẫn có thể tận dụng nhiều lợi ích của các máy chủ cloud, Bizfly Cloud tung ra dòng máy chủ Cloud VPS giá rẻ hấp dẫn.
 - Sở Y tế TP.HCM đã triển khai phần mềm tra cứu thuốc cấp cứu, với 14 bệnh viện tham gia tra cứu, chia sẻ 37 loại thuốc cấp cứu.
 - Ứng dụng Instagram đã cho ra mắt tính năng được thiết kế dành riêng cho lứa tuổi thanh thiếu niên nhằm tăng cường các biện pháp bảo vệ nhóm đối tượng này.
@@ -94,5 +95,4 @@
 - Việc lướt điện thoại và tiếp xúc với ánh sáng xanh có thực sự gây hại cho làn da bạn không? Và việc thoa kem dưỡng có giúp ích không?
 - Sau hơn 1 tháng xác thực sinh trắc học, số điểm phần trăm người dân đánh giá quá trình xác thực dễ dàng tăng thêm 7%, số người kêu khó giảm 9%.
 - Bang Texas cáo buộc các phần mềm của Meta đã nhận dạng và gắn thẻ mọi người trong ảnh mà không được sự cho phép của người dùng.
-- Theo khảo sát của các công ty nghiên cứu thị trường, thị trường nhà thông minh tại Việt Nam đang phát triển mạnh mẽ và sôi động.
 ![life](Life.png)
