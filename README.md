@@ -1,6 +1,16 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Vì sao rất nhiều trường THPT tại TP.HCM chọn phương án thuê máy lạnh bằng phương thức xã hội hóa thay vì vận động phụ huynh góp tiền để mua?
+- "Chiếc xe đạp cũ mà hai chị em hằng ngày đi học bị mái tôn rơi vào làm hư hỏng, không còn đi được nữa. Em mong có chiếc xe đạp mới để hai chị em đèo nhau đi học".
+- Liên quan đến những thông tin học sinh tại điểm trường Màng Mủ ăn cơm gừng chấm muối, huyện Mù Cang Chải (Yên Bái) vừa có báo cáo sự việc lên UBND tỉnh Yên Bái.
+- Ông Nguyễn Viết Hiển, giám đốc Sở Giáo dục và Đào tạo Thái Bình, bị cách chức vì liên quan đến sai phạm trong công tác tổ chức thi tuyển sinh vào lớp 10 THPT năm học 2024 - 2025.
+- Ông Lê Hoài Nam, phó giám đốc Sở Giáo dục và Đào tạo TP.HCM, nhận xét như vậy về một số mặt còn tồn tại của không ít trung tâm ngoại ngữ, tin học tại TP.HCM hiện nay.
+- Cô giáo Bùi Thị Châm - giáo viên Trường Phổ thông dân tộc bán trú THCS Trung Lý, huyện Mường Lát - vừa được giám đốc Sở Giáo dục và Đào tạo Thanh Hóa khen thưởng vì giúp học sinh tránh sạt lở đất.
+- Năm học 2024 - 2025 mới bắt đầu, hàng loạt giáo viên tại Đắk Lắk bỗng thành "con nợ" do cấp trên chi sai phụ cấp ưu đãi.
+- Một trường tiểu học cấp giấy khen cho học sinh đóng góp ủng hộ vùng ảnh hưởng bão lũ từ 100.000 đồng trở lên gây xôn xao dư luận.
+- Thực tế cho thấy thời gian qua nhiều trường tiểu học và trung học ở TP.HCM và nhiều địa phương đã có những đổi mới trong dự giờ.
+- Mới đây một phụ huynh ở Hà Nội lên mạng xã hội bày tỏ bức xúc vì phải đến trường của con để trực nhật sau 17h.
 - Phu nhân Ngô Phương Ly như hòa cùng các em học sinh của Trường tiểu học Võ Thị Thắng ở Cuba. Có giây phút bà như nghẹn ngào, ôm chầm một em học sinh và dặn dò cố gắng học tập.
 - Báo Tuổi Trẻ phối hợp với Tỉnh đoàn Lạng Sơn trao 150 suất học bổng 'Ngăn dòng bỏ học'  cho học sinh bị ảnh hưởng bởi bão số 3 tại huyện Tràng Định và Văn Lãng.
 - 4 trường quốc tế ở TP.HCM và Long An đã phát động và thực hiện 'Tuần lễ sẻ chia', hướng về người dân bị ảnh hưởng bởi bão lũ.
@@ -21,50 +31,41 @@
 - Sau khi Tuổi Trẻ Online đăng bài viết về Nguyễn Tuấn Kiệt (lớp 12A1 Trường THPT Phú Mỹ, tỉnh Bà Rịa - Vũng Tàu), nhiều tấm lòng vàng đã giúp nam sinh này được nhập học.
 - Dự thảo Luật Nhà giáo quy định lương giáo viên được xếp cao nhất trong hệ thống thang bậc lương, được hưởng các phụ cấp và giáo viên mầm non được nghỉ hưu sớm.
 - Ban quản lý ký túc xá Đại học Quốc gia TP.HCM nói phơi đồ ở ban công gây mất mỹ quan, nhưng theo sinh viên, ban công mới có đủ nắng, gió để đồ khô.
-- So với năm 2022, doanh thu năm 2023 của Đại học Bách khoa Hà Nội và Trường đại học FPT tăng khoảng 1.000 tỉ đồng.
-- Ngoài Michael Tirant, trong danh sách tác giả siêu năng suất ghi địa chỉ các trường đại học Việt Nam còn có bốn cái tên người nước ngoài khác. Họ là ai?
-- Để khắc phục hậu quả của bão số 3, Quảng Ninh miễn 100% học phí cho học sinh từ mầm non đến lớp 12 năm học này.
-- Bài học rút ra là phải làm gì đó để ngăn những vụ việc gây bức xúc như ở Nhà xuất bản Giáo Dục Việt Nam.
-- Một phụ huynh ở Quảng Nam đã vào tận lớp đánh học sinh lớp 8 trước sự bất ngờ của giáo viên và cả lớp.
-- Những 'chiến binh' Robot AI của Đại học (ĐH) Duy Tân đã giành giải thưởng cao nhất tại chung kết cuộc thi 'ROBOG 2024'' toàn quốc diễn ra vào ngày 22-9 ở TP.HCM.
-- Trường tiểu học Lê Quý Đôn (quận Gò Vấp, TP.HCM) khen học sinh ủng hộ đồng bào miền Bắc từ 100.000 đồng trở lên bằng giấy khen do hiệu trưởng ký, và dưới mức đó chỉ được thư khen do giáo viên chủ nhiệm ký.
-- Con càng lớn, các bậc cha mẹ phải đương đầu, thậm chí căng thẳng vì con muốn sắm điện thoại bằng bạn bằng bè.
-- Dự thảo Luật Việc làm sửa đổi mới nhất trình Ủy ban Thường vụ Quốc hội đã bỏ quy định về giới hạn số giờ làm thêm của học sinh, sinh viên.
-- Cơ quan công an đã triệu tập thiếu niên 15 tuổi để điều tra về việc đánh học sinh lớp 11 gãy 4 chiếc răng, thương tích nặng.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Công an tỉnh Đắk Nông cung cấp thêm một số nội dung liên quan chiêu thức trốn thuế của bà Đỗ Thị Thúy (phường Nghĩa Thành, TP Gia Nghĩa).
-- Quận nói Sở Xây dựng đã đồng ý cho lấp tạm 10% diện tích hồ để thi công, trong khi lãnh đạo sở khẳng định "không được lấp một mét hồ nào".
-- Sáng 27-9, HĐND TP.HCM khóa X, nhiệm kỳ 2021-2026 khai mạc kỳ họp thứ 18 (kỳ họp chuyên đề).
-- Việt Nam và Cuba tuy cách nhau nửa vòng Trái đất nhưng trái tim của hai dân tộc luôn gần nhau và cùng chung nhịp đập.
-- Tin tức đáng chú ý: 'Ghế nóng' tổng giám đốc FLC Faros vừa có chủ sau 2 năm để trống; Đề xuất áp thuế tiêu thụ đặc biệt 10% với đồ uống có đường; Sửa chữa nhiều đường sá phục vụ Đại lễ Vesak 2025 tại TP.HCM...
-- Hành khách đến giờ vẫn còn phàn nàn về dịch vụ xe trung chuyển tiện lợi ra Bến xe Miền Đông mới. Bên chức năng lại khẳng định đã có app.
-- Hôm nay 27-9, thời tiết Bắc Bộ sáng sớm có sương mù, ngày nắng, Phú Yến đến Nam Bộ mưa to chiều tối.
-- Sở Y tế Bình Phước ra văn bản khẩn cảnh báo về việc sở này bị mạo danh để kiểm tra, giám sát cơ sở sản xuất, kinh doanh thực phẩm.
-- Hình ảnh các chú chó gầy trơ xương bị bỏ lại đảo Hòn Nưa (Phú Yên) khiến cộng đồng mạng dậy sóng.
-- Cục trưởng Cục Thuế tỉnh Bình Định cho biết đơn vị vừa có văn bản thông báo về việc áp dụng các biện pháp cưỡng chế nợ thuế đối với Bamboo Airways.
-- Tối 26-9, ông Phạm Quang Vinh, chủ tịch UBND xã Làng Giàng, huyện Văn Bàn, tỉnh Lào Cai, thông tin trên địa bàn vừa xảy ra một vụ tai nạn điện giật làm hai người tử vong.
-- Báo Tuổi Trẻ phối hợp với Tỉnh đoàn Lạng Sơn trao 150 suất học bổng 'Ngăn dòng bỏ học'  cho học sinh bị ảnh hưởng bởi bão số 3 tại huyện Tràng Định và Văn Lãng.
-- Chiều 26-9, vào lúc 18h30 theo giờ Việt Nam, WIPO đã tổ chức lễ công bố báo cáo chỉ số đổi mới sáng tạo toàn cầu (GII) năm 2024 tại Thụy Sĩ.
-- Dù còn hai ngày nữa mới chính thức khai mạc Lễ hội truyền thống kỷ niệm 156 năm Anh hùng dân tộc Nguyễn Trung Trực hy sinh (1868-2024), nhưng hiện hàng ngàn du khách và người dân thập phương kéo về viếng, ăn cơm đình miễn phí.
-- Đoàn thanh tra của Bộ Công an sẽ thanh tra UBND tỉnh, Văn phòng UBND tỉnh, Công an tỉnh, Sở Kế hoạch và Đầu tư, Sở Văn hóa, Thể thao và Du lịch...
-- Các phạm nhân đủ điều kiện đặc xá năm 2024 đang mong chờ ngày công bố quyết định chính thức.
-- Sở Xây dựng TP.HCM vừa báo cáo UBND TP.HCM về việc không có cơ sở xem xét đề nghị của RESCO tiếp tục thực hiện dự án xây dựng cụm 15 chung cư ở Thanh Đa.
-- Phan Thiết đã kiểm điểm nhiều cán bộ đứng đầu liên quan đến cụm nhà hàng, quán cà phê xây dựng sai phép và lấn chiếm đất nhà nước ở khu vực dốc Hoàng Hôn.
-- Dù đường gắn biển báo cấm dừng, đậu xe và lực lượng chức năng cũng thường xuyên xử lý, nhưng chỉ cần thấy đoàn kiểm tra rời đi là nhiều xe lại đậu sai luật.
-- TP Đông Hà (Quảng Trị) quyết định dùng 500 triệu đồng từ nguồn xã hội hóa để bắn pháo hoa tặng cho các hộ nghèo.
-- UBND TP.HCM vừa ủy quyền cho Sở Tài nguyên và Môi trường TP.HCM cấp sổ hồng cho người gốc Việt Nam định cư ở nước ngoài, tổ chức có vốn đầu tư nước ngoài.
-- Sau 16 ngày tìm kiếm, lực lượng chức năng đã tìm thấy thi thể anh Nguyễn Văn V., nạn nhân trong gia đình có 4 người chết, mất tích ở vụ lũ quét Làng Nủ.
-- Sáng 26-9, đại diện Công ty TNHH MTV công nghệ tin học Viễn Sơn đã đến tòa soạn báo Tuổi Trẻ ủng hộ 119.855.000 đồng cho đồng bào vùng bão lũ phía Bắc.
-- Thời gian qua, quận Bình Tân đã đẩy mạnh đầu tư phát triển trường lớp. Trong giai đoạn sau, quận đông nhất TP.HCM sẽ tập trung giảm ngập.
-- Bằng cách sử dụng phương thức công nghệ cao, những người này đã mạo danh Thanh tra Sở Y tế TP.HCM yêu cầu cơ sở kinh doanh thực phẩm chuyển tiền.
-- Ban Thường vụ Tỉnh ủy Đồng Nai đã có chủ trương giữ lại biệt thự cổ trăm tuổi (nhà lầu ông Phủ) ở phường Bửu Long, TP Biên Hòa để làm bảo tồn.
-- Lực lượng chức năng liên tiếp phát hiện các vết nứt lớn, nguy cơ sạt lở tới nhiều hộ dân, mỏ than ở thị trấn Tây Yên Tử, Bắc Giang.
-- Vài ngày sau khi nước sinh hoạt có mùi, hàng chục người ở một tòa chung cư tại Nghệ An đồng loạt xuất hiện triệu chứng đau bụng, buồn nôn.
-- Một số đường ở TP.HCM xuất hiện tình trạng cắt tỉa cây xanh vào giờ cao điểm gây kẹt xe, dư luận đặt câu hỏi về kế hoạch làm việc của đơn vị quản lý.
-- Một số phụ huynh tại TP Thủ Đức phản ánh nhà trường kêu gọi ủng hộ để chi trả phụ cấp tháng 8 cho bảo mẫu.
+- Sáng 28-9, Thủ tướng Phạm Minh Chính chủ trì Hội nghị trực tuyến sơ kết, đánh giá, rút kinh nghiệm về công tác phòng chống và khắc phục hậu quả bão số 3.
+- Sáng 28-9, Bộ trưởng Bộ Nội vụ Phạm Thị Thanh Trà đã trình Ủy ban Thường vụ Quốc hội cho ý kiến về đề án thành lập thành phố Huế trực thuộc trung ương.
+- "Tôi áy náy khi nhận bằng khen này vì việc mình làm vừa qua chỉ là bổn phận một người dân bình thường..." - thầy Lê Ngọc Thạch nói tại buổi trao ngày 27-9.
+- Cùng một ngày, Sở Y tế tỉnh Bình Phước và TP.HCM đồng loạt ra thông báo khẩn về việc bị mạo danh để kiểm tra các cơ sở sản xuất, kinh doanh thực phẩm.
+- Khi đoàn tàu gồm 24 toa hàng đến đoạn đường sắt thuộc địa phận thị trấn Lăng Cô (huyện Phú Lộc, Thừa Thiên Huế) thì đầu máy bất ngờ bị trật bánh trong đêm.
+- Một số tin tức đáng chú ý: TP.HCM cấm xe đi 5 đường quận 1 lúc diễn tập xử lý tình huống cháy, nổ; Còn một số quận, huyện ở TP.HCM có tỉ lệ tiêm vắc xin sởi thấp; Saigon Glory mua lại trước hạn hàng trăm tỉ đồng trái phiếu khi đổi chủ...
+- Hôm nay 28-9, thời tiết cả nước ngày nắng, về chiều tối mưa dông, mưa chủ yếu tập trung ở miền Tây Nam Bộ.
+- Sau 17 ngày, lực lượng chức năng tỉnh Lào Cai đã tìm thấy thêm thi thể chị Hoàng Thị Q. (34 tuổi) - nạn nhân mất tích trong vụ lũ quét kinh hoàng tại Làng Nủ.
+- Báo cáo với Hội đồng nhân dân TP.HCM, UBND TP khẳng định sẽ ban hành bảng giá đất điều chỉnh trước ngày 15-10-2024.
+- Việc giải tỏa mặt bằng trong khu đô thị Đại học Quốc gia TP.HCM (làng đại học) gặp nhiều khó khăn.
+- Chiều 27-9, Phó thủ tướng Trần Hồng Hà chủ trì cuộc làm việc với tỉnh Bình Định, các bộ, ngành về đề xuất đầu tư xây dựng mở rộng cảng hàng không Phù Cát.
+- UBND TP.HCM vừa có kế hoạch lập tổ công tác cấp sổ hồng cho tổ chức, cá nhân tại các dự án phát triển nhà ở thương mại trên địa bàn.
+- Chủ đầu tư BOT Phú Hữu (TP Thủ Đức) vừa kiến nghị UBND TP.HCM, Sở Giao thông vận tải về việc mở rộng các trường hợp miễn phí qua trạm với người dân, doanh nghiệp trong khu vực.
+- Không ít trường hợp phải nhập viện điều trị vì tự ý điều trị mụn nhọt sai cách dẫn đến nguy hiểm tính mạng.
+- Sở Xây dựng tỉnh Đồng Nai đề nghị tạm dừng thi công dự án đường ven sông, đoạn qua khu vực biệt thự trăm tuổi Võ Hà Thanh để chờ phương án bảo tồn.
+- Đường bao quanh công viên Đầm Sen (quận 11, TP.HCM) mới làm xong đã lún cục bộ mặt đường, vỉa hè. Sở Giao thông vận tải TP.HCM đề nghị chủ đầu tư sớm khắc phục.
+- Ủy ban Văn hóa, Giáo dục đề nghị Chính phủ có ý kiến chính thức về việc sẽ quy định thanh tra di sản văn hóa ở dự Luật Di sản văn hóa sửa đổi hay sửa nghị định hướng dẫn Luật Thanh tra.
+- Năm học 2024 - 2025 mới bắt đầu, hàng loạt giáo viên tại Đắk Lắk bỗng thành "con nợ" do cấp trên chi sai phụ cấp ưu đãi.
+- Sở Kế hoạch và Đầu tư tỉnh Cà Mau sẽ dành hơn 860 tỉ đồng cho dự án giải phóng mặt bằng để xây dựng mở rộng, nâng cấp sân bay Cà Mau. Khi hoàn thành, sân bay sẽ đón được các loại tàu bay cỡ lớn như A320 và tương đương.
+- Cục Cảnh sát giao thông cho biết vừa ban hành kế hoạch cao điểm bảo đảm trật tự, an toàn giao thông cho lứa tuổi học sinh trên cả nước.
+- Công an vừa phá thành công đường dây mua bán điện thoại giả, khởi tố 7 bị can và thu giữ hơn 6.000 chiếc điện thoại giả.
+- Dự báo mực nước đầu nguồn khu vực Đồng bằng sông Cửu Long tiếp tục tăng nhanh trong 5 ngày tới, cao hơn so với cùng kỳ năm trước từ 0,4 - 0,5m.
+- Công an tỉnh Kiên Giang khởi tố, bắt tạm giam 2 mẹ con tham gia tổ chức khủng bố "Chính phủ quốc gia Việt Nam lâm thời".
+- Các đơn vị sự nghiệp y tế công sẽ trích 10-16% số thu được để lại với đơn vị có mức tự chủ tài chính từ 120% trở lên để cải cách tiền lương.
+- Sau nhiều ngày chìm trong nước lũ, người dân ở Bắc Giang buộc phải chặt bỏ hàng vạn cây vải thiều, cây cam, cây táo chết khô.
+- Những con đường dẫn vào làng đại học (Đại học Quốc gia TP.HCM) khiến sinh viên ngao ngán với chi chít “ổ voi", nhiều đoạn thắt cổ chai.
+- Sáng nay 27-9, thời tiết tại TP.HCM nắng, trời trong, có lúc nắng gắt nhưng chiều nay mây dông hình thành mạnh, mưa nhiều nơi.
+- Chủ quán ốc ‘Tự Nhiên 2’ ở TP Vũng Tàu vừa bị xử phạt hơn 300 triệu đồng vì xả thải gây ô nhiễm biển Bãi Trước.
+- Công an tỉnh Thái Bình đánh giá vụ án liên quan tạp chí Môi trường và Đô thị Việt Nam "trá hình dưới danh nghĩa cơ quan báo chí làm từ thiện".
+- Sau khi Tỉnh ủy Đồng Nai có chủ trương giữ lại biệt thự của đốc phủ Võ Hà Thanh, Sở Xây dựng đã đề xuất 4 phương án để bảo tồn.
 ![New](News.png)
 ## Nhịp sống số 
+- FPT Shop mở bán iPhone 16 Series trên toàn quốc
 - Intel công bố ra mắt sản phẩm chip AI mới, cạnh tranh với các đối thủ AMD và Nvidia.
 - Thông tin được ông Nguyễn Minh Hồng - chủ tịch Hội Truyền thông số Việt Nam - đưa ra tại hội thảo an toàn thông tin trong chuyển đổi số ngày 24-9, tại Cần Thơ.
 - Nhằm giúp doanh nghiệp tiết kiệm chi phí mà vẫn có thể tận dụng nhiều lợi ích của các máy chủ cloud, Bizfly Cloud tung ra dòng máy chủ Cloud VPS giá rẻ hấp dẫn.
@@ -94,5 +95,4 @@
 - Sự cố mới đây của Gmail khiến hàng nghìn người không thể gửi email hoặc tin nhắn thông qua dịch vụ này.
 - Sở Cảnh sát thành phố Tulsa, bang Oklahoma (Mỹ) cảnh báo nguy cơ từ pin sạc dự phòng, sau khi một con chó nhai cục sạc dự phòng gây cháy nhà.
 - Việc lướt điện thoại và tiếp xúc với ánh sáng xanh có thực sự gây hại cho làn da bạn không? Và việc thoa kem dưỡng có giúp ích không?
-- Sau hơn 1 tháng xác thực sinh trắc học, số điểm phần trăm người dân đánh giá quá trình xác thực dễ dàng tăng thêm 7%, số người kêu khó giảm 9%.
 ![life](Life.png)
