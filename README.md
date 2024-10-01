@@ -1,10 +1,23 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Để nâng cao chuỗi giá trị các ngành công nghiệp, công nghệ, cần nguồn nhân lực có trình độ đại học, kỹ năng chuyên sâu và bằng cấp về STEM.
+- Giảng viên tại nhiều trường đại học Mỹ 'sốc' khi nhận ra sinh viên ngày càng lười đọc. Nhưng rồi họ cũng nhanh chóng 'thích nghi'.
+- Ngày 30-9, tại Trường Victoria Shool - Nam Sài Gòn diễn ra lễ khai mạc vòng chung kết STEAM For Girls - STEAM Xanh cho nữ sinh 2024.
+- Tỉnh Yên Bái quyết định miễn 100% học phí năm học 2024-2025 cho trẻ em mầm non, học sinh, học viên trên địa bàn tỉnh.
+- Làm sao để không còn "hội chứng" sợ đi họp phụ huynh vì tình trạng lạm thu quỹ trường, quỹ lớp?
+- Bộ Giáo dục và Đào tạo nhất trí với dự thảo trình Thủ tướng về lịch nghỉ Tết âm lịch, Quốc khánh 2025.
+- Sáng 30-9, cô H., giáo viên tại Trường tiểu học Chương Dương, quận 1, TP.HCM - người xin phụ huynh hỗ trợ laptop, đã gặp gỡ báo chí để trần tình về sự việc.
+- Nhà bị nước lũ cuốn trôi hoàn toàn, bố mất, mong muốn của Bàn Văn Trường là anh em tiếp tục được đến trường, góp phần nhỏ giúp mẹ mua đồ đạc trong gia đình, sách vở, đồ dùng học tập.
+- Nhờ hai bài kiểm tra đặc biệt, phụ huynh hiểu con mình hơn, cảm thông nhiều hơn với lứa tuổi ẩm ương để sau đó tự điều chỉnh cách ứng xử với con.
+- Học viện Ngoại giao đoạt á quân. Đồng giải ba cuộc thi thuộc về một đội thi khác của Học viện Ngoại giao và Trường đại học Luật TP.HCM.
+- Cô học trò mồ côi sau bão Chanchu Vương Thị Linh Kiều vừa được Trường đại học Duy Tân ở Đà Nẵng trao học bổng toàn phần trị giá hơn 132 triệu đồng.
+- Lòng tự trọng, danh dự và sự tôn nghiêm của người thầy là tài sản quý giá nhất mà bất kỳ ai đứng trên bục giảng cũng cần gìn giữ.
+- Xuất khẩu lao động giúp có thu nhập sớm, được mở mang kiến thức và trải nghiệm xã hội. Nhưng có nên chọn mà bỏ học đại học?
+- Tại lễ khai giảng năm 2024 - 2025, HUFLIT đã nhận chứng nhận kiểm định chất lượng giáo dục ngành Đông phương học, nâng tổng số chương trình đào tạo đạt chuẩn kiểm định lên 7 ngành.
 - Sau vụ cô giáo xin phụ huynh hỗ trợ mua laptop, rất nhiều bạn đọc lên tiếng đề nghị ngành giáo dục phải nghiêm cấm giáo viên, nhà trường mượn danh nghĩa hội phụ huynh để thu tiền phụ huynh...
 - Bộ trưởng Bộ Giáo dục và Đào tạo Nguyễn Kim Sơn khẳng định tại phiên họp giả định "Quốc hội trẻ em" được tổ chức ngày 29-9.
 - Công an phường đã mời phụ huynh xông vào lớp đánh học sinh lớp 8 làm việc và đang củng cố hồ sơ tham mưu Công an Tam Kỳ xử lý.
-- Tại lễ khai giảng năm 2024 - 2025, HUFLIT đã nhận chứng nhận kiểm định chất lượng giáo dục ngành Đông phương học, nâng tổng số chương trình đào tạo đạt chuẩn kiểm định lên 7 ngành.
 - Nhiều tạp chí quốc tế gỡ bỏ bài báo khoa học của tác giả Việt Nam, từ các nhà nghiên cứu danh tiếng đến các ứng viên giáo sư, phó giáo sư.
 - Những ngày cuối tháng 9, tại điểm trường mầm non Pác Rà, máy xúc đang múc liên tục những khối đất đá lên các xe tải cỡ lớn. Phía trong điểm trường, đất đá ngổn ngang, gương kính vỡ nát...
 - Nhìn người lớn hút thuốc lá điện tử, trẻ em nghĩ không có hại, hoặc hút thuốc để chứng minh mình đã lớn.
@@ -18,51 +31,38 @@
 - Cô bạn thân của tôi đi họp phụ huynh cho con về và “khoe” vừa rời cuộc họp về đến nhà là được đưa vào 3 nhóm Zalo khác nhau.
 - Vì sao rất nhiều trường THPT tại TP.HCM chọn phương án thuê máy lạnh bằng phương thức xã hội hóa thay vì vận động phụ huynh góp tiền để mua?
 - "Chiếc xe đạp cũ mà hai chị em hằng ngày đi học bị mái tôn rơi vào làm hư hỏng, không còn đi được nữa. Em mong có chiếc xe đạp mới để hai chị em đèo nhau đi học".
-- Liên quan đến những thông tin học sinh tại điểm trường Màng Mủ ăn cơm gừng chấm muối, huyện Mù Cang Chải (Yên Bái) vừa có báo cáo sự việc lên UBND tỉnh Yên Bái.
-- Ông Nguyễn Viết Hiển, giám đốc Sở Giáo dục và Đào tạo Thái Bình, bị cách chức vì liên quan đến sai phạm trong công tác tổ chức thi tuyển sinh vào lớp 10 THPT năm học 2024 - 2025.
-- Ông Lê Hoài Nam, phó giám đốc Sở Giáo dục và Đào tạo TP.HCM, nhận xét như vậy về một số mặt còn tồn tại của không ít trung tâm ngoại ngữ, tin học tại TP.HCM hiện nay.
-- Cô giáo Bùi Thị Châm - giáo viên Trường Phổ thông dân tộc bán trú THCS Trung Lý, huyện Mường Lát - vừa được giám đốc Sở Giáo dục và Đào tạo Thanh Hóa khen thưởng vì giúp học sinh tránh sạt lở đất.
-- Năm học 2024 - 2025 mới bắt đầu, hàng loạt giáo viên tại Đắk Lắk bỗng thành "con nợ" do cấp trên chi sai phụ cấp ưu đãi.
-- Một trường tiểu học cấp giấy khen cho học sinh đóng góp ủng hộ vùng ảnh hưởng bão lũ từ 100.000 đồng trở lên gây xôn xao dư luận.
-- Thực tế cho thấy thời gian qua nhiều trường tiểu học và trung học ở TP.HCM và nhiều địa phương đã có những đổi mới trong dự giờ.
-- Mới đây một phụ huynh ở Hà Nội lên mạng xã hội bày tỏ bức xúc vì phải đến trường của con để trực nhật sau 17h.
-- Phu nhân Ngô Phương Ly như hòa cùng các em học sinh của Trường tiểu học Võ Thị Thắng ở Cuba. Có giây phút bà như nghẹn ngào, ôm chầm một em học sinh và dặn dò cố gắng học tập.
-- Báo Tuổi Trẻ phối hợp với Tỉnh đoàn Lạng Sơn trao 150 suất học bổng 'Ngăn dòng bỏ học'  cho học sinh bị ảnh hưởng bởi bão số 3 tại huyện Tràng Định và Văn Lãng.
-- 4 trường quốc tế ở TP.HCM và Long An đã phát động và thực hiện 'Tuần lễ sẻ chia', hướng về người dân bị ảnh hưởng bởi bão lũ.
-- Một số phụ huynh tại TP Thủ Đức phản ánh nhà trường kêu gọi ủng hộ để chi trả phụ cấp tháng 8 cho bảo mẫu.
-- Tỉnh Quảng Nam dự kiến sẽ dùng ngân sách khoảng 158 tỉ đồng hỗ trợ học phí cho trẻ mầm non, học sinh phổ thông đang học tại các cơ sở giáo dục mầm non, cơ sở giáo dục phổ thông công lập và tư thục trong hai năm học.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Chiếc xe máy đang chạy qua vòng xoay ở Nha Trang (Khánh Hòa) thì bị xe tải đông lạnh chạy cùng chiều phía sau tông phải. Tai nạn khiến người lái xe máy chết kẹt dưới bánh xe tải, người còn lại may mắn thoát nạn.
-- Trong bối cảnh cuộc cách mạng công nghiệp 4.0 đang diễn ra mạnh mẽ, ngành công nghiệp bán dẫn nổi lên như một lĩnh vực then chốt, quyết định sự phát triển của nhiều ngành công nghệ khác.
-- Trong bối cảnh nhiều dự án giao thông chưa thể làm vì gặp khó trong việc giải phóng mặt bằng, làm đường trên cao là một trong những cách mà TP.HCM đang nghiên cứu phát triển trong tương lai để giảm kẹt xe.
-- Sáng nay 30-9, Tổng Bí thư, Chủ tịch nước Tô Lâm lên chuyên cơ rời Hà Nội cho chuyến thăm cấp nhà nước Mông Cổ, Ireland và thăm chính thức Pháp.
-- Tin tức đáng chú ý: Bắt giữ 15 người liên quan giả danh nhà sư bán thuốc nam, quảng cáo 'nổ'; Bệnh tim mạch dẫn đến hơn 20,5 triệu người tử vong mỗi năm trên toàn thế giới, phải làm gì để phòng tránh?...
-- Hôm nay 30-9, thời tiết Bắc Bộ có mưa to và chuẩn bị đón đợt không khí lạnh mạnh. Nam Bộ ngày nắng, chiều tối vài nơi mưa rào.
-- Sao chổi C/2023 A3 (Tsuchinshan-ATLAS), sao chổi được mong đợi nhất năm, được nhìn thấy trên bầu trời TP Quy Nhơn, Bình Định sáng nay 29-9.
-- Từ ngày 30-9 đến 7-10, Tổng Bí thư, Chủ tịch nước Tô Lâm thăm cấp nhà nước tới Mông Cổ, Ireland, tham dự Hội nghị cấp cao Pháp ngữ lần thứ 19 và thăm chính thức Pháp.
-- 15 đặc công người nhái tinh nhuệ nhất của Binh chủng đặc công (Bộ Quốc phòng) sẽ tiến hành rà soát tổng quan từ chân cầu Phong Châu cũ, bán kính rộng 10km để tìm kiếm nạn nhân mất tích.
-- Do ảnh hưởng của bão Krathon, từ đêm 29-9 ở phía đông của khu vực Bắc Biển Đông sẽ có gió mạnh dần lên cấp 6, phía bắc cấp 7, giật cấp 9-10, sau tăng lên cấp 8-10, giật cấp 12.
-- Cầu Sông Thai (Quảng Trạch, Quảng Bình) xuất hiện nhiều vết nứt dọc trụ, nguy cơ sập cầu cao, khiến chính quyền phải cắm biển hạn chế tải trọng xuống 5 tấn.
-- Đó là khẳng định của Phó thủ tướng, Bộ trưởng Bộ Ngoại giao Bùi Thanh Sơn về chuyến công tác Mỹ đầu tiên của Tổng Bí thư, Chủ tịch nước Tô Lâm.
-- Công an tỉnh Hà Giang đang nỗ lực tìm kiếm người mất tích trong vụ sạt lở đất trên quốc lộ 2 làm đổ sập 3 ngôi nhà, 5 xe bị vùi lấp.
-- Bộ trưởng Bộ Y tế Đào Hồng Lan chia sẻ liên quan tác hại của thuốc lá thế hệ mới như thuốc lá điện tử, thuốc lá nung nóng.
-- Sau xăm mình tại spa, thuê thợ về xăm tại nhà, nhiều người gặp tai biến phải đến Bệnh viện Da liễu TP.HCM điều trị.
-- Những ngày qua hàng loạt cây xanh ở khu vực trung tâm TP.HCM (quận 1 và 3) bị cắt trụi lủi, hầu hết chỉ còn lại phần thân chính.
-- Vùng mây đối lưu đang phát triển và gây mưa cho khu vực Ba Vì, thị xã Sơn Tây, Thạch Thất, đang di chuyển và mở rộng sang khu vực nội thành.
-- Tổng Bí thư, Chủ tịch nước Tô Lâm, bí thư Quân ủy Trung ương, đã đến thăm và làm việc với Tổng cục Tình báo quốc phòng.
-- Cao 5m, ngang 5m với dáng trực thẳng đứng, cây mai vàng của anh Đinh Văn Trọng ở TP Rạch Giá, Kiên Giang thu hút nhiều người xem.
-- Báo Tuổi Trẻ đã có mặt từ rất sớm tại địa phương bị ảnh hưởng nặng nề do mưa lũ, trao tặng gần 900 phần quà cho học sinh Trấn Yên, Yên Bái.
-- UBND tỉnh Tây Ninh vừa lập kế hoạch làm giai đoạn II của dự án thủy lợi tưới tiêu phía Tây sông Vàm Cỏ Đông với tổng vốn 600 tỉ đồng.
-- Ngày 29-9, Thủ tướng Phạm Minh Chính dự lễ khởi công tuyến cao tốc Hòa Bình - Mộc Châu với tổng vốn gần 10.000 tỉ đồng.
-- Cuba dành nhiều biệt lệ trong đón tiếp Tổng Bí thư, Chủ tịch nước Tô Lâm, thể hiện sự đánh giá cao và đặc biệt coi trọng chuyến thăm.
-- Bộ trưởng Bộ Giáo dục và Đào tạo Nguyễn Kim Sơn khẳng định tại phiên họp giả định "Quốc hội trẻ em" được tổ chức ngày 29-9.
-- Trong 90 phút, hơn 200 chiến sĩ Lữ đoàn công binh 249 (Binh chủng Công binh) đã hoàn thành lắp cầu phao gần cầu Phong Châu bị sập.
-- Nhiều người thắc mắc vì sao đã có cống ngăn triều Tân Thuận vẫn phải chi thêm hàng trăm tỉ chống ngập cho đường Trần Xuân Soạn?
-- Lễ hội trái cây Việt Nam lần thứ nhất tổ chức tại Bắc Kinh khai mạc với kỳ vọng mở ra cơ hội xuất khẩu trái cây nhiều hơn vào thị trường này.
-- Chủ cơ sở kinh doanh thực phẩm ở TP Vĩnh Long khốn khổ vì liên tục bị ‘giang hồ’ đến ăn quỵt, nhục mạ nhân viên.
-- Vụ sạt lở trên quốc lộ 2 đoạn qua xã Việt Vinh (Bắc Quang, Hà Giang) khiến 10 người bị thương, 2 người đang mất tích.
-- Cà Mau có gần 69.000ha rừng ngập mặn, những cánh rừng, bãi bồi này là môi trường sống lý tưởng của chù ụ.
+- Tỉ lệ kháng thuốc tăng nhưng tác dụng của thuốc kháng sinh lại ngày càng giảm, thậm chí không còn tác dụng, trong khi các loại kháng sinh mới ra ngày càng ít.
+- Với ý nghĩa quan trọng của quy hoạch, vừa qua Thủ tướng Phạm Minh Chính đã trực tiếp dự công bố quy hoạch của Bình Dương, Đồng Nai. Không chỉ các tỉnh này mà cả vùng Đông Nam Bộ còn kỳ vọng sẽ mở ra 'xa lộ mới' cho cả vùng phát triển.
+- Trong lúc đi vệ sinh, một người dân ở thôn H'juh, xã Ch'ơm (huyện Tây Giang, Quảng Nam) tá hỏa thấy nền phòng vệ sinh cùng tường bỗng nứt toác. Ra phía sau thì thấy nhiều vết nứt chạy dài dọc quả đồi, người dân đã khẩn cấp dời đi.
+- Ban Thường vụ Thành ủy Hạ Long (Quảng Ninh) thống nhất cho chủ trương để UBND thành phố thực hiện quy trình tạm đình chỉ giám đốc Ban Quản lý dự án đầu tư xây dựng thành phố từ ngày 1-10 do chậm giải ngân vốn đầu tư công.
+- Rạng sáng nay (1-10), bão Krathon mạnh lên thành siêu bão cấp 16 (184-201km/h), giật trên cấp 17 và đi vào vùng biển phía Đông Bắc của khu vực Bắc Biển Đông, trở thành cơn bão số 5 trong năm 2024.
+- Một số tin tức đáng chú ý: Rao bán nợ công ty con trai chủ tịch Tân Hoàng Minh; Hệ số tăng thêm tiền lương do địa phương quyết định; Chủ tịch Chứng khoán VIX bị miễn nhiệm.
+- Hôm nay 1-10, thời tiết mưa lớn giảm ở Bắc Bộ, không khí lạnh khiến nhiệt độ giảm. Nam Bộ ngày nắng, chiều tối mưa rào vài nơi.
+- Sau trận mưa kéo dài hơn một tiếng, 'rốn ngập' trên đường Đồng Khởi (TP Biên Hòa, tỉnh Đồng Nai) lại chìm sâu trong nước.
+- Tối 30-9, lãnh đạo UBND thành phố Cao Lãnh xác nhận một vụ cháy trên đường Phạm Hữu Lầu, phường 6 lan ra những hộ lân cận.
+- Trưởng phái đoàn Liên minh châu Âu (EU) tại Việt Nam khẳng định EU và các nước thành viên sẽ tiếp tục cam kết hỗ trợ người dân, doanh nghiệp và nhà nghiên cứu Việt Nam trong việc ứng dụng các công nghệ mới nhất, để thúc đẩy tăng trưởng kinh tế.
+- UBND quận Đống Đa cho biết chỉ sử dụng tạm thời phần diện tích hồ khoảng 6.500m² (không quá 10% diện tích), chứ không san lấp hồ Đống Đa.
+- UBND TP.HCM vừa ban hành quyết định quy định về hạn mức giao đất ở cho cá nhân theo 3 mức.
+- Phó thủ tướng Trần Hồng Hà đã thống nhất việc gia hạn thêm 5 năm cho dự án Mercedes-Benz Việt Nam tại quận Gò Vấp, TP.HCM.
+- Kẻ xấu đã giả mạo quyết định của Sở Y tế Khánh Hòa để lừa đảo các cơ sở sản xuất, kinh doanh thực phẩm.
+- Đây là đề xuất của chuyên gia y tế tại buổi hội thảo góp ý dự án Luật sửa đổi, bổ sung một số điều của Luật Bảo hiểm y tế tổ chức tại TP.HCM.
+- Tình huống giả định là cháy khách sạn ở khu vực có nhiều chất dễ cháy, vận tốc cháy lan từ 1,2-1,5m và có nguy cơ cháy sang hai khách sạn cao tầng kế bên. Hiệp đồng chữa cháy sẽ thế nào?
+- Dự báo mực nước cao nhất tại Hồng Ngự đạt đỉnh lũ năm 2024 vào ngày 20-10 ở mức 3,5m.
+- Dự báo trong 24 giờ tới, bão Krathon có khả năng đi vào vùng biển phía đông bắc khu vực bắc Biển Đông.
+- Ngay khi Thủy điện Trị An dừng xả tràn, cả ngàn người dân lao xuống nước bắt cá. Tuy nhiên số lượng cá năm nay rất ít.
+- Quận Bình Tân cho biết sẽ kiến nghị UBND TP.HCM chấp thuận đầu tư, chống ngập căn cơ, trước mắt tăng cường nạo vét cống rãnh.
+- Yêu cầu đó được Bộ Giao thông vận tải đưa ra trong công văn gửi Cục Đường bộ và Sở Giao thông vận tải Bà Rịa -Vũng Tàu.
+- Thủ tướng Chính phủ vừa có công điện về việc khẩn trương khắc phục sự cố sạt lở tại tỉnh Hà Giang và ứng phó với nguy cơ sạt lở, lũ ống, lũ quét.
+- Bộ trưởng Bộ Khoa học và Công nghệ cho biết Hà Nội không chỉ là trung tâm chính trị mà còn là điểm sáng của khoa học, công nghệ và đổi mới sáng tạo trong khu vực.
+- Tỉnh Yên Bái quyết định miễn 100% học phí năm học 2024-2025 cho trẻ em mầm non, học sinh, học viên trên địa bàn tỉnh.
+- Sau hơn một năm chăm sóc cứu hộ, 5 con khỉ đuôi dài từng bị một người đàn ông bắt trái phép tại rừng phòng hộ Cần Giờ đã được lực lượng chức năng thả về môi trường tự nhiên.
+- Ngày 30-9, Chủ tịch Quốc hội Trần Thanh Mẫn cùng Đoàn đại biểu Quốc hội tỉnh Hậu Giang đã tiếp xúc 350 cử tri của TP Ngã Bảy, huyện Phụng Hiệp, Châu Thành và Châu Thành A.
+- Lễ đón trọng thể Tổng Bí thư, Chủ tịch nước Tô Lâm diễn ra tại quảng trường Sukhbaatar, nơi được ví như trái tim, nơi hội tụ của mọi con đường của thủ đô Ulaanbaatar ở Mông Cổ.
+- Mặc dù anh Đ. livestream để nhắc nhở mọi người không đi qua khu vực sạt lở tại km51 quốc lộ 2 (Hà Giang) để tránh nguy hiểm, chính anh đã bị vụ lở đồi cướp đi mạng sống.
+- Bộ Giáo dục và Đào tạo nhất trí với dự thảo trình Thủ tướng về lịch nghỉ Tết âm lịch, Quốc khánh 2025.
+- Dự án nâng cấp, mở rộng đường Tân Thới Hiệp 21 (quận 12, TP.HCM) có vốn đầu tư hơn 1.300 tỉ đồng, giúp tăng năng lực giao thông và giảm ngập.
 ![New](News.png)
 ## Nhịp sống số 
 - Viettel đang tăng tốc chuyển đổi cho 500.000 thuê bao 2G cuối cùng trước ngày tắt sóng 15-10.
