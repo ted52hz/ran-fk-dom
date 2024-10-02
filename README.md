@@ -1,6 +1,18 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Kết quả điều tra gian lận khoa học về một giáo sư y khoa nổi tiếng của Đại học California tại San Diego (UCSD, Mỹ) đang gây rúng động giới y khoa toàn cầu.
+- Vụ cô giáo 'xin' phụ huynh hỗ trợ mua laptop để giảng dạy nhanh chóng trở thành tâm điểm dư luận và dấy lên nhiều tranh luận.
+- Phiên chất vấn giả định "Quốc hội trẻ em" đặt ra vấn đề có thật, không dễ chấm dứt trong học đường.
+- Một phụ huynh lái ô tô vào sân Trường THCS-THPT Chu Văn An (TP Móng Cái, Quảng Ninh) rồi tông trúng một học sinh đi xe đạp điện.
+- Hàng chục trường hợp học sinh lái xe khi chưa đủ tuổi, không đội mũ bảo hiểm... bị cảnh sát xử lý trong chiều 1-10 tại quận Long Biên (Hà Nội).
+- Tối 1-10, Sở Giáo dục và Đào tạo TP.HCM đã công bố cấu trúc đề thi tuyển sinh lớp 10 theo chương trình mới.
+- Ngày 1-10, ông Nguyễn Quang Thạch - sáng lập phong trào Sách hóa nông thôn Việt Nam - bắt đầu hành trình đi bộ vận động Sách về nông thôn Ấn Độ lần thứ 2.
+- Sau sự việc, Phòng Giáo dục và Đào tạo huyện Thanh Oai yêu cầu học sinh không nhận đồ ăn, thức uống từ người lạ.
+- Trong khuôn khổ chuyến thăm cấp Nhà nước tới Mông Cổ, sáng 1-10, Tổng Bí thư, Chủ tịch nước Tô Lâm cùng Đoàn đại biểu cấp cao Việt Nam đã đến thăm Trường liên cấp số 14 mang tên Chủ tịch Hồ Chí Minh tại thủ đô Ulan Bator.
+- Sáng 1-10, ông Võ Cao Long - trưởng Phòng Giáo dục và Đào tạo quận 1, TP.HCM - chính thức cung cấp thông tin cho báo chí liên quan đến vụ việc cô giáo 'xin hỗ trợ mua laptop' xảy ra tại Trường tiểu học Chương Dương.
+- Tại huyện miền núi Tương Dương, Nghệ An xảy ra một trận lũ ống trong đêm làm cô lập 4 bản và bùn đất gây ngập một trường học.
+- Tại Việt Nam, việc trường trung cấp đón sinh viên quốc tế đến học tập, trao đổi khá hiếm, nhất là sinh viên đại học.
 - Để nâng cao chuỗi giá trị các ngành công nghiệp, công nghệ, cần nguồn nhân lực có trình độ đại học, kỹ năng chuyên sâu và bằng cấp về STEM.
 - Giảng viên tại nhiều trường đại học Mỹ 'sốc' khi nhận ra sinh viên ngày càng lười đọc. Nhưng rồi họ cũng nhanh chóng 'thích nghi'.
 - Ngày 30-9, tại Trường Victoria Shool - Nam Sài Gòn diễn ra lễ khai mạc vòng chung kết STEAM For Girls - STEAM Xanh cho nữ sinh 2024.
@@ -19,50 +31,38 @@
 - Bộ trưởng Bộ Giáo dục và Đào tạo Nguyễn Kim Sơn khẳng định tại phiên họp giả định "Quốc hội trẻ em" được tổ chức ngày 29-9.
 - Công an phường đã mời phụ huynh xông vào lớp đánh học sinh lớp 8 làm việc và đang củng cố hồ sơ tham mưu Công an Tam Kỳ xử lý.
 - Nhiều tạp chí quốc tế gỡ bỏ bài báo khoa học của tác giả Việt Nam, từ các nhà nghiên cứu danh tiếng đến các ứng viên giáo sư, phó giáo sư.
-- Những ngày cuối tháng 9, tại điểm trường mầm non Pác Rà, máy xúc đang múc liên tục những khối đất đá lên các xe tải cỡ lớn. Phía trong điểm trường, đất đá ngổn ngang, gương kính vỡ nát...
-- Nhìn người lớn hút thuốc lá điện tử, trẻ em nghĩ không có hại, hoặc hút thuốc để chứng minh mình đã lớn.
-- Nhiều ý kiến giải quyết bạo lực học đường được chính các đại biểu nhí nêu ra trong phiên họp giả định Quốc hội trẻ em.
-- Cô giáo H. (Trường tiểu học Chương Dương, quận 1, TP.HCM), người xin phụ huynh hỗ trợ mua laptop, đã bị tạm đình chỉ đứng lớp theo yêu cầu của Phòng Giáo dục và Đào tạo quận.
-- Thích nghi với toàn cầu hóa, nhiều chương trình học các cấp đã đưa hoạt động giáo dục STEAM vào trong nhà trường và đạt được nhiều hiệu quả tích cực.
-- Thức dậy, cắp sách tới trường là việc làm thường ngày của mỗi học sinh nhưng lại là ước mơ cháy bỏng của cô bé Đặng Khánh Linh...
-- Mục tiêu giai đoạn 2025 - 2030, tỉ lệ người theo học các ngành STEM đạt 35% ở mỗi trình độ đào tạo.
-- Hơn 35 triệu đồng là tấm lòng thầy trò và phụ huynh của Trường THCS-THPT Thái Bình gửi đến đồng bào miền Bắc bị ảnh hưởng bởi bão lũ.
-- Hai nữ sinh Trường THPT Nguyễn Thị Minh Khai (quận 3, TP.HCM) đã làm hai hộp thư tại trường, để những bạn gặp vướng mắc tâm lý có thể gửi thư chia sẻ.
-- Cô bạn thân của tôi đi họp phụ huynh cho con về và “khoe” vừa rời cuộc họp về đến nhà là được đưa vào 3 nhóm Zalo khác nhau.
-- Vì sao rất nhiều trường THPT tại TP.HCM chọn phương án thuê máy lạnh bằng phương thức xã hội hóa thay vì vận động phụ huynh góp tiền để mua?
-- "Chiếc xe đạp cũ mà hai chị em hằng ngày đi học bị mái tôn rơi vào làm hư hỏng, không còn đi được nữa. Em mong có chiếc xe đạp mới để hai chị em đèo nhau đi học".
 ![Edu](Edu.png)
 ## Thời Sự 
-- Tỉ lệ kháng thuốc tăng nhưng tác dụng của thuốc kháng sinh lại ngày càng giảm, thậm chí không còn tác dụng, trong khi các loại kháng sinh mới ra ngày càng ít.
-- Với ý nghĩa quan trọng của quy hoạch, vừa qua Thủ tướng Phạm Minh Chính đã trực tiếp dự công bố quy hoạch của Bình Dương, Đồng Nai. Không chỉ các tỉnh này mà cả vùng Đông Nam Bộ còn kỳ vọng sẽ mở ra 'xa lộ mới' cho cả vùng phát triển.
-- Trong lúc đi vệ sinh, một người dân ở thôn H'juh, xã Ch'ơm (huyện Tây Giang, Quảng Nam) tá hỏa thấy nền phòng vệ sinh cùng tường bỗng nứt toác. Ra phía sau thì thấy nhiều vết nứt chạy dài dọc quả đồi, người dân đã khẩn cấp dời đi.
-- Ban Thường vụ Thành ủy Hạ Long (Quảng Ninh) thống nhất cho chủ trương để UBND thành phố thực hiện quy trình tạm đình chỉ giám đốc Ban Quản lý dự án đầu tư xây dựng thành phố từ ngày 1-10 do chậm giải ngân vốn đầu tư công.
-- Rạng sáng nay (1-10), bão Krathon mạnh lên thành siêu bão cấp 16 (184-201km/h), giật trên cấp 17 và đi vào vùng biển phía Đông Bắc của khu vực Bắc Biển Đông, trở thành cơn bão số 5 trong năm 2024.
-- Một số tin tức đáng chú ý: Rao bán nợ công ty con trai chủ tịch Tân Hoàng Minh; Hệ số tăng thêm tiền lương do địa phương quyết định; Chủ tịch Chứng khoán VIX bị miễn nhiệm.
-- Hôm nay 1-10, thời tiết mưa lớn giảm ở Bắc Bộ, không khí lạnh khiến nhiệt độ giảm. Nam Bộ ngày nắng, chiều tối mưa rào vài nơi.
-- Sau trận mưa kéo dài hơn một tiếng, 'rốn ngập' trên đường Đồng Khởi (TP Biên Hòa, tỉnh Đồng Nai) lại chìm sâu trong nước.
-- Tối 30-9, lãnh đạo UBND thành phố Cao Lãnh xác nhận một vụ cháy trên đường Phạm Hữu Lầu, phường 6 lan ra những hộ lân cận.
-- Trưởng phái đoàn Liên minh châu Âu (EU) tại Việt Nam khẳng định EU và các nước thành viên sẽ tiếp tục cam kết hỗ trợ người dân, doanh nghiệp và nhà nghiên cứu Việt Nam trong việc ứng dụng các công nghệ mới nhất, để thúc đẩy tăng trưởng kinh tế.
-- UBND quận Đống Đa cho biết chỉ sử dụng tạm thời phần diện tích hồ khoảng 6.500m² (không quá 10% diện tích), chứ không san lấp hồ Đống Đa.
-- UBND TP.HCM vừa ban hành quyết định quy định về hạn mức giao đất ở cho cá nhân theo 3 mức.
-- Phó thủ tướng Trần Hồng Hà đã thống nhất việc gia hạn thêm 5 năm cho dự án Mercedes-Benz Việt Nam tại quận Gò Vấp, TP.HCM.
-- Kẻ xấu đã giả mạo quyết định của Sở Y tế Khánh Hòa để lừa đảo các cơ sở sản xuất, kinh doanh thực phẩm.
-- Đây là đề xuất của chuyên gia y tế tại buổi hội thảo góp ý dự án Luật sửa đổi, bổ sung một số điều của Luật Bảo hiểm y tế tổ chức tại TP.HCM.
-- Tình huống giả định là cháy khách sạn ở khu vực có nhiều chất dễ cháy, vận tốc cháy lan từ 1,2-1,5m và có nguy cơ cháy sang hai khách sạn cao tầng kế bên. Hiệp đồng chữa cháy sẽ thế nào?
-- Dự báo mực nước cao nhất tại Hồng Ngự đạt đỉnh lũ năm 2024 vào ngày 20-10 ở mức 3,5m.
-- Dự báo trong 24 giờ tới, bão Krathon có khả năng đi vào vùng biển phía đông bắc khu vực bắc Biển Đông.
-- Ngay khi Thủy điện Trị An dừng xả tràn, cả ngàn người dân lao xuống nước bắt cá. Tuy nhiên số lượng cá năm nay rất ít.
-- Quận Bình Tân cho biết sẽ kiến nghị UBND TP.HCM chấp thuận đầu tư, chống ngập căn cơ, trước mắt tăng cường nạo vét cống rãnh.
-- Yêu cầu đó được Bộ Giao thông vận tải đưa ra trong công văn gửi Cục Đường bộ và Sở Giao thông vận tải Bà Rịa -Vũng Tàu.
-- Thủ tướng Chính phủ vừa có công điện về việc khẩn trương khắc phục sự cố sạt lở tại tỉnh Hà Giang và ứng phó với nguy cơ sạt lở, lũ ống, lũ quét.
-- Bộ trưởng Bộ Khoa học và Công nghệ cho biết Hà Nội không chỉ là trung tâm chính trị mà còn là điểm sáng của khoa học, công nghệ và đổi mới sáng tạo trong khu vực.
-- Tỉnh Yên Bái quyết định miễn 100% học phí năm học 2024-2025 cho trẻ em mầm non, học sinh, học viên trên địa bàn tỉnh.
-- Sau hơn một năm chăm sóc cứu hộ, 5 con khỉ đuôi dài từng bị một người đàn ông bắt trái phép tại rừng phòng hộ Cần Giờ đã được lực lượng chức năng thả về môi trường tự nhiên.
-- Ngày 30-9, Chủ tịch Quốc hội Trần Thanh Mẫn cùng Đoàn đại biểu Quốc hội tỉnh Hậu Giang đã tiếp xúc 350 cử tri của TP Ngã Bảy, huyện Phụng Hiệp, Châu Thành và Châu Thành A.
-- Lễ đón trọng thể Tổng Bí thư, Chủ tịch nước Tô Lâm diễn ra tại quảng trường Sukhbaatar, nơi được ví như trái tim, nơi hội tụ của mọi con đường của thủ đô Ulaanbaatar ở Mông Cổ.
-- Mặc dù anh Đ. livestream để nhắc nhở mọi người không đi qua khu vực sạt lở tại km51 quốc lộ 2 (Hà Giang) để tránh nguy hiểm, chính anh đã bị vụ lở đồi cướp đi mạng sống.
-- Bộ Giáo dục và Đào tạo nhất trí với dự thảo trình Thủ tướng về lịch nghỉ Tết âm lịch, Quốc khánh 2025.
-- Dự án nâng cấp, mở rộng đường Tân Thới Hiệp 21 (quận 12, TP.HCM) có vốn đầu tư hơn 1.300 tỉ đồng, giúp tăng năng lực giao thông và giảm ngập.
+- Với tuyến đường sắt tốc độ cao Bắc - Nam, nếu đầu tư công sẽ sử dụng 100% vốn ngân sách, có thể cân đối từ nguồn thu chi.
+- Ông Lê Văn Phước, phó chủ tịch Ủy ban nhân dân tỉnh An Giang, bị kỷ luật khiển trách do đã có những vi phạm, khuyết điểm trong công tác.
+- Sáng 2-10, Đại hội đại biểu MTTQ Việt Nam TP.HCM lần thứ XII, nhiệm kỳ 2024-2029 chính thức khai mạc.
+- Cây xanh tại nhiều tuyến đường được cắt tỉa để đảm bảo an toàn trong mùa mưa. Tuy nhiên có nhiều cây xanh bị cắt trụi lủi, chỉ còn trơ thân.
+- Một số tin tức đáng chú ý: TP.HCM sắp đón triều cường, nguy cơ vỡ bờ bao; Lịch trả lương hưu, trợ cấp bảo hiểm xã hội tháng 10; Đề xuất giao PVN thí điểm làm điện gió ngoài khơi...
+- Hôm nay 2-10, không khí lạnh chi phối toàn bộ thời tiết Bắc Bộ. Trung Bộ, Tây Nguyên mưa to, Nam Bộ chiều tối có mưa rào.
+- Tỉ lệ chấp thuận các khuyến nghị là 84,7%, cao nhất trong số 4 chu kỳ theo cơ chế UPR mà Việt Nam đã tham gia tại Hội đồng Nhân quyền Liên Hiệp Quốc.
+- Tối 1-10, tại xã đảo Minh Châu (huyện Vân Đồn, Quảng Ninh) xảy ra vụ cháy rừng. Hiện lực lượng chức năng đang tổ chức khống chế không để lan rộng.
+- Bộ Tư pháp đang thẩm định dự thảo nghị định quy định quản lý, sử dụng kinh phí thu từ xử phạt vi phạm hành chính về trật tự, an toàn giao thông đường bộ và đấu giá biển số xe sau khi nộp vào ngân sách nhà nước.
+- Cử tri TP.HCM, Quảng Ninh, Phú Yên... kiến nghị xem xét giảm hoặc hỗ trợ mức đóng bảo hiểm y tế khi lương cơ sở tăng lên gây khó khăn cho người dân.
+- Một phụ huynh lái ô tô vào sân Trường THCS-THPT Chu Văn An (TP Móng Cái, Quảng Ninh) rồi tông trúng một học sinh đi xe đạp điện.
+- Liên quan vụ cơ sở phòng khám có người giả danh bác sĩ khám chữa bệnh cho người dân tại Gia Lai, nhân vật giả danh bác sĩ có lời khai rất bất ngờ.
+- Chiều 1-10, tổ đại biểu Quốc hội TP.HCM đơn vị số 1 đã có buổi tiếp xúc cử tri TP Thủ Đức trước kỳ họp thứ 8 - Quốc hội khóa XV. Tại đây, cử tri đã kiến nghị giải quyết dứt điểm khiếu nại liên quan khu đô thị Thủ Thiêm.
+- Nhiều con hổ và báo đã chết tại hai khu du lịch trên địa bàn tỉnh Đồng Nai và Long An, nghi do nhiễm cúm A/H5N1.
+- Chiều 1-10, tại Hà Nội, Bộ Văn hóa, Thể thao và Du lịch tổ chức Lễ tổng kết và trao giải thưởng cuộc thi Sáng tác kịch bản phim truyện, phim tài liệu năm 2023-2024 hướng tới kỷ niệm 100 năm Ngày thành lập Đảng Cộng sản Việt Nam.
+- Hàng chục trường hợp học sinh lái xe khi chưa đủ tuổi, không đội mũ bảo hiểm... bị cảnh sát xử lý trong chiều 1-10 tại quận Long Biên (Hà Nội).
+- Dự báo trong đêm nay và sáng mai (2-10), lũ trên sông Hồng đoạn qua Yên Bái có thể lên trên mức báo động 3 khoảng 0,7m. Cơ quan khí tượng cảnh báo ngập lụt tại 24 xã, phường ở tỉnh này.
+- Mưa lớn khiến lũ trên sông Hồng lên nhanh, nên lực lượng công binh phải cắt nhịp cầu phao Phong Châu (Phú Thọ) để bảo đảm an toàn, giao thông qua cầu phao tạm thời gián đoạn.
+- Với tinh thần tự lực, tự cường và tự chủ, Bộ Chính trị quyết định không phụ thuộc vốn vay nước ngoài khi đầu tư đường sắt tốc độ cao Bắc - Nam.
+- Sau một tháng TP.HCM triển khai chiến dịch tiêm vắc xin sởi, hiện tỉ lệ bao phủ 2 mũi cho trẻ từ 1 - 5 tuổi đạt hơn 95% về lý thuyết, tuy nhiên số ca mắc còn giảm chậm, với 111 ca trong tuần gần nhất.
+- Cao tốc Vạn Ninh - Cam Lộ qua Quảng Trị còn 200m mặt bằng chưa thể bàn giao nhiều tháng qua, ảnh hưởng lớn đến tiến độ. Vì sao Công ty cổ phần Lâm sản Quảng Trị lại không chịu di dời, dù liên tục được vận động.
+- Về giải ngân vốn đầu tư công, Bí thư Thành ủy TP.HCM Nguyễn Văn Nên cho biết đơn vị nào có khó khăn thì báo cáo chủ tịch, phó chủ tịch, không thì báo cáo bí thư. Ông sẽ như ChatGPT, tiếp nhận thông tin bất cứ lúc nào.
+- Chiều 1-10, UBND TP.HCM tổ chức lễ trao quyết định cán bộ, Chủ tịch UBND TP.HCM Phan Văn Mãi đã trao quyết định điều động và bổ nhiệm giám đốc Sở Tư pháp, chủ tịch quận Bình Thạnh, Tân Phú.
+- TP Tuy Hòa (Phú Yên) lên kế hoạch ra quân xử lý người lang thang, ăn xin trên địa bàn, để đến cuối năm 2024 không còn tình trạng này.
+- Ông Phan Công Bằng, phó giám đốc Sở Giao thông vận tải TP.HCM, làm trưởng Ban Quản lý đường sắt đô thị tại thời điểm TP.HCM vừa xây dựng đề án 183km metro, với nhiều kỳ vọng và thách thức.
+- Cùng với 5 dự án BOT đường hiện hữu, TP.HCM cũng nghiên cứu xây dựng đường trên cao một số tuyến nữa. Điểm chung của những tuyến đường này là có đông đúc nhà dân hai bên, xe cộ ùn ứ diễn ra mỗi ngày.
+- Một chiếc xe cấp cứu biển số xanh của Trung tâm Cấp cứu 115 Khánh Hòa hết hạn đăng kiểm hơn 2 tháng nay nhưng vẫn vô tư lưu thông trên đường, đưa bệnh nhân đến bệnh viện.
+- Khép lại chuyến thăm Mông Cổ, Tổng Bí thư, Chủ tịch nước Tô Lâm lên chuyên cơ đến điểm dừng chân tiếp theo là Ireland cho chuyến thăm mang tính lịch sử.
+- UBND TP.HCM vừa có báo cáo Ủy ban Kinh tế Quốc hội khóa XV về vướng mắc và phương án giải quyết khó khăn đang gặp của dự án ngăn triều 10.000 tỉ.
+- Ông Trần Đình Văn, phó bí thư thường trực Tỉnh ủy Lâm Đồng nhiệm kỳ 2020 - 2025, được cho nghỉ hưu ở tuổi 58.
 ![New](News.png)
 ## Nhịp sống số 
 - Viettel đang tăng tốc chuyển đổi cho 500.000 thuê bao 2G cuối cùng trước ngày tắt sóng 15-10.
