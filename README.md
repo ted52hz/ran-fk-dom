@@ -1,6 +1,16 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Honda Việt Nam (HVN) phối hợp cùng Ủy ban An toàn giao thông quốc gia và Bộ Giáo dục & Đào tạo tổ chức chương trình Trao tặng mũ bảo hiểm cho học sinh lớp 1 trên toàn quốc.
+- Đây là một trong nhiều thông tin về du học được đại diện Tổng lãnh sự quán Mỹ tại TP.HCM đưa ra tại Triển lãm giáo dục Mỹ (EducationUSA 2024) diễn ra chiều 3-10.
+- Liên quan tới vụ nam sinh thân mật với giáo viên ngay trên bục giảng, ông Nguyễn Quang Tuấn - phó giám đốc Sở Giáo dục và Đào tạo Hà Nội - cho biết cô giáo là người hòa đồng, thân mật với học sinh nhưng 'thiếu nghiệp vụ sư phạm'.
+- Gần 700 học sinh giỏi trong vụ ký nhận tiền nhưng chỉ nhận vở ở Đà Nẵng đã được nhận lại 200.000 đồng tiền thưởng .
+- Mạng xã hội đang xôn xao chuyện 'một trường đại học ở TP.HCM công bố xét tuyển bắt buộc có môn toán' từ năm 2025.
+- Bà Trần Thị Diệu Thúy - phó chủ tịch UBND TP.HCM - yêu cầu Sở Giáo dục và Đào tạo TP.HCM đổi mới cách tổ chức và hoạt động thư viện trường học, nhằm tạo môi trường cho học sinh tiếp cận thường xuyên với sách.
+- Để lo cho hoạt động của lớp, các thầy cô càng phải giữ kẽ, giữ quy chế, giữ lòng tự trọng của nghề giáo.
+- Hội đồng trường Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) cho hay sẽ triệu tập cuộc họp để xem xét miễn nhiệm tư cách thành viên hội đồng trường.
+- Chủ trương đưa tiếng Anh thành ngôn ngữ thứ hai trong nhà trường là đúng đắn, hợp với nhu cầu phát triển kinh tế - xã hội nhưng cần thêm các giải pháp để đi vào đời sống hiệu quả và thiết thực.
+- Trường Phổ thông Năng khiếu (Đại học Quốc gia TP.HCM) vừa công bố phương án tuyển sinh lớp 10 năm học 2025-2026.
 - Giọng nghẹn ngào, em Nguyễn Hà Mi (học sinh lớp 9 Trường THCS Chuế Lưu, huyện Hạ Hòa, tỉnh Phú Thọ) kể về trận lũ đã cuốn trôi căn nhà của gia đình em.
 - Chiều ngày 2-10, tại Văn Miếu - Quốc Tử Giám, Thành Đoàn Hà Nội tổ chức lễ ghi danh sổ vàng thủ khoa xuất sắc thủ đô Hà Nội năm 2024.
 - Các khách mời của tọa đàm 'Đưa tiếng Anh trở thành ngôn ngữ thứ 2 trong trường học: Làm gì để vượt thách thức?' đã dành thời gian phân tích về thuận lợi, khó khăn, thách thức và tìm ra các giải pháp để thực hiện chủ trương này.
@@ -21,48 +31,38 @@
 - Ngày 1-10, ông Nguyễn Quang Thạch - sáng lập phong trào Sách hóa nông thôn Việt Nam - bắt đầu hành trình đi bộ vận động Sách về nông thôn Ấn Độ lần thứ 2.
 - Sau sự việc, Phòng Giáo dục và Đào tạo huyện Thanh Oai yêu cầu học sinh không nhận đồ ăn, thức uống từ người lạ.
 - Trong khuôn khổ chuyến thăm cấp Nhà nước tới Mông Cổ, sáng 1-10, Tổng Bí thư, Chủ tịch nước Tô Lâm cùng Đoàn đại biểu cấp cao Việt Nam đã đến thăm Trường liên cấp số 14 mang tên Chủ tịch Hồ Chí Minh tại thủ đô Ulan Bator.
-- Sáng 1-10, ông Võ Cao Long - trưởng Phòng Giáo dục và Đào tạo quận 1, TP.HCM - chính thức cung cấp thông tin cho báo chí liên quan đến vụ việc cô giáo 'xin hỗ trợ mua laptop' xảy ra tại Trường tiểu học Chương Dương.
-- Tại huyện miền núi Tương Dương, Nghệ An xảy ra một trận lũ ống trong đêm làm cô lập 4 bản và bùn đất gây ngập một trường học.
-- Tại Việt Nam, việc trường trung cấp đón sinh viên quốc tế đến học tập, trao đổi khá hiếm, nhất là sinh viên đại học.
-- Để nâng cao chuỗi giá trị các ngành công nghiệp, công nghệ, cần nguồn nhân lực có trình độ đại học, kỹ năng chuyên sâu và bằng cấp về STEM.
-- Giảng viên tại nhiều trường đại học Mỹ 'sốc' khi nhận ra sinh viên ngày càng lười đọc. Nhưng rồi họ cũng nhanh chóng 'thích nghi'.
-- Ngày 30-9, tại Trường Victoria Shool - Nam Sài Gòn diễn ra lễ khai mạc vòng chung kết STEAM For Girls - STEAM Xanh cho nữ sinh 2024.
-- Tỉnh Yên Bái quyết định miễn 100% học phí năm học 2024-2025 cho trẻ em mầm non, học sinh, học viên trên địa bàn tỉnh.
-- Làm sao để không còn "hội chứng" sợ đi họp phụ huynh vì tình trạng lạm thu quỹ trường, quỹ lớp?
-- Bộ Giáo dục và Đào tạo nhất trí với dự thảo trình Thủ tướng về lịch nghỉ Tết âm lịch, Quốc khánh 2025.
-- Sáng 30-9, cô H., giáo viên tại Trường tiểu học Chương Dương, quận 1, TP.HCM - người xin phụ huynh hỗ trợ laptop, đã gặp gỡ báo chí để trần tình về sự việc.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Tại đại học Trinity Dublin, Tổng Bí thư, Chủ tịch nước Tô Lâm đã nêu thành ngữ của Ireland: 'Trong tất cả những mối quan hệ, tình bạn là tốt nhất và sẽ luôn là như vậy'.
-- Sau gần 30 năm thiết lập quan hệ ngoại giao, Việt Nam đã quyết định mở đại sứ quán tại Ireland. Đây sẽ là bước hiện thực hóa những kết quả từ chuyến thăm của Tổng Bí thư, Chủ tịch nước Tô Lâm.
-- Khi người dân thực hiện cấp phiếu lý lịch tư pháp trên VNeID sẽ giúp tiết kiệm khoảng 400 tỉ đồng mỗi năm cho xã hội.
-- Chỉ trong vòng hơn hai tháng có tới sáu vụ tàu trật bánh tại đoạn đường sắt qua địa bàn tỉnh Thừa Thiên Huế. Điều này có bất thường?
-- TP.HCM vừa đưa ra các quy định cụ thể về trách nhiệm của người đứng đầu và các biện pháp xử lý nếu để xảy ra các vi phạm.
-- Ước tính 1,6 triệu m³ đất đá sạt trượt, xuất phát từ đỉnh núi Con Voi xuống thôn Làng Nủ với chiều dài khoảng 3,6km.
-- Do sự tranh chấp giữa các hình thái thời tiết nên xuất hiện nhiễu động gió gây mưa lớn cho TP.HCM và các tỉnh lân cận trong chiều nay 3-10.
-- Giọng nghẹn ngào, em Nguyễn Hà Mi (học sinh lớp 9 Trường THCS Chuế Lưu, huyện Hạ Hòa, tỉnh Phú Thọ) kể về trận lũ đã cuốn trôi căn nhà của gia đình em.
-- UBND tỉnh Lâm Đồng vừa ban hành quyết định quy định về điều kiện, diện tích tối thiểu được tách thửa đất, hợp thửa đất với từng loại đất trên địa bàn tỉnh.
-- Tháng 12-2024, Đà Nẵng hoàn thành việc xây dựng đề án, hồ sơ thành lập Khu thương mại tự do Đà Nẵng.
-- Tin tức đáng chú ý: 3.300 doanh nghiệp thiệt hại do bão được đề xuất tạm dừng đóng 2 loại quỹ; Bắc Giang công bố tình huống khẩn cấp sạt lở ở 3 huyện; Thị trường trái phiếu doanh nghiệp đã qua giai đoạn khó khăn nhất?...
-- Hôm nay 3-10, thời tiết Bắc Bộ nhiệt độ giảm mạnh, trời lạnh, ngày nắng. Nam Bộ mưa có xu hướng tăng.
-- Từ chiếc sừng trâu, sừng bò xù xì nhưng khi qua tay thợ lành nghề đã ra những sản phẩm mỹ nghệ tinh xảo. Chỉ riêng lược cả trăm loại dùng cho tóc thẳng, tóc xoăn; loại răng thưa, răng nhỏ, răng dày và đủ kiểu dáng, hoa văn được bán ra nước ngoài.
-- Tổng Bí thư, Chủ tịch nước Tô Lâm cho hay Việt Nam đang hoàn tất các thủ tục để mở đại sứ quán tại Ireland, sau gần 30 năm thiết lập quan hệ ngoại giao.
-- Mẫu bệnh phẩm hổ chết ở khu du lịch Vườn Xoài (Đồng Nai) dương tính với cúm A/H5N1.
-- Phó thủ tướng Trần Hồng Hà đã giao nhiệm vụ cho TP.HCM và các bộ ngành về lộ trình triển khai đề án nghiên cứu xây dựng cảng trung chuyển quốc tế Cần Giờ.
-- Việt Nam đã giao thiệp nghiêm khắc, phản đối cách hành xử 'thô bạo' của Trung Quốc với ngư dân tại quần đảo Hoàng Sa của Việt Nam, yêu cầu không tái diễn.
-- Sau khi lãnh đạo TP.HCM trình Thủ tướng Chính phủ phương án tháo gỡ vướng mắc đối với dự án ngăn triều 10.000 tỉ đồng, Văn phòng Chính phủ đã có công văn hỏa tốc lấy ý kiến các bộ ngành.
-- Sau 4 tháng triển khai thí điểm cấp phiếu lý lịch tư pháp qua ứng dụng VNeID tại Hà Nội và Thừa Thiên Huế, bước đầu đã mang lại hiệu quả đáng ghi nhận, nhận được sự ủng hộ nhiệt tình của người dân.
-- Tổng thống Ireland Michael D. Higgins chủ trì lễ đón Tổng Bí thư, Chủ tịch nước Tô Lâm, sau đó mời ông trồng cây lưu niệm cho chuyến đi lịch sử.
-- Giám đốc Bệnh viện Bạch Mai thông tin bệnh viện này phải chi khoảng 50 tỉ đồng/năm để mua phim in cho người bệnh. Trong khi sổ sức khỏe điện tử mỗi năm ước tính giúp tiết kiệm khoảng 1.150 tỉ đồng tiền mua y bạ.
-- Nhân viên người Việt vận hành thử tuyến metro số 1 (TP.HCM) với 47 kịch bản, bao gồm cả tình huống khẩn cấp.
-- Ba đăng kiểm viên thuộc Chi cục Thủy sản Thừa Thiên Huế vừa bị khởi tố, bắt tạm giam để điều tra hành vi nhận hối lộ.
-- Thủ tướng Phạm Minh Chính vừa ký quyết định phê chuẩn kết quả bầu chức vụ chủ tịch UBND tỉnh An Giang nhiệm kỳ 2021 - 2026.
-- Trong lúc mưa lớn, tài xế lái xe tải qua một đập tràn tại Đà Lạt và bị nước cuốn mất tích.
-- Bí thư Thành ủy TP.HCM Nguyễn Văn Nên đề nghị Mặt trận Tổ quốc Việt Nam TP.HCM triển khai có hiệu quả các cuộc vận độn đảm bảo an sinh xã hội.
-- Ủy ban Kiểm tra Trung ương đề nghị kỷ luật nguyên bí thư Tỉnh ủy Tuyên Quang Chẩu Văn Lâm, nguyên bí thư Tỉnh ủy Phú Thọ Ngô Đức Vượng, Nguyễn Doãn Khánh.
-- Ngày 2-10, Ban Thường vụ Tỉnh ủy Thanh Hóa tổ chức hội thảo khoa học với chủ đề 'Thanh Hóa với đồng bào, cán bộ, chiến sĩ và học sinh miền Nam tập kết ra Bắc - 70 năm sâu nặng nghĩa tình'.
-- Tỉnh Bến Tre đã cấp chủ trương đầu tư và tập trung triển khai 19 dự án điện gió với tổng công suất 1.007,7 MW ở các huyện phía đông của tỉnh để hiện thực hóa chủ trương phát triển năng lượng tái tạo về hướng đông của tỉnh.
-- Quy hoạch đến năm 2030, Cần Giuộc sẽ thành đô thị loại III. Phát triển đô thị gắn với Cảng quốc tế Long An, có vai trò hỗ trợ, giảm áp lực gia tăng dân số cho TP.HCM.
+- Theo đánh giá, trên hổ xuất hiện triệu chứng đồng loạt cùng một thời điểm nên nghi ngờ nguồn lây bệnh từ thức ăn.
+- Thủ tướng Phạm Minh Chính gặp mặt đại diện doanh nghiệp nhân kỷ niệm 20 năm Ngày Doanh nhân Việt Nam vào sáng 4-10.
+- Chỉ tám tháng đầu năm 2024, có 17.952 trường hợp bị cơ quan thuế thông báo tạm hoãn xuất cảnh, cao gấp nhiều lần so với năm 2023.
+- Đoàn đại biểu cấp cao Việt Nam do Tổng Bí thư, Chủ tịch nước Tô Lâm dẫn đầu đã đến Pháp, bắt đầu các hoạt động từ ngày 4-10 với nhiều nội dung quan trọng.
+- Một số tin tức đáng chú ý: Lãi suất trái phiếu Chính phủ giảm ở nhiều kỳ hạn; Xu hướng doanh nghiệp dùng AI tìm nhân sự, sàng lọc hồ sơ xin việc; Chủ tịch một doanh nghiệp nhà nước xin nghỉ sau chưa đầy nửa năm...
+- Hôm nay 4-10,  thời tiết Bắc Bộ tiếp tục lạnh đến rét, sáng sớm sương mù. Nam Bộ ngày nhiều mây, chiều tối mưa to.
+- Ngày 3-10, Tổng Bí thư, Chủ tịch nước Tô Lâm đã gặp Thủ tướng Ireland Simon Harris, Chủ tịch Thượng viện Ireland Jerry Buttimer và Phó chủ tịch Hạ viện Catherine Connolly.
+- Hơn 10 năm qua, việc xây dựng 4 tuyến đường trong khu đô thị Thủ Thiêm (TP Thủ Đức) chỉ mới hoàn thành khoảng 87% vì vướng mặt bằng.
+- Dự án vành đai 4 TP.HCM dài 207km có tổng vốn 136.000 tỉ đồng dự kiến sẽ trình Quốc hội vào kỳ họp chuyên đề cuối năm thay vì trình vào tháng 10-2024.
+- Nhiều cán bộ lãnh đạo chủ chốt của Bạc Liêu đã được bầu bổ sung ủy viên Ban chấp hành Đảng bộ tỉnh, ủy viên Ban thường vụ Tỉnh ủy Bạc Liêu nhiệm kỳ 2020-2025.
+- Từ 17h chiều 3-10, Sở Giao thông vận tải tỉnh Yên Bái cấm toàn bộ người và phương tiện lưu thông qua cầu Yên Bái.
+- Gặp Tổng Bí thư, Chủ tịch nước Tô Lâm, lãnh đạo 15 tập đoàn lớn nhất Ireland đã bày tỏ quan tâm đầu tư vào Việt Nam. Tập trung 4 lĩnh vực gồm công nghệ cao, nông nghiệp, công nghiệp - năng lượng, y tế.
+- Nhân dịp kỷ niệm 23 năm Ngày Toàn dân phòng cháy và chữa cháy (4-10-2001 - 4-10-2024), Trung tướng Lê Hồng Nam - giám đốc Công an TP.HCM - đã có thư ngỏ gửi các cấp chính quyền, tổ chức và người dân về công tác phòng cháy chữa cháy .
+- Đường trên cao là một trong những phương án hiệu quả nhằm giảm ùn tắc và kẹt xe tại TP.HCM.
+- Cử tri tại TP.HCM kiến nghị cơ quan có thẩm quyền sớm giải quyết thỏa đáng vấn đề liên quan đến trái phiếu của Vạn Thịnh Phát nhằm giảm bớt khó khăn cho người dân.
+- Sản phẩm OCOP là bước đi đúng đắn, góp phần phát triển kinh tế - xã hội địa phương. Các doanh nghiệp, chủ thể sản phẩm OCOP cần chú ý địa lý vùng, chất lượng, thủ tục pháp lý để mở rộng đường tiêu thụ và đưa sản phẩm gần hơn với người tiêu dùng.
+- Chiều 3-10, Tỉnh ủy Đồng Nai đã quyết định điều động, chỉ định ba bí thư huyện Nhơn Trạch, Cẩm Mỹ và Vĩnh Cửu.
+- Đại diện Sở Kế hoạch và Đầu tư TP.HCM vừa lý giải các nguyên nhân khách quan và chủ quan ảnh hưởng đến tiến độ giải ngân đầu tư công các dự án.
+- Hiện đường sắt Bắc - Nam đoạn qua TP.HCM có 24 vị trí giao cắt với đường bộ, thường xuyên xảy ra ùn ứ giao thông, đặc biệt vào giờ cao điểm.
+- Trước việc nước sông Hồng chảy xiết chưa thể tái lắp cầu phao, Đại tướng Phan Văn Giang yêu cầu nghiên cứu dùng phà quân sự để đưa người dân và xe máy qua sông.
+- Tỉ lệ giải ngân vốn 9 tháng đầu năm 2024 của dự án vành đai 3 TP.HCM đoạn qua địa bàn TP mới đạt 9%.
+- Một nhánh hầm chui Nguyễn Văn Linh - Nguyễn Hữu Thọ sẽ thông xe vào sáng 4-10. Người dân qua khu vực này chú ý theo lộ trình sau để đi lại thuận tiện.
+- Liên quan tới vụ nam sinh thân mật với giáo viên ngay trên bục giảng, ông Nguyễn Quang Tuấn - phó giám đốc Sở Giáo dục và Đào tạo Hà Nội - cho biết cô giáo là người hòa đồng, thân mật với học sinh nhưng 'thiếu nghiệp vụ sư phạm'.
+- Chiều 3-10, Thủ tướng Phạm Minh Chính chủ trì cuộc làm việc của Thường trực Chính phủ với các doanh nghiệp xây dựng các công trình trọng điểm quốc gia.
+- Theo kế hoạch, ngày 15-10, lực lượng quân đội sẽ lắp đặt 4 nhà tái định cư đầu tiên cho người dân Làng Nủ (xã Phúc Khánh, huyện Bảo Yên, Lào Cai) và đến cuối tháng 11 sẽ lắp xong 40 ngôi nhà.
+- Ông T. đang thực hiện di dời cáp truyền hình cho một hộ dân thì vướng vào dây điện tróc vỏ và bị điện giật ngã xuống đất.
+- Liên quan tới việc cây xanh tại Hà Nội không tháo bầu cây khi trồng bị bật gốc sau bão số 3, Sở Xây dựng Hà Nội cho biết sẽ truy tìm chủ đầu tư.
+- Nhiều tuyến phố trung tâm sẽ bị cấm triệt để xe cộ để phục vụ chương trình Ngày hội văn hóa vì hòa bình.
+- Tỉnh Bến Tre đã thả 522 triệu con ong ký sinh, để ứng phó với tình trạng sâu đầu đen hại dừa đang hoành hành tại các tỉnh miền Tây thời gian qua.
+- Trước sự việc hàng loạt hổ và sư tử ở Long An, Đồng Nai chết vì dịch, nhiều người lo lắng cho đàn hổ tại Thảo cầm viên Sài Gòn vì cũng nằm trong vùng khí hậu, thổ nhưỡng tương tự.
 ![New](News.png)
 ## Nhịp sống số 
 - Viettel đang tăng tốc chuyển đổi cho 500.000 thuê bao 2G cuối cùng trước ngày tắt sóng 15-10.
