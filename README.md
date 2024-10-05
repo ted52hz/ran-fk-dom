@@ -1,6 +1,21 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Nhiều bạn đọc đề nghị nhân rộng mô hình trường học không có quỹ lớp ở tại Bình Dương.
+- Ngày 3-10, hãng Bloomberg News đưa tin một số trường học của Mỹ đang cung cấp chương trình đào tạo chuyên ngành sau đại học, nhưng trên thực tế là vỏ bọc giúp sinh viên nước ngoài được cấp thị thực lao động có thời hạn 2 năm.
+- Theo một khảo sát, có đến 90% phụ nữ trẻ cho biết họ sử dụng bộ lọc hoặc chỉnh sửa ảnh trước khi đăng tải lên mạng xã hội vì tự ti ngoại hình; có bạn trẻ nghiện mạng xã hội đã dùng tới khi ngất đi, nhưng tỉnh dậy dùng tiếp!
+- Chuyên gia cho rằng nếu muốn thử đầu tư chứng khoán, sinh viên chỉ nên dành tiền nhàn rỗi thay vì dùng các khoản tiền học tập, sinh hoạt.
+- Bộ Giáo dục và Đào tạo dự kiến quy định có 3 môn thi vào lớp 10 gồm toán, ngữ văn và một môn do sở giáo dục và đào tạo tổ chức bốc thăm ngẫu nhiên.
+- Sáng 4-10, 70 học sinh khiếm thị của Trường Phổ thông đặc biệt Nguyễn Đình Chiểu (Q.10, TP.HCM) đã có buổi xem phim thật đặc biệt.
+- Chiều 3-10, báo Tuổi Trẻ đưa 40 học sinh lớp 8 Trường THCS Đồng Khởi (quận 1, TP.HCM) tham quan tại nhà máy sản xuất mì ăn liền Acecook Việt Nam.
+- Với nhiều dự án sáng tạo kêu gọi bảo vệ môi trường, các nữ sinh cả trong và ngoài nước đã tự tin chinh phục cuộc thi.
+- Trường THPT Phan Huy Chú (Đống Đa, Hà Nội) là trường công có mức thu học phí cao nhất thủ đô, với 6,1 triệu đồng/tháng.
+- Với tính năng "like - thích", khi bài viết đăng tải lên mạng xã hội nhận sự từ chối hoặc ít người bấm "like" có thể dẫn tới các triệu chứng trầm cảm cho người dùng.
+- Thầy cô thân mật, hòa đồng với học trò là tốt. Nhưng sự dễ dãi, tùy tiện, kiểu "cá mè một lứa" là không thể chấp nhận.
+- Công an TP Tam Kỳ, Quảng Nam đã ra quyết định xử phạt vi phạm hành chính với phụ huynh xông vào lớp đánh học sinh lớp 8.
+- Yếu tố giáo viên, học sinh, phụ huynh và chương trình giảng dạy giúp đưa tiếng Anh thành ngôn ngữ thứ hai trong trường học thành công.
+- Thường trực Ủy ban Văn hóa, Giáo dục của Quốc hội đã trả lời ý kiến cử tri Tiền Giang đề nghị cần giám sát tối cao chất lượng đào tạo đại học.
+- "Trường tiểu học Hòa Phú không phải đóng tiền gì hết. Thầy hiệu trưởng dẹp luôn quỹ lớp nên phụ huynh không phải bàn tán gì hết, rất khỏe".
 - Honda Việt Nam (HVN) phối hợp cùng Ủy ban An toàn giao thông quốc gia và Bộ Giáo dục & Đào tạo tổ chức chương trình Trao tặng mũ bảo hiểm cho học sinh lớp 1 trên toàn quốc.
 - Đây là một trong nhiều thông tin về du học được đại diện Tổng lãnh sự quán Mỹ tại TP.HCM đưa ra tại Triển lãm giáo dục Mỹ (EducationUSA 2024) diễn ra chiều 3-10.
 - Liên quan tới vụ nam sinh thân mật với giáo viên ngay trên bục giảng, ông Nguyễn Quang Tuấn - phó giám đốc Sở Giáo dục và Đào tạo Hà Nội - cho biết cô giáo là người hòa đồng, thân mật với học sinh nhưng 'thiếu nghiệp vụ sư phạm'.
@@ -16,53 +31,38 @@
 - Các khách mời của tọa đàm 'Đưa tiếng Anh trở thành ngôn ngữ thứ 2 trong trường học: Làm gì để vượt thách thức?' đã dành thời gian phân tích về thuận lợi, khó khăn, thách thức và tìm ra các giải pháp để thực hiện chủ trương này.
 - Ngày 2-10, ông Đào Đức Tuấn - giám đốc Sở Giáo dục và Đào tạo tỉnh Bình Định - cho biết sở đã chấn chỉnh việc 2 trường học vận động thu tiền sai nguyên tắc.
 - Liên quan vụ 'nam sinh thân mật với cô giáo trên bục giảng', hiện cô giáo này đã bị nhà trường tạm đình chỉ công tác trong thời gian giải quyết sự việc.
-- Sở Giáo dục và Đào tạo TP.HCM vừa công bố đề tham khảo thi tuyển sinh lớp 10 năm 2025.
-- Sau một ngày ra quân cao điểm xử lý học sinh vi phạm, cảnh sát giao thông toàn TP.HCM đã xử phạt 296 em vi phạm.
-- Mạng xã hội lan truyền bài viết, kèm hình ảnh một nam sinh có hành động thân mật với một cô gái tại bàn giáo viên và cho rằng cô gái trong clip là giáo viên.
-- Ngoài khu đô thị Đại học Quốc gia TP.HCM đã hoạt động, TP.HCM còn có ba dự án khu đô thị đại học và giáo dục tập trung.
-- Liên quan vụ việc phụ huynh xông vào trường đánh học sinh lớp 8, nhà trường đã kỷ luật 3 học sinh tham gia đánh nhau.
-- Kết quả điều tra gian lận khoa học về một giáo sư y khoa nổi tiếng của Đại học California tại San Diego (UCSD, Mỹ) đang gây rúng động giới y khoa toàn cầu.
-- Chủ trương đưa tiếng Anh thành ngôn ngữ thứ hai trong trường học là chủ trương đúng đắn, phù hợp với điều kiện Việt Nam trong bối cảnh toàn cầu hóa. Nhưng chủ trương này sẽ gặp không ít thách thức cần được hóa giải.
-- Vụ cô giáo 'xin' phụ huynh hỗ trợ mua laptop để giảng dạy nhanh chóng trở thành tâm điểm dư luận và dấy lên nhiều tranh luận.
-- Phiên chất vấn giả định "Quốc hội trẻ em" đặt ra vấn đề có thật, không dễ chấm dứt trong học đường.
-- Một phụ huynh lái ô tô vào sân Trường THCS-THPT Chu Văn An (TP Móng Cái, Quảng Ninh) rồi tông trúng một học sinh đi xe đạp điện.
-- Hàng chục trường hợp học sinh lái xe khi chưa đủ tuổi, không đội mũ bảo hiểm... bị cảnh sát xử lý trong chiều 1-10 tại quận Long Biên (Hà Nội).
-- Tối 1-10, Sở Giáo dục và Đào tạo TP.HCM đã công bố cấu trúc đề thi tuyển sinh lớp 10 theo chương trình mới.
-- Ngày 1-10, ông Nguyễn Quang Thạch - sáng lập phong trào Sách hóa nông thôn Việt Nam - bắt đầu hành trình đi bộ vận động Sách về nông thôn Ấn Độ lần thứ 2.
-- Sau sự việc, Phòng Giáo dục và Đào tạo huyện Thanh Oai yêu cầu học sinh không nhận đồ ăn, thức uống từ người lạ.
-- Trong khuôn khổ chuyến thăm cấp Nhà nước tới Mông Cổ, sáng 1-10, Tổng Bí thư, Chủ tịch nước Tô Lâm cùng Đoàn đại biểu cấp cao Việt Nam đã đến thăm Trường liên cấp số 14 mang tên Chủ tịch Hồ Chí Minh tại thủ đô Ulan Bator.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Theo đánh giá, trên hổ xuất hiện triệu chứng đồng loạt cùng một thời điểm nên nghi ngờ nguồn lây bệnh từ thức ăn.
-- Thủ tướng Phạm Minh Chính gặp mặt đại diện doanh nghiệp nhân kỷ niệm 20 năm Ngày Doanh nhân Việt Nam vào sáng 4-10.
-- Chỉ tám tháng đầu năm 2024, có 17.952 trường hợp bị cơ quan thuế thông báo tạm hoãn xuất cảnh, cao gấp nhiều lần so với năm 2023.
-- Đoàn đại biểu cấp cao Việt Nam do Tổng Bí thư, Chủ tịch nước Tô Lâm dẫn đầu đã đến Pháp, bắt đầu các hoạt động từ ngày 4-10 với nhiều nội dung quan trọng.
-- Một số tin tức đáng chú ý: Lãi suất trái phiếu Chính phủ giảm ở nhiều kỳ hạn; Xu hướng doanh nghiệp dùng AI tìm nhân sự, sàng lọc hồ sơ xin việc; Chủ tịch một doanh nghiệp nhà nước xin nghỉ sau chưa đầy nửa năm...
-- Hôm nay 4-10,  thời tiết Bắc Bộ tiếp tục lạnh đến rét, sáng sớm sương mù. Nam Bộ ngày nhiều mây, chiều tối mưa to.
-- Ngày 3-10, Tổng Bí thư, Chủ tịch nước Tô Lâm đã gặp Thủ tướng Ireland Simon Harris, Chủ tịch Thượng viện Ireland Jerry Buttimer và Phó chủ tịch Hạ viện Catherine Connolly.
-- Hơn 10 năm qua, việc xây dựng 4 tuyến đường trong khu đô thị Thủ Thiêm (TP Thủ Đức) chỉ mới hoàn thành khoảng 87% vì vướng mặt bằng.
-- Dự án vành đai 4 TP.HCM dài 207km có tổng vốn 136.000 tỉ đồng dự kiến sẽ trình Quốc hội vào kỳ họp chuyên đề cuối năm thay vì trình vào tháng 10-2024.
-- Nhiều cán bộ lãnh đạo chủ chốt của Bạc Liêu đã được bầu bổ sung ủy viên Ban chấp hành Đảng bộ tỉnh, ủy viên Ban thường vụ Tỉnh ủy Bạc Liêu nhiệm kỳ 2020-2025.
-- Từ 17h chiều 3-10, Sở Giao thông vận tải tỉnh Yên Bái cấm toàn bộ người và phương tiện lưu thông qua cầu Yên Bái.
-- Gặp Tổng Bí thư, Chủ tịch nước Tô Lâm, lãnh đạo 15 tập đoàn lớn nhất Ireland đã bày tỏ quan tâm đầu tư vào Việt Nam. Tập trung 4 lĩnh vực gồm công nghệ cao, nông nghiệp, công nghiệp - năng lượng, y tế.
-- Nhân dịp kỷ niệm 23 năm Ngày Toàn dân phòng cháy và chữa cháy (4-10-2001 - 4-10-2024), Trung tướng Lê Hồng Nam - giám đốc Công an TP.HCM - đã có thư ngỏ gửi các cấp chính quyền, tổ chức và người dân về công tác phòng cháy chữa cháy .
-- Đường trên cao là một trong những phương án hiệu quả nhằm giảm ùn tắc và kẹt xe tại TP.HCM.
-- Cử tri tại TP.HCM kiến nghị cơ quan có thẩm quyền sớm giải quyết thỏa đáng vấn đề liên quan đến trái phiếu của Vạn Thịnh Phát nhằm giảm bớt khó khăn cho người dân.
-- Sản phẩm OCOP là bước đi đúng đắn, góp phần phát triển kinh tế - xã hội địa phương. Các doanh nghiệp, chủ thể sản phẩm OCOP cần chú ý địa lý vùng, chất lượng, thủ tục pháp lý để mở rộng đường tiêu thụ và đưa sản phẩm gần hơn với người tiêu dùng.
-- Chiều 3-10, Tỉnh ủy Đồng Nai đã quyết định điều động, chỉ định ba bí thư huyện Nhơn Trạch, Cẩm Mỹ và Vĩnh Cửu.
-- Đại diện Sở Kế hoạch và Đầu tư TP.HCM vừa lý giải các nguyên nhân khách quan và chủ quan ảnh hưởng đến tiến độ giải ngân đầu tư công các dự án.
-- Hiện đường sắt Bắc - Nam đoạn qua TP.HCM có 24 vị trí giao cắt với đường bộ, thường xuyên xảy ra ùn ứ giao thông, đặc biệt vào giờ cao điểm.
-- Trước việc nước sông Hồng chảy xiết chưa thể tái lắp cầu phao, Đại tướng Phan Văn Giang yêu cầu nghiên cứu dùng phà quân sự để đưa người dân và xe máy qua sông.
-- Tỉ lệ giải ngân vốn 9 tháng đầu năm 2024 của dự án vành đai 3 TP.HCM đoạn qua địa bàn TP mới đạt 9%.
-- Một nhánh hầm chui Nguyễn Văn Linh - Nguyễn Hữu Thọ sẽ thông xe vào sáng 4-10. Người dân qua khu vực này chú ý theo lộ trình sau để đi lại thuận tiện.
-- Liên quan tới vụ nam sinh thân mật với giáo viên ngay trên bục giảng, ông Nguyễn Quang Tuấn - phó giám đốc Sở Giáo dục và Đào tạo Hà Nội - cho biết cô giáo là người hòa đồng, thân mật với học sinh nhưng 'thiếu nghiệp vụ sư phạm'.
-- Chiều 3-10, Thủ tướng Phạm Minh Chính chủ trì cuộc làm việc của Thường trực Chính phủ với các doanh nghiệp xây dựng các công trình trọng điểm quốc gia.
-- Theo kế hoạch, ngày 15-10, lực lượng quân đội sẽ lắp đặt 4 nhà tái định cư đầu tiên cho người dân Làng Nủ (xã Phúc Khánh, huyện Bảo Yên, Lào Cai) và đến cuối tháng 11 sẽ lắp xong 40 ngôi nhà.
-- Ông T. đang thực hiện di dời cáp truyền hình cho một hộ dân thì vướng vào dây điện tróc vỏ và bị điện giật ngã xuống đất.
-- Liên quan tới việc cây xanh tại Hà Nội không tháo bầu cây khi trồng bị bật gốc sau bão số 3, Sở Xây dựng Hà Nội cho biết sẽ truy tìm chủ đầu tư.
-- Nhiều tuyến phố trung tâm sẽ bị cấm triệt để xe cộ để phục vụ chương trình Ngày hội văn hóa vì hòa bình.
-- Tỉnh Bến Tre đã thả 522 triệu con ong ký sinh, để ứng phó với tình trạng sâu đầu đen hại dừa đang hoành hành tại các tỉnh miền Tây thời gian qua.
-- Trước sự việc hàng loạt hổ và sư tử ở Long An, Đồng Nai chết vì dịch, nhiều người lo lắng cho đàn hổ tại Thảo cầm viên Sài Gòn vì cũng nằm trong vùng khí hậu, thổ nhưỡng tương tự.
+- Các loài động vật trong Thảo cầm viên Sài Gòn đều được ăn uống theo chế độ nhất định và đảm bảo nguồn gốc thực phẩm rõ ràng, an toàn.
+- Phát biểu mở đầu buổi làm việc với TP.HCM, Chủ tịch Quốc hội cho hay hiện nay dù có nghị quyết về cơ chế đặc thù, đặc biệt nhưng khi làm TP.HCM cũng phải xin ý kiến.
+- Chủ tịch UBND tỉnh - trưởng Ban An toàn giao thông tỉnh Khánh Hòa Nguyễn Tấn Tuân đã chỉ đạo các đơn vị liên quan xử lý vụ xe cấp cứu biển xanh hết hạn đăng kiểm nhưng vẫn chở bệnh nhân.
+- Khu đất bãi ven biển Cần Giờ (TP.HCM) thời gian qua bỗng trở thành nơi trồng gần 100 cây dừa, đoạn kè đá chắn sóng tại đây cũng bị phá dỡ.
+- Cao tốc từ Vĩnh Hảo đến Dầu Giây nối hai tỉnh Bình Thuận và Đồng Nai đưa vào khai thác hơn một năm qua đến nay vẫn còn nhiều "bất ổn", nguy cơ tai nạn giao thông chực chờ.
+- Phở xuất hiện từ những góc nhỏ trong các khu phố đông đúc người Việt ở Hàn Quốc và ngày càng phổ biến trong tòa nhà văn phòng, trung tâm thương mại.
+- Hôm nay 5-10, thời tiết Nam Bộ vẫn mưa nhiều, về chiều mưa tăng. Bắc Bộ trời lạnh, sáng có sương mù, ngày nắng.
+- Tin tức đáng chú ý: Vụ sập cầu Phong Châu, vận hành 2 phà cơ động phục vụ người dân qua sông Hồng; Việt Nam thiếu bác sĩ chuyên ngành lão khoa; Siêu bão Yagi ảnh hưởng tới kim ngạch xuất khẩu cả nước...
+- Tối 4-10, các đầu bếp tất bật chuẩn bị nguyên liệu và nước dùng sẵn sàng phục vụ thực khách tham  dự Vietnam Phở Festival 2024 sẽ diễn ra sáng 5-10 tại thủ đô Seoul, Hàn Quốc.
+- Chiều 4-10, thiếu tướng Nguyễn Văn Mừng, phó cục trưởng Cục Cảnh sát giao thông, đã thông tin về đề xuất giảm tiền phạt người vi phạm nồng độ cồn mức tối thiểu.
+- Cầu đi bộ qua sông Sài Gòn có tổng mức đầu tư hơn 996,9 tỉ đồng do Nutifood tài trợ sẽ khởi công vào năm 2025.
+- Việc nâng đường Trần Xuân Soạn (quận 7) để giải quyết 'rốn ngập' triều cường được nhiều người ủng hộ, nhưng cũng lo lắng nhà bên đường sẽ bị thấp xuống.
+- Tổng thống Pháp Emmanuel Macron đích thân đón Tổng Bí thư, Chủ tịch nước Tô Lâm, cùng các trưởng đoàn khác dự Hội nghị cấp cao Pháp ngữ thứ 19.
+- Triều cường đạt mức báo động 3 đã khiến nhiều tuyến đường ở Cần Thơ ngập nặng. Dự báo trong 2 ngày tới triều cường tiếp tục vượt báo động 3 và tình hình ngập còn nặng nề hơn.
+- Đó là lời nhắc nhở của Trưởng Ban Tuyên giáo Thành ủy TP.HCM, với các cơ quan báo chí TP trong chuyến làm việc với các cơ quan truyền thông ở Úc.
+- Ngày 30-9, 13 học sinh Trường THCS Bình Minh (huyện Thanh Oai, Hà Nội) nhập viện với triệu chứng đau bụng, đau đầu, chóng mặt, buồn nôn… sau khi uống nước ngọt phát miễn phí ngoài cổng trường.
+- Tài xế ô tô 7 chỗ chạy vào đường cấm gặp cảnh sát giao thông Cát Lái rồi bỏ chạy trên đường Võ Nguyên Giáp, TP Thủ Đức (TP.HCM) khai do 'sợ gặp công an'.
+- Hội đồng nhân dân tỉnh Lâm Đồng đã thông qua nghị quyết về việc quy hoạch Đà Lạt là đô thị xanh, thành phố trực thuộc trung ương với các đô thị vệ tinh.
+- Chuyên án đấu tranh thành công với tội phạm mua bán người dưới 16 tuổi nhằm bóc lột tình dục đã tạo hiệu ứng tích cực trong cộng đồng.
+- Hà Nội là địa phương đầu tiên trên cả nước lập Trung tâm Phục vụ hành chính công theo như chỉ đạo của Chính phủ.
+- Vì 'dính' trụ điện này mà dự án chống sạt lở khẩn cấp tiêu tốn 14 tỉ không thể hạ độ cao đỉnh.
+- Biết rõ thửa đất đang tranh chấp, nhưng vì động cơ cá nhân, nguyên chủ tịch xã Đức Trạch (Bố Trạch, Quảng Bình) vẫn ký xác nhận hồ sơ cấp sổ đỏ.
+- Cần đề xuất phương án tối ưu triển khai đầu tư dự án Cảng hàng không Côn Đảo bảo đảm đồng bộ, hiệu quả, báo cáo Thủ tướng Chính phủ trước ngày 7-10.
+- Theo Bộ Xây dựng việc phát triển nhà ở xã hội thời gian tới phải bảo đảm không gian sống xanh, tiết kiệm năng lượng.
+- Cơ quan chức năng trả lời cử tri liên quan đến kiến nghị đặt tên đường mang tên cố Bí thư Thành ủy Đà Nẵng Nguyễn Bá Thanh.
+- 100 suất quà tặng bà con ngư dân gồm bình ắc quy, đèn led, combo pin, túi thuốc, cuốn cẩm nang sẽ hỗ trợ và động viên ngư dân Hà Tĩnh yên tâm vươn khơi, bám biển.
+- Công ty cổ phần Lâm sản Quảng Trị tự nguyện tháo dỡ nhà xưởng, di dời máy móc để bàn giao 200m mặt bằng cuối cùng cho cao tốc Vạn Ninh - Cam Lộ.
+- Sau hơn 2 năm khởi công nâng cấp, đường gần nghìn tỉ về Núi Cấm đã chậm tiến độ hơn 30% so với kế hoạch. Điểm đầu đường tỉnh 948 giáp quốc lộ 91 đã vướng nhà vài cán bộ nên giải phóng mặt bằng cũng bị “tắc”.
+- Sở Giao thông vận tải TP.HCM vừa thông báo sẽ cấm xe nhiều đường trung tâm TP Thủ Đức phục vụ Giải chạy học sinh - sinh viên "S-Race 2024".
+- Thủ tướng Phạm Minh Chính gặp mặt các đại biểu Hội nghị Mạng lưới các nhà khoa học và kỹ sư nữ khu vực châu Á - Thái Bình Dương.
 ![New](News.png)
 ## Nhịp sống số 
 - Viettel đang tăng tốc chuyển đổi cho 500.000 thuê bao 2G cuối cùng trước ngày tắt sóng 15-10.
