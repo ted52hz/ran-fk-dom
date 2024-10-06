@@ -1,6 +1,18 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Dự thảo thông tư sửa đổi, bổ sung quy chế tuyển sinh THCS và tuyển sinh THPT của Bộ GD-ĐT đang khiến dư luận xôn xao.
+- Hiệu trưởng Trường tiểu học Sơn Thành bị phụ huynh tố cáo, được chuyển công tác đến trường khác và tiếp tục làm hiệu trưởng. Những vấn đề phụ huynh tố cáo, thanh tra huyện Sơn Hà sẽ tiếp tục làm rõ.
+- Cứ vào giờ cao điểm, trước cổng một số trường học tại Đà Nẵng xảy ra tình trạng kẹt xe, giao thông lộn xộn. Nhiều phụ huynh, học sinh phải len lỏi giữa dòng xe đông đúc, tiềm ẩn nguy cơ tai nạn giao thông.
+- Dự án HCMUS Future Leaders của Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) vừa chính thức khởi động với sự tham gia 70 cựu sinh viên, chuyên gia xây dựng môn học về kỹ năng mềm cho sinh viên.
+- Tổng giá trị học bổng hơn 392 triệu đồng, trích từ nguồn quỹ Đồng hành sinh viên của trường.
+- Số lượng thí sinh đăng ký xét tuyển vào Trường đại học Y Dược TP.HCM tăng trong 3 năm liên tiếp, dù học phí của trường luôn tăng.
+- Không thể có trường học hạnh phúc, học trò ngoan nếu gia đình nhà trường bỏ ngỏ, thiếu chăm lo những giá trị đạo đức, văn hóa.
+- Sáng nay 5-10, báo Tuổi Trẻ và Trường đại học Hoa Sen đã ký kết hợp tác đào tạo. Việc ký kết thỏa thuận hợp tác đào tạo diễn ra tại lễ khai giảng năm học 2024 - 2025 của Trường đại học Hoa Sen.
+- Tận dụng nguồn nguyên liệu dồi dào trong tự nhiên, nhóm sinh viên Trường đại học Trà Vinh đã nghiên cứu làm ra băng gạc sinh học từ lục bình.
+- Khai giảng năm học 2024-2025, Trường đại học Cửu Long nhận bằng khen của Thủ tướng, dành hơn 9 tỉ đồng cấp học bổng toàn phần, khen thưởng cho tân sinh viên.
+- Ngày 4-10, diễn đàn “Giáo dục về năng lượng tái tạo và biến đổi khí hậu” diễn ra tại Trường Victoria School, nhằm mang đến nhiều góc nhìn trong việc giáo dục thế hệ trẻ các vấn đề khí hậu, môi trường.
+- Với đề thi tham khảo tuyển sinh lớp 10 mà Sở Giáo dục và Đào tạo TP.HCM vừa công bố, nhiều chuyên gia khẳng định giáo viên và học sinh phải thay đổi cách dạy và học.
 - Nhiều bạn đọc đề nghị nhân rộng mô hình trường học không có quỹ lớp ở tại Bình Dương.
 - Ngày 3-10, hãng Bloomberg News đưa tin một số trường học của Mỹ đang cung cấp chương trình đào tạo chuyên ngành sau đại học, nhưng trên thực tế là vỏ bọc giúp sinh viên nước ngoài được cấp thị thực lao động có thời hạn 2 năm.
 - Theo một khảo sát, có đến 90% phụ nữ trẻ cho biết họ sử dụng bộ lọc hoặc chỉnh sửa ảnh trước khi đăng tải lên mạng xã hội vì tự ti ngoại hình; có bạn trẻ nghiện mạng xã hội đã dùng tới khi ngất đi, nhưng tỉnh dậy dùng tiếp!
@@ -19,50 +31,38 @@
 - Honda Việt Nam (HVN) phối hợp cùng Ủy ban An toàn giao thông quốc gia và Bộ Giáo dục & Đào tạo tổ chức chương trình Trao tặng mũ bảo hiểm cho học sinh lớp 1 trên toàn quốc.
 - Đây là một trong nhiều thông tin về du học được đại diện Tổng lãnh sự quán Mỹ tại TP.HCM đưa ra tại Triển lãm giáo dục Mỹ (EducationUSA 2024) diễn ra chiều 3-10.
 - Liên quan tới vụ nam sinh thân mật với giáo viên ngay trên bục giảng, ông Nguyễn Quang Tuấn - phó giám đốc Sở Giáo dục và Đào tạo Hà Nội - cho biết cô giáo là người hòa đồng, thân mật với học sinh nhưng 'thiếu nghiệp vụ sư phạm'.
-- Gần 700 học sinh giỏi trong vụ ký nhận tiền nhưng chỉ nhận vở ở Đà Nẵng đã được nhận lại 200.000 đồng tiền thưởng .
-- Mạng xã hội đang xôn xao chuyện 'một trường đại học ở TP.HCM công bố xét tuyển bắt buộc có môn toán' từ năm 2025.
-- Bà Trần Thị Diệu Thúy - phó chủ tịch UBND TP.HCM - yêu cầu Sở Giáo dục và Đào tạo TP.HCM đổi mới cách tổ chức và hoạt động thư viện trường học, nhằm tạo môi trường cho học sinh tiếp cận thường xuyên với sách.
-- Để lo cho hoạt động của lớp, các thầy cô càng phải giữ kẽ, giữ quy chế, giữ lòng tự trọng của nghề giáo.
-- Hội đồng trường Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) cho hay sẽ triệu tập cuộc họp để xem xét miễn nhiệm tư cách thành viên hội đồng trường.
-- Chủ trương đưa tiếng Anh thành ngôn ngữ thứ hai trong nhà trường là đúng đắn, hợp với nhu cầu phát triển kinh tế - xã hội nhưng cần thêm các giải pháp để đi vào đời sống hiệu quả và thiết thực.
-- Trường Phổ thông Năng khiếu (Đại học Quốc gia TP.HCM) vừa công bố phương án tuyển sinh lớp 10 năm học 2025-2026.
-- Giọng nghẹn ngào, em Nguyễn Hà Mi (học sinh lớp 9 Trường THCS Chuế Lưu, huyện Hạ Hòa, tỉnh Phú Thọ) kể về trận lũ đã cuốn trôi căn nhà của gia đình em.
-- Chiều ngày 2-10, tại Văn Miếu - Quốc Tử Giám, Thành Đoàn Hà Nội tổ chức lễ ghi danh sổ vàng thủ khoa xuất sắc thủ đô Hà Nội năm 2024.
-- Các khách mời của tọa đàm 'Đưa tiếng Anh trở thành ngôn ngữ thứ 2 trong trường học: Làm gì để vượt thách thức?' đã dành thời gian phân tích về thuận lợi, khó khăn, thách thức và tìm ra các giải pháp để thực hiện chủ trương này.
-- Ngày 2-10, ông Đào Đức Tuấn - giám đốc Sở Giáo dục và Đào tạo tỉnh Bình Định - cho biết sở đã chấn chỉnh việc 2 trường học vận động thu tiền sai nguyên tắc.
-- Liên quan vụ 'nam sinh thân mật với cô giáo trên bục giảng', hiện cô giáo này đã bị nhà trường tạm đình chỉ công tác trong thời gian giải quyết sự việc.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Các loài động vật trong Thảo cầm viên Sài Gòn đều được ăn uống theo chế độ nhất định và đảm bảo nguồn gốc thực phẩm rõ ràng, an toàn.
-- Phát biểu mở đầu buổi làm việc với TP.HCM, Chủ tịch Quốc hội cho hay hiện nay dù có nghị quyết về cơ chế đặc thù, đặc biệt nhưng khi làm TP.HCM cũng phải xin ý kiến.
-- Chủ tịch UBND tỉnh - trưởng Ban An toàn giao thông tỉnh Khánh Hòa Nguyễn Tấn Tuân đã chỉ đạo các đơn vị liên quan xử lý vụ xe cấp cứu biển xanh hết hạn đăng kiểm nhưng vẫn chở bệnh nhân.
-- Khu đất bãi ven biển Cần Giờ (TP.HCM) thời gian qua bỗng trở thành nơi trồng gần 100 cây dừa, đoạn kè đá chắn sóng tại đây cũng bị phá dỡ.
-- Cao tốc từ Vĩnh Hảo đến Dầu Giây nối hai tỉnh Bình Thuận và Đồng Nai đưa vào khai thác hơn một năm qua đến nay vẫn còn nhiều "bất ổn", nguy cơ tai nạn giao thông chực chờ.
-- Phở xuất hiện từ những góc nhỏ trong các khu phố đông đúc người Việt ở Hàn Quốc và ngày càng phổ biến trong tòa nhà văn phòng, trung tâm thương mại.
-- Hôm nay 5-10, thời tiết Nam Bộ vẫn mưa nhiều, về chiều mưa tăng. Bắc Bộ trời lạnh, sáng có sương mù, ngày nắng.
-- Tin tức đáng chú ý: Vụ sập cầu Phong Châu, vận hành 2 phà cơ động phục vụ người dân qua sông Hồng; Việt Nam thiếu bác sĩ chuyên ngành lão khoa; Siêu bão Yagi ảnh hưởng tới kim ngạch xuất khẩu cả nước...
-- Tối 4-10, các đầu bếp tất bật chuẩn bị nguyên liệu và nước dùng sẵn sàng phục vụ thực khách tham  dự Vietnam Phở Festival 2024 sẽ diễn ra sáng 5-10 tại thủ đô Seoul, Hàn Quốc.
-- Chiều 4-10, thiếu tướng Nguyễn Văn Mừng, phó cục trưởng Cục Cảnh sát giao thông, đã thông tin về đề xuất giảm tiền phạt người vi phạm nồng độ cồn mức tối thiểu.
-- Cầu đi bộ qua sông Sài Gòn có tổng mức đầu tư hơn 996,9 tỉ đồng do Nutifood tài trợ sẽ khởi công vào năm 2025.
-- Việc nâng đường Trần Xuân Soạn (quận 7) để giải quyết 'rốn ngập' triều cường được nhiều người ủng hộ, nhưng cũng lo lắng nhà bên đường sẽ bị thấp xuống.
-- Tổng thống Pháp Emmanuel Macron đích thân đón Tổng Bí thư, Chủ tịch nước Tô Lâm, cùng các trưởng đoàn khác dự Hội nghị cấp cao Pháp ngữ thứ 19.
-- Triều cường đạt mức báo động 3 đã khiến nhiều tuyến đường ở Cần Thơ ngập nặng. Dự báo trong 2 ngày tới triều cường tiếp tục vượt báo động 3 và tình hình ngập còn nặng nề hơn.
-- Đó là lời nhắc nhở của Trưởng Ban Tuyên giáo Thành ủy TP.HCM, với các cơ quan báo chí TP trong chuyến làm việc với các cơ quan truyền thông ở Úc.
-- Ngày 30-9, 13 học sinh Trường THCS Bình Minh (huyện Thanh Oai, Hà Nội) nhập viện với triệu chứng đau bụng, đau đầu, chóng mặt, buồn nôn… sau khi uống nước ngọt phát miễn phí ngoài cổng trường.
-- Tài xế ô tô 7 chỗ chạy vào đường cấm gặp cảnh sát giao thông Cát Lái rồi bỏ chạy trên đường Võ Nguyên Giáp, TP Thủ Đức (TP.HCM) khai do 'sợ gặp công an'.
-- Hội đồng nhân dân tỉnh Lâm Đồng đã thông qua nghị quyết về việc quy hoạch Đà Lạt là đô thị xanh, thành phố trực thuộc trung ương với các đô thị vệ tinh.
-- Chuyên án đấu tranh thành công với tội phạm mua bán người dưới 16 tuổi nhằm bóc lột tình dục đã tạo hiệu ứng tích cực trong cộng đồng.
-- Hà Nội là địa phương đầu tiên trên cả nước lập Trung tâm Phục vụ hành chính công theo như chỉ đạo của Chính phủ.
-- Vì 'dính' trụ điện này mà dự án chống sạt lở khẩn cấp tiêu tốn 14 tỉ không thể hạ độ cao đỉnh.
-- Biết rõ thửa đất đang tranh chấp, nhưng vì động cơ cá nhân, nguyên chủ tịch xã Đức Trạch (Bố Trạch, Quảng Bình) vẫn ký xác nhận hồ sơ cấp sổ đỏ.
-- Cần đề xuất phương án tối ưu triển khai đầu tư dự án Cảng hàng không Côn Đảo bảo đảm đồng bộ, hiệu quả, báo cáo Thủ tướng Chính phủ trước ngày 7-10.
-- Theo Bộ Xây dựng việc phát triển nhà ở xã hội thời gian tới phải bảo đảm không gian sống xanh, tiết kiệm năng lượng.
-- Cơ quan chức năng trả lời cử tri liên quan đến kiến nghị đặt tên đường mang tên cố Bí thư Thành ủy Đà Nẵng Nguyễn Bá Thanh.
-- 100 suất quà tặng bà con ngư dân gồm bình ắc quy, đèn led, combo pin, túi thuốc, cuốn cẩm nang sẽ hỗ trợ và động viên ngư dân Hà Tĩnh yên tâm vươn khơi, bám biển.
-- Công ty cổ phần Lâm sản Quảng Trị tự nguyện tháo dỡ nhà xưởng, di dời máy móc để bàn giao 200m mặt bằng cuối cùng cho cao tốc Vạn Ninh - Cam Lộ.
-- Sau hơn 2 năm khởi công nâng cấp, đường gần nghìn tỉ về Núi Cấm đã chậm tiến độ hơn 30% so với kế hoạch. Điểm đầu đường tỉnh 948 giáp quốc lộ 91 đã vướng nhà vài cán bộ nên giải phóng mặt bằng cũng bị “tắc”.
-- Sở Giao thông vận tải TP.HCM vừa thông báo sẽ cấm xe nhiều đường trung tâm TP Thủ Đức phục vụ Giải chạy học sinh - sinh viên "S-Race 2024".
-- Thủ tướng Phạm Minh Chính gặp mặt các đại biểu Hội nghị Mạng lưới các nhà khoa học và kỹ sư nữ khu vực châu Á - Thái Bình Dương.
+- Sáng mai (7-10), Ủy ban Thường vụ Quốc hội sẽ xem xét, cho ý kiến vào nhiều nội dung quan trọng, trong đó có công tác nhân sự.
+- Lo phải chờ đến lượt lâu, nhiều người đã phải có mặt tại ga Sài Gòn (TP.HCM) từ 3-4h sáng để đợi mua vé tàu Tết Ất Tỵ.
+- Tỉnh Đồng Nai cho hay vẫn áp dụng cách tính theo giá đất cũ trong khi chờ điều chỉnh, ban hành bảng giá đất mới.
+- Tổng Bí thư, Chủ tịch nước Tô Lâm đề cao vai trò của chủ nghĩa đa phương, kêu gọi đổi mới Pháp ngữ theo hướng tập trung vào những ưu tiên của các thành viên.
+- Tin tức đáng chú ý: Từ 2025 giấy phép lái xe được cấp, đổi lại như thế nào?; Kỳ thi tốt nghiệp THPT năm 2025 sẽ thi 2 môn bắt buộc là toán, văn và 2 môn tự chọn...
+- Hôm nay 6-10, thời tiết Bắc Bộ vẫn duy trì nhiệt độ mát mẻ, có lúc lạnh, ngày nắng. Các tỉnh thành từ Đà Nẵng trở vào Nam Bộ mưa rào đến mưa to.
+- “Ai có gì góp nấy, ai có của góp của, ai có công góp công, ai có nhiều góp nhiều, có ít góp ít” để nhanh chóng kết thúc việc xóa nhà tạm, nhà dột nát cho đồng bào.
+- Phát biểu tại lễ khai mạc Ngày văn hóa Việt Nam - Hàn Quốc tại TP Cần Thơ, Tổng lãnh sự Hàn Quốc khẳng định sẽ tạo điều kiện để thế hệ tương lai của hai nước có thể giao lưu nhiều hơn, hỗ trợ kết nối các doanh nghiệp...
+- Triều cường chiều tối 5-10 đã vượt báo động 3, gây ngập nặng nhiều khu vực của Cần Thơ. Việc đi lại, mưu sinh của người dân vào giờ tan tầm và tối bị ảnh hưởng nặng nề.
+- Một hộ dân ở Lào Cai bất ngờ phát hiện 1 con cá sấu dài hơn 1m, nặng 7,5kg bơi trong bể cá koi của gia đình.
+- Tại dự thảo nghị định mới, Bộ Công an đã đề xuất nâng mức xử phạt tiền đối với một số hành vi vi phạm giao thông đường bộ, trong đó có vượt đèn đỏ.
+- Tài xế chưa có bằng lái, chạy chiếc xe khách 16 chỗ đã đậu tại điểm dừng khẩn cấp cao tốc Vĩnh Hảo - Phan Thiết để trải mền ngủ.
+- Cơn mưa lớn kèm dông quét qua trung tâm TP Biên Hòa (Đồng Nai) khiến hàng loạt cây xanh bật gốc, ngã đổ đè lên xe máy, nhà cửa, gây hư hại tại bệnh viện.
+- Hai nam thiếu niên 13 tuổi và 14 tuổi ở TP Tam Kỳ, Quảng Nam đã đập vỡ kính ô tô của người dân với mục đích tìm tài sản bán lấy tiền tiêu xài.
+- Bệnh viện Nhi Hà Nội (Yên Nghĩa, Hà Đông) với diện tích 6.700m² đã hoàn thành và dự kiến sẽ đi vào hoạt động từ ngày 9-10. Bệnh viện được kỳ vọng sẽ giảm tải cho Bệnh viện Nhi trung ương, đáp ứng nhu cầu chăm sóc sức khỏe cho người dân.
+- Liên quan vụ 21 con hổ, báo chết ở Đồng Nai, kết quả xét nghiệm 14 mẫu gộp các loài chim quý, gia cầm trong khu du lịch Vườn Xoài đều âm tính với cúm A/H5N1.
+- Hiệu trưởng Trường tiểu học Sơn Thành bị phụ huynh tố cáo, được chuyển công tác đến trường khác và tiếp tục làm hiệu trưởng. Những vấn đề phụ huynh tố cáo, thanh tra huyện Sơn Hà sẽ tiếp tục làm rõ.
+- Nhiều bạn đọc Tuổi Trẻ cho rằng nên mời chuyên gia đường sắt nước ngoài tới tìm nguyên nhân việc chỉ trong 2 tháng, có đến 6 vụ tàu hỏa trật bánh khỏi đường ray khi qua khu gian Lăng Cô - Thừa Lưu.
+- UBND thị trấn Cần Thạnh (Cần Giờ, TP.HCM) mời chủ khách sạn Gió Lộng lên làm việc 3 lần nhưng chưa gặp. Địa phương đang tiếp tục làm rõ để xử lý.
+- Hàng chục con hổ tại khu du lịch Vườn Xoài (Đồng Nai) chết do nhiễm cúm A/H5N1 và bước đầu nghi nguồn lây nhiễm là do thức ăn (thịt gà), nguy cơ lây sang người ra sao?
+- Mướp đắng rừng được coi là một dược liệu quý có nhiều tác dụng đối với sức khỏe nếu sử dụng đúng liều lượng.
+- Dự án phát triển tích hợp thích ứng tỉnh Quảng Nam với tổng vốn 113 triệu USD, trong đó nạo vét 60km sông Trường Giang, xây mới 6 cây cầu đã được Thủ tướng Chính phủ phê duyệt.
+- Xe đầu kéo chở thùng hàng 40 feet chạy trên tỉnh lộ 8 (huyện Củ Chi, TP.HCM) bất ngờ mất lái lao qua làn đường ngược lại, tông sập nhà dân. Bước đầu ghi nhận tài xế tử vong trên xe.
+- Liên quan vụ 21 con hổ, báo chết do nhiễm cúm A/H5N1, lực lượng chức năng Đồng Nai đã xác định đơn vị cung cấp thức ăn cho vật nuôi.
+- Rà soát lại các cơ chế đặc thù, đặc biệt, gắn với đơn giản hóa, cắt giảm bớt các thủ tục để rút ngắn thi công tuyến đường sắt tốc độ cao Bắc - Nam.
+- Ngày 5-10, Tỉnh ủy Đồng Tháp tổ chức lễ đón bằng công nhận Trường Chính trị tỉnh Đồng Tháp đạt chuẩn mức 1, đây là một trong hai trường đầu tiên của khu vực Đồng bằng sông Cửu Long được công nhận đạt chuẩn.
+- Ngành đường sắt vừa thông báo kết luận kết quả phân tích vụ tàu hàng H16 và tàu AH1 trật bánh tại khu vực giữa hai ga Lăng Cô - Thừa Lưu ngày 28-9.
+- Xe tải khi vào làn thu phí không giảm tốc độ nên đã tông vào một ô tô rồi tiếp tục tông vào cabin thu phí.
+- Chủ tịch Quốc hội nói Đảng đoàn Quốc hội sẵn sàng ủng hộ đề án về vành đai 4, đường sắt đô thị và Trung tâm tài chính quốc tế Việt Nam tại TP.HCM.
+- Sáng 5-10, 5 ô tô tông liên hoàn ở lối xuống cầu Thăng Long đoạn gần khu đô thị Ciputra (Hà Nội). Một chiếc xe con biến dạng do bị "kẹp" giữa ô tô tải và xe đầu kéo.
 ![New](News.png)
 ## Nhịp sống số 
 - Viettel đang tăng tốc chuyển đổi cho 500.000 thuê bao 2G cuối cùng trước ngày tắt sóng 15-10.
