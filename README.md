@@ -1,6 +1,11 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Bộ chứng chỉ PEIC là chuẩn năng lực tiếng Anh quốc tế bao gồm 4 kỹ năng (Nghe - Nói - Đọc - Viết) dành cho học sinh, sinh viên và người đi làm.
+- Nhiều người chán họp phụ huynh. Một phần vì chuyện tiền bạc, phần vì ban đại diện đại diện cha mẹ học sinh dường như không phải là đại diện cho phụ huynh lớp!
+- Đại học Quốc gia TP.HCM sẽ giảm bớt các phương thức tuyển sinh đại học năm 2025 xuống còn 3. Đồng thời khuyến khích các trường xây dựng phương thức xét tuyển kết hợp.
+- Kỷ nguyên trí tuệ mang lại nhiều cơ hội cho Việt Nam nhưng cũng cần phải thừa nhận những thách thức mà thời đại này đặt ra đối với xã hội.
+- Huyện ủy Hướng Hóa (Quảng Trị) nói không được bổ nhiệm lại nhiệm kỳ 3 vì sai quy định, nhưng ủy ban huyện vẫn ký bổ nhiệm lại.
 - Dự thảo thông tư sửa đổi, bổ sung quy chế tuyển sinh THCS và tuyển sinh THPT của Bộ GD-ĐT đang khiến dư luận xôn xao.
 - Hiệu trưởng Trường tiểu học Sơn Thành bị phụ huynh tố cáo, được chuyển công tác đến trường khác và tiếp tục làm hiệu trưởng. Những vấn đề phụ huynh tố cáo, thanh tra huyện Sơn Hà sẽ tiếp tục làm rõ.
 - Cứ vào giờ cao điểm, trước cổng một số trường học tại Đà Nẵng xảy ra tình trạng kẹt xe, giao thông lộn xộn. Nhiều phụ huynh, học sinh phải len lỏi giữa dòng xe đông đúc, tiềm ẩn nguy cơ tai nạn giao thông.
@@ -26,43 +31,38 @@
 - Thầy cô thân mật, hòa đồng với học trò là tốt. Nhưng sự dễ dãi, tùy tiện, kiểu "cá mè một lứa" là không thể chấp nhận.
 - Công an TP Tam Kỳ, Quảng Nam đã ra quyết định xử phạt vi phạm hành chính với phụ huynh xông vào lớp đánh học sinh lớp 8.
 - Yếu tố giáo viên, học sinh, phụ huynh và chương trình giảng dạy giúp đưa tiếng Anh thành ngôn ngữ thứ hai trong trường học thành công.
-- Thường trực Ủy ban Văn hóa, Giáo dục của Quốc hội đã trả lời ý kiến cử tri Tiền Giang đề nghị cần giám sát tối cao chất lượng đào tạo đại học.
-- "Trường tiểu học Hòa Phú không phải đóng tiền gì hết. Thầy hiệu trưởng dẹp luôn quỹ lớp nên phụ huynh không phải bàn tán gì hết, rất khỏe".
-- Honda Việt Nam (HVN) phối hợp cùng Ủy ban An toàn giao thông quốc gia và Bộ Giáo dục & Đào tạo tổ chức chương trình Trao tặng mũ bảo hiểm cho học sinh lớp 1 trên toàn quốc.
-- Đây là một trong nhiều thông tin về du học được đại diện Tổng lãnh sự quán Mỹ tại TP.HCM đưa ra tại Triển lãm giáo dục Mỹ (EducationUSA 2024) diễn ra chiều 3-10.
-- Liên quan tới vụ nam sinh thân mật với giáo viên ngay trên bục giảng, ông Nguyễn Quang Tuấn - phó giám đốc Sở Giáo dục và Đào tạo Hà Nội - cho biết cô giáo là người hòa đồng, thân mật với học sinh nhưng 'thiếu nghiệp vụ sư phạm'.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Sẽ có khoảng hơn 300 loại thuốc khác nhau về đến trạm y tế trên địa bàn TP.HCM trong tháng 10-2024.
+- Từ ngày 1-10, Bộ Tài chính đã đồng ý tăng hạn mức doanh số phát hành xổ số truyền thống thêm 10 tỉ đồng/ngày.
+- Liên quan vụ có nguy cơ mất trắng tiền vì công chứng ẩu, ông Võ Văn Thiện (trú Đà Nẵng) cho biết suốt những năm qua đã gửi đơn đến lần thứ 17.
+- Một số tin tức đáng chú ý: Thường vụ Quốc hội khai mạc phiên họp thứ 38; Tỉ lệ thất nghiệp của Việt Nam đã giảm; TP.HCM kiến nghị tăng mức hưởng trợ cấp thất nghiệp lên 75%; Thêm một đại gia 'phố núi' Gia Lai chậm trả nợ trái phiếu...
+- Hôm nay 7-10, thời tiết ba miền có sự phân hóa rõ rệt khi Bắc Bộ nắng, lạnh. Nam Bộ nhiều mây, mưa rào, Trung Bộ mưa to.
+- Tổng Bí thư, Chủ tịch nước Tô Lâm đã đến thành phố Montreuil và Sainte-Adresse, nơi có tượng và biển kỷ niệm hành trình gian nan tìm đường cứu nước của Bác Hồ.
+- Chiều 6-10, Binh chủng Công binh đã tiến hành khớp nối, lắp ghép lại cầu phao tạm Phong Châu (Phú Thọ), thông xe để người dân đi lại.
+- Gần một tháng sau khi bão số 3 đổ bộ, nhiều khu vực biển ở Quảng Ninh vẫn còn nhiều rác thải từ lồng bè nuôi trồng thủy sản trôi dạt chưa được thu dọn triệt để.
+- Cơ quan chức năng xác định có ít nhất 32 hài cốt liệt sĩ trong ngôi mộ chung vừa được phát hiện cạnh quốc lộ 19 qua thị trấn Đak Pơ (huyện Đak Pơ, tỉnh Gia Lai).
+- Thủ tướng Phạm Minh Chính sẽ dẫn đầu đoàn đại biểu Việt Nam tham dự chuỗi hoạt động quan trọng nhất năm của ASEAN.
+- Bạn đọc thắc mắc vì sao vé tàu Tết 2025 không cho mua online trả sau như các năm trước?
+- Liên quan vụ 21 con hổ, báo chết, lực lượng thú y đã tiêm vắc xin phòng cúm A/H5N1 cho toàn bộ gia cầm trong khu du lịch Vườn Xoài.
+- Tốc độ tăng trưởng kinh tế cao được duy trì trong 9 tháng năm 2024, GDP ước tăng 6,82% so với cùng kỳ năm trước.
+- Huyện ủy Hướng Hóa (Quảng Trị) nói không được bổ nhiệm lại nhiệm kỳ 3 vì sai quy định, nhưng ủy ban huyện vẫn ký bổ nhiệm lại.
+- Từng trải nghiệm đường sắt tốc độ cao tại các nước, PGS.TS Võ Trí Hảo nêu những ưu điểm nổi bật của đường sắt tốc độ cao.
+- Gần chục cơ quan có trụ sở tại các đường có cây lâu năm đã nhờ Công ty Công viên cây xanh TP.HCM thu gọn tán cây, cành lá vì sợ ngã trúng.
+- Cần áp dụng sinh trắc học đối với tài khoản doanh nghiệp, tài khoản nhận tiền để chặn đứng lừa đảo qua điện thoại.
+- Điểm nhấn ấn tượng là màn thực cảnh tái hiện thời khắc lịch sử trọng đại của thủ đô và đất nước ngày 10-10-1954.
+- Tuần này, từ ngày 6 đến 12-10, thời tiết Bắc Bộ trời lạnh, ngày nắng. Trung Bộ và Nam Bộ có mưa.
+- Những vấn đề được nêu ra dưới đây đều trực tiếp hoặc gián tiếp khiến bức tranh về nhà ở giá thấp mang gam màu tối.
+- Sau hơn 6h xe trộn bê tông bị tai nạn lật nằm chắn ngang quốc lộ 63 vẫn chưa nối lại lưu thông tuyến này được.
+- Cả trăm ngàn ha rừng ở Quảng Ninh, Hải Phòng bị gãy đổ sau bão số 3 đến nay đã thành củi khô.
+- Theo Bộ Công an, việc công khai kế hoạch tuần tra, xử lý vi phạm hành chính đang bị  lợi dụng gây khó khăn cho CSGT làm công tác trên đường.
+- Sau 2 ngày sử dụng phà quân sự để đưa người dân khu vực cầu Phong Châu, Phú Thọ qua sông, 12h ngày 6-10 quân đội lắp lại cầu phao.
+- Tổng sản phẩm trong nước (GDP) 9 tháng năm 2024 tăng 6,82% so với cùng kỳ năm trước, trong đó tăng trưởng GDP quý 3 đạt 7,4%.
+- Nội dung trên được các chuyên gia nêu tại diễn đàn Một Việt Nam toàn cầu tổ chức ngày 5-10 tại Paris (Pháp).
+- Gần 20 Sở Y tế phát thông báo khẩn về việc bị mạo danh kiểm tra an toàn thực phẩm cơ sở sản xuất, kinh doanh kiếm tiền "lo lót".
 - Sáng mai (7-10), Ủy ban Thường vụ Quốc hội sẽ xem xét, cho ý kiến vào nhiều nội dung quan trọng, trong đó có công tác nhân sự.
 - Lo phải chờ đến lượt lâu, nhiều người đã phải có mặt tại ga Sài Gòn (TP.HCM) từ 3-4h sáng để đợi mua vé tàu Tết Ất Tỵ.
 - Tỉnh Đồng Nai cho hay vẫn áp dụng cách tính theo giá đất cũ trong khi chờ điều chỉnh, ban hành bảng giá đất mới.
-- Tổng Bí thư, Chủ tịch nước Tô Lâm đề cao vai trò của chủ nghĩa đa phương, kêu gọi đổi mới Pháp ngữ theo hướng tập trung vào những ưu tiên của các thành viên.
-- Tin tức đáng chú ý: Từ 2025 giấy phép lái xe được cấp, đổi lại như thế nào?; Kỳ thi tốt nghiệp THPT năm 2025 sẽ thi 2 môn bắt buộc là toán, văn và 2 môn tự chọn...
-- Hôm nay 6-10, thời tiết Bắc Bộ vẫn duy trì nhiệt độ mát mẻ, có lúc lạnh, ngày nắng. Các tỉnh thành từ Đà Nẵng trở vào Nam Bộ mưa rào đến mưa to.
-- “Ai có gì góp nấy, ai có của góp của, ai có công góp công, ai có nhiều góp nhiều, có ít góp ít” để nhanh chóng kết thúc việc xóa nhà tạm, nhà dột nát cho đồng bào.
-- Phát biểu tại lễ khai mạc Ngày văn hóa Việt Nam - Hàn Quốc tại TP Cần Thơ, Tổng lãnh sự Hàn Quốc khẳng định sẽ tạo điều kiện để thế hệ tương lai của hai nước có thể giao lưu nhiều hơn, hỗ trợ kết nối các doanh nghiệp...
-- Triều cường chiều tối 5-10 đã vượt báo động 3, gây ngập nặng nhiều khu vực của Cần Thơ. Việc đi lại, mưu sinh của người dân vào giờ tan tầm và tối bị ảnh hưởng nặng nề.
-- Một hộ dân ở Lào Cai bất ngờ phát hiện 1 con cá sấu dài hơn 1m, nặng 7,5kg bơi trong bể cá koi của gia đình.
-- Tại dự thảo nghị định mới, Bộ Công an đã đề xuất nâng mức xử phạt tiền đối với một số hành vi vi phạm giao thông đường bộ, trong đó có vượt đèn đỏ.
-- Tài xế chưa có bằng lái, chạy chiếc xe khách 16 chỗ đã đậu tại điểm dừng khẩn cấp cao tốc Vĩnh Hảo - Phan Thiết để trải mền ngủ.
-- Cơn mưa lớn kèm dông quét qua trung tâm TP Biên Hòa (Đồng Nai) khiến hàng loạt cây xanh bật gốc, ngã đổ đè lên xe máy, nhà cửa, gây hư hại tại bệnh viện.
-- Hai nam thiếu niên 13 tuổi và 14 tuổi ở TP Tam Kỳ, Quảng Nam đã đập vỡ kính ô tô của người dân với mục đích tìm tài sản bán lấy tiền tiêu xài.
-- Bệnh viện Nhi Hà Nội (Yên Nghĩa, Hà Đông) với diện tích 6.700m² đã hoàn thành và dự kiến sẽ đi vào hoạt động từ ngày 9-10. Bệnh viện được kỳ vọng sẽ giảm tải cho Bệnh viện Nhi trung ương, đáp ứng nhu cầu chăm sóc sức khỏe cho người dân.
-- Liên quan vụ 21 con hổ, báo chết ở Đồng Nai, kết quả xét nghiệm 14 mẫu gộp các loài chim quý, gia cầm trong khu du lịch Vườn Xoài đều âm tính với cúm A/H5N1.
-- Hiệu trưởng Trường tiểu học Sơn Thành bị phụ huynh tố cáo, được chuyển công tác đến trường khác và tiếp tục làm hiệu trưởng. Những vấn đề phụ huynh tố cáo, thanh tra huyện Sơn Hà sẽ tiếp tục làm rõ.
-- Nhiều bạn đọc Tuổi Trẻ cho rằng nên mời chuyên gia đường sắt nước ngoài tới tìm nguyên nhân việc chỉ trong 2 tháng, có đến 6 vụ tàu hỏa trật bánh khỏi đường ray khi qua khu gian Lăng Cô - Thừa Lưu.
-- UBND thị trấn Cần Thạnh (Cần Giờ, TP.HCM) mời chủ khách sạn Gió Lộng lên làm việc 3 lần nhưng chưa gặp. Địa phương đang tiếp tục làm rõ để xử lý.
-- Hàng chục con hổ tại khu du lịch Vườn Xoài (Đồng Nai) chết do nhiễm cúm A/H5N1 và bước đầu nghi nguồn lây nhiễm là do thức ăn (thịt gà), nguy cơ lây sang người ra sao?
-- Mướp đắng rừng được coi là một dược liệu quý có nhiều tác dụng đối với sức khỏe nếu sử dụng đúng liều lượng.
-- Dự án phát triển tích hợp thích ứng tỉnh Quảng Nam với tổng vốn 113 triệu USD, trong đó nạo vét 60km sông Trường Giang, xây mới 6 cây cầu đã được Thủ tướng Chính phủ phê duyệt.
-- Xe đầu kéo chở thùng hàng 40 feet chạy trên tỉnh lộ 8 (huyện Củ Chi, TP.HCM) bất ngờ mất lái lao qua làn đường ngược lại, tông sập nhà dân. Bước đầu ghi nhận tài xế tử vong trên xe.
-- Liên quan vụ 21 con hổ, báo chết do nhiễm cúm A/H5N1, lực lượng chức năng Đồng Nai đã xác định đơn vị cung cấp thức ăn cho vật nuôi.
-- Rà soát lại các cơ chế đặc thù, đặc biệt, gắn với đơn giản hóa, cắt giảm bớt các thủ tục để rút ngắn thi công tuyến đường sắt tốc độ cao Bắc - Nam.
-- Ngày 5-10, Tỉnh ủy Đồng Tháp tổ chức lễ đón bằng công nhận Trường Chính trị tỉnh Đồng Tháp đạt chuẩn mức 1, đây là một trong hai trường đầu tiên của khu vực Đồng bằng sông Cửu Long được công nhận đạt chuẩn.
-- Ngành đường sắt vừa thông báo kết luận kết quả phân tích vụ tàu hàng H16 và tàu AH1 trật bánh tại khu vực giữa hai ga Lăng Cô - Thừa Lưu ngày 28-9.
-- Xe tải khi vào làn thu phí không giảm tốc độ nên đã tông vào một ô tô rồi tiếp tục tông vào cabin thu phí.
-- Chủ tịch Quốc hội nói Đảng đoàn Quốc hội sẵn sàng ủng hộ đề án về vành đai 4, đường sắt đô thị và Trung tâm tài chính quốc tế Việt Nam tại TP.HCM.
-- Sáng 5-10, 5 ô tô tông liên hoàn ở lối xuống cầu Thăng Long đoạn gần khu đô thị Ciputra (Hà Nội). Một chiếc xe con biến dạng do bị "kẹp" giữa ô tô tải và xe đầu kéo.
 ![New](News.png)
 ## Nhịp sống số 
 - Viettel đang tăng tốc chuyển đổi cho 500.000 thuê bao 2G cuối cùng trước ngày tắt sóng 15-10.
