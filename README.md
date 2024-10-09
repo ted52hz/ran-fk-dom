@@ -1,6 +1,20 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Thêm một sự cố liên quan kỳ thi vào lớp 10 vừa được thanh tra phát hiện: một thí sinh không đủ điểm đậu nhưng được công bố đỗ thủ khoa.
+- Theo đuổi chương trình giáo dục song ngữ theo tiêu chuẩn quốc tế, Royal School chú trọng lộ trình học tập phù hợp nhất với năng lực, thế mạnh của từng học sinh.
+- Sáu em học sinh mầm non 5 tuổi ở Nghệ An bị nhiều vết thương trên cơ thể, nghi do bị bạn đánh trong lớp học.
+- Bạn đọc kiến nghị trường nào để ban đại diện cha mẹ học sinh, hội phụ huynh thu quỹ lớp và các quỹ khác sai thì hiệu trưởng phải chịu trách nhiệm.
+- Giáo viên chủ nhiệm lớp 12A1 Trường THPT Nguyễn Văn Linh, quận 8, TP.HCM nhắn tin như ép học sinh đi học thêm.
+- Dự thảo Luật Nhà giáo đề xuất miễn học phí cho con đẻ và con nuôi hợp pháp của nhà giáo đang trong thời gian công tác.
+- Trong quá trình học tập, sinh hoạt, T.H.M. và T.T.T. nói xấu nhau dẫn đến mâu thuẫn. Sau đó M. dùng dao đâm bạn trọng thương ngay giữa lớp học.
+- Trưa 8-10, Trường tiểu học Nguyễn Đức Cảnh, Tp Buôn Ma Thuột (Đắk Lắk) bị mùi lạ tấn công khiến 2 giáo viên ngất xỉu.
+- Ngày 8-10, nhà ăn A15 của Đại học Bách khoa Hà Nội đã tạm dừng hoạt động sau phản ánh sinh viên phải ăn cơm canh thừa, có "dị vật".
+- Dù đã có điều lệ và các thông tư hướng dẫn về hoạt động của ban đại diện cha mẹ học sinh nhưng ở mỗi trường, mỗi lớp hoạt động của ban này lại khác nhau.
+- PGS.TS Vũ Thị Hiền sinh năm 1976. Trước khi giữ cương vị phó hiệu trưởng, bà là trưởng phòng quản lý đào tạo, Trường đại học Ngoại thương.
+- ĐH Quốc gia TP.HCM thống nhất chủ trương thực hiện 3 phương thức tuyển sinh đại học từ năm 2025. Các trường cho rằng việc cắt giảm phương thức xét tuyển sẽ công bằng hơn và giúp thí sinh đỡ rối.
+- Sinh viên hệ kỹ sư ngành công nghệ thực phẩm Trường đại học Công thương TP.HCM bức xúc nói đã bị khoa công nghệ thực phẩm "xù" học bổng đã bảo lưu trước đó.
+- Bộ GD-ĐT đang lấy ý kiến để xây dựng dự thảo thông tư sửa đổi, bổ sung quy chế tuyển sinh THCS và tuyển sinh THPT.
 - Với những dự án liên quan đến năng lượng tái tạo và phát triển bền vững, nữ sinh từ các tỉnh, thành trong nước và quốc tế đã đưa ra những sáng kiến mới lạ và thiết thực tại cuộc thi “STEAM For Girls - STEAM Xanh cho nữ sinh 2024”.
 - Đêm 7-10, Đại học Bách khoa Hà Nội đã có phản hồi liên quan phóng sự của VTV24 về việc nhiều tân sinh viên phản ánh phải ăn cơm canh thừa, có nhiều 'dị vật' bất thường.
 - Các tấm gương thanh niên khuyết tật tiêu biểu được tuyên dương đều là những thanh niên không cam chịu hoàn cảnh, nỗ lực vượt qua rào cản, khiếm khuyết để khẳng định giá trị bản thân và đóng góp cho xã hội.
@@ -17,54 +31,41 @@
 - Sáng nay 7-10, Trường phổ thông đặc biệt Nguyễn Đình Chiểu (quận 10, TP.HCM) tổ chức chia sẻ chuyên đề về phòng ngừa xâm hại tình dục cho học sinh khiếm thị.
 - Cục Quản lý chất lượng - Bộ Giáo dục và Đào tạo cho biết việc công nhận văn bằng chương trình liên kết đào tạo nước ngoài đang gặp nhiều khó khăn.
 - UBND TP.HCM vừa ban hành bộ tiêu chuẩn công nhận trường học số.
-- Trong bốn năm trở lại đây, Đại học Quốc gia TP.HCM chưa khởi công thêm công trình nào và đã phải hoàn trả ngân sách nhà nước gần 2.000 tỉ đồng.
-- Bộ chứng chỉ PEIC là chuẩn năng lực tiếng Anh quốc tế bao gồm 4 kỹ năng (Nghe - Nói - Đọc - Viết) dành cho học sinh, sinh viên và người đi làm.
-- Nhiều người chán họp phụ huynh. Một phần vì chuyện tiền bạc, phần vì ban đại diện đại diện cha mẹ học sinh dường như không phải là đại diện cho phụ huynh lớp!
-- Đại học Quốc gia TP.HCM sẽ giảm bớt các phương thức tuyển sinh đại học năm 2025 xuống còn 3. Đồng thời khuyến khích các trường xây dựng phương thức xét tuyển kết hợp.
-- Kỷ nguyên trí tuệ mang lại nhiều cơ hội cho Việt Nam nhưng cũng cần phải thừa nhận những thách thức mà thời đại này đặt ra đối với xã hội.
-- Huyện ủy Hướng Hóa (Quảng Trị) nói không được bổ nhiệm lại nhiệm kỳ 3 vì sai quy định, nhưng ủy ban huyện vẫn ký bổ nhiệm lại.
-- Dự thảo thông tư sửa đổi, bổ sung quy chế tuyển sinh THCS và tuyển sinh THPT của Bộ GD-ĐT đang khiến dư luận xôn xao.
-- Hiệu trưởng Trường tiểu học Sơn Thành bị phụ huynh tố cáo, được chuyển công tác đến trường khác và tiếp tục làm hiệu trưởng. Những vấn đề phụ huynh tố cáo, thanh tra huyện Sơn Hà sẽ tiếp tục làm rõ.
-- Cứ vào giờ cao điểm, trước cổng một số trường học tại Đà Nẵng xảy ra tình trạng kẹt xe, giao thông lộn xộn. Nhiều phụ huynh, học sinh phải len lỏi giữa dòng xe đông đúc, tiềm ẩn nguy cơ tai nạn giao thông.
-- Dự án HCMUS Future Leaders của Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) vừa chính thức khởi động với sự tham gia 70 cựu sinh viên, chuyên gia xây dựng môn học về kỹ năng mềm cho sinh viên.
-- Tổng giá trị học bổng hơn 392 triệu đồng, trích từ nguồn quỹ Đồng hành sinh viên của trường.
-- Số lượng thí sinh đăng ký xét tuyển vào Trường đại học Y Dược TP.HCM tăng trong 3 năm liên tiếp, dù học phí của trường luôn tăng.
-- Không thể có trường học hạnh phúc, học trò ngoan nếu gia đình nhà trường bỏ ngỏ, thiếu chăm lo những giá trị đạo đức, văn hóa.
-- Sáng nay 5-10, báo Tuổi Trẻ và Trường đại học Hoa Sen đã ký kết hợp tác đào tạo. Việc ký kết thỏa thuận hợp tác đào tạo diễn ra tại lễ khai giảng năm học 2024 - 2025 của Trường đại học Hoa Sen.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Sự xuất hiện của rùa biển cho thấy chất lượng môi trường biển vịnh Nha Trang đang có chuyển biến tích cực.
-- Theo phản ánh từ bạn đọc báo Tuổi Trẻ, hành khách bước ra khu vực gần nhà giữ xe sân bay Tân Sơn Nhất (TP.HCM) thường gặp một số người giả mạo GrabBike chèo kéo, hét giá cước gấp nhiều lần so với giá cước cuốc xe thực tế.
-- Liên quan quốc lộ 51 xuống cấp trầm trọng, Khu quản lý đường bộ IV (Cục Đường bộ Việt Nam, Bộ Giao thông vận tải) cho hay sẽ tạm đóng một đoạn trên quốc lộ 51 để sửa chữa.
-- Chủ dự án khu đô thị mới Lê Hồng Phong II phải nộp hơn 1.242 tỉ đồng tiền sử dụng đất cho một phần trong tổng diện tích gần 101ha.
-- Tin tức đáng chú ý: Những ai được đi tàu hoặc bay miễn phí về quê dịp Tết 2025?; Doanh nghiệp thép đồng loạt tăng giá; Đề xuất cấm doanh nghiệp nhà nước đầu tư vốn vào bất động sản...
-- Hôm nay 8-10, thời tiết cả nước không có chuyển biến rõ, miền Bắc trời lạnh, ngày nắng. Miền Trung và miền Nam mưa dông.
-- Tuyên bố chung nâng cấp quan hệ Việt Nam và Pháp khẳng định làm sâu sắc hơn hợp tác chính trị, tăng cường hợp tác quốc phòng và an ninh, quan hệ kinh tế, phát triển bền vững và thúc đẩy giao lưu nhân dân.
-- Tối 7-10, chủ đại lý vé số Lý Sang ở huyện Hóc Môn (TP.HCM) cho biết một người lấy vé số từ đại lý đi bán dạo, khi 'ôm' vé số ế đã may mắn trúng độc đắc 11 tờ đài Đà Lạt.
-- Ngày 7-10, Thủ tướng Chính phủ đã ký quyết định tặng bằng khen cho ba cá nhân thuộc tỉnh Lào Cai.
-- Tổng Bí thư, Chủ tịch nước Tô Lâm nhấn mạnh sau nửa thế kỷ thiết lập quan hệ ngoại giao, trong bối cảnh mới, hơn lúc nào hết, hai nước cần nâng cấp quan hệ lên tầm cao mới.
-- Thủ tướng Chính phủ đã ký quyết định về việc thi hành kỷ luật đối với ông Lê Ánh Dương, chủ tịch Ủy ban nhân dân tỉnh Bắc Giang.
-- Đó là khẳng định của Thủ tướng Phạm Minh Chính và Chủ tịch WEF Klaus Schwab tại ĐHQG Hà Nội chiều 7-10. Sự kiện kéo dài hơn dự kiến, với những lời khuyên dành cho các bạn trẻ.
-- Thứ trưởng Bộ Lao động, Thương binh và Xã hội đã có trả lời về lý do sau 3 tháng người có công chưa nhận được mức trợ cấp ưu đãi mới.
-- Với đường bộ nằm trong khu vực đông dân cư, nếu có điều kiện thuận lợi để đảm bảo an toàn giao thông, cơ quan quản lý đường có thể quyết định tốc độ tối đa lớn hơn quy định chung.
-- Các đơn vị ở TP.HCM sẽ rà soát việc đặt, đổi tên đường và làm rõ trách nhiệm đối với trường hợp sai quy định.
-- Trong cơn mưa lớn chiều tối 7-10, một cây xanh ở quận 1, TP.HCM đã bật gốc đè trúng người đi đường.
-- Sau khi cùng hai người khác bắt được con tê tê Java bị thương tại khu đất trống ở phường Long Trường (TP Thủ Đức), ông Nguyễn Viết Thuận đã giao cho Chi cục Kiểm lâm TP.HCM.
-- Theo Thứ trưởng Phạm Ngọc Thưởng, việc cố định môn thi lớp 10 có thể gây ra tình trạng học tủ, học lệch nên bộ có tính đến phương án bốc thăm môn thi thứ ba.
-- Đại diện Sheraton Saigon Grand Opera Hotel và đơn vị chủ quản là Công ty Liên doanh Đại Dương đã ủng hộ 1,5 tỉ đồng hỗ trợ đồng bào miền Bắc.
-- Ngày 7-10, Công an quận Bình Tân, TP.HCM vừa phát đi thông tin cảnh báo thủ đoạn lừa đảo học phí học lái xe ô tô.
-- Việc bắt giữ hai người cùng 30kg ma túy đá là chiến công lớn nhất từ trước tới nay của lực lượng Bộ đội biên phòng tỉnh Tây Ninh trong đấu tranh, phòng chống tội phạm ma túy dọc biên giới Campuchia.
-- Chủ tịch UBND TP Cà Mau áp dụng biện pháp khắc phục hậu quả với chủ biệt thự 'đẹp nhất Cà Mau' trong quyết định xử phạt vi phạm hành chính là không phù hợp.
-- Một tàu cá tại khu vực ấp Hòn Mấu (huyện Kiên Hải, Kiên Giang) chở 13kg thuốc nổ để đánh bắt thủy sản.
-- Là tỉnh có diện tích lớn nhất cả nước và dân số hơn 3,4 triệu người, nhưng đến nay tỉnh Nghệ An vẫn chưa có lò hỏa táng người đã qua đời.
-- Liên quan đến việc Công ty Xổ số kiến thiết tỉnh Sóc Trăng thành lập hai đoàn đi nước ngoài học tập kinh nghiệm ở châu Âu làm xôn xao dư luận, bí thư Tỉnh ủy Sóc Trăng nói gì?
-- Theo thứ trưởng Bộ Nội vụ, một số bộ ngành còn tâm lý nể nang, né tránh, ngại phân cấp xuống địa phương vì lo chưa đảm bảo thực hiện được. Do đó Thủ tướng tiếp tục có chỉ đạo quyết liệt đẩy mạnh phân cấp phân quyền.
-- Việc cải tạo, xây dựng lại nhà chung cư cũ ở Nghệ An đã đạt được nhiều kết quả tích cực. Tuy nhiên, tại thành phố Vinh vẫn còn một số chung cư cũ nay đã xuống cấp.
-- Nếu nước lũ ở trạm thủy văn Trà Khúc đạt mức báo động 3, cơ quan chức năng sẽ đóng cầu Trà Khúc 1, người và xe cộ không được qua cầu.
-- Sau khi ngừng thu phí gần 2 năm, quốc lộ 51 hư hỏng ngày càng nặng. Nhiều vụ tai nạn giao thông xảy ra gây nguy hiểm cho xe cộ qua lại.
-- Dự thảo nêu rõ cử tri, nhân dân thấy thuế thu nhập cá nhân và mức giảm trừ gia cảnh chưa được sửa đổi gây tác động không tích cực đến chính sách tiền lương mới từ ngày 1-7-2024.
+- Đảng ủy xã Pa Nang nhưng lại lãnh đạo UBND xã Ba Nang và nhiều hội đoàn thể khác cũng lẫn lộn tên giữa Pa Nang và Ba Nang.
+- Trải qua 30 năm xây dựng và phát triển, Đại học Quốc gia TP.HCM đã dần hình thành diện mạo một đô thị đại học hiện đại. Tuy nhiên, hạ tầng nhiều nơi vẫn bị nghẽn, một số mặt bằng bị lấn chiếm trái phép, “lởm chởm da beo”.
+- Tin tức đáng chú ý: Công đoàn Việt Nam vẫn giữ đề xuất mức phí 2%, vì sao?; Lập hồ sơ phương án ứng phó tình huống khẩn cấp với hồ Dầu Tiếng; Phê duyệt chủ trương đầu tư xây dựng cầu Đình Khao nối 2 tỉnh Vĩnh Long và Bến Tre...
+- Hôm nay 9-10, thời tiết Bắc Bộ duy trì ngày nắng, đêm và sáng trời lạnh. Nam Bộ tiếp tục mưa to kèm sấm chớp nguy hiểm.
+- Sau cơn mưa lớn chiều 8-10, mặt đường số 5, TP Thủ Đức (TP.HCM) bị bong tróc, xuất hiện hố sâu khoảng 1,5m, đường kính khoảng 2m ngay gần nắp cống.
+- Mưa lớn kéo dài nhiều giờ đã khiến khu vực suối Đờ Le (huyện Đức Trọng, tỉnh Lâm Đồng) ngập sâu, khiến 10 người dân bị mắc kẹt. Lực lượng chức năng đã giải cứu.
+- Tổng số nộp ngân sách của Tập đoàn Hòa Phát trong 9 tháng đầu năm tăng vọt tới 65% so với cùng kỳ, lên tới 10.000 tỉ đồng, gần bằng số thu ngân sách của một thành phố trực thuộc trung ương là Cần Thơ.
+- Tỉnh ủy Sóc Trăng khẳng định đã giao UBND tỉnh rà soát để cung cấp thông tin về đoàn xổ số kiến thiết đi châu Âu học tập kinh nghiệm được dư luận quan tâm. Còn UBND tỉnh nói chưa nhận được chỉ đạo.
+- Chiều 8-10, Thủ tướng Phạm Minh Chính đã dự và phát biểu tại Hội nghị thượng đỉnh về kinh doanh và đầu tư ASEAN (ASEAN BIS) 2024.
+- Chiều đến tối 8-10, nhiều tuyến đường quanh bến xe Miền Đông cũ, quận Bình Thạnh, TP.HCM kẹt xe 'như nêm', người dân không lối nào thoát.
+- Trong dự án Luật Công nghiệp công nghệ số, Chính phủ đề xuất các nội dung để phát triển ngành công nghiệp công nghệ số, trong đó có trí tuệ nhân tạo (AI) và quy định về tài sản số.
+- Ủy ban Thường vụ Quốc hội đã thống nhất về việc điều chỉnh kế hoạch đầu tư công nguồn ngân sách trung ương năm 2024.
+- Sở Giao thông vận tải TP.HCM thông báo điều chỉnh tổ chức giao thông một số tuyến đường ở quận 1, nhằm phục vụ Giải chạy đêm quận 1 năm 2024.
+- Đó là khẳng định của Tổng Bí thư, Chủ tịch nước Lào Thongloun Sisoulith khi gặp Thủ tướng Phạm Minh Chính ngày 8-10 tại Vientiane (Lào).
+- Giải ngân vốn đầu tư công là nhiệm vụ hàng đầu của TP.HCM các tháng cuối năm. Tập trung kiểm tra, uốn nắn, xử lý những trường hợp không hoàn thành nhiệm vụ do nguyên nhân chủ quan.
+- Thành phố Hải Phòng kiến nghị Chính phủ sớm chấp thuận gia hạn dự án Trung tâm hội nghị, thương mại và du lịch quốc tế (dự án casino Đồ Sơn) để tạo thuận lợi cho doanh nghiệp.
+- Đây là lần đầu tiên Thủ tướng Trung Quốc Lý Cường thăm Việt Nam, diễn ra gần một năm sau chuyến thăm của Tổng Bí thư, Chủ tịch nước Trung Quốc Tập Cận Bình.
+- Các câu hỏi trong cuộc thi tập trung vào nội dung cuốn sách “Xây dựng và phát triển nền văn hóa Việt Nam tiên tiến, đậm đà bản sắc dân tộc” của cố Tổng Bí thư Nguyễn Phú Trọng.
+- Sở Giao thông vận tải TP.HCM vừa báo cáo UBND TP.HCM phương án khai thác cầu bến B - Ba Son, quận 1.
+- Tàu cảnh sát biển Indonesia mang số hiệu 323 đã cập cảng ở TP Vũng Tàu, trong chuyến thăm xã giao tại địa phương này.
+- Cùng với việc phê bình 31 bộ, cơ quan trung ương và 23 địa phương có tỉ lệ giải ngân dưới mức trung bình, Thủ tướng yêu cầu thay thế cán bộ yếu kém, nhũng nhiễu trong triển khai đầu tư công.
+- Thứ trưởng Bộ Tài nguyên và Môi trường kiến nghị Thủ tướng chỉ đạo các địa phương khi tổ chức đấu giá đất phải công khai quy hoạch, công khai người bỏ cọc nhằm hạn chế việc trục lợi, thổi giá, gây nhiễu loạn thị trường bất động sản.
+- Mông Cổ, Ireland và Pháp đã dành cho Tổng Bí thư, Chủ tịch nước Tô Lâm sự tiếp đón trọng thị và nhiều biệt lệ, cho thấy sự coi trọng cao độ vị thế của Việt Nam.
+- Chi phí giải phóng mặt bằng tăng và việc bổ sung nút giao Mỹ Xuân - Ngãi Giao, khiến dự án cao tốc Biên Hòa - Vũng Tàu dự kiến tăng tổng mức đầu tư thêm khoảng 5.400 tỉ đồng.
+- Vụ cánh quạt điện gió rơi xuống vuông tôm, người dân đòi bồi thường hơn 160 tỉ đồng đã có kết quả thương lượng cuối cùng là người dân được bồi thường... 500 triệu đồng.
+- Sở Giao thông vận tải TP.HCM vừa giao Trung tâm Quản lý hạ tầng giao thông đường bộ rà soát, yêu cầu khắc phục bất cập giao thông đường Huỳnh Tấn Phát.
+- Sáu em học sinh mầm non 5 tuổi ở Nghệ An bị nhiều vết thương trên cơ thể, nghi do bị bạn đánh trong lớp học.
+- TP Phú Quốc tổ chức cưỡng chế và buộc khắc phục hậu quả đối với những hộ dân có hành vi chiếm sử dụng với diện tích đất hơn 3.800m² ở ấp Suối Lớn, xã Dương Tơ.
+- Bộ Công an và Tỉnh ủy Trà Vinh tổ chức lễ khánh thành và bàn giao 1.300 căn nhà tặng hộ nghèo, hộ cận nghèo, hộ khó khăn về nhà ở thuộc diện gia đình chính sách, có công với cách mạng và đồng bào dân tộc Khmer ở Trà Vinh.
+- Mỗi chấp hành viên tại Chi cục Thi hành án dân sự TP Thủ Đức phải thụ lý 400-500 việc/năm, khối lượng công việc lớn nhưng biên chế thiếu rất nhiều.
 ![New](News.png)
 ## Nhịp sống số 
+- Hai website giả mạo ứng dụng Zalo do kẻ xấu tạo ra để lừa người sử dụng đang có hàng triệu lượt truy cập mỗi ngày.
 - Ngày 3-10, FPT Telecom International (FTI) công bố hợp tác chiến lược cùng SolarWinds ra mắt mô hình giám sát CNTT thế hệ mới, đáp ứng đa dạng quy mô và nhu cầu của doanh nghiệp Việt Nam.
 - Viettel đang tăng tốc chuyển đổi cho 500.000 thuê bao 2G cuối cùng trước ngày tắt sóng 15-10.
 - FPT Shop mở bán iPhone 16 Series trên toàn quốc
@@ -94,5 +95,4 @@
 - TS Jeff Dean - đồng sáng lập Google Translate, Google Brain hay Gemini - lần đầu tiên có những chia sẻ trực tiếp về AI với cộng đồng công nghệ Việt Nam.
 - Ngày 18-8, Hội nghị GenAI Summit 2024 về trí tuệ nhân tạo với chủ đề “Chân Trời Mới” diễn ra tại TPHCM.
 - Theo Open AI, việc giao tiếp nhiều với ChatGPT có thể khiến người dùng trở nên kém khéo léo hoặc ít muốn tương tác với con người hơn.
-- Sự cố mới đây của Gmail khiến hàng nghìn người không thể gửi email hoặc tin nhắn thông qua dịch vụ này.
 ![life](Life.png)
