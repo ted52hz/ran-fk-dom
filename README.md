@@ -1,71 +1,76 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
-- Đại biểu Quốc hội Nguyễn Thị Việt Nga cho rằng với đề xuất miễn học phí cho con giáo viên rất cần đánh giá tác động kỹ trước khi quyết định và "nói để tôn vinh nhà giáo hay nhà giáo là đối tượng yếu thế, thu nhập thấp là không đúng, không hợp lý".
-- Liên quan vụ ghi nhầm điểm thi của một thí sinh tham dự kỳ thi tuyển sinh vào lớp 10 Trường THPT Lê Hồng Phong từ thủ khoa thành trượt, một giáo viên nhận hình thức khiển trách.
-- Trong bảng xếp hạng đại học của Times Higher Education (THE) năm nay, Đại học Oxford đứng nhất, trong khi Việt Nam có 9 đại diện.
-- Phó thủ tướng Lê Thành Long giao Bộ Giáo dục và Đào tạo chủ trì khẩn trương chỉ đạo kiểm tra, xử lý nghiêm các sai phạm liên quan thông tin báo chí nêu sinh viên phản ánh phải ăn cơm canh thừa, có 'dị vật'.
-- Ông Lê Hồng Sơn - thành ủy viên, phó trưởng Ban thường trực Ban Tuyên giáo Thành ủy TP.HCM - đã nhấn mạnh như vậy tại tọa đàm ngày 9-10.
-- Gia đình không liên lạc được với học sinh này từ ngày 4-10, đến nay là 5 ngày.
-- Hội đồng Giáo sư nhà nước vừa công bố danh sách 582 ứng viên được hội đồng giáo sư ngành, liên ngành đề nghị xét công nhận đạt tiêu chuẩn chức danh giáo sư, phó giáo sư năm 2024.
-- Trần Trung Kiên, học sinh Trường THPT Lê Hồng Phong Phú Yên, chia sẻ việc chuẩn bị cho chặng đua cuối Đường lên đỉnh Olympia năm 2024.
-- Sau trận mưa lớn, tường rào trường học ở Bình Phước đổ sập. Hàng loạt xe chết máy, hư hỏng do nước ngập.
-- Chủ tịch hội đồng chấm thi vào lớp 10 Trường Lê Hồng Phong nhận trách nhiệm, xin lỗi phụ huynh và thí sinh vì để xảy ra vụ việc ghi nhầm điểm.
-- Chuyện không thu quỹ trường, quỹ lớp lẽ ra là chuyện bình thường lại trở thành "độc, lạ" những ngày gần đây. Vì sao?
-- Giấy báo thu và thanh toán tháng 9-2024 của một học sinh Trường tiểu học Lương Thế Vinh, TP Thủ Đức, TP.HCM có tới 15 khoản thu.
-- Lâu nay ban đại diện cha mẹ học sinh đã bị nhiều phụ huynh đặt cho biệt danh là 'ban thu tiền'.
-- Chiều 8-10, học sinh các khối của Trường THCS Kim Đồng (quận 5, TP.HCM) tham quan trải nghiệm thực tế tại Nhà máy mì Acecook Việt Nam.
-- Bộ Giáo dục và Đào tạo đề xuất miễn học phí cho con giáo viên, từ mầm non đến đại học, chi phí dự kiến khoảng 9.200 tỉ đồng mỗi năm.
-- Thêm một sự cố liên quan kỳ thi vào lớp 10 vừa được thanh tra phát hiện: một thí sinh không đủ điểm đậu nhưng được công bố đỗ thủ khoa.
-- Theo đuổi chương trình giáo dục song ngữ theo tiêu chuẩn quốc tế, Royal School chú trọng lộ trình học tập phù hợp nhất với năng lực, thế mạnh của từng học sinh.
-- Sáu em học sinh mầm non 5 tuổi ở Nghệ An bị nhiều vết thương trên cơ thể, nghi do bị bạn đánh trong lớp học.
-- Bạn đọc kiến nghị trường nào để ban đại diện cha mẹ học sinh, hội phụ huynh thu quỹ lớp và các quỹ khác sai thì hiệu trưởng phải chịu trách nhiệm.
-- Giáo viên chủ nhiệm lớp 12A1 Trường THPT Nguyễn Văn Linh, quận 8, TP.HCM nhắn tin như ép học sinh đi học thêm.
-- Dự thảo Luật Nhà giáo đề xuất miễn học phí cho con đẻ và con nuôi hợp pháp của nhà giáo đang trong thời gian công tác.
-- Trong quá trình học tập, sinh hoạt, T.H.M. và T.T.T. nói xấu nhau dẫn đến mâu thuẫn. Sau đó M. dùng dao đâm bạn trọng thương ngay giữa lớp học.
-- Trưa 8-10, Trường tiểu học Nguyễn Đức Cảnh, Tp Buôn Ma Thuột (Đắk Lắk) bị mùi lạ tấn công khiến 2 giáo viên ngất xỉu.
-- Ngày 8-10, nhà ăn A15 của Đại học Bách khoa Hà Nội đã tạm dừng hoạt động sau phản ánh sinh viên phải ăn cơm canh thừa, có "dị vật".
-- Dù đã có điều lệ và các thông tư hướng dẫn về hoạt động của ban đại diện cha mẹ học sinh nhưng ở mỗi trường, mỗi lớp hoạt động của ban này lại khác nhau.
-- PGS.TS Vũ Thị Hiền sinh năm 1976. Trước khi giữ cương vị phó hiệu trưởng, bà là trưởng phòng quản lý đào tạo, Trường đại học Ngoại thương.
-- ĐH Quốc gia TP.HCM thống nhất chủ trương thực hiện 3 phương thức tuyển sinh đại học từ năm 2025. Các trường cho rằng việc cắt giảm phương thức xét tuyển sẽ công bằng hơn và giúp thí sinh đỡ rối.
-- Sinh viên hệ kỹ sư ngành công nghệ thực phẩm Trường đại học Công thương TP.HCM bức xúc nói đã bị khoa công nghệ thực phẩm "xù" học bổng đã bảo lưu trước đó.
-- Bộ GD-ĐT đang lấy ý kiến để xây dựng dự thảo thông tư sửa đổi, bổ sung quy chế tuyển sinh THCS và tuyển sinh THPT.
-- Với những dự án liên quan đến năng lượng tái tạo và phát triển bền vững, nữ sinh từ các tỉnh, thành trong nước và quốc tế đã đưa ra những sáng kiến mới lạ và thiết thực tại cuộc thi “STEAM For Girls - STEAM Xanh cho nữ sinh 2024”.
+- Mẹ ốm đau triền miên, cha lao động vất vả nên sức khỏe ngày càng giảm sút, đứa con nỗ lực học và nay đã trở thành thủ khoa đầu vào Trường ĐH Y Dược TP.HCM.
+- Năm học 2024-2025, tất cả trường mầm non ở quận 1 đều công khai bữa ăn bán trú, trưng bày thức ăn thực tế của học sinh mỗi ngày.
+- Trước khi bước vào phòng làm bài thi, gần 100 học sinh ở quận Tân Bình, TP.HCM đã trải nghiệm các trò chơi dân gian như ném còn, chơi banh đũa, ô ăn quan…
+- Chủ tịch UBND huyện Hướng Hóa đã chỉ đạo cơ quan chuyên môn làm quy trình điều động nữ hiệu trưởng mầm non vừa được bổ nhiệm lại nhiệm kỳ 3 qua trường khác.
+- Không mới nhưng chưa bao giờ hạ nhiệt - chính là cách để miêu tả về ngành Công nghệ thông tin.
+- Ngoài việc miễn học phí 4 năm đại học, Trường đại học Mở TP.HCM cấp học bổng từ 50-200% học phí năm nhất cho các tân sinh viên là thủ khoa, á khoa đầu vào.
+- 'Cuộc đời em gắn liền với bốn lần nắm tay. Đó là lúc ba mẹ nắm tay em khi em chào đời. Hai lần khác là khi ba, mẹ nói lời tạm biệt với thế giới. Thầy cô đã nắm tay em lần nữa và nói rằng phải tiếp tục tiến về phía trước'.
+- Võ Quang Phú Đức - quán quân Đường lên đỉnh Olympia 2024 - đã có những trải lòng sau khi giành được vòng nguyệt quế và chuyện bấm chuông ở câu trả lời cuối cùng đang ồn ào trên mạng xã hội.
+- Bộ trưởng Bộ Giáo dục và Đào tạo Nguyễn Kim Sơn đã trả lời kiến nghị cử tri tỉnh An Giang gửi kỳ họp thứ 7, Quốc hội khóa XV liên quan sách giáo khoa, học phí.
+- Dự thảo Luật Nhà giáo mới nhất đã bỏ nội dung quy định về chứng chỉ hành nghề nhà giáo nhưng quan điểm của ban soạn thảo việc này sẽ vẫn tiến hành nghiên cứu, thí điểm.
+- Tiến sĩ Randall Martin - giám đốc điều hành, Hội đồng giáo dục quốc tế British Columbia (Canada) - cho biết đang ghi nhận một sự chuyển biến đáng kể trong việc lựa chọn ngành học của các sinh viên Việt Nam đến Canada.
+- Trường đại học Thủ Dầu Một đã nộp lại ngân sách 37 tỉ đồng thu sai học phí mà không hoàn trả sinh viên.
+- Theo Bộ Giáo dục và Đào tạo, việc tổ chức kỳ thi tốt nghiệp THPT để xét công nhận tốt nghiệp THPT đã được quy định trong Luật Giáo dục.
+- Huỳnh Ngọc Hiếu (19 tuổi) vừa giành học bổng toàn phần của Trường ĐH RMIT. Đáng nể hơn, Hiếu cũng đang là sinh viên của ĐH Kinh tế TP.HCM và sẽ học hai trường cùng lúc.
+- Thống kê từ IELTS cho thấy điểm thi phổ biến nhất của thí sinh Việt Nam là 6.0, trong khi đó chỉ 1% thí sinh đạt trên điểm 8.5.
+- Tính đến tháng 9-2024, cả nước có 1.886 cơ sở giáo dục nghề nghiệp, bao gồm 399 trường cao đẳng, 429 trường trung cấp và 1.058 trung tâm giáo dục nghề nghiệp.
+- GS.TS Nguyễn Hữu Tú, hiệu trưởng Trường đại học Y Hà Nội, vừa được Chính phủ Pháp trao tặng huân chương Cành cọ hàn lâm vì những đóng góp trong sự phát triển hợp tác y khoa giữa hai nước.
+- Công an tỉnh Nam Định đang phối hợp cùng các đơn vị liên quan điều tra nguyên nhân bé gái 2 tuổi tử vong tại Trường mầm non xã Nam Điền, huyện Nghĩa Hưng.
+- Ở tuổi 24, Đặng Nhật Uyên trở thành người sáng lập dự án phi lợi nhuận về môi trường Bin with Benefits tại các trường tiểu học ở TP Nha Trang (tỉnh Khánh Hòa), được cộng đồng hưởng ứng tích cực.
+- Các đối tượng khai nhận đã tổ chức thi và cấp khoảng 4.200 chứng chỉ tiếng Anh mang tên Cambridge International với giá từ 2,3 - 18 triệu đồng/chứng chỉ.
+- 200 suất học bổng nằm trong chương trình hỗ trợ đồng bào bị thiệt hại do bão lũ ở các tỉnh phía Bắc do báo Tuổi Trẻ phát động đã được Hội Nhà báo Việt Nam trao đến các em học sinh Cao Bằng.
+- Trường đại học Công nghiệp TP.HCM đã xây dựng quỹ hỗ trợ người học với tổng số tiền lên đến 70 tỉ đồng, nhằm khen thưởng sinh viên giỏi và giúp sinh viên khó khăn không bị gián đoạn việc học trong năm học này.
+- Giải thưởng Trường học sinh thái ASEAN Việt Nam năm 2024 nhằm đảm bảo cam kết quốc gia cũng như tạo động lực để thúc đẩy việc thực hiện mô hình trường học sinh thái, trường học xanh tại Việt Nam.
+- Trường đại học FPT cơ sở TP.HCM vừa phát cảnh báo về bên trung gian có dấu hiệu lừa đảo chiếm đoạt tiền thuê nhà của sinh viên.
+- Sáng 14-10, tại Trường THPT Nguyễn Thị Minh Khai, quận 3, TP.HCM đã diễn ra chương trình 'Tuyên truyền kỹ năng lái xe an toàn và phổ biến các quy định pháp luật về trật tự an toàn giao thông', thu hút sự tham gia của hơn 2.000 học sinh.
+- Từ "xin" trong các mẫu đơn đã lỗi thời nhưng thời gian qua, ở nhiều lĩnh vực, ngành nghề khác vẫn chưa mạnh dạn thay đổi.
+- Luật Nhà giáo mới ở giai đoạn chuẩn bị trình ra Quốc hội nhưng đã thu hút sự chú ý của dư luận.
+- Các thầy cô hãy luôn linh hoạt khi ứng xử ở môi trường giáo dục. Trong đó, cần nhân rộng cách làm nhân văn "đọc và suy ngẫm" thay vì kỷ luật.
+- Vừa nhắn vào group gia đình một thông tin nhỏ, cậu nhóc lớp 10 đang giờ học tại trường trả lời tức thì. Cả nhà nhao lên sao con đang học mà xài điện thoại?
+- Ủy ban Thường vụ Quốc hội yêu cầu tiếp tục rà soát, hoàn thiện các chính sách đối với nhà giáo theo hướng thận trọng, nhất quán, khả thi, có sự đột phá.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Năm 2025, ba bệnh viện cửa ngõ TP.HCM gồm bệnh viện đa khoa khu vực ở Hóc Môn, Củ Chi và Thủ Đức sẽ chính thức vận hành.
-- Từ ngày 7-10-2024, tại Hà Nội, diện tích mỗi mảnh đất ở sau khi tách thửa không được nhỏ hơn 50m2.
-- Một số tin tức đáng chú ý: Sau tăng nóng, giá chung cư cũ Hà Nội bình quân 46 triệu đồng/m2; Một tập đoàn bị xử phạt vì 'ém' nhiều loại báo cáo; Thêm nhiều bộ thống nhất nghỉ Tết 9 ngày liên tiếp...
-- Gặp Thủ tướng Phạm Minh Chính ngày 9-10, cả hai lãnh đạo Thái Lan và Brunei đều khẳng định sẽ thu xếp để sớm thăm Việt Nam.
-- Đó là bày tỏ của Thủ tướng Singapore Lawrence Wong tại cuộc hội đàm với Thủ tướng Phạm Minh Chính ngày 9-10, khi lần đầu tiên hai bên gặp nhau trực tiếp.
-- Hôm nay 10-10, thời tiết Nam Bộ tiếp tục mưa to nhiều nơi. Bắc Bộ trời mát, Trung Bộ giảm mưa.
-- Tập đoàn Adani (Ấn Độ) cùng với Vietjet đang nghiên cứu tiền khả thi đầu tư sân bay Chu Lai, Quảng Nam.
-- Phó thủ tướng Lê Thành Long giao Bộ Giáo dục và Đào tạo chủ trì khẩn trương chỉ đạo kiểm tra, xử lý nghiêm các sai phạm liên quan thông tin báo chí nêu sinh viên phản ánh phải ăn cơm canh thừa, có 'dị vật'.
-- UBND TP.HCM vừa có quyết định quy định hạn mức đất ở được công nhận đối với hộ gia đình, cá nhân sử dụng trước 15-10-1993.
-- Nhiều dự án bất động sản, du lịch lớn tại tỉnh Phú Yên bị Thanh tra Chính phủ điểm tên vì sai phạm liên quan giao đất, đấu giá đất, lựa chọn nhà đầu tư...
-- Thành ủy TP.HCM cấm cán bộ sử dụng ngân sách đi nước ngoài vì việc riêng hoặc kinh phí do các doanh nghiệp tổ chức và đài thọ.
-- Trận lốc xoáy xảy ra tại xã Trí Phải, huyện Thới Bình, Cà Mau làm 16 căn nhà bị thiệt hại, 6 người bị thương, trong đó có trẻ em.
-- Đây là khẳng định của Hội đồng Tư vấn kinh doanh ASEAN tại cuộc đối thoại với các lãnh đạo ASEAN ngày 9-10 tại Lào. Thủ tướng Phạm Minh Chính tham dự và có thông điệp.
-- Ngày 9-10, chủ tịch UBND tỉnh Đồng Tháp đã ký văn bản công bố tình huống khẩn cấp sạt lở sông Tiền, uy hiếp an toàn tính mạng và tài sản của 23 hộ dân.
-- Tỉnh Quảng Nam điều chuyển kế hoạch vốn năm 2024 khoảng 222 tỉ đồng đối với các dự án chậm giải ngân sang dự án có tiến độ giải ngân tốt.
-- Cục nóng máy lạnh trên sân thượng bị rò rỉ điện, trời mưa khiến sân thượng ngập nước, người đàn ông lên dọn rác bị điện giật tử vong.
-- Tập đoàn FLC có văn bản gửi tỉnh Quảng Trị xin nghiên cứu quần thể sân golf 36 lỗ tiêu chuẩn quốc tế, trung tâm hội nghị, vui chơi giải trí cao cấp khoảng 700ha.
-- Những ngày đầu tháng 10, Hà Nội sôi động lại thêm lung linh với cờ hoa rợp phố trong nắng thu vàng mừng kỷ niệm 70 năm Ngày Giải phóng thủ đô 10-10.
-- Sau hơn một năm khởi công, dự án đường cao tốc Châu Đốc - Cần Thơ - Sóc Trăng mới đạt 16%. Nguyên nhân chính khiến dự án chậm tiến độ do thiếu hụt nguồn vật liệu.
-- Tính đến ngày 9-10, báo Tuổi Trẻ đã nhận được hơn 26 tỉ đồng từ 6.137 lượt đóng góp của bạn đọc chia sẻ với đồng bào miền Bắc bị bão lũ.
-- Chiều 9-10, Ủy ban Thường vụ Quốc hội cho ý kiến về dự thảo nghị quyết của Quốc hội về tổ chức chính quyền đô thị tại TP Hải Phòng.
-- Hàng chục hộ dân thôn Quảng Hiệp (xã Hiệp Thạnh, huyện Đức Trọng, Lâm Đồng) sợ hãi sống dưới quả đồi bị lún nứt nghiêm trọng, đang sạt lở.
-- Chủ tịch UBND tỉnh Sóc Trăng có văn bản hỏa tốc yêu cầu dừng tổ chức đoàn xổ số kiến thiết đi học tập kinh nghiệm các nước châu Á.
-- Mỏ cát có trữ lượng hơn 1,1 triệu m³ trên sông Tiền, đoạn qua huyện Cái Bè, Tiền Giang đã chính thức được khởi công, nhằm cung cấp nguồn cát lấp cho dự án đường vành đai 3 TP.HCM.
-- Ngày 9-10, UBND quận Liên Chiểu (Đà Nẵng) có thông tin báo chí liên quan tình hình sạt lở bờ sông Cu Đê.
-- Lực lượng quân sự ở tỉnh Hà Tĩnh vừa trục vớt thành công quả bom nặng khoảng 250kg để đưa đến điểm hủy nổ an toàn.
-- Quá trình điều tra, Viện kiểm sát nhân dân tối cao xác định chấp hành viên nhận hối lộ của đương sự nên đã khởi tố bị can.
-- Theo Bộ trưởng Lê Minh Hoan, đứng trước biến đổi khí hậu, những cú sốc thiên tai như bão Yagi (bão số 3) thì chúng ta phải tư duy lại với rừng và bảo vệ rừng.
-- Dự án Luật Đầu tư công sửa đổi đề xuất chủ tịch UBND cấp tỉnh quyết định chủ trương đầu tư dự án nhóm A do địa phương quản lý có quy mô vốn dưới 10.000 tỉ đồng.
-- Nhiều bạn đọc cho rằng có chính sách bảo hiểm tai nạn, bảo hiểm y tế cho người bán vé số dạo. Đồng thời tăng hoa hồng, thu vé ế cho họ.
+- Sau sự cố sạt lở kè Thanh Đa ở quận Bình Thạnh (TP.HCM) vào tháng 6-2023 đến nay, tức gần 1 năm rưỡi, khu vực này vẫn rào chắn chưa thể tu sửa, trụ kè bị sóng nước xô ngã gập khúc…
+- Chủ tịch UBND tỉnh Gia Lai Rah Lan Chung đề nghị các sở ngành, địa phương gần gũi hơn với các cơ quan báo chí để cùng chia sẻ thông tin, xây dựng tỉnh.
+- Sáng 17-10, đại diện Bệnh viện Hoàn Mỹ Đà Nẵng thông tin nguyên nhân vụ cháy xảy ra tối qua khiến người nhà và bệnh nhân hoảng loạn tháo chạy.
+- Một số tin tức đáng chú ý: Giá USD ngân hàng lại 'dậy sóng'; Một đại gia ngành nhựa sắp bị 'đuổi' khỏi sàn chứng khoán; Cảnh báo mời xem phim online rồi lừa tiền...
+- Một số chủ xe ô tô, xe máy cho biết họ bất ngờ nhận giấy báo thông báo bị phạt nguội ở địa phương khác dù xe mình vẫn nằm nhà.
+- Hôm nay 17-10, thời tiết cả nước nhiều nơi mưa to, mưa tập trung vào chiều tối đến đêm nên dễ gây ngập nước, kẹt xe.
+- Nhiều bạn đọc trải lòng về lý do số lượng người nhập cư vào TP.HCM giảm, trong đó có những nỗi niềm và cả sự kỳ vọng về sự đổi thay của "miền đất hứa".
+- Khu nhà kho xưởng ở quận Hai Bà Trưng (Hà Nội) xảy ra hỏa hoạn vào tối 16-10.
+- Một đoạn tuyến liền mạch dài 22km phía tây đường cao tốc Bến Lức - Long Thành đang được chủ đầu tư phấn đấu thông xe trước Tết Nguyên đán 2025.
+- Tối 16-10, lãnh đạo UBND huyện Châu Thành, tỉnh Hậu Giang xác nhận một vụ tai nạn lao động xảy ra khi thi công đường cao tốc Cần Thơ - Cà Mau (đoạn qua tỉnh Hậu Giang) làm một người chết và hai người bị thương.
+- Sau phản ánh của Tuổi Trẻ, Công an huyện Hóc Môn kiểm tra nơi lắp ráp, 'độ chế' xe 'cào cào bay' và phát hiện nhiều xe không rõ nguồn gốc xuất xứ.
+- Tối 16-10, một vụ cháy ở Bệnh viện Hoàn Mỹ Đà Nẵng khiến bệnh nhân và người nhà chạy tán loạn.
+- Bamboo Airways thông tin Cục Thuế tỉnh Bình Định đã có văn bản gửi Cục Quản lý xuất nhập cảnh - Bộ Công an thông báo hủy bỏ tạm hoãn xuất cảnh với CEO Lương Hoài Nam.
+- Cơ quan điều tra Viện Kiểm sát nhân dân tối cao đã phát hiện nhiều vi phạm pháp luật nghiêm trọng trong hoạt động tư pháp và khởi tố nhiều bị can nhận hối lộ.
+- Ngày 16-10, Hội đồng thẩm định bảng giá đất TP.HCM đã báo cáo thẩm định dự thảo quyết định sửa đổi, bổ sung quyết định 02/2020 về bảng giá đất trên địa bàn.
+- Chiều 16-10, nhà báo Võ Ngọc Văn Quân được bổ nhiệm giữ chức giám đốc Trung tâm Truyền hình Việt Nam khu vực Tây Nam Bộ.
+- Chiếc xe con đi ngược chiều vào trưa 16-10 trên đường cao tốc Nội Bài - Lào Cai. Cảnh sát giao thông cho biết đã vào cuộc xác minh để xử lý.
+- Theo nghị định 130 của Chính phủ mới ban hành, có 5 nhóm đối tượng chịu phí sử dụng đường bộ cao tốc với mức thu phí từ 900 đồng/xe, km đến 5.200 đồng/xe, km.
+- Nhiều chuyên gia và doanh nghiệp kiến nghị cần sớm hoàn thiện cơ chế trong thúc đẩy dự án điện gió ngoài khơi, điện khí để đáp ứng tiến độ Quy hoạch điện 8.
+- Bộ trưởng Bộ Y tế Đào Hồng Lan đã bày tỏ băn khoăn về cơ chế tự chủ tài chính tại các đơn vị sự nghiệp công lập thuộc ngành y tế.
+- Theo báo cáo của Viện Pasteur, số ca sởi tại 19 tỉnh, thành phía Nam đang tăng rất nhanh, đã xuất hiện ổ dịch người lớn trong công ty, xí nghiệp.
+- Cử tri đại diện cho nông dân Cần Thơ băn khoăn về việc Quốc hội có nghị quyết về cơ chế, chính sách đặc thù cho TP Cần Thơ, trong đó có trung tâm liên kết sản xuất, chế biến nông sản nhưng vì sao chậm đi vào thực tế?
+- Biết người yêu cũ sắp lấy chồng, Tú đã gửi clip nhạy cảm giữa mình với người yêu cũ cho gia đình nhà chồng. Tú bị bắt tạm giam về tội làm nhục người khác.
+- Chiều 16-10, tại Công an tỉnh Đắk Nông, Bộ Công an tổ chức lễ công bố quyết định của bộ trưởng Bộ Công an về công tác cán bộ.
+- UBND tỉnh Bình Định vừa tổ chức hội nghị công bố quyết định của chủ tịch UBND tỉnh này về công tác cán bộ.
+- Lãnh đạo UBND tỉnh Lâm Đồng chỉ đạo chấn chỉnh liên quan đến quyền sử dụng đất của người dân sau phản ánh của Tuổi Trẻ Online 'Chuyện lạ: Đất ở nhưng không được... ở'.
+- Cùng lúc 5 siêu tàu bay Gulfstream sang trọng và đắt đỏ bậc nhất thế giới xuất hiện ở sân bay Đà Nẵng. Dòng máy bay sang trọng này chuyên chở những người giàu nhất hành tinh.
+- 2 tuần sau khi ký cam kết với huyện Vĩnh Linh, Công ty cổ phần Lâm sản Quảng Trị chấp hành, hoàn thành tháo dỡ nhà xưởng nhưng chưa bàn giao mặt bằng do các hỗ trợ từ phía huyện, tỉnh chưa được giải quyết.
+- Tình trạng ngập các tuyến đường tại TP Thủ Đức diễn ra dai dẳng trong thời gian qua. Có đường nước ngập cả tuần chưa rút.
+- Dự án BOT đường kết nối cảng Phước An sẽ được đưa vào khai thác đầu năm 2025. Trong giai đoạn đầu, giá vé qua trạm BOT từ 20.000 - 110.000 đồng tùy loại xe.
 ![New](News.png)
 ## Nhịp sống số 
-- Nhân dịp sinh nhật 18 tuổi, tựa game Audition mở ra 'đại dương âm nhạc', hoàn toàn miễn phí vào cửa dành cho game thủ nói riêng và cộng đồng yêu thích âm nhạc nói chung.
+- Qua nhiều ngày trải nghiệm kết nối 5G tại nhiều địa điểm, thời gian khác nhau tại TP.HCM, Tuổi Trẻ Online đã có những ghi nhận khác nhau về tốc độ 5G.
+- Từ 0h ngày 16-10, Việt Nam sẽ chính thức tắt sóng 2G. Hiện vẫn còn hàng trăm nghìn thuê bao 2G Only đang hoạt động.
+- Camera iPhone 16 Pro bị chê chụp ảnh thiếu sáng và video bị mất chi tiết khi zoom, Galaxy S24 Ultra bị điểm trừ vì độ trễ khi chụp ảnh và video không ổn định.
+- Công cụ khai thác lỗ hổng phần mềm được rao bán trên nhiều diễn đàn web ‘đen’ và các kênh ẩn danh trên ứng dụng Telegram.
+- 8 năm cho một hành trình để Phúc Vinh - chủ nhân kênh TonyTV đi từ con số 0 kiên trì đến ngày được đón nhận, công nhận.
+- Laptop Zenbook S 14 là thế hệ Copilot+ PC được trang bị chip Intel Series 2 cùng thiết kế siêu mỏng nhẹ với lớp phủ nhôm gốm độc quyền ASUS Ceraluminum™.
 - Hai website giả mạo ứng dụng Zalo do kẻ xấu tạo ra để lừa người sử dụng đang có hàng triệu lượt truy cập mỗi ngày.
 - Ngày 3-10, FPT Telecom International (FTI) công bố hợp tác chiến lược cùng SolarWinds ra mắt mô hình giám sát CNTT thế hệ mới, đáp ứng đa dạng quy mô và nhu cầu của doanh nghiệp Việt Nam.
 - Viettel đang tăng tốc chuyển đổi cho 500.000 thuê bao 2G cuối cùng trước ngày tắt sóng 15-10.
@@ -90,9 +95,4 @@
 - Apple chính thức thông báo sẽ tổ chức sự kiện ra mắt iPhone 16, một trong những sự kiện công nghệ được mong đợi nhất hành tinh, vào ngày 9-9.
 - Nhiều nghiên cứu cho thấy trẻ dùng smartphone đối mặt nhiều nguy cơ, đặc biệt là chức năng thần kinh bị ảnh hưởng, bị 'đầu độc' và bắt nạt trực tuyến...
 - Bạn có tin được không: khoảng 61% mật khẩu hiện nay có thể bị bẻ khóa trong chưa đầy một phút dưới sự hỗ trợ của trí tuệ nhân tạo (AI), trong khi chỉ có 7% mật khẩu đủ mạnh để phòng chống các cuộc tấn công lâu dài.
-- Với xu hướng kinh doanh hiện đại là tập trung nhiều hơn vào khách hàng, việc mang đến nhiều trải nghiệm cá nhân hóa để kết nối sâu sắc hơn với khách hàng là rất quan trọng.
-- AI không có khả năng tiếp thu các kỹ năng mới nếu không được hướng dẫn, do đó không có khả năng đe dọa con người.
-- Hòa chung không khí mùa tựu trường 2024, hệ thống bán lẻ laptop hàng đầu Việt Nam - FPT Shop tiếp tục triển khai hàng loạt các chương trình ưu đãi hấp dẫn.
-- TS Jeff Dean - đồng sáng lập Google Translate, Google Brain hay Gemini - lần đầu tiên có những chia sẻ trực tiếp về AI với cộng đồng công nghệ Việt Nam.
-- Ngày 18-8, Hội nghị GenAI Summit 2024 về trí tuệ nhân tạo với chủ đề “Chân Trời Mới” diễn ra tại TPHCM.
 ![life](Life.png)
