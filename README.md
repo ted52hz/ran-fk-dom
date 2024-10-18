@@ -1,6 +1,18 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Bước vào cuối cấp, thông qua những chuyến đi thực tế học sinh dễ hình dung, nhóm lên dự định về công việc mong muốn để sớm phát triển bản thân.
+- Những quốc gia như Lào, Myanmar đang có nhiều dự án lớn tầm quốc gia ứng dụng trí tuệ nhân tạo (AI) trong giáo dục.
+- Phụ huynh có thể tra cứu thời hạn sử dụng thẻ bảo hiểm y tế bằng nhiều cách, hoặc đăng ký tài khoản VssID cho con qua tài khoản của cha mẹ để tra cứu.
+- Công ty TA. Development đã trao 2,5 tỉ đồng cho sinh viên có hoàn cảnh khó khăn của Trường đại học Đà Lạt.
+- Thương bạn cùng lớp có hoàn cảnh khó khăn, một nữ sinh lớp 7 đã viết bức thư tay gửi người thân để xin hỗ trợ cho bạn, gây xúc động cho những người đọc được lá thư này.
+- Là những bông hoa luôn sẵn sàng cho đời mật ngọt, là những vì sao luôn tỏa sáng lấp lánh, nửa thế giới ở Royal School đã cùng nhau đóng góp, nỗ lực cống hiến để tạo nên một ngôi trường ngập tràn thấu hiểu và yêu thương.
+- Chuyện thầy chuyển trường về xuôi, trong buổi chia tay thầy trò khóc như mưa, gợi lên biết bao điều. Chữ "thầy" thật thiêng liêng, cao cả.
+- Thanh tra Bộ Giáo dục và Đào tạo vừa công bố kết luận thanh tra về hoạt động tuyển sinh và đào tạo các trình độ của giáo dục đại học đối với Trường đại học Thủy lợi.
+- Liên quan thông tin trên mạng xã hội đăng tố cáo một thầy giáo dâm ô nữ sinh cấp 2, Công an TP Dĩ An, tỉnh Bình Dương đã khởi tố ông Văn Đình Lương, là giáo viên bị tố.
+- Cô Võ Thị T. - giáo viên Trường tiểu học Ba Đình, thị xã Bỉm Sơn (Thanh Hóa) - bị tố bạo hành em T.P.N., học sinh lớp 1B trường này, dẫn đến tổn thương.
+- Vào giờ tan trường, nhiều xe tải, xe container, xe hơi chạy qua khu vực có trường học trên quốc lộ 1 địa bàn tỉnh Ninh Thuận khiến học sinh và phụ huynh "thót tim". Các thầy cô giáo phải cầm cờ "xin đường" cho học sinh ra về an toàn.
+- Bộ Tư lệnh Vùng Cảnh sát biển 4 đã nhận đỡ đầu nhiều em học sinh mồ côi, có hoàn cảnh khó khăn ở xã đảo An Sơn, Thổ Châu (TP Phú Quốc, Kiên Giang).
 - Mẹ ốm đau triền miên, cha lao động vất vả nên sức khỏe ngày càng giảm sút, đứa con nỗ lực học và nay đã trở thành thủ khoa đầu vào Trường ĐH Y Dược TP.HCM.
 - Năm học 2024-2025, tất cả trường mầm non ở quận 1 đều công khai bữa ăn bán trú, trưng bày thức ăn thực tế của học sinh mỗi ngày.
 - Trước khi bước vào phòng làm bài thi, gần 100 học sinh ở quận Tân Bình, TP.HCM đã trải nghiệm các trò chơi dân gian như ném còn, chơi banh đũa, ô ăn quan…
@@ -19,50 +31,38 @@
 - Tính đến tháng 9-2024, cả nước có 1.886 cơ sở giáo dục nghề nghiệp, bao gồm 399 trường cao đẳng, 429 trường trung cấp và 1.058 trung tâm giáo dục nghề nghiệp.
 - GS.TS Nguyễn Hữu Tú, hiệu trưởng Trường đại học Y Hà Nội, vừa được Chính phủ Pháp trao tặng huân chương Cành cọ hàn lâm vì những đóng góp trong sự phát triển hợp tác y khoa giữa hai nước.
 - Công an tỉnh Nam Định đang phối hợp cùng các đơn vị liên quan điều tra nguyên nhân bé gái 2 tuổi tử vong tại Trường mầm non xã Nam Điền, huyện Nghĩa Hưng.
-- Ở tuổi 24, Đặng Nhật Uyên trở thành người sáng lập dự án phi lợi nhuận về môi trường Bin with Benefits tại các trường tiểu học ở TP Nha Trang (tỉnh Khánh Hòa), được cộng đồng hưởng ứng tích cực.
-- Các đối tượng khai nhận đã tổ chức thi và cấp khoảng 4.200 chứng chỉ tiếng Anh mang tên Cambridge International với giá từ 2,3 - 18 triệu đồng/chứng chỉ.
-- 200 suất học bổng nằm trong chương trình hỗ trợ đồng bào bị thiệt hại do bão lũ ở các tỉnh phía Bắc do báo Tuổi Trẻ phát động đã được Hội Nhà báo Việt Nam trao đến các em học sinh Cao Bằng.
-- Trường đại học Công nghiệp TP.HCM đã xây dựng quỹ hỗ trợ người học với tổng số tiền lên đến 70 tỉ đồng, nhằm khen thưởng sinh viên giỏi và giúp sinh viên khó khăn không bị gián đoạn việc học trong năm học này.
-- Giải thưởng Trường học sinh thái ASEAN Việt Nam năm 2024 nhằm đảm bảo cam kết quốc gia cũng như tạo động lực để thúc đẩy việc thực hiện mô hình trường học sinh thái, trường học xanh tại Việt Nam.
-- Trường đại học FPT cơ sở TP.HCM vừa phát cảnh báo về bên trung gian có dấu hiệu lừa đảo chiếm đoạt tiền thuê nhà của sinh viên.
-- Sáng 14-10, tại Trường THPT Nguyễn Thị Minh Khai, quận 3, TP.HCM đã diễn ra chương trình 'Tuyên truyền kỹ năng lái xe an toàn và phổ biến các quy định pháp luật về trật tự an toàn giao thông', thu hút sự tham gia của hơn 2.000 học sinh.
-- Từ "xin" trong các mẫu đơn đã lỗi thời nhưng thời gian qua, ở nhiều lĩnh vực, ngành nghề khác vẫn chưa mạnh dạn thay đổi.
-- Luật Nhà giáo mới ở giai đoạn chuẩn bị trình ra Quốc hội nhưng đã thu hút sự chú ý của dư luận.
-- Các thầy cô hãy luôn linh hoạt khi ứng xử ở môi trường giáo dục. Trong đó, cần nhân rộng cách làm nhân văn "đọc và suy ngẫm" thay vì kỷ luật.
-- Vừa nhắn vào group gia đình một thông tin nhỏ, cậu nhóc lớp 10 đang giờ học tại trường trả lời tức thì. Cả nhà nhao lên sao con đang học mà xài điện thoại?
-- Ủy ban Thường vụ Quốc hội yêu cầu tiếp tục rà soát, hoàn thiện các chính sách đối với nhà giáo theo hướng thận trọng, nhất quán, khả thi, có sự đột phá.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Sau sự cố sạt lở kè Thanh Đa ở quận Bình Thạnh (TP.HCM) vào tháng 6-2023 đến nay, tức gần 1 năm rưỡi, khu vực này vẫn rào chắn chưa thể tu sửa, trụ kè bị sóng nước xô ngã gập khúc…
-- Chủ tịch UBND tỉnh Gia Lai Rah Lan Chung đề nghị các sở ngành, địa phương gần gũi hơn với các cơ quan báo chí để cùng chia sẻ thông tin, xây dựng tỉnh.
-- Sáng 17-10, đại diện Bệnh viện Hoàn Mỹ Đà Nẵng thông tin nguyên nhân vụ cháy xảy ra tối qua khiến người nhà và bệnh nhân hoảng loạn tháo chạy.
-- Một số tin tức đáng chú ý: Giá USD ngân hàng lại 'dậy sóng'; Một đại gia ngành nhựa sắp bị 'đuổi' khỏi sàn chứng khoán; Cảnh báo mời xem phim online rồi lừa tiền...
-- Một số chủ xe ô tô, xe máy cho biết họ bất ngờ nhận giấy báo thông báo bị phạt nguội ở địa phương khác dù xe mình vẫn nằm nhà.
-- Hôm nay 17-10, thời tiết cả nước nhiều nơi mưa to, mưa tập trung vào chiều tối đến đêm nên dễ gây ngập nước, kẹt xe.
-- Nhiều bạn đọc trải lòng về lý do số lượng người nhập cư vào TP.HCM giảm, trong đó có những nỗi niềm và cả sự kỳ vọng về sự đổi thay của "miền đất hứa".
-- Khu nhà kho xưởng ở quận Hai Bà Trưng (Hà Nội) xảy ra hỏa hoạn vào tối 16-10.
-- Một đoạn tuyến liền mạch dài 22km phía tây đường cao tốc Bến Lức - Long Thành đang được chủ đầu tư phấn đấu thông xe trước Tết Nguyên đán 2025.
-- Tối 16-10, lãnh đạo UBND huyện Châu Thành, tỉnh Hậu Giang xác nhận một vụ tai nạn lao động xảy ra khi thi công đường cao tốc Cần Thơ - Cà Mau (đoạn qua tỉnh Hậu Giang) làm một người chết và hai người bị thương.
-- Sau phản ánh của Tuổi Trẻ, Công an huyện Hóc Môn kiểm tra nơi lắp ráp, 'độ chế' xe 'cào cào bay' và phát hiện nhiều xe không rõ nguồn gốc xuất xứ.
-- Tối 16-10, một vụ cháy ở Bệnh viện Hoàn Mỹ Đà Nẵng khiến bệnh nhân và người nhà chạy tán loạn.
-- Bamboo Airways thông tin Cục Thuế tỉnh Bình Định đã có văn bản gửi Cục Quản lý xuất nhập cảnh - Bộ Công an thông báo hủy bỏ tạm hoãn xuất cảnh với CEO Lương Hoài Nam.
-- Cơ quan điều tra Viện Kiểm sát nhân dân tối cao đã phát hiện nhiều vi phạm pháp luật nghiêm trọng trong hoạt động tư pháp và khởi tố nhiều bị can nhận hối lộ.
-- Ngày 16-10, Hội đồng thẩm định bảng giá đất TP.HCM đã báo cáo thẩm định dự thảo quyết định sửa đổi, bổ sung quyết định 02/2020 về bảng giá đất trên địa bàn.
-- Chiều 16-10, nhà báo Võ Ngọc Văn Quân được bổ nhiệm giữ chức giám đốc Trung tâm Truyền hình Việt Nam khu vực Tây Nam Bộ.
-- Chiếc xe con đi ngược chiều vào trưa 16-10 trên đường cao tốc Nội Bài - Lào Cai. Cảnh sát giao thông cho biết đã vào cuộc xác minh để xử lý.
-- Theo nghị định 130 của Chính phủ mới ban hành, có 5 nhóm đối tượng chịu phí sử dụng đường bộ cao tốc với mức thu phí từ 900 đồng/xe, km đến 5.200 đồng/xe, km.
-- Nhiều chuyên gia và doanh nghiệp kiến nghị cần sớm hoàn thiện cơ chế trong thúc đẩy dự án điện gió ngoài khơi, điện khí để đáp ứng tiến độ Quy hoạch điện 8.
-- Bộ trưởng Bộ Y tế Đào Hồng Lan đã bày tỏ băn khoăn về cơ chế tự chủ tài chính tại các đơn vị sự nghiệp công lập thuộc ngành y tế.
-- Theo báo cáo của Viện Pasteur, số ca sởi tại 19 tỉnh, thành phía Nam đang tăng rất nhanh, đã xuất hiện ổ dịch người lớn trong công ty, xí nghiệp.
-- Cử tri đại diện cho nông dân Cần Thơ băn khoăn về việc Quốc hội có nghị quyết về cơ chế, chính sách đặc thù cho TP Cần Thơ, trong đó có trung tâm liên kết sản xuất, chế biến nông sản nhưng vì sao chậm đi vào thực tế?
-- Biết người yêu cũ sắp lấy chồng, Tú đã gửi clip nhạy cảm giữa mình với người yêu cũ cho gia đình nhà chồng. Tú bị bắt tạm giam về tội làm nhục người khác.
-- Chiều 16-10, tại Công an tỉnh Đắk Nông, Bộ Công an tổ chức lễ công bố quyết định của bộ trưởng Bộ Công an về công tác cán bộ.
-- UBND tỉnh Bình Định vừa tổ chức hội nghị công bố quyết định của chủ tịch UBND tỉnh này về công tác cán bộ.
-- Lãnh đạo UBND tỉnh Lâm Đồng chỉ đạo chấn chỉnh liên quan đến quyền sử dụng đất của người dân sau phản ánh của Tuổi Trẻ Online 'Chuyện lạ: Đất ở nhưng không được... ở'.
-- Cùng lúc 5 siêu tàu bay Gulfstream sang trọng và đắt đỏ bậc nhất thế giới xuất hiện ở sân bay Đà Nẵng. Dòng máy bay sang trọng này chuyên chở những người giàu nhất hành tinh.
-- 2 tuần sau khi ký cam kết với huyện Vĩnh Linh, Công ty cổ phần Lâm sản Quảng Trị chấp hành, hoàn thành tháo dỡ nhà xưởng nhưng chưa bàn giao mặt bằng do các hỗ trợ từ phía huyện, tỉnh chưa được giải quyết.
-- Tình trạng ngập các tuyến đường tại TP Thủ Đức diễn ra dai dẳng trong thời gian qua. Có đường nước ngập cả tuần chưa rút.
-- Dự án BOT đường kết nối cảng Phước An sẽ được đưa vào khai thác đầu năm 2025. Trong giai đoạn đầu, giá vé qua trạm BOT từ 20.000 - 110.000 đồng tùy loại xe.
+- Ban Thường vụ Tỉnh ủy Lai Châu thi hành kỷ luật cảnh cáo đối với 17 lãnh đạo, nguyên lãnh đạo, cán bộ đang công tác tại nhiều cơ quan đơn vị.
+- Xe đầu kéo kéo theo rơ moóc chở thùng container bất ngờ lật ngang tại vòng xoay công trường Cộng Hòa, phường 2, quận 3, TP.HCM.
+- Sáng 18-10, triều cường tại TP.HCM dâng cao, một số nơi tại quận 7 ngập chưa kịp rút do mưa chiều qua thì hứng thêm đợt triều đầu sáng nay.
+- Nhiều năm qua, Bộ Tài chính và nhiều cơ quan nhắc đi nhắc lại việc nỗ lực cắt thủ tục, tăng bồi thường, tạo thuận lợi cho người thực hiện bảo hiểm xe máy. Bộ cũng nói thanh tra, kiểm tra nhưng...
+- Được hẹn trả kết quả từ tháng 12-2023 nhưng đến nay vẫn chưa có sổ hồng, hộ gia đình ông Bùi Mộc ở Tân Bình, TP.HCM có thể phải đóng thêm hơn 40 tỉ đồng vì giá đất dự kiến tăng đến 7 lần.
+- Ngày 17-10, Đại hội đại biểu toàn quốc Mặt trận Tổ quốc (MTTQ) Việt Nam lần thứ X, nhiệm kỳ 2024 - 2029 đã khai mạc.
+- Tin tức đáng chú ý: TP.HCM gặp khó khi người 'chăn dắt' trẻ em có khi là cha mẹ ruột của trẻ; Tổ chức chuỗi chương trình "Bác sĩ tư vấn" nâng cao nhận thức bệnh ung thư vú...
+- Hôm nay 18-10, thời tiết Nam Bộ tiếp tục mưa to, triều cường cũng đang lên nhanh. Bắc Bộ nắng gián đoạn, có lúc mưa rào.
+- Vụ cháy xe khách giường nằm vừa xảy ra trên cao tốc Phan Thiết - Dầu Giây trong đêm 17-10, đoạn ngay cầu Sông Phan, huyện Hàm Tân, tỉnh Bình Thuận.
+- Ban Tuyên giáo Trung ương tuyên dương 14 cá nhân, 12 tập thể, mô hình tiêu biểu, điển hình trong học tập và làm theo tư tưởng, đạo đức, phong cách Hồ Chí Minh đến từ các tỉnh, thành khu vực miền Trung - Tây Nguyên.
+- Việc người dân bị phạt nguội "oan" do xe khác dùng biển số giả còn nhiều bất cập, cần có nhiều cách để tránh phạt oan.
+- Trong cuộc hội đàm với Chủ tịch Quốc hội Trần Thanh Mẫn, Chủ tịch Quốc hội Lào đã nói về món quà vô giá của Việt Nam, và nhấn mạnh sự đoàn kết giữa hai nước.
+- 'Nhưng 10 năm qua, chúng ta đã làm được điều này', ông Phạm Phú Bình - ủy viên thường trực Ủy ban Đối ngoại - chia sẻ tại tọa đàm chiều 17-10 tại Hà Nội.
+- Chánh án Tòa án nhân dân tối cao Lê Minh Trí đã có báo cáo về công tác của các tòa án tại kỳ họp thứ 8 của Quốc hội. Số liệu trong báo cáo được thống kê từ ngày 1-10-2023 đến ngày 30-9-2024.
+- Tổng Thanh tra Chính phủ kiến nghị Bộ Tài nguyên và Môi trường trong quá trình thực hiện kết luận thanh tra rà soát, xem xét xử lý nghiêm cán bộ cố tình đùn đẩy trách nhiệm, có hành vi nhũng nhiễu tiêu cực gây phiền hà cho người dân, doanh nghiệp.
+- Ngày 17-10, các sở ngành của tỉnh Đồng Nai đã họp bàn đề nghị xếp hạng di tích cấp tỉnh đối với ngôi biệt thự trăm tuổi (nhà lầu ông Phủ) ở phường Bửu Long, thành phố Biên Hòa.
+- Đại diện Bộ Khoa học và Công nghệ vừa có những thông tin cập nhật liên quan đến việc Công ty cổ phần Y học Rạng Đông phải 'trùm mền' lò sản xuất thuốc phóng xạ 18F-FDG vì vướng cơ chế.
+- Theo dự báo của cơ quan khí tượng, ngày mai 18-10, thời tiết TP.HCM và các tỉnh Nam Bộ vừa có mưa to vừa gặp triều cường đỉnh, nguy cơ ngập nước rất cao.
+- Chiều 17-10, chuẩn bị cho kỳ họp thứ 8, Quốc hội khóa XV, Tổng Bí thư, Chủ tịch nước Tô Lâm cùng Đoàn đại biểu Quốc hội tỉnh Hưng Yên đã tiếp xúc cử tri tại huyện Văn Giang. Buổi tiếp xúc có sự tham dự của nhiều lãnh đạo trung ương và địa phương.
+- Năm trụ sở làm việc nằm sát chân núi chực chờ sạt lở, UBND huyện Sơn Tây, Quảng Ngãi cũng cách vị trí sạt lở tầm 70m. Dù trời không mưa nhưng nước cứ rỉ ra từ chân núi, tại sao huyện vẫn không làm kè chống sạt lở?
+- Ngày 17-10, hai chuyến bay của Vietjet từ TP.HCM đi Melbourne (Úc) và Seoul (Incheon, Hàn Quốc) dùng nhiên liệu hàng không bền vững (Sustainable Aviation Fuel - SAF) do Petrolimex Aviation tra nạp.
+- Công an đang điều tra nghi án sát hại bạn gái trong nhà nghỉ. Trong khi đó, trên mạng xã hội đang lan truyền các clip, hình ảnh màn cầu hôn tại một nhà hàng trước đó được cho là của cặp đôi trên.
+- Việt Nam quan tâm đến tình hình trên bán đảo Triều Tiên và mong muốn các bên kiềm chế, tính đến lợi ích của nhau cũng như lợi ích chung của khu vực và quốc tế.
+- Cầu đi bộ hình lá dừa nước bắc qua sông Sài Gòn do Nutifood tài trợ vừa được TP.HCM thống nhất bổ sung vào danh mục các dự án trọng điểm.
+- Thanh tra Sở Y tế Hà Nội xử phạt 25 triệu đồng với Công ty cổ phần Sản xuất kinh doanh nước sạch số 3 Hà Nội, vì không công khai các kết quả kiểm định chất lượng nước.
+- Trong dự án nghĩa trang cấp vùng theo mô hình công viên sinh thái ở Nghệ An có lò hỏa táng được vận hành cam kết 5 không: không khói, không mùi, không nước thải, không bụi và không có tiếng ồn.
+- Trồng thủy canh rau cải ngọt và đặc biệt là rau càng cua, rau sam (rau rừng), anh Trần Thanh Vũ - ở xã Dương Tơ (TP Phú Quốc, Kiên Giang) - thu về lợi nhuận hấp dẫn gần 500 triệu đồng/năm.
+- Được ví như 'lá phổi xanh' giữa lòng TP Đà Nẵng, công viên 29-3 được đầu tư hơn 673 tỉ đồng để nâng cấp, cải tạo trong năm 2024. Tuy nhiên, dự án này phải dời thời hạn khởi công sang năm 2025.
+- Bộ Ngoại giao Việt Nam cho biết các lực lượng chức năng Nhật Bản đang nỗ lực tìm kiếm những người còn mất tích, trong vụ 4 người Việt bị sóng cuốn trôi khi đi câu cá ở tỉnh Ibaraki.
+- 6 công nhân khiêng tấm đan để lát vào dầm cầu trên cao tốc, khi bước lên tấm đan đã lót sẵn thì đan bị gãy, khiến hai công nhân rơi xuống đất.
 ![New](News.png)
 ## Nhịp sống số 
 - Qua nhiều ngày trải nghiệm kết nối 5G tại nhiều địa điểm, thời gian khác nhau tại TP.HCM, Tuổi Trẻ Online đã có những ghi nhận khác nhau về tốc độ 5G.
