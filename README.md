@@ -1,6 +1,14 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Giáo viên nhận xét ra sao về đề tham khảo thi tốt nghiệp THPT từ năm 2025?
+- Theo đề xuất của Bộ Giáo dục và Đào tạo, sinh viên hệ vừa học vừa làm, hệ đào tạo từ xa sẽ được cấp học bổng như sinh viên chính quy.
+- Bộ Giáo dục và Đào tạo vừa công bố đề thi tham khảo kỳ thi tốt nghiệp THPT năm 2025 của 10 môn văn hóa và 7 môn ngoại ngữ.
+- Nhận được bức thư của nữ sinh lớp 7 ở Hà Tĩnh xin hỗ trợ cho bạn học cùng lớp, ông Hoàng Trọng Thủy vô cùng xúc động nên đã đăng tải lên mạng xã hội. Ngay sau đó có một số người liên hệ với ông Thủy đề nghị giúp đỡ.
+- Trường tiểu học Tân Sơn Nhì (quận Tân Phú, TP.HCM) mời phụ huynh tham gia tiết học mở, bữa ăn bán trú cùng học sinh.
+- Tháng 10 hằng năm, sau khi những người đoạt giải Nobel được công bố, thế giới lại được chiêm ngưỡng những bức chân dung mang tính biểu tượng.
+- Các trường đại học đang lúng túng trong việc công bố chi tiết cách xét tuyển theo điểm thi tốt nghiệp THPT 2025.
+- Bộ Giáo dục và Đào tạo cho biết sẽ tổ chức tổng kết, rút kinh nghiệm quá trình xã hội hóa việc biên soạn, phát hành, in ấn và hiệu quả sử dụng sách giáo khoa.
 - Bước vào cuối cấp, thông qua những chuyến đi thực tế học sinh dễ hình dung, nhóm lên dự định về công việc mong muốn để sớm phát triển bản thân.
 - Những quốc gia như Lào, Myanmar đang có nhiều dự án lớn tầm quốc gia ứng dụng trí tuệ nhân tạo (AI) trong giáo dục.
 - Phụ huynh có thể tra cứu thời hạn sử dụng thẻ bảo hiểm y tế bằng nhiều cách, hoặc đăng ký tài khoản VssID cho con qua tài khoản của cha mẹ để tra cứu.
@@ -23,48 +31,41 @@
 - Võ Quang Phú Đức - quán quân Đường lên đỉnh Olympia 2024 - đã có những trải lòng sau khi giành được vòng nguyệt quế và chuyện bấm chuông ở câu trả lời cuối cùng đang ồn ào trên mạng xã hội.
 - Bộ trưởng Bộ Giáo dục và Đào tạo Nguyễn Kim Sơn đã trả lời kiến nghị cử tri tỉnh An Giang gửi kỳ họp thứ 7, Quốc hội khóa XV liên quan sách giáo khoa, học phí.
 - Dự thảo Luật Nhà giáo mới nhất đã bỏ nội dung quy định về chứng chỉ hành nghề nhà giáo nhưng quan điểm của ban soạn thảo việc này sẽ vẫn tiến hành nghiên cứu, thí điểm.
-- Tiến sĩ Randall Martin - giám đốc điều hành, Hội đồng giáo dục quốc tế British Columbia (Canada) - cho biết đang ghi nhận một sự chuyển biến đáng kể trong việc lựa chọn ngành học của các sinh viên Việt Nam đến Canada.
-- Trường đại học Thủ Dầu Một đã nộp lại ngân sách 37 tỉ đồng thu sai học phí mà không hoàn trả sinh viên.
-- Theo Bộ Giáo dục và Đào tạo, việc tổ chức kỳ thi tốt nghiệp THPT để xét công nhận tốt nghiệp THPT đã được quy định trong Luật Giáo dục.
-- Huỳnh Ngọc Hiếu (19 tuổi) vừa giành học bổng toàn phần của Trường ĐH RMIT. Đáng nể hơn, Hiếu cũng đang là sinh viên của ĐH Kinh tế TP.HCM và sẽ học hai trường cùng lúc.
-- Thống kê từ IELTS cho thấy điểm thi phổ biến nhất của thí sinh Việt Nam là 6.0, trong khi đó chỉ 1% thí sinh đạt trên điểm 8.5.
-- Tính đến tháng 9-2024, cả nước có 1.886 cơ sở giáo dục nghề nghiệp, bao gồm 399 trường cao đẳng, 429 trường trung cấp và 1.058 trung tâm giáo dục nghề nghiệp.
-- GS.TS Nguyễn Hữu Tú, hiệu trưởng Trường đại học Y Hà Nội, vừa được Chính phủ Pháp trao tặng huân chương Cành cọ hàn lâm vì những đóng góp trong sự phát triển hợp tác y khoa giữa hai nước.
-- Công an tỉnh Nam Định đang phối hợp cùng các đơn vị liên quan điều tra nguyên nhân bé gái 2 tuổi tử vong tại Trường mầm non xã Nam Điền, huyện Nghĩa Hưng.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Ban Thường vụ Tỉnh ủy Lai Châu thi hành kỷ luật cảnh cáo đối với 17 lãnh đạo, nguyên lãnh đạo, cán bộ đang công tác tại nhiều cơ quan đơn vị.
-- Xe đầu kéo kéo theo rơ moóc chở thùng container bất ngờ lật ngang tại vòng xoay công trường Cộng Hòa, phường 2, quận 3, TP.HCM.
-- Sáng 18-10, triều cường tại TP.HCM dâng cao, một số nơi tại quận 7 ngập chưa kịp rút do mưa chiều qua thì hứng thêm đợt triều đầu sáng nay.
-- Nhiều năm qua, Bộ Tài chính và nhiều cơ quan nhắc đi nhắc lại việc nỗ lực cắt thủ tục, tăng bồi thường, tạo thuận lợi cho người thực hiện bảo hiểm xe máy. Bộ cũng nói thanh tra, kiểm tra nhưng...
-- Được hẹn trả kết quả từ tháng 12-2023 nhưng đến nay vẫn chưa có sổ hồng, hộ gia đình ông Bùi Mộc ở Tân Bình, TP.HCM có thể phải đóng thêm hơn 40 tỉ đồng vì giá đất dự kiến tăng đến 7 lần.
-- Ngày 17-10, Đại hội đại biểu toàn quốc Mặt trận Tổ quốc (MTTQ) Việt Nam lần thứ X, nhiệm kỳ 2024 - 2029 đã khai mạc.
-- Tin tức đáng chú ý: TP.HCM gặp khó khi người 'chăn dắt' trẻ em có khi là cha mẹ ruột của trẻ; Tổ chức chuỗi chương trình "Bác sĩ tư vấn" nâng cao nhận thức bệnh ung thư vú...
-- Hôm nay 18-10, thời tiết Nam Bộ tiếp tục mưa to, triều cường cũng đang lên nhanh. Bắc Bộ nắng gián đoạn, có lúc mưa rào.
-- Vụ cháy xe khách giường nằm vừa xảy ra trên cao tốc Phan Thiết - Dầu Giây trong đêm 17-10, đoạn ngay cầu Sông Phan, huyện Hàm Tân, tỉnh Bình Thuận.
-- Ban Tuyên giáo Trung ương tuyên dương 14 cá nhân, 12 tập thể, mô hình tiêu biểu, điển hình trong học tập và làm theo tư tưởng, đạo đức, phong cách Hồ Chí Minh đến từ các tỉnh, thành khu vực miền Trung - Tây Nguyên.
-- Việc người dân bị phạt nguội "oan" do xe khác dùng biển số giả còn nhiều bất cập, cần có nhiều cách để tránh phạt oan.
-- Trong cuộc hội đàm với Chủ tịch Quốc hội Trần Thanh Mẫn, Chủ tịch Quốc hội Lào đã nói về món quà vô giá của Việt Nam, và nhấn mạnh sự đoàn kết giữa hai nước.
-- 'Nhưng 10 năm qua, chúng ta đã làm được điều này', ông Phạm Phú Bình - ủy viên thường trực Ủy ban Đối ngoại - chia sẻ tại tọa đàm chiều 17-10 tại Hà Nội.
-- Chánh án Tòa án nhân dân tối cao Lê Minh Trí đã có báo cáo về công tác của các tòa án tại kỳ họp thứ 8 của Quốc hội. Số liệu trong báo cáo được thống kê từ ngày 1-10-2023 đến ngày 30-9-2024.
-- Tổng Thanh tra Chính phủ kiến nghị Bộ Tài nguyên và Môi trường trong quá trình thực hiện kết luận thanh tra rà soát, xem xét xử lý nghiêm cán bộ cố tình đùn đẩy trách nhiệm, có hành vi nhũng nhiễu tiêu cực gây phiền hà cho người dân, doanh nghiệp.
-- Ngày 17-10, các sở ngành của tỉnh Đồng Nai đã họp bàn đề nghị xếp hạng di tích cấp tỉnh đối với ngôi biệt thự trăm tuổi (nhà lầu ông Phủ) ở phường Bửu Long, thành phố Biên Hòa.
-- Đại diện Bộ Khoa học và Công nghệ vừa có những thông tin cập nhật liên quan đến việc Công ty cổ phần Y học Rạng Đông phải 'trùm mền' lò sản xuất thuốc phóng xạ 18F-FDG vì vướng cơ chế.
-- Theo dự báo của cơ quan khí tượng, ngày mai 18-10, thời tiết TP.HCM và các tỉnh Nam Bộ vừa có mưa to vừa gặp triều cường đỉnh, nguy cơ ngập nước rất cao.
-- Chiều 17-10, chuẩn bị cho kỳ họp thứ 8, Quốc hội khóa XV, Tổng Bí thư, Chủ tịch nước Tô Lâm cùng Đoàn đại biểu Quốc hội tỉnh Hưng Yên đã tiếp xúc cử tri tại huyện Văn Giang. Buổi tiếp xúc có sự tham dự của nhiều lãnh đạo trung ương và địa phương.
-- Năm trụ sở làm việc nằm sát chân núi chực chờ sạt lở, UBND huyện Sơn Tây, Quảng Ngãi cũng cách vị trí sạt lở tầm 70m. Dù trời không mưa nhưng nước cứ rỉ ra từ chân núi, tại sao huyện vẫn không làm kè chống sạt lở?
-- Ngày 17-10, hai chuyến bay của Vietjet từ TP.HCM đi Melbourne (Úc) và Seoul (Incheon, Hàn Quốc) dùng nhiên liệu hàng không bền vững (Sustainable Aviation Fuel - SAF) do Petrolimex Aviation tra nạp.
-- Công an đang điều tra nghi án sát hại bạn gái trong nhà nghỉ. Trong khi đó, trên mạng xã hội đang lan truyền các clip, hình ảnh màn cầu hôn tại một nhà hàng trước đó được cho là của cặp đôi trên.
-- Việt Nam quan tâm đến tình hình trên bán đảo Triều Tiên và mong muốn các bên kiềm chế, tính đến lợi ích của nhau cũng như lợi ích chung của khu vực và quốc tế.
-- Cầu đi bộ hình lá dừa nước bắc qua sông Sài Gòn do Nutifood tài trợ vừa được TP.HCM thống nhất bổ sung vào danh mục các dự án trọng điểm.
-- Thanh tra Sở Y tế Hà Nội xử phạt 25 triệu đồng với Công ty cổ phần Sản xuất kinh doanh nước sạch số 3 Hà Nội, vì không công khai các kết quả kiểm định chất lượng nước.
-- Trong dự án nghĩa trang cấp vùng theo mô hình công viên sinh thái ở Nghệ An có lò hỏa táng được vận hành cam kết 5 không: không khói, không mùi, không nước thải, không bụi và không có tiếng ồn.
-- Trồng thủy canh rau cải ngọt và đặc biệt là rau càng cua, rau sam (rau rừng), anh Trần Thanh Vũ - ở xã Dương Tơ (TP Phú Quốc, Kiên Giang) - thu về lợi nhuận hấp dẫn gần 500 triệu đồng/năm.
-- Được ví như 'lá phổi xanh' giữa lòng TP Đà Nẵng, công viên 29-3 được đầu tư hơn 673 tỉ đồng để nâng cấp, cải tạo trong năm 2024. Tuy nhiên, dự án này phải dời thời hạn khởi công sang năm 2025.
-- Bộ Ngoại giao Việt Nam cho biết các lực lượng chức năng Nhật Bản đang nỗ lực tìm kiếm những người còn mất tích, trong vụ 4 người Việt bị sóng cuốn trôi khi đi câu cá ở tỉnh Ibaraki.
-- 6 công nhân khiêng tấm đan để lát vào dầm cầu trên cao tốc, khi bước lên tấm đan đã lót sẵn thì đan bị gãy, khiến hai công nhân rơi xuống đất.
+- Để góp thêm tiếng nói, tìm kiếm giải pháp phát triển thị trường dược phẩm trong nước bằng công cụ chuyển đổi số, báo Tuổi Trẻ phối hợp với các đơn vị tổ chức Hội thảo Phát triển thị trường dược phẩm trong nước - Giải pháp từ chuyển đổi số.
+- TP.HCM và nhiều tỉnh thành phía Nam đang trong đợt triều cường cao nhất năm, lặp lại mốc lịch sử 1,8m của tháng 9-2019.
+- Sáng 18-10, phiên đấu giá điểm mỏ cát ĐB2B ở xã Điện Thọ (Điện Bàn, Quảng Nam) bắt đầu và được kết thúc lúc… 4h08 tảng sáng 19-10.
+- Họp báo quý 3 UBND tỉnh Quảng Ngãi trở nên nóng khi rất nhiều câu hỏi phóng viên đặt ra liên quan đến 64 trụ điện cao thế xây dựng trái phép để nhà máy thủy điện Sơn Trà 1A, Sơn Trà 1B và Sơn Trà 1C bán điện.
+- Ông Trần Hoàng Tuấn, phó chủ tịch UBND tỉnh Quảng Ngãi, cho biết sẽ xem xét chứng từ liên quan đến việc Tập đoàn FLC "đòi" 80,5 tỉ đồng, nếu có cơ sở sẽ hoàn trả.
+- Một số tin tức đáng chú ý: Tỉ giá nổi sóng, Ngân hàng Nhà nước quay lại 'hút tiền'; Loạt cổ phiếu 'hot' một thời sắp rời sàn hoặc hạn chế giao dịch; Độc đáo lễ hội mùa vàng Bắc Sơn; Ẩm thực truyền thống vùng đất cố đô Hoa Lư...
+- Hôm nay 19-10, thời tiết Nam Bộ vẫn duy trì mưa to vào chiều tối đến đêm; Bắc Bộ mưa rào và có sương mù nhẹ buổi sáng.
+- Thủ tướng Chính phủ Phạm Minh Chính ký các quyết định thi hành kỷ luật 2 nguyên chủ tịch UBND tỉnh Lâm Đồng.
+- Quán karaoke ở mặt tiền đường Đồng Khởi (TP Biên Hòa, Đồng Nai) đang tạm ngưng hoạt động để sửa chữa, bất ngờ bốc cháy dữ dội.
+- Bộ Giao thông vận tải lấy ý kiến của UBND TP.HCM, tỉnh Long An và Tiền Giang về dự án mở rộng đường cao tốc TP.HCM - Trung Lương - Mỹ Thuận lên 6-8 làn xe.
+- Vụ cháy chung cư mini trong đêm khiến nhiều người bị mắc kẹt, và cảnh sát đã đưa xe thang tới giải cứu.
+- Liên quan vụ nổ ở phường Tam Bình, TP Thủ Đức, bước đầu lực lượng chức năng nhận thấy nguyên nhân có khả năng do rò rỉ khí ở hầm biogas.
+- Trong báo cáo, tỉnh Quảng Nam cho biết hiện có 10 ổ dịch bệnh dại bùng phát, 667 người bị chó, mèo có biểu hiện bệnh dại cắn và một người tử vong. Số ca phải tới cơ sở y tế điều trị cũng tăng gấp đôi.
+- Liên quan đến việc các hãng tàu quốc tế đã hủy chuyến đưa du khách đến TP Nha Trang, Sở Du lịch Khánh Hòa vừa có kiến nghị khẩn.
+- Các ông Hoàng Văn Chương và Nguyễn Hoàng Hải được bổ nhiệm giữ chức trợ lý ủy viên Bộ Chính trị, Chủ tịch Quốc hội Trần Thanh Mẫn.
+- Thanh tra Chính phủ cho rằng chi phí người dân bỏ ra để xét nghiệm nồng độ cồn khi khám sức khỏe cấp bằng lái xe là khoảng 350 tỉ đồng và đề nghị bỏ quy định này.
+- Sở Tài nguyên và Môi trường TP.HCM vừa có tờ trình UBND TP.HCM về ban hành đề án cải thiện nhà vệ sinh công cộng trên địa bàn TP.HCM giai đoạn 2024-2025.
+- Giải thưởng Thành tựu y khoa Việt Nam nhận được 68 sản phẩm đăng ký tham gia đến từ TP.HCM và 2 tỉnh thành Đắk Nông và Cần Thơ.
+- Chiều 18-10, lãnh đạo tỉnh Ninh Thuận đã đến Đồng Nai mời gọi các doanh nghiệp xúc tiến đầu tư vào các công trình trọng điểm và một số lĩnh vực.
+- Dự báo khoảng từ ngày 23 đến 25-10, trên Biển Đông khả năng có một cơn bão hoặc áp thấp nhiệt đới hoạt động.
+- Ủy ban Kiểm tra Quân ủy Trung ương nhiệm kỳ 2020-2025 tổ chức kỳ họp thứ 20 và đã xem xét, cho ý kiến đề nghị xử lý kỷ luật với 12 quân nhân vi phạm.
+- Thủ tướng Phạm Minh Chính sẽ dự Hội nghị các nhà lãnh đạo nhóm BRICS mở rộng từ ngày 23-10, đánh dấu lần đầu tiên Việt Nam tham gia ở cấp người đứng đầu Chính phủ.
+- Triều cường dâng cao và đạt đỉnh, trên tuyến đường Trần Xuân Soạn, quận 7, TP.HCM ngập nặng gây khó khăn cho người dân qua lại.
+- Giám đốc Sở Y tế Phú Thọ Nguyễn Huy Ngọc (54 tuổi) được bầu làm phó chủ tịch UBND tỉnh Phú Thọ khóa XIX, nhiệm kỳ 2021-2026.
+- Thủ tướng Phạm Minh Chính vừa ký quyết định số 1211 phân công trưởng Ban Chỉ đạo phòng, chống rửa tiền.
+- Ông Mai Sơn, phó chủ tịch thường trực UBND tỉnh Bắc Giang, được giao quyền chủ tịch đến khi kiện toàn chức vụ chủ tịch UBND tỉnh Bắc Giang nhiệm kỳ 2021 - 2026.
+- Hàng loạt phòng khám nha khoa tại TP.HCM vừa bị Thanh tra Sở Y tế TP xử phạt vì quảng cáo trái phép, không niêm yết giá dịch vụ, tuyển nhân viên không có giấy phép hành nghề...
+- TP.HCM lấy ý kiến về việc lập thêm 3 ban quản lý dự án, để đảm đương khối lượng công việc và nhiều dự án lớn trong thời gian tới.
+- Ngày 18-10, Chủ tịch Quốc hội Trần Thanh Mẫn đã có cuộc hội kiến Tổng Bí thư, Chủ tịch nước Lào Thongloun Sisoulith.
+- Gần 200 hình ảnh, tư liệu, hiện vật có giá trị lịch sử được trưng bày nhằm giới thiệu khái quát về quê hương Hà Tĩnh và gia đình, quá trình hoạt động cách mạng của anh Lý Tự Trọng - người đoàn viên thanh niên cộng sản đầu tiên.
 ![New](News.png)
 ## Nhịp sống số 
+- Theo cam kết của nhà cung cấp dịch vụ, Lotus Chat là ứng dụng dành cho người dùng Việt có tính bảo mật và tiện lợi.
 - Qua nhiều ngày trải nghiệm kết nối 5G tại nhiều địa điểm, thời gian khác nhau tại TP.HCM, Tuổi Trẻ Online đã có những ghi nhận khác nhau về tốc độ 5G.
 - Từ 0h ngày 16-10, Việt Nam sẽ chính thức tắt sóng 2G. Hiện vẫn còn hàng trăm nghìn thuê bao 2G Only đang hoạt động.
 - Camera iPhone 16 Pro bị chê chụp ảnh thiếu sáng và video bị mất chi tiết khi zoom, Galaxy S24 Ultra bị điểm trừ vì độ trễ khi chụp ảnh và video không ổn định.
@@ -94,5 +95,4 @@
 - Đây là một trong những nhiệm vụ mà Thủ tướng Phạm Minh Chính đề ra trong việc nâng cao hiệu quả cung cấp và sử dụng dịch vụ công trực tuyến.
 - Apple chính thức thông báo sẽ tổ chức sự kiện ra mắt iPhone 16, một trong những sự kiện công nghệ được mong đợi nhất hành tinh, vào ngày 9-9.
 - Nhiều nghiên cứu cho thấy trẻ dùng smartphone đối mặt nhiều nguy cơ, đặc biệt là chức năng thần kinh bị ảnh hưởng, bị 'đầu độc' và bắt nạt trực tuyến...
-- Bạn có tin được không: khoảng 61% mật khẩu hiện nay có thể bị bẻ khóa trong chưa đầy một phút dưới sự hỗ trợ của trí tuệ nhân tạo (AI), trong khi chỉ có 7% mật khẩu đủ mạnh để phòng chống các cuộc tấn công lâu dài.
 ![life](Life.png)
