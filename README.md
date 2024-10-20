@@ -1,6 +1,18 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Cô giáo Trương Phương Hạnh bị xử lý kỷ luật ở mức cảnh cáo và không được đứng lớp, chuyển sang làm giáo vụ của trường.
+- Các quan chức khẳng định thực phẩm và đồ uống được cung cấp trong trường học cần phải được sản xuất bằng các nguyên liệu tự nhiên, và phải loại bỏ đồ ăn vặt.
+- Sinh viên khoa truyền thông sáng tạo của Trường đại học Nguyễn Tất Thành có một buổi thực hành tác nghiệp ảnh báo chí thú vị tại Bưu điện TP.HCM.
+- Mức điểm sàn nhận hồ sơ xét tuyển bổ sung vào các trường quân đội dao động từ 10,75 - 28,55 điểm, thang điểm 30 và đã bao gồm điểm ưu tiên.
+- Sau khi va quẹt xe máy ngã xuống đường, một nam sinh dùng mũ bảo hiểm đánh tới tấp nam sinh khác.
+- Việc trường học mời phụ huynh "mục sở thị" bữa ăn bán trú cần được lan tỏa và nhân rộng. Tại sao?
+- Thông tin được đưa ra trong Ngày hội du học New Zealand 2024, diễn ra vào sáng nay 19-10.
+- Nhiều học sinh, sinh viên và phụ huynh tại TP.HCM đến tuần lễ Giáo dục châu Âu để tìm hiểu về trường, học bổng và những chính sách du học phù hợp.
+- Trường đại học Y Dược TP.HCM đã chính thức có hiệu trưởng sau 4 năm nhà trường khuyết chức danh này.
+- Những ngày qua, mạng xã hội xôn xao đoạn tin nhắn của cô giáo đề cập chuyện tặng quà giáo viên nhân Ngày Phụ nữ Việt Nam (20-10).
+- Kỳ thi lớp 10 gồm ba môn toán, ngữ văn và một môn thi thứ ba hoặc bài thi tổ hợp do sở giáo dục và đào tạo lựa chọn và được công bố trước ngày 31-3 hằng năm.
+- Để đảm bảo tiến độ thực hiện kết luận kiểm toán, Trường đại học Thủ Dầu Một, tỉnh Bình Dương đã nộp 37 tỉ đồng học phí thu vượt vào ngân sách, nhưng nay sẽ được xem xét hoàn trả cho sinh viên.
 - Giáo viên nhận xét ra sao về đề tham khảo thi tốt nghiệp THPT từ năm 2025?
 - Theo đề xuất của Bộ Giáo dục và Đào tạo, sinh viên hệ vừa học vừa làm, hệ đào tạo từ xa sẽ được cấp học bổng như sinh viên chính quy.
 - Bộ Giáo dục và Đào tạo vừa công bố đề thi tham khảo kỳ thi tốt nghiệp THPT năm 2025 của 10 môn văn hóa và 7 môn ngoại ngữ.
@@ -19,50 +31,38 @@
 - Thanh tra Bộ Giáo dục và Đào tạo vừa công bố kết luận thanh tra về hoạt động tuyển sinh và đào tạo các trình độ của giáo dục đại học đối với Trường đại học Thủy lợi.
 - Liên quan thông tin trên mạng xã hội đăng tố cáo một thầy giáo dâm ô nữ sinh cấp 2, Công an TP Dĩ An, tỉnh Bình Dương đã khởi tố ông Văn Đình Lương, là giáo viên bị tố.
 - Cô Võ Thị T. - giáo viên Trường tiểu học Ba Đình, thị xã Bỉm Sơn (Thanh Hóa) - bị tố bạo hành em T.P.N., học sinh lớp 1B trường này, dẫn đến tổn thương.
-- Vào giờ tan trường, nhiều xe tải, xe container, xe hơi chạy qua khu vực có trường học trên quốc lộ 1 địa bàn tỉnh Ninh Thuận khiến học sinh và phụ huynh "thót tim". Các thầy cô giáo phải cầm cờ "xin đường" cho học sinh ra về an toàn.
-- Bộ Tư lệnh Vùng Cảnh sát biển 4 đã nhận đỡ đầu nhiều em học sinh mồ côi, có hoàn cảnh khó khăn ở xã đảo An Sơn, Thổ Châu (TP Phú Quốc, Kiên Giang).
-- Mẹ ốm đau triền miên, cha lao động vất vả nên sức khỏe ngày càng giảm sút, đứa con nỗ lực học và nay đã trở thành thủ khoa đầu vào Trường ĐH Y Dược TP.HCM.
-- Năm học 2024-2025, tất cả trường mầm non ở quận 1 đều công khai bữa ăn bán trú, trưng bày thức ăn thực tế của học sinh mỗi ngày.
-- Trước khi bước vào phòng làm bài thi, gần 100 học sinh ở quận Tân Bình, TP.HCM đã trải nghiệm các trò chơi dân gian như ném còn, chơi banh đũa, ô ăn quan…
-- Chủ tịch UBND huyện Hướng Hóa đã chỉ đạo cơ quan chuyên môn làm quy trình điều động nữ hiệu trưởng mầm non vừa được bổ nhiệm lại nhiệm kỳ 3 qua trường khác.
-- Không mới nhưng chưa bao giờ hạ nhiệt - chính là cách để miêu tả về ngành Công nghệ thông tin.
-- Ngoài việc miễn học phí 4 năm đại học, Trường đại học Mở TP.HCM cấp học bổng từ 50-200% học phí năm nhất cho các tân sinh viên là thủ khoa, á khoa đầu vào.
-- 'Cuộc đời em gắn liền với bốn lần nắm tay. Đó là lúc ba mẹ nắm tay em khi em chào đời. Hai lần khác là khi ba, mẹ nói lời tạm biệt với thế giới. Thầy cô đã nắm tay em lần nữa và nói rằng phải tiếp tục tiến về phía trước'.
-- Võ Quang Phú Đức - quán quân Đường lên đỉnh Olympia 2024 - đã có những trải lòng sau khi giành được vòng nguyệt quế và chuyện bấm chuông ở câu trả lời cuối cùng đang ồn ào trên mạng xã hội.
-- Bộ trưởng Bộ Giáo dục và Đào tạo Nguyễn Kim Sơn đã trả lời kiến nghị cử tri tỉnh An Giang gửi kỳ họp thứ 7, Quốc hội khóa XV liên quan sách giáo khoa, học phí.
-- Dự thảo Luật Nhà giáo mới nhất đã bỏ nội dung quy định về chứng chỉ hành nghề nhà giáo nhưng quan điểm của ban soạn thảo việc này sẽ vẫn tiến hành nghiên cứu, thí điểm.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Để góp thêm tiếng nói, tìm kiếm giải pháp phát triển thị trường dược phẩm trong nước bằng công cụ chuyển đổi số, báo Tuổi Trẻ phối hợp với các đơn vị tổ chức Hội thảo Phát triển thị trường dược phẩm trong nước - Giải pháp từ chuyển đổi số.
-- TP.HCM và nhiều tỉnh thành phía Nam đang trong đợt triều cường cao nhất năm, lặp lại mốc lịch sử 1,8m của tháng 9-2019.
-- Sáng 18-10, phiên đấu giá điểm mỏ cát ĐB2B ở xã Điện Thọ (Điện Bàn, Quảng Nam) bắt đầu và được kết thúc lúc… 4h08 tảng sáng 19-10.
-- Họp báo quý 3 UBND tỉnh Quảng Ngãi trở nên nóng khi rất nhiều câu hỏi phóng viên đặt ra liên quan đến 64 trụ điện cao thế xây dựng trái phép để nhà máy thủy điện Sơn Trà 1A, Sơn Trà 1B và Sơn Trà 1C bán điện.
-- Ông Trần Hoàng Tuấn, phó chủ tịch UBND tỉnh Quảng Ngãi, cho biết sẽ xem xét chứng từ liên quan đến việc Tập đoàn FLC "đòi" 80,5 tỉ đồng, nếu có cơ sở sẽ hoàn trả.
-- Một số tin tức đáng chú ý: Tỉ giá nổi sóng, Ngân hàng Nhà nước quay lại 'hút tiền'; Loạt cổ phiếu 'hot' một thời sắp rời sàn hoặc hạn chế giao dịch; Độc đáo lễ hội mùa vàng Bắc Sơn; Ẩm thực truyền thống vùng đất cố đô Hoa Lư...
-- Hôm nay 19-10, thời tiết Nam Bộ vẫn duy trì mưa to vào chiều tối đến đêm; Bắc Bộ mưa rào và có sương mù nhẹ buổi sáng.
-- Thủ tướng Chính phủ Phạm Minh Chính ký các quyết định thi hành kỷ luật 2 nguyên chủ tịch UBND tỉnh Lâm Đồng.
-- Quán karaoke ở mặt tiền đường Đồng Khởi (TP Biên Hòa, Đồng Nai) đang tạm ngưng hoạt động để sửa chữa, bất ngờ bốc cháy dữ dội.
-- Bộ Giao thông vận tải lấy ý kiến của UBND TP.HCM, tỉnh Long An và Tiền Giang về dự án mở rộng đường cao tốc TP.HCM - Trung Lương - Mỹ Thuận lên 6-8 làn xe.
-- Vụ cháy chung cư mini trong đêm khiến nhiều người bị mắc kẹt, và cảnh sát đã đưa xe thang tới giải cứu.
-- Liên quan vụ nổ ở phường Tam Bình, TP Thủ Đức, bước đầu lực lượng chức năng nhận thấy nguyên nhân có khả năng do rò rỉ khí ở hầm biogas.
-- Trong báo cáo, tỉnh Quảng Nam cho biết hiện có 10 ổ dịch bệnh dại bùng phát, 667 người bị chó, mèo có biểu hiện bệnh dại cắn và một người tử vong. Số ca phải tới cơ sở y tế điều trị cũng tăng gấp đôi.
-- Liên quan đến việc các hãng tàu quốc tế đã hủy chuyến đưa du khách đến TP Nha Trang, Sở Du lịch Khánh Hòa vừa có kiến nghị khẩn.
-- Các ông Hoàng Văn Chương và Nguyễn Hoàng Hải được bổ nhiệm giữ chức trợ lý ủy viên Bộ Chính trị, Chủ tịch Quốc hội Trần Thanh Mẫn.
-- Thanh tra Chính phủ cho rằng chi phí người dân bỏ ra để xét nghiệm nồng độ cồn khi khám sức khỏe cấp bằng lái xe là khoảng 350 tỉ đồng và đề nghị bỏ quy định này.
-- Sở Tài nguyên và Môi trường TP.HCM vừa có tờ trình UBND TP.HCM về ban hành đề án cải thiện nhà vệ sinh công cộng trên địa bàn TP.HCM giai đoạn 2024-2025.
-- Giải thưởng Thành tựu y khoa Việt Nam nhận được 68 sản phẩm đăng ký tham gia đến từ TP.HCM và 2 tỉnh thành Đắk Nông và Cần Thơ.
-- Chiều 18-10, lãnh đạo tỉnh Ninh Thuận đã đến Đồng Nai mời gọi các doanh nghiệp xúc tiến đầu tư vào các công trình trọng điểm và một số lĩnh vực.
-- Dự báo khoảng từ ngày 23 đến 25-10, trên Biển Đông khả năng có một cơn bão hoặc áp thấp nhiệt đới hoạt động.
-- Ủy ban Kiểm tra Quân ủy Trung ương nhiệm kỳ 2020-2025 tổ chức kỳ họp thứ 20 và đã xem xét, cho ý kiến đề nghị xử lý kỷ luật với 12 quân nhân vi phạm.
-- Thủ tướng Phạm Minh Chính sẽ dự Hội nghị các nhà lãnh đạo nhóm BRICS mở rộng từ ngày 23-10, đánh dấu lần đầu tiên Việt Nam tham gia ở cấp người đứng đầu Chính phủ.
-- Triều cường dâng cao và đạt đỉnh, trên tuyến đường Trần Xuân Soạn, quận 7, TP.HCM ngập nặng gây khó khăn cho người dân qua lại.
-- Giám đốc Sở Y tế Phú Thọ Nguyễn Huy Ngọc (54 tuổi) được bầu làm phó chủ tịch UBND tỉnh Phú Thọ khóa XIX, nhiệm kỳ 2021-2026.
-- Thủ tướng Phạm Minh Chính vừa ký quyết định số 1211 phân công trưởng Ban Chỉ đạo phòng, chống rửa tiền.
-- Ông Mai Sơn, phó chủ tịch thường trực UBND tỉnh Bắc Giang, được giao quyền chủ tịch đến khi kiện toàn chức vụ chủ tịch UBND tỉnh Bắc Giang nhiệm kỳ 2021 - 2026.
-- Hàng loạt phòng khám nha khoa tại TP.HCM vừa bị Thanh tra Sở Y tế TP xử phạt vì quảng cáo trái phép, không niêm yết giá dịch vụ, tuyển nhân viên không có giấy phép hành nghề...
-- TP.HCM lấy ý kiến về việc lập thêm 3 ban quản lý dự án, để đảm đương khối lượng công việc và nhiều dự án lớn trong thời gian tới.
-- Ngày 18-10, Chủ tịch Quốc hội Trần Thanh Mẫn đã có cuộc hội kiến Tổng Bí thư, Chủ tịch nước Lào Thongloun Sisoulith.
-- Gần 200 hình ảnh, tư liệu, hiện vật có giá trị lịch sử được trưng bày nhằm giới thiệu khái quát về quê hương Hà Tĩnh và gia đình, quá trình hoạt động cách mạng của anh Lý Tự Trọng - người đoàn viên thanh niên cộng sản đầu tiên.
+- Việc xác minh tài sản của 14 cán bộ lãnh đạo, nhân viên các cơ quan thuộc UBND TP Nha Trang và doanh nhân do có liên can các gói thầu.
+- Quảng Trị vừa đề nghị Bộ Công Thương bổ sung thêm 4.100 - 6.000MW điện gió trên bờ và ngoài khơi vào Quy hoạch điện VIII.
+- 900 website được phê duyệt có chữ cái bắt đầu bằng "thuốc" hoặc "pharma", tuy nhiên chưa có quy định rõ về mua bán thuốc trên mạng.
+- Một số tin tức đáng chú ý: Phát hiện 956 vụ phạm tội tham nhũng và chức vụ; Lo tín dụng rót nhiều vào bất động sản; Một học sinh tiểu học tử vong do sốt xuất huyết...
+- 23h ngày 19-10, phiên đấu giá 27 thửa đất ở quận Hà Đông (Hà Nội) đã kết thúc sau ròng rã 14 tiếng diễn ra. Lô đất có giá trị cao nhất được trúng đấu giá chạm ngưỡng 262 triệu đồng/m².
+- Hôm nay 20-10, thời tiết cả nước có mưa, nhiều nơi mưa to, đề phòng thiên tai đi kèm gây thiệt hại về người và tài sản.
+- Ngày 19-10, thông tin từ Binh chủng Công binh cho biết lực lượng đã xử lý an toàn một quả bom 1.362kg được phát hiện gần cầu Long Biên, Hà Nội.
+- Đó là thông điệp của Chủ tịch Quốc hội Trần Thanh Mẫn tại phiên họp Đại hội đồng liên nghị viện ASEAN ở Lào ngày 19-10. Cùng ngày trước khi về nước, ông đã có một số cuộc tiếp xúc song phương.
+- Ngày 19-10, đoàn hành trình 'Theo bước chân anh hùng Lý Tự Trọng' đã có nhiều hoạt động ý nghĩa tại tỉnh Hà Tĩnh, quê hương anh Lý Tự Trọng.
+- Triều cường dâng rất cao ngày thứ 3 liên tiếp khiến bến Ninh Kiều và nhiều tuyến đường lân cận bị ngập sâu, không còn nhận ra đâu là đường, đâu là sông.
+- Vừa trúng đấu giá lô đất 62,5m² với giá 9,1 tỉ đồng, người phụ nữ ở Hà Nội đã rao bán với giá 9,7 tỉ.
+- Chiều 19-10, triều cường tiếp tục dâng cao khiến tuyến đường Trần Xuân Soạn lại “chìm” trong biển nước. Xe máy di chuyển cùng xe lớn, tiềm ẩn nhiều mối nguy.
+- Dù mới trải qua nửa phiên đấu giá, giá đất tại một số khu vực thuộc quận Hà Đông đã bị đẩy lên 220 triệu/m² khiến nhiều người dân lắc đầu ngao ngán.
+- Người phụ nữ 50 tuổi ở Phú Yên chạy xe máy qua đường sắt thì bị đoàn tàu đang chạy theo hướng Nam - Bắc tông phải.
+- Bộ Giao thông vận tải sẽ tiếp tục rà soát, làm việc với UBND tỉnh Bà Rịa - Vũng Tàu để thống nhất phương án đầu tư sân bay Côn Đảo trong tháng 10-2024.
+- Ngày 19-10, đoàn hành trình 'Theo bước chân anh hùng Lý Tự Trọng' đã đến thắp nhang tại nhà liệt sĩ Anh hùng Lực lượng vũ trang Lê Thị Bạch Cát tại phường Nghi Thủy, thị xã Cửa Lò, tỉnh Nghệ An.
+- Kết quả thí nghiệm chỉ tiêu độ mặn trong khu vực dùng cát biển làm nền đường đều trong ngưỡng cho phép.
+- Chủ tịch tỉnh Quảng Nam yêu cầu tạm dừng công nhận kết quả vụ đấu giá cát ở Điện Bàn, làm rõ dấu hiệu thao túng trục lợi.
+- Bộ Y tế vừa ban hành thông tư quy định về thanh toán chi phí thuốc, thiết bị y tế trực tiếp cho người có thẻ bảo hiểm y tế đi khám, chữa bệnh.
+- Trong thông điệp gửi phiên khai mạc Đại hội đồng AIPA-45, Tổng Bí thư, Chủ tịch nước Tô Lâm nêu rõ cần tiếp tục tăng cường sự kết nối, bổ trợ lẫn nhau giữa AIPA và ASEAN.
+- Bộ đội phòng hóa cùng diễn tập ứng cứu sự cố tại Tổ hợp hóa dầu Long Sơn, Bà Rịa - Vũng Tàu. Tổ hợp hóa dầu này có tổng mức đầu tư 5 tỉ đô la Mỹ, vừa đi vào vận hành thương mại.
+- Trước đó, số bệnh nhân tỉnh đến khám tại Bệnh viện Ung bướu TP.HCM là 75% thì hiện đã tăng lên 82%.
+- Công an thành phố Thái Bình đang điều tra nguyên nhân vụ một taxi bỗng mở cửa sau bất cẩn khiến người đi xe máy bị xe buýt cán tử vong.
+- Sau khi va quẹt xe máy ngã xuống đường, một nam sinh dùng mũ bảo hiểm đánh tới tấp nam sinh khác.
+- Chưa rõ ý của doanh nghiệp chốt 370 tỉ đồng cho mỏ cát 159.000m³ ở Quảng Nam là gì, nhưng theo khái toán của nhiều doanh nghiệp thì mỗi m³ cát có giá trên 2 triệu đồng là điều không tưởng.
+- Sáng 19-10, tại Lữ đoàn 125 (Bộ tư lệnh Vùng 2 hải quân) Hội truyền thống đường Hồ Chí Minh trên biển tổ chức họp mặt kỷ niệm 63 năm ngày mở đường.
+- Tỉ lệ thuận với giá cau từng tăng vọt kỷ lục, hiện nay giá cau cũng… lao dốc kỷ lục. Bộ Nông nghiệp và Phát triển nông thôn đã lên tiếng.
+- Bộ Nội vụ đã đề xuất sửa đổi, bổ sung quy định về trách nhiệm của Chính phủ và quy định về nhiệm vụ, quyền hạn của Thủ tướng Chính phủ.
+- Đó là các chỉ đạo của Thủ tướng đưa ra ngày 19-10. Năm 2025 nhu cầu điện tăng thêm từ khoảng 2.200 - 2.500 MW, Thủ tướng cho rằng cần chủ động các giải pháp để đảm bảo cung ứng điện.
+- Chủ tịch nước phong tặng danh hiệu Anh hùng Lực lượng vũ trang nhân dân cho Tiểu đoàn 59 và truy tặng danh hiệu Anh hùng Lực lượng vũ trang nhân dân cho ba cá nhân thuộc tiểu đoàn này.
 ![New](News.png)
 ## Nhịp sống số 
 - Theo cam kết của nhà cung cấp dịch vụ, Lotus Chat là ứng dụng dành cho người dùng Việt có tính bảo mật và tiện lợi.
