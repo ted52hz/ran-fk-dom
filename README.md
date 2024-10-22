@@ -1,6 +1,13 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Bộ Giáo dục và Đào tạo đã yêu cầu các trường đại học liên quan khẩn trương thu hồi văn bằng đã cấp cho ông Vương Tấn Việt, do phát hiện bằng tốt nghiệp cấp III của ông này không hợp pháp.
+- Theo thông tin về kết quả xử lý văn bằng của ông Vương Tấn Việt xác định ông đã sử dụng bằng cấp 3 bổ túc văn hóa không hợp pháp, ông Việt cũng thừa nhận việc này.
+- Hiệu trưởng Trường THCS Nguyễn An Ninh ở phường Trung Mỹ Tây (quận 12) đã tự nguyện giao một con tê tê Java cho Chi cục Kiểm lâm TP.HCM.
+- Thi vào lớp 10 kiểu xoay vòng các môn không thể giải quyết nạn học lệch, học tủ, vì nếu như môn A đã thi rồi thì năm sau chắc chắn sẽ bị 'bỏ lơ'...
+- Tại TP.HCM có những cuộc thi mà học sinh không hề căng thẳng, trái lại được chơi hết mình, được trải nghiệm nhiều điều thú vị...
+- Bên cạnh đó, cơ sở đại học này phải có chuẩn giảng viên không được thấp hơn quy định đối với cơ sở giáo dục Việt Nam.
+- Sáng 20-10, ĐH Quốc gia TP.HCM đã tổ chức lễ khai khóa năm học 2024 - 2025 với chủ đề: "Sinh viên ĐH Quốc gia TP.HCM sẵn sàng cho kỷ nguyên vươn mình của đất nước".
 - Ngày càng nhiều sinh viên Canada tham gia các chương trình trao đổi từ vài tuần đến vài tháng ở TP.HCM, Cần Thơ, Trà Vinh...
 - Trần Anh Nam - sinh viên ngành logistics Trường cao đẳng Kinh tế TP.HCM - vừa tốt nghiệp thủ khoa với điểm số GPA đến 3.88/4.
 - Thái Nguyễn Đăng Khoa - sinh viên năm 3 ngành quản lý nhà nước Học viện Cán bộ TP.HCM - là 1 trong 15 đại biểu Tàu SSEAYP 2024.
@@ -24,47 +31,41 @@
 - Nhận được bức thư của nữ sinh lớp 7 ở Hà Tĩnh xin hỗ trợ cho bạn học cùng lớp, ông Hoàng Trọng Thủy vô cùng xúc động nên đã đăng tải lên mạng xã hội. Ngay sau đó có một số người liên hệ với ông Thủy đề nghị giúp đỡ.
 - Trường tiểu học Tân Sơn Nhì (quận Tân Phú, TP.HCM) mời phụ huynh tham gia tiết học mở, bữa ăn bán trú cùng học sinh.
 - Tháng 10 hằng năm, sau khi những người đoạt giải Nobel được công bố, thế giới lại được chiêm ngưỡng những bức chân dung mang tính biểu tượng.
-- Các trường đại học đang lúng túng trong việc công bố chi tiết cách xét tuyển theo điểm thi tốt nghiệp THPT 2025.
-- Bộ Giáo dục và Đào tạo cho biết sẽ tổ chức tổng kết, rút kinh nghiệm quá trình xã hội hóa việc biên soạn, phát hành, in ấn và hiệu quả sử dụng sách giáo khoa.
-- Bước vào cuối cấp, thông qua những chuyến đi thực tế học sinh dễ hình dung, nhóm lên dự định về công việc mong muốn để sớm phát triển bản thân.
-- Những quốc gia như Lào, Myanmar đang có nhiều dự án lớn tầm quốc gia ứng dụng trí tuệ nhân tạo (AI) trong giáo dục.
-- Phụ huynh có thể tra cứu thời hạn sử dụng thẻ bảo hiểm y tế bằng nhiều cách, hoặc đăng ký tài khoản VssID cho con qua tài khoản của cha mẹ để tra cứu.
-- Công ty TA. Development đã trao 2,5 tỉ đồng cho sinh viên có hoàn cảnh khó khăn của Trường đại học Đà Lạt.
-- Thương bạn cùng lớp có hoàn cảnh khó khăn, một nữ sinh lớp 7 đã viết bức thư tay gửi người thân để xin hỗ trợ cho bạn, gây xúc động cho những người đọc được lá thư này.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Cao tốc TP.HCM - Trung Lương - Mỹ Thuận dài 91km được đề xuất mở rộng lên 6-8 làn xe, hai làn dừng khẩn cấp với tổng mức đầu tư 32.270 tỉ đồng.
-- Các sai phạm có hệ thống từ khâu cấp phép, nghiệm thu đến kiểm tra tại karaoke An Phú, tỉnh Bình Dương dẫn tới vụ cháy làm 32 người chết, trong đó có sự tiếp tay của các cán bộ phòng cháy chữa cháy.
-- Chỉ tính riêng năm 2023, lượng thuốc lá sản xuất trong nước đạt 5,3 tỉ bao. Trong đó, lượng tiêu thụ trong nước lên đến 4 tỉ bao thuốc mỗi năm (theo số liệu năm 2021) với trên 15 triệu người Việt hút thuốc.
-- Sáng 21-10, trước giờ khai mạc kỳ họp thứ 8, lãnh đạo Đảng, Nhà nước và các đại biểu Quốc hội đã vào Lăng viếng Chủ tịch Hồ Chí Minh.
-- Sáng nay (21-10), kỳ họp thứ 8 của Quốc hội khai mạc để xem xét, quyết định nhiều nội dung quan trọng, trong đó sẽ tiến hành quy trình nhân sự Chủ tịch nước.
-- Theo Cục Thuế tỉnh Khánh Hòa, Công ty cổ phần Khách sạn Bến du thuyền tại TP Nha Trang là một trong các doanh nghiệp nợ thuế lớn, đã bị cưỡng chế để thu nợ thuế nhưng vẫn chưa nộp.
-- Hôm nay 21-10, thời tiết cả nước có mưa, riêng miền Trung mưa to đến rất to.
-- Tin tức đáng chú ý: Sáng nay khai mạc kỳ họp thứ 8, Quốc hội khóa XV; Dự báo có mưa lớn diện rộng tại Đà Nẵng từ ngày 20 tới 24-10; Cấp cứu thủy thủ Trung Quốc đột quỵ trên biển...
-- Lễ trao giải Cuộc thi chính luận về bảo vệ nền tảng tư tưởng của Đảng lần thứ tư, năm 2024 đã diễn ra tại Học viện Chính trị quốc gia Hồ Chí Minh tối 20-10. Tổng Bí thư, Chủ tịch nước Tô Lâm dự và phát biểu chỉ đạo.
-- Quốc hội sẽ nghe tờ trình dự án đường sắt tốc độ cao Bắc - Nam vào ngày 13-11, thảo luận tại hội trường vào ngày 20-11 và nếu đồng thuận cao sẽ biểu quyết thông qua ngày 30-11.
-- Tổng Bí thư, Chủ tịch nước Tô Lâm nêu rõ phòng chống tham nhũng, lãng phí, tiêu cực phải tiến hành đồng bộ các biện pháp.
-- Phục vụ tái định cư nhà bị giải tỏa thuộc dự án và việc chỉnh trang, di dời nhà ven, trên kênh rạch, nhưng dự án tái định cư quận 8, TP.HCM lại bán hơn 1.000 căn sai đối tượng.
-- Công an tỉnh Bình Định đang làm việc với tài xế xe tải chở dăm gỗ lật đè chết 3 người đi đường ở TP Quy Nhơn.
-- Hàng chục hộ dân sống dưới chân hai ngọn núi Phước Tượng, Phú Gia (huyện Phú Lộc, Thừa Thiên Huế) thấp thỏm sống trong nỗi lo sạt lở, khi mùa mưa bão cận kề.
-- Xe cấp cứu đang làm nhiệm vụ trên đường ở phường 9, quận Tân Bình (TP.HCM) bị người đàn ông đi xe máy chặn lại, lớn tiếng chỉ mặt tài xế dọa 'mày có ngon thì tông vô coi'.
-- UBND TP Thủ Đức (TP.HCM) đề xuất mở rộng nhiều tuyến đường cấm xe tải nặng ở khu Đông TP Thủ Đức, nhằm đảm bảo an toàn giao thông cho người dân.
-- Dự án đường sắt tốc độ cao Bắc - Nam dài 1.541km, tốc độ 350km/h với tổng mức đầu tư 67,43 tỉ USD đã được Chính phủ trình Quốc hội xem xét, phê duyệt chủ trương đầu tư.
-- Người đàn ông ở Hà Nội có dấu hiệu bất thường về sức khỏe sau khi tới phòng tập gym và bất tỉnh sau đó. Khi cán bộ y tế đến, người này đã tử vong.
-- Trung tướng Nguyễn Doãn Anh, phó tổng tham mưu trưởng Quân đội nhân dân Việt Nam, đã được thăng quân hàm thượng tướng.
-- Tổng Bí thư, Chủ tịch nước Tô Lâm trao quyết định thăng quân hàm đại tướng cho Bộ trưởng Bộ Công an Lương Tam Quang và Tổng tham mưu trưởng, Thứ trưởng Bộ Quốc phòng Nguyễn Tân Cương.
-- Bà Nguyễn Thanh Hải cho biết tại ngày họp đầu tiên, Quốc hội sẽ tiến hành quy trình nhân sự với chức danh Chủ tịch nước.
-- Công an tỉnh Tiền Giang cho biết đang điều tra nguyên nhân vụ tai nạn giao thông giữa xe tải và xe máy làm 2 người chết.
-- Người phụ nữ cùng một thủ đoạn giả vờ mua hàng rồi lợi dụng lúc chủ cửa hàng không chú ý sẽ trộm điện thoại.
-- Nhiều bạn đọc phản ánh tình trạng xe tải nặng đi lại nườm nượp mỗi ngày qua các tuyến đường khu vực này rất nguy hiểm.
-- "Trách nhiệm với các thiếu sót, khuyết điểm thuộc về nhà thầu tư vấn thiết kế, nhà thầu thi công, nhà thầu tư vấn giám sát, chủ đầu tư".
-- Ngày 20-10, Trung ương Đoàn phối hợp tỉnh Hà Tĩnh tổ chức hội thảo khoa học với chủ đề "Tinh thần Lý Tự Trọng - Khát vọng của thanh niên".
-- Tổng Bí thư, Chủ tịch nước nêu phải chú trọng đào tạo, bồi dưỡng, thử thách với các nhân sự được quy hoạch tham gia cấp ủy các cấp.
-- Thủ tướng nêu rõ chủ trương đầu tư đường sắt tốc độ cao Bắc - Nam là lựa chọn mang tính chất chiến lược để phát triển hạ tầng đất nước.
-- Xe tải chở dăm gỗ đang chạy trên quốc lộ 1D đoạn băng qua trung tâm Quy Nhơn bất ngờ lật giữa đường đè 3 người đi trên xe máy chết tại chỗ.
-- Dự báo từ tối nay đến ngày 22-10, miền Trung có mưa to. Tuần tới Biển Đông khả năng có bão hoặc áp thấp nhiệt đới.
+- UBND TP vừa ban hành quyết định 79 quy định bảng giá đất điều chỉnh để áp dụng từ ngày 31-10 đến 31-12-2025.
+- Bộ Giáo dục và Đào tạo đã yêu cầu các trường đại học liên quan khẩn trương thu hồi văn bằng đã cấp cho ông Vương Tấn Việt, do phát hiện bằng tốt nghiệp cấp III của ông này không hợp pháp.
+- Trải qua 30 năm xây dựng và phát triển, ngoài một số vướng mắc về mặt bằng thì hiện nay hạ tầng của Đại học Quốc gia TP.HCM đã dần hình thành diện mạo của đô thị đại học hiện đại bậc nhất cả nước.
+- Cơ quan điều tra Công an tỉnh Vĩnh Long đang tiếp tục làm rõ vụ việc đôi nam nữ tử vong trong căn nhà thuê ở huyện Long Hồ với vết thương thấu cổ.
+- Cơ quan khí tượng Nhật Bản, Hong Kong cho biết áp thấp nhiệt đới ngoài khơi Philippines mạnh lên thành bão Trami.
+- Tổng Bí thư Tô Lâm cho biết ba điểm nghẽn lớn nhất hiện nay là thể chế, hạ tầng và nhân lực; trong đó, thể chế là 'điểm nghẽn của điểm nghẽn'.
+- Ngọn lửa bùng phát dữ dội tại nhà xưởng trên đường Xuân Thới Thượng 1, xã Xuân Thới Thượng, huyện Hóc Môn, TP.HCM khiến nhiều tài sản bị thiêu rụi.
+- Một số tin tức đáng chú ý: Một ngân hàng bổ nhiệm cùng lúc ba phó tổng giám đốc; Công ty năng lượng của đại gia Vũ Quang Bảo bị phạt liên quan trái phiếu; Giá chung cư ở Vũng Tàu không tăng mà còn giảm...
+- Hôm nay 22-10, thời tiết Bắc Bộ sẽ đón không khí lạnh tăng cường. Trung Bộ mưa to, còn Nam Bộ mưa rào.
+- Nhiều loại giấy tờ như căn cước công dân, bằng lái xe, thẻ ATM... cho đến dữ liệu cá nhân đang bị một số người chào bán như món hàng.
+- Chính phủ vừa có tờ trình gửi Quốc hội phê duyệt chủ trương đầu tư dự án đường sắt tốc độ cao trên trục Bắc - Nam.
+- UBND TP.HCM vừa ban hành quyết định khung giá thuê nhà trọ (tư nhân) từ 64.000 đồng/m²/tháng, giá thuê nhà ở xã hội từ 96.000 đồng/m²/tháng.
+- Do ảnh hưởng của không khí lạnh tăng cường nên thời tiết miền Bắc chuyển lạnh vào đêm và sáng, riêng vùng núi trời rét, còn miền Trung có mưa to.
+- Theo thông tin về kết quả xử lý văn bằng của ông Vương Tấn Việt xác định ông đã sử dụng bằng cấp 3 bổ túc văn hóa không hợp pháp, ông Việt cũng thừa nhận việc này.
+- Sau trận mưa nặng hạt, quốc lộ 1 đoạn thành phố Biên Hòa, tỉnh Đồng Nai chìm trong nước khiến giao thông ùn ứ cục bộ.
+- Lực lượng chức năng phường 9 phối hợp Đội Cảnh sát giao thông - trật tự Công an quận Tân Bình đã mời người đàn ông chặn xe cấp cứu đang làm nhiệm vụ.
+- Hiệu trưởng Trường THCS Nguyễn An Ninh ở phường Trung Mỹ Tây (quận 12) đã tự nguyện giao một con tê tê Java cho Chi cục Kiểm lâm TP.HCM.
+- Chiếc xe con chưa rõ biển số được người dân phát hiện rơi xuống vực sâu trên đèo Bảo Lộc (Lâm Đồng) khiến người đàn ông tử vong.
+- Trong bất kể điều kiện, hoàn cảnh nào, quân đội sẵn sàng hy sinh, sẵn sàng trở thành lực lượng đi đầu trong giải quyết các nhiệm vụ cấp bách.
+- Nút giao Bình Thái thuộc đoạn 1 dự án vành đai 2 TP.HCM vừa được phê duyệt quy chế thi tuyển phương án kiến trúc.
+- Nhóm 11 người liên quan đến vụ hỗn chiến khiến 2 thiếu niên tử vong tại Bố Trạch (Quảng Bình) đã bị bắt giữ và có những lời khai ban đầu.
+- Dự báo áp thấp nhiệt đới ngoài khơi Philippines có khả năng mạnh lên thành bão trong 24 giờ tới và  hướng vào Biển Đông.
+- Công ty TNHH du lịch và sự kiện Đảo Ngọc Phú Quốc phản ánh thanh tra viên Sở Du lịch Kiên Giang vào nhà riêng khi chưa có sự cho phép, yêu cầu người không được ủy quyền ký văn bản.
+- Mỏ cát ĐB2B tại thôn Kỳ Bì, xã Điện Thọ (Điện Bàn, Quảng Nam) bỗng gây xôn xao bởi câu chuyện được chốt 370 tỉ đồng trong cuộc đấu giá suốt 20 tiếng.
+- Chủ tịch UBND tỉnh Bình Định giao Công an tỉnh điều tra, xử lý nghiêm vụ lật xe tải chở dăm gỗ làm 3 người chết tại Quy Nhơn.
+- Hai người đàn ông và một phụ nữ được phát hiện nằm dưới sàn một phòng hát quán karaoke, người nhiều vết thương, đầy máu. Trong đó, hai người đã tử vong.
+- Phật viện Đồng Dương, di tích quốc gia đặc biệt ở Quảng Nam, một trong những tu viện Phật giáo của vương quốc Champa, đến nay xuống cấp trầm trọng, gần như là phế tích khiến người dân không khỏi xót xa, chạnh lòng.
+- Tân Chủ tịch nước Lương Cường nhấn mạnh sẽ nỗ lực hết sức mình, phấn đấu hoàn thành tốt nhiệm vụ Chủ tịch nước theo Hiến pháp, nhiệm vụ được Đảng, Nhà nước, nhân dân tin tưởng giao phó.
+- 8 hộ dân từng mua nhà đất hóa giá của khu tập thể Tòa án nhân dân tỉnh Nghệ An phải sống 'treo' giữa lòng TP Vinh, vì chưa được cấp giấy chứng nhận quyền sử dụng đất.
+- Với 100% đại biểu có mặt tán thành, Quốc hội đã thông qua nghị quyết về việc bầu Thường trực Ban Bí thư - Đại tướng Lương Cường làm Chủ tịch nước nhiệm kỳ 2021-2026.
 ![New](News.png)
 ## Nhịp sống số 
+- Công nghệ giả mạo 'deepfake' đang gây khó cho cơ quan quản lý Hàn Quốc, trong bối cảnh người dân ngày càng dành nhiều thời gian xem YouTube, Instagram.
 - Theo cam kết của nhà cung cấp dịch vụ, Lotus Chat là ứng dụng dành cho người dùng Việt có tính bảo mật và tiện lợi.
 - Qua nhiều ngày trải nghiệm kết nối 5G tại nhiều địa điểm, thời gian khác nhau tại TP.HCM, Tuổi Trẻ Online đã có những ghi nhận khác nhau về tốc độ 5G.
 - Từ 0h ngày 16-10, Việt Nam sẽ chính thức tắt sóng 2G. Hiện vẫn còn hàng trăm nghìn thuê bao 2G Only đang hoạt động.
@@ -94,5 +95,4 @@
 - Xã hội Trí tuệ nhân tạo được phác thảo là một xã hội ứng dụng sâu rộng trí tuệ nhân tạo vào mọi mặt chính trị, xã hội, kinh tế, khoa học công nghệ, kinh doanh, văn hóa, giáo dục.
 - Đây là một trong những nhiệm vụ mà Thủ tướng Phạm Minh Chính đề ra trong việc nâng cao hiệu quả cung cấp và sử dụng dịch vụ công trực tuyến.
 - Apple chính thức thông báo sẽ tổ chức sự kiện ra mắt iPhone 16, một trong những sự kiện công nghệ được mong đợi nhất hành tinh, vào ngày 9-9.
-- Nhiều nghiên cứu cho thấy trẻ dùng smartphone đối mặt nhiều nguy cơ, đặc biệt là chức năng thần kinh bị ảnh hưởng, bị 'đầu độc' và bắt nạt trực tuyến...
 ![life](Life.png)
