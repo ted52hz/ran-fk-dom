@@ -1,6 +1,11 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Ông Bùi Văn Huân, hiệu trưởng Trường phổ thông dân tộc nội trú THCS và THPT thị xã Sa Pa (Lào Cai), bị tạm đình chỉ để kiểm tra, xác minh làm rõ phản ánh về tồn tại, hạn chế trong công tác quản lý của hiệu trưởng.
+- Sau khi phát hiện vi phạm tuyển sinh, chế độ đối với học sinh trường phổ thông dân tộc nội trú ở một số huyện, Sở Giáo dục và Đào tạo Thanh Hóa đã tiến hành kiểm tra, rà soát hoạt động của tất cả trường nội trú.
+- Chủ tịch Hội đồng trường Trường đại học Thủ Dầu Một, tỉnh Bình Dương cho biết sẽ trả lại sinh viên 37 tỉ đồng học phí thu vượt mức, trước đó đã được nộp vào ngân sách.
+- Khi chọn ngành nghề, cần tư duy mở, liên kết các ngành, các lĩnh vực và chú ý các ngành dịch vụ hiện đại như điện tử, sản xuất phần mềm, trí tuệ nhân tạo...
+- Ông Vương Tấn Việt (tức thượng tọa Thích Chân Quang) đã học đại học ngành ngôn ngữ Anh của Trường đại học Ngoại ngữ Hà Nội, hệ đào tạo từ xa từ năm 1994 đến năm 2001.
 - Bộ Giáo dục và Đào tạo đã yêu cầu các trường đại học liên quan khẩn trương thu hồi văn bằng đã cấp cho ông Vương Tấn Việt, do phát hiện bằng tốt nghiệp cấp III của ông này không hợp pháp.
 - Theo thông tin về kết quả xử lý văn bằng của ông Vương Tấn Việt xác định ông đã sử dụng bằng cấp 3 bổ túc văn hóa không hợp pháp, ông Việt cũng thừa nhận việc này.
 - Hiệu trưởng Trường THCS Nguyễn An Ninh ở phường Trung Mỹ Tây (quận 12) đã tự nguyện giao một con tê tê Java cho Chi cục Kiểm lâm TP.HCM.
@@ -26,45 +31,42 @@
 - Kỳ thi lớp 10 gồm ba môn toán, ngữ văn và một môn thi thứ ba hoặc bài thi tổ hợp do sở giáo dục và đào tạo lựa chọn và được công bố trước ngày 31-3 hằng năm.
 - Để đảm bảo tiến độ thực hiện kết luận kiểm toán, Trường đại học Thủ Dầu Một, tỉnh Bình Dương đã nộp 37 tỉ đồng học phí thu vượt vào ngân sách, nhưng nay sẽ được xem xét hoàn trả cho sinh viên.
 - Giáo viên nhận xét ra sao về đề tham khảo thi tốt nghiệp THPT từ năm 2025?
-- Theo đề xuất của Bộ Giáo dục và Đào tạo, sinh viên hệ vừa học vừa làm, hệ đào tạo từ xa sẽ được cấp học bổng như sinh viên chính quy.
-- Bộ Giáo dục và Đào tạo vừa công bố đề thi tham khảo kỳ thi tốt nghiệp THPT năm 2025 của 10 môn văn hóa và 7 môn ngoại ngữ.
-- Nhận được bức thư của nữ sinh lớp 7 ở Hà Tĩnh xin hỗ trợ cho bạn học cùng lớp, ông Hoàng Trọng Thủy vô cùng xúc động nên đã đăng tải lên mạng xã hội. Ngay sau đó có một số người liên hệ với ông Thủy đề nghị giúp đỡ.
-- Trường tiểu học Tân Sơn Nhì (quận Tân Phú, TP.HCM) mời phụ huynh tham gia tiết học mở, bữa ăn bán trú cùng học sinh.
-- Tháng 10 hằng năm, sau khi những người đoạt giải Nobel được công bố, thế giới lại được chiêm ngưỡng những bức chân dung mang tính biểu tượng.
 ![Edu](Edu.png)
 ## Thời Sự 
-- UBND TP vừa ban hành quyết định 79 quy định bảng giá đất điều chỉnh để áp dụng từ ngày 31-10 đến 31-12-2025.
-- Bộ Giáo dục và Đào tạo đã yêu cầu các trường đại học liên quan khẩn trương thu hồi văn bằng đã cấp cho ông Vương Tấn Việt, do phát hiện bằng tốt nghiệp cấp III của ông này không hợp pháp.
-- Trải qua 30 năm xây dựng và phát triển, ngoài một số vướng mắc về mặt bằng thì hiện nay hạ tầng của Đại học Quốc gia TP.HCM đã dần hình thành diện mạo của đô thị đại học hiện đại bậc nhất cả nước.
-- Cơ quan điều tra Công an tỉnh Vĩnh Long đang tiếp tục làm rõ vụ việc đôi nam nữ tử vong trong căn nhà thuê ở huyện Long Hồ với vết thương thấu cổ.
-- Cơ quan khí tượng Nhật Bản, Hong Kong cho biết áp thấp nhiệt đới ngoài khơi Philippines mạnh lên thành bão Trami.
-- Tổng Bí thư Tô Lâm cho biết ba điểm nghẽn lớn nhất hiện nay là thể chế, hạ tầng và nhân lực; trong đó, thể chế là 'điểm nghẽn của điểm nghẽn'.
-- Ngọn lửa bùng phát dữ dội tại nhà xưởng trên đường Xuân Thới Thượng 1, xã Xuân Thới Thượng, huyện Hóc Môn, TP.HCM khiến nhiều tài sản bị thiêu rụi.
-- Một số tin tức đáng chú ý: Một ngân hàng bổ nhiệm cùng lúc ba phó tổng giám đốc; Công ty năng lượng của đại gia Vũ Quang Bảo bị phạt liên quan trái phiếu; Giá chung cư ở Vũng Tàu không tăng mà còn giảm...
-- Hôm nay 22-10, thời tiết Bắc Bộ sẽ đón không khí lạnh tăng cường. Trung Bộ mưa to, còn Nam Bộ mưa rào.
-- Nhiều loại giấy tờ như căn cước công dân, bằng lái xe, thẻ ATM... cho đến dữ liệu cá nhân đang bị một số người chào bán như món hàng.
-- Chính phủ vừa có tờ trình gửi Quốc hội phê duyệt chủ trương đầu tư dự án đường sắt tốc độ cao trên trục Bắc - Nam.
-- UBND TP.HCM vừa ban hành quyết định khung giá thuê nhà trọ (tư nhân) từ 64.000 đồng/m²/tháng, giá thuê nhà ở xã hội từ 96.000 đồng/m²/tháng.
-- Do ảnh hưởng của không khí lạnh tăng cường nên thời tiết miền Bắc chuyển lạnh vào đêm và sáng, riêng vùng núi trời rét, còn miền Trung có mưa to.
-- Theo thông tin về kết quả xử lý văn bằng của ông Vương Tấn Việt xác định ông đã sử dụng bằng cấp 3 bổ túc văn hóa không hợp pháp, ông Việt cũng thừa nhận việc này.
-- Sau trận mưa nặng hạt, quốc lộ 1 đoạn thành phố Biên Hòa, tỉnh Đồng Nai chìm trong nước khiến giao thông ùn ứ cục bộ.
-- Lực lượng chức năng phường 9 phối hợp Đội Cảnh sát giao thông - trật tự Công an quận Tân Bình đã mời người đàn ông chặn xe cấp cứu đang làm nhiệm vụ.
-- Hiệu trưởng Trường THCS Nguyễn An Ninh ở phường Trung Mỹ Tây (quận 12) đã tự nguyện giao một con tê tê Java cho Chi cục Kiểm lâm TP.HCM.
-- Chiếc xe con chưa rõ biển số được người dân phát hiện rơi xuống vực sâu trên đèo Bảo Lộc (Lâm Đồng) khiến người đàn ông tử vong.
-- Trong bất kể điều kiện, hoàn cảnh nào, quân đội sẵn sàng hy sinh, sẵn sàng trở thành lực lượng đi đầu trong giải quyết các nhiệm vụ cấp bách.
-- Nút giao Bình Thái thuộc đoạn 1 dự án vành đai 2 TP.HCM vừa được phê duyệt quy chế thi tuyển phương án kiến trúc.
-- Nhóm 11 người liên quan đến vụ hỗn chiến khiến 2 thiếu niên tử vong tại Bố Trạch (Quảng Bình) đã bị bắt giữ và có những lời khai ban đầu.
-- Dự báo áp thấp nhiệt đới ngoài khơi Philippines có khả năng mạnh lên thành bão trong 24 giờ tới và  hướng vào Biển Đông.
-- Công ty TNHH du lịch và sự kiện Đảo Ngọc Phú Quốc phản ánh thanh tra viên Sở Du lịch Kiên Giang vào nhà riêng khi chưa có sự cho phép, yêu cầu người không được ủy quyền ký văn bản.
-- Mỏ cát ĐB2B tại thôn Kỳ Bì, xã Điện Thọ (Điện Bàn, Quảng Nam) bỗng gây xôn xao bởi câu chuyện được chốt 370 tỉ đồng trong cuộc đấu giá suốt 20 tiếng.
-- Chủ tịch UBND tỉnh Bình Định giao Công an tỉnh điều tra, xử lý nghiêm vụ lật xe tải chở dăm gỗ làm 3 người chết tại Quy Nhơn.
-- Hai người đàn ông và một phụ nữ được phát hiện nằm dưới sàn một phòng hát quán karaoke, người nhiều vết thương, đầy máu. Trong đó, hai người đã tử vong.
-- Phật viện Đồng Dương, di tích quốc gia đặc biệt ở Quảng Nam, một trong những tu viện Phật giáo của vương quốc Champa, đến nay xuống cấp trầm trọng, gần như là phế tích khiến người dân không khỏi xót xa, chạnh lòng.
-- Tân Chủ tịch nước Lương Cường nhấn mạnh sẽ nỗ lực hết sức mình, phấn đấu hoàn thành tốt nhiệm vụ Chủ tịch nước theo Hiến pháp, nhiệm vụ được Đảng, Nhà nước, nhân dân tin tưởng giao phó.
-- 8 hộ dân từng mua nhà đất hóa giá của khu tập thể Tòa án nhân dân tỉnh Nghệ An phải sống 'treo' giữa lòng TP Vinh, vì chưa được cấp giấy chứng nhận quyền sử dụng đất.
-- Với 100% đại biểu có mặt tán thành, Quốc hội đã thông qua nghị quyết về việc bầu Thường trực Ban Bí thư - Đại tướng Lương Cường làm Chủ tịch nước nhiệm kỳ 2021-2026.
+- Với việc giá cát bị đẩy lên mức hơn 2,3 triệu đồng/m³ trong vụ đấu giá mới đây, nhiều doanh nghiệp cho rằng có hiện tượng lợi dụng đấu thầu để 'thổi giá' cát.
+- Về tình trạng hàng rong tràn xuống lòng đường Hoàng Hoa Thám (TP Huế) từ 22h, UBND TP Huế đã có chỉ đạo lập một tuyến phố đi bộ ẩm thực mới.
+- Trước đây, người dân tại TP.HCM xin cấp định mức nước thông qua sổ hộ khẩu. Hiện nay sổ hộ khẩu đã được thay thế bằng mã định danh cá nhân.
+- Theo Chính phủ, bão số 3 (bão Yagi) dị thường, có sức tàn phá rất lớn, với các đặc điểm chưa có trong tiền lệ, gây thiệt hại kinh tế hơn 81.700 tỉ đồng.
+- Bộ Lao động - Thương binh và Xã hội sẽ trình Thủ tướng phương án nghỉ Quốc khánh, dịp 30-4 và 1-5 sau khi tổng hợp ý kiến các bên liên quan.
+- Trong đêm qua và rạng sáng nay (23-10), cường độ bão Trà Mi (bão Trami) cấp 9 (75-88km/h), giật cấp 11 (103-117km/h). Dự báo khi vào Biển Đông, cơn bão số 6 sẽ tiếp tục tăng cấp.
+- Tại chương trình “Hướng về biên giới - biển đảo Tổ quốc” đã có 79 đơn vị, cá nhân ủng hộ quỹ "Vì biển đảo quê hương - Vì tuyến đầu Tổ quốc" với tổng số tiền hơn 35,3 tỉ đồng.
+- Một số tin tức đáng chú ý: Phê duyệt 36 trạm dừng nghỉ trên cao tốc Bắc - Nam; TP.HCM kiểm tra, chấn chỉnh lạm thu quỹ phụ huynh; Phạt phòng khám quảng cáo 'nổ'...
+- Sáng 23-10, Thủ tướng Phạm Minh Chính lên chuyên cơ rời Hà Nội, bắt đầu các hoạt động trong khuôn khổ Hội nghị các nhà lãnh đạo nhóm BRICS mở rộng tại Nga.
+- Hôm nay 23-10, thời tiết Trung Bộ mưa to đến rất to. Bắc Bộ mát mẻ do ảnh hưởng không khí lạnh, Nam Bộ mưa rào.
+- Triều cường kèm mưa lớn kéo dài, nước từ đường chảy tràn vào hầm 3 chung cư ở phường Tân Hưng Thuận, quận 12, TP.HCM khiến hơn 100 xe máy, 3 ô tô bị nhấn chìm.
+- Chiều 22-10, Bộ chỉ huy Bộ đội biên phòng tỉnh Sơn La (Việt Nam) phối hợp với Công an, Bộ chỉ huy quân sự tỉnh Hủa Phăn (Lào) tổ chức diễn tập liên hợp đánh bắt tội phạm ma túy qua biên giới Việt Nam - Lào.
+- Ông Bùi Văn Huân, hiệu trưởng Trường phổ thông dân tộc nội trú THCS và THPT thị xã Sa Pa (Lào Cai), bị tạm đình chỉ để kiểm tra, xác minh làm rõ phản ánh về tồn tại, hạn chế trong công tác quản lý của hiệu trưởng.
+- Chi cục Kiểm lâm TP.HCM vừa tiếp nhận con tê tê Java được phát hiện tại Trung tâm Công nghệ sinh học TP.HCM.
+- Chủ quán bị tố bán bánh cuốn có miếng chả có dòi chủ động muốn bồi thường khi nhận phản ánh từ thực khách, nhưng khi cơ quan chức năng đến kiểm tra lại nói hình ảnh miếng chả đó không phải của quán mình.
+- Dự báo chiều 24-10, bão Trami (bão Trà Mi) đi vào Biển Đông, Bộ Nông nghiệp và Phát triển nông thôn yêu cầu các tỉnh, thành ven biển từ Quảng Ninh đến Bình Thuận thông báo ngay cho các tàu thuyền di chuyển đến nơi an toàn.
+- Bộ Lao động - Thương binh và Xã hội sẽ trình Thủ tướng phương án nghỉ Tết kéo dài 9 ngày.
+- Gỏi tôm bông súng, salad cà xỉu, gỏi cuốn ghẹ và cá mú cuộn nấm tràm... là những món ăn được đầu bếp sáng tạo kết hợp nhiều nguyên liệu rau củ khác nhau tạo nên hương vị ẩm thực đặc trưng vùng biên giới TP Hà Tiên (Kiên Giang).
+- Thủ tướng Phạm Minh Chính yêu cầu đưa Halal Việt Nam trở thành một ngành thế mạnh, biến nước ta thành một mắt xích quan trọng trong chuỗi cung ứng Halal toàn cầu.
+- Chiều 22-10, Đại tướng Phan Văn Giang và Đại tướng Chansamone Chanyalath đã có buổi hội đàm và ký kết trong khuôn khổ Giao lưu hữu nghị quốc phòng biên giới Việt Nam - Lào lần thứ 2 tại Mộc Châu, Sơn La.
+- Đường Trần Hưng Đạo (phường Dương Đông, TP Phú Quốc) có nhiều nắp cống bị mất, có chỗ cắm cây tạm bợ, gây mất mỹ quan đô thị.
+- Cơ quan cảnh sát điều tra Công an quận 4 (TP.HCM) đã ra quyết định tạm giữ hình sự bà Trần Thị Kim Giàu về tội hành hạ con.
+- TP.HCM vừa ban hành bảng giá đất mới, từ đó việc điều chỉnh tăng giá đất thương mại dịch vụ, sản xuất kinh doanh ra sao?
+- Chiều 22-10, Giao lưu hữu nghị quốc phòng biên giới Việt Nam - Lào lần thứ hai chính thức bắt đầu với lễ đón đoàn đại biểu Lào tại cửa khẩu Lóng Sập, huyện Mộc Châu, tỉnh Sơn La.
+- Dự báo sau khi vào Biển Đông, gió bão Trami có thể đạt cấp 12 (118 - 133km/h), giật cấp 15 (167 - 183km/h) và miền Trung khả năng có mưa lớn do ảnh hưởng của bão số 6.
+- Chưa được cấp giấy phép hành nghề và đang tham gia thực hành tại Bệnh viện Từ Dũ (TP.HCM), bác sĩ T.V.D. bị phát hiện đã tham gia khám chữa bệnh tại phòng khám sản phụ khoa Mary Tân Phú.
+- UBND tỉnh Gia Lai thống nhất chuyển hồ sơ vụ phòng khám chui có bác sĩ giả tại TP Pleiku sang Cơ quan điều tra Công an tỉnh để điều tra làm rõ.
+- Sáng 22-10, đại diện Trung tâm Quản lý hạ tầng giao thông đường bộ Sở Giao thông vận tải TP.HCM cho biết sẽ thu hẹp xong vòng xoay Phú Hữu trước ngày 30-10.
+- Nhiều tháng qua, giới ngân hàng dậy sóng khi bà Tr., là cán bộ ngân hàng thương mại, bị tố cáo lừa đảo hơn 15 tỉ đồng.
+- Việc Thủ tướng Phạm Minh Chính dự Hội nghị BRICS mở rộng tại Nga cho thấy tinh thần trách nhiệm, cũng như vị thế, tầm vóc của Việt Nam trong thúc đẩy chủ nghĩa đa phương.
 ![New](News.png)
 ## Nhịp sống số 
+- Meta thể hiện quyết tâm chống lại nạn quảng cáo trục lợi từ hình ảnh người nổi tiếng, khi thử nghiệm công nghệ nhận diện khuôn mặt trên các nền tảng của mình.
+- Microsoft vừa giới thiệu các tác nhân trí tuệ nhân tạo (AI) tự động hay nhân viên ảo, với khả năng xử lý các truy vấn từ người dùng, cũng như xác định nhóm khách hàng tiềm năng.
 - Công nghệ giả mạo 'deepfake' đang gây khó cho cơ quan quản lý Hàn Quốc, trong bối cảnh người dân ngày càng dành nhiều thời gian xem YouTube, Instagram.
 - Theo cam kết của nhà cung cấp dịch vụ, Lotus Chat là ứng dụng dành cho người dùng Việt có tính bảo mật và tiện lợi.
 - Qua nhiều ngày trải nghiệm kết nối 5G tại nhiều địa điểm, thời gian khác nhau tại TP.HCM, Tuổi Trẻ Online đã có những ghi nhận khác nhau về tốc độ 5G.
@@ -93,6 +95,4 @@
 - Với Galaxy Z Fold6, bạn có thể thoải mái sáng tạo và sáng tác bất cứ khi nào, bất cứ nơi đâu, đặc biệt hữu ích với những bạn trong ngành thiết kế, đồ họa, truyền thông…
 - Hai đối tượng đã lắp đặt thiết bị đánh cắp thông tin thẻ ngân hàng tại một số máy ATM ở Úc, sau đó rút tiền từ tài khoản của nạn nhân.
 - Xã hội Trí tuệ nhân tạo được phác thảo là một xã hội ứng dụng sâu rộng trí tuệ nhân tạo vào mọi mặt chính trị, xã hội, kinh tế, khoa học công nghệ, kinh doanh, văn hóa, giáo dục.
-- Đây là một trong những nhiệm vụ mà Thủ tướng Phạm Minh Chính đề ra trong việc nâng cao hiệu quả cung cấp và sử dụng dịch vụ công trực tuyến.
-- Apple chính thức thông báo sẽ tổ chức sự kiện ra mắt iPhone 16, một trong những sự kiện công nghệ được mong đợi nhất hành tinh, vào ngày 9-9.
 ![life](Life.png)
