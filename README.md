@@ -1,6 +1,11 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Vừa qua, nhiều bạn học sinh đã tham quan trang trại Green Farm (Tây Ninh) và nhà máy sữa lớn nhất tại Việt Nam của Vinamilk (Bình Dương). Đây là một hoạt động dành cho các tài năng nhí về lập trình robot đến từ nhiều tỉnh thành trên cả nước.
+- TP.HCM mong muốn giữ ổn định kỳ thi tuyển sinh lớp 10 như các năm học trước. Bên cạnh đó, Sở Giáo dục và Đào tạo TP.HCM cũng đề xuất được chọn môn thi thứ ba.
+- Hiệu trưởng dùng tiền xã hội hóa do phụ huynh đóng góp lắp bạt chống nắng cho các phòng học. Nhưng sau đó phụ huynh phát hiện nhiều dấu hiệu bất thường về giá lắp công trình bạt che nắng này.
+- Xin hãy gỡ từng nút thắt, cởi trói áp lực vô hình đang bủa vây nhà giáo.
+- Thời gian qua, hội đồng trường của một số trường đại học hoạt động khá hiệu quả, nhưng ở nhiều trường hội đồng trường vẫn tồn tại một cách hình thức.
 - Trong giờ ra chơi, ba nam sinh lớp 10 tại Bến Tre xúm lại đánh hội đồng một bạn nam cùng lớp khiến nạn nhân phải nhập viện sau đó.
 - Với khả năng theo dõi hành vi của côn trùng ở tốc độ cao, hệ thống này giúp nghiên cứu về sự suy giảm quần thể côn trùng, đa dạng sinh học hoặc phát triển robot lấy cảm hứng từ côn trùng.
 - Một nam sinh lớp 9 ở Nghệ An bị bạn cùng trường ép ăn đất, hút thuốc lá trong đêm rồi quay clip tung lên mạng xã hội.
@@ -26,43 +31,38 @@
 - Ngày càng nhiều sinh viên Canada tham gia các chương trình trao đổi từ vài tuần đến vài tháng ở TP.HCM, Cần Thơ, Trà Vinh...
 - Trần Anh Nam - sinh viên ngành logistics Trường cao đẳng Kinh tế TP.HCM - vừa tốt nghiệp thủ khoa với điểm số GPA đến 3.88/4.
 - Thái Nguyễn Đăng Khoa - sinh viên năm 3 ngành quản lý nhà nước Học viện Cán bộ TP.HCM - là 1 trong 15 đại biểu Tàu SSEAYP 2024.
-- Những hình ảnh đời thường được các sinh viên chọn đưa vào ống kính thay vì các hình ảnh hiện đại thường thấy ở khu vực trung tâm TP.HCM.
-- Khảo sát cho thấy phần lớn sinh viên có thời gian rảnh từ 2 - 4 giờ mỗi ngày (chiếm 66,7%); 22,9% sinh viên rảnh từ 1 - 2 giờ mỗi ngày.
-- Cô giáo Trương Phương Hạnh bị xử lý kỷ luật ở mức cảnh cáo và không được đứng lớp, chuyển sang làm giáo vụ của trường.
-- Các quan chức khẳng định thực phẩm và đồ uống được cung cấp trong trường học cần phải được sản xuất bằng các nguyên liệu tự nhiên, và phải loại bỏ đồ ăn vặt.
-- Sinh viên khoa truyền thông sáng tạo của Trường đại học Nguyễn Tất Thành có một buổi thực hành tác nghiệp ảnh báo chí thú vị tại Bưu điện TP.HCM.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Trong lúc đi dọc bờ biển, người dân ở Hà Tĩnh phát hiện hai thi thể trôi dạt vào bờ nên nhanh chóng thông báo với chính quyền địa phương.
-- Quận Tân Bình lên lịch họp giải quyết đơn của ông Bùi Mộc về việc sớm cấp sổ hồng trong khi bảng giá đất mới của TP.HCM sắp có hiệu lực (31-10).
-- Sự mập mờ trong việc sử dụng tên gọi “bệnh viện” của các phòng khám tư nhân hiện là một vấn đề đặt ra của xã hội và cần có giải pháp khắc phục kịp thời.
-- Ngày 23-10, thừa ủy quyền của Chính phủ, Bộ trưởng Bộ Tài nguyên và Môi trường Đỗ Đức Duy trình Quốc hội quyết định chủ trương điều chỉnh quy hoạch sử dụng đất quốc gia thời kỳ 2021 - 2030, tầm nhìn đến năm 2050.
-- Việc yêu cầu xăng dầu dự trữ quốc gia phải để ở bồn riêng, trong khi chi phí gửi xăng dầu dự trữ quốc gia tại kho của doanh nghiệp ở mức thấp, duy trì trong nhiều năm đang gây khó khăn cho nhiều doanh nghiệp.
-- Tổng Bí thư, Chủ tịch nước Trung Quốc Tập Cận Bình khẳng định như trên trong cuộc gặp ngắn với Thủ tướng Phạm Minh Chính tại Nga. Cùng ngày, Thủ tướng cũng gặp lãnh đạo Lào và Thổ Nhĩ Kỳ.
-- Dự báo hôm nay (24-10), bão Trami (Trà Mi) vượt qua đảo Luzon (Philippines) đi vào Biển Đông và trở thành cơn bão số 6 trong năm 2024.
-- Bất cứ lúc nào, bất cứ là ai và bất cứ ở đâu, tài xế lái xe cấp cứu là những người 'chạy đua với tử thần' giành giật sự sống cho người bệnh.
-- Tin tức đáng chú ý: Bão Trami sẽ đi vào Biển Đông với sức gió mạnh nhất cấp 9, giật cấp 11; Đề nghị giữ quy định mức phí công đoàn 2%; Bộ Y tế xây dựng ngân hàng câu hỏi chuẩn bị kỳ thi chứng chỉ hành nghề y bác sĩ...
-- Tổng thống Nga Vladimir Putin đích thân đón Thủ tướng Phạm Minh Chính và lãnh đạo các nước khách mời khác.
-- Hôm nay 24-10, thời tiết các tỉnh Bắc Bộ chịu ảnh hưởng của không khí lạnh; Nam Bộ và Trung Bộ giảm mưa.
-- Đánh giá cao sự thành công cũng như truyền thống tự lực, tự cường của cộng đồng người Việt Nam tại Nga, Thủ tướng Phạm Minh Chính mong bà con tiếp tục đoàn kết, hỗ trợ lẫn nhau trong bất kỳ hoàn cảnh nào.
-- Tối 23-10, một trận động đất có độ lớn 3,7 xảy ra tại khu vực huyện Kon Plông, tỉnh Kon Tum.
-- Thông điệp được Phó thủ tướng Nga Alexander Novak nêu ra khi gặp Thủ tướng Phạm Minh Chính tại Kazan ngày 23-10, nhân dịp người đứng đầu Chính phủ Việt Nam sang dự hội nghị BRICS mở rộng.
-- Tối 23-10, bão Trami (bão Trà Mi) mạnh lên cấp 9-10 (75-102km/h), giật cấp 12 (108-133km/h) trước khi đổ bộ vào đảo Luzon, Philippines.
-- Báo cáo về vụ cháy chùa Phổ Quang cho biết cơ sở vật chất trong chùa thiệt hại hoàn toàn, còn bảo vật quốc gia bệ đá hoa sen bị vỡ cánh hoa sen, ước tính thiệt hại 25 tỉ đồng.
-- Dự Luật Di sản văn hóa sửa đổi đề xuất lập Quỹ bảo tồn di sản văn hóa và dùng quỹ mua, đưa di vật, cổ vật, bảo vật quốc gia... từ nước ngoài về Việt Nam.
-- Ông Võ Đình Tiến, giám đốc Sở Kế hoạch và Đầu tư tỉnh Phú Yên, bị kỷ luật cảnh cáo.
-- Quảng Nam dự kiến phương án sơ tán dân khi có bão Trami đổ bộ trực tiếp vào tỉnh này. Trong đó nếu bão mạnh, số người cần di dời, sơ tán gần 190.000 người, nếu là siêu bão thì hơn 380.000 người.
-- Không khí mua bán và trao đổi hàng hóa của ngư dân ở cảng cá phường An Thới (TP Phú Quốc, Kiên Giang) lúc nào cũng nhộn nhịp, đặc biệt chủ tàu đánh cá tất bật chuẩn bị ra khơi với hy vọng cá, mực đầy khoang.
-- Phó thủ tướng Trần Hồng Hà ký quyết định phê duyệt chủ trương đầu tư dự án đầu tư xây dựng, mở rộng đường bộ cao tốc Bắc - Nam phía Đông đoạn cao tốc Cam Lộ - La Sơn từ 2 làn xe lên 4 làn xe.
-- Bạn đọc phản ánh nhiều năm nay, đường Nguyễn Tất Thành, quận 4, TP.HCM trở thành nỗi ám ảnh của người dân do thường xuyên ùn ứ vào giờ cao điểm.
-- Dù đã có quy định, nhiều người vẫn thả rông chó, để cho chúng cắn người, gây tai nạn... Bao giờ vấn nạn chó thả rông được xử lý dứt điểm?
-- Xe nâng đang rẽ vào đường số 14D, phường Bình Hưng Hòa B, quận Bình Tân (TP.HCM) thì xảy ra va chạm với xe máy khiến một người tử vong.
-- Phòng cảnh sát ma túy Công an Đà Nẵng vừa phá thành công chuyên án, bắt nhóm người ngoại tỉnh lập hội nhóm kín trên mạng hoạt động mua bán trái phép chất ma túy loại cần sa và 'tem giấy' (còn gọi là bùa lưỡi được tẩm chất gây ảo giác).
-- Công binh tỉnh Quảng Trị di dời người dân, chặn quốc lộ 15D trong 45 phút để hủy nổ quả bom từ trường nặng 240kg nằm gần cửa khẩu quốc tế La Lay.
-- Một nam sinh lớp 9 ở Nghệ An bị bạn cùng trường ép ăn đất, hút thuốc lá trong đêm rồi quay clip tung lên mạng xã hội.
-- Tỉnh Khánh Hòa đầu tư hơn 2.000 tỉ đồng làm dự án đường ven biển từ xã Vạn Lương, huyện Vạn Ninh đi thị xã Ninh Hòa, thuộc khu kinh tế Vân Phong.
-- Với việc xây dựng văn kiện đại hội, lãnh đạo Thành ủy TP.HCM đề nghị Thủ Đức phải 'gói' được ý Đảng, lòng dân, tâm tư, tình cảm, khát vọng của nhân dân phải được đưa vào nghị quyết.
-- Nhà tang lễ Tam Kỳ (TP Tam Kỳ, Quảng Nam) được đầu tư với kinh phí hơn 10 tỉ đồng xây dựng cách đây hơn chục năm nhưng chỉ vài lần tổ chức tang lễ cho người dân, còn lại dường như đóng cửa im ỉm suốt nhiều năm qua.
+- Dọc các tuyến phố quanh hồ Tây (Hà Nội) như phố Thanh Niên, Nguyễn Đình Thi, Trích Sài... cá chết nổi trắng mặt hồ, bốc mùi hôi thối.
+- Bộ Y tế vừa có thông tư quy định về chi trả trực tiếp bảo hiểm y tế nếu người dân tự mua thuốc, vật tư khi khám chữa bệnh bắt đầu từ năm 2025.
+- Nhức nhối 2 cơ sở tại quận 1 và Thủ Đức hành nghề phẫu thuật thẩm mỹ trái phép gây tai biến cho khách hàng.
+- Rạng sáng 25-10, bão Trà Mi (bão số 6) tăng lên cấp 9-10 (75-102km/h), giật cấp 12 và có khả năng tăng thêm 2 cấp trong hôm nay và ngày mai.
+- Một số tin tức đáng chú ý: Tỉ giá tiếp tục 'nóng'; Nắm 10% vốn Eximbank, Gelex lên tiếng trước tin đồn 'bủa vây'; Công ty phân phối ô tô lớn nhất Việt Nam thay chủ tịch; Kế toán trưởng Tập đoàn Hòa Bình xin nghỉ sau 4 tháng...
+- Hôm nay 25-10, thời tiết cả nước tương đối đẹp, ban ngày trời nắng. Biển Đông đón bão Trà Mi.
+- Trước những diễn biến phức tạp của bão Trà Mi (Trami), nhiều ngư dân đã khẩn trương đưa tàu thuyền về neo đậu tại Đà Nẵng để tránh bão.
+- Thanh niên lẻn vào vườn sâm của người khác nhổ trộm 350 cây sâm Ngọc Linh rồi mang về cất giấu nhưng bị công an bắt giữ sau 2 ngày gây án.
+- 100% thành viên Ủy ban Thường vụ Quốc hội có mặt đã thống nhất thông qua phương án sáp nhập huyện xã của TP Hải Phòng, Đà Nẵng và 19 tỉnh.
+- Gần đây, nhiều người dân đã phản ánh, thắc mắc về việc hiện nay sông Tắc tại khu vực bờ Hòn Rớ, gần cầu Bình Tân, TP Nha Trang đang bị lấn, lấp nhưng dân không rõ làm công trình gì?
+- Bộ Giao thông vận tải yêu cầu Cục Đường bộ Việt Nam khẩn trương đàm phán với nhà đầu tư, kịp thời có giải pháp xử lý dứt điểm các tồn tại của dự án BOT quốc lộ 51.
+- Công an tỉnh Lâm Đồng xác nhận đã khởi tố ông Nguyễn Trung Thành - nguyên phó chủ tịch UBND huyện Bảo Lâm (tỉnh Lâm Đồng) - liên quan đến sai phạm đất đai tại Công ty chè Minh Rồng.
+- Việc thiếu thuốc thời gian vừa qua tại TP.HCM không phải vướng ở cơ chế mua sắm, mà chủ yếu vướng chuỗi cung ứng, ông Lê Ngọc Danh - trưởng phòng nghiệp vụ dược Sở Y tế TP.HCM - cho hay.
+- UBND TP.HCM vừa có quyết định ban hành khung giá cho thuê nhà lưu trú công nhân trong khu công nghiệp tại TP.HCM.
+- Bão Trà Mi (tên quốc tế Trami, bão số 6) có thể đổi hướng bất thường do chịu tác động cùng lúc của hệ thống không khí lạnh và hoàn lưu bão mới hình thành ở vùng biển phía đông Philippines.
+- Thủ tướng Chính phủ đã có quyết định công nhận huyện Đất Đỏ, tỉnh Bà Rịa - Vũng Tàu đạt chuẩn nông thông mới nâng cao. Đây là quê hương của Anh hùng liệt sĩ Võ Thị Sáu.
+- Thủ tướng chỉ đạo chủ tịch các tỉnh, thành phố căn cứ tình hình cụ thể, chủ động quyết định việc cấm biển đối với tàu cá, tàu vận tải, tàu du lịch để ứng phó cơn bão Trà Mi.
+- Để giành chỗ đậu xe ô tô cho khách, một nhà hàng ở quận 1, TP.HCM đã nhiều để vật cản dưới lòng đường, tiềm ẩn nguy cơ tai nạn.
+- Số hồ sơ yêu cầu chứng thực bản sao trên địa bàn TP.HCM rất lớn, tăng qua từng năm. Năm 2023 là gần 7,8 triệu hồ sơ, còn 7 tháng đầu năm 2024 là hơn 3,1 triệu hồ sơ.
+- Quán cà phê kèm ăn sáng tại TP Đông Hà (Quảng Trị) tính phụ thu thêm tiền 'ăn không uống' trong hóa đơn thanh toán, khiến dân mạng dậy sóng tranh cãi.
+- Liên quan đến việc một bé trai tắm suối Lỡ ở xã Cửa Dương (TP Phú Quốc, Kiên Giang) mất tích nghi do nước cuốn trôi, lãnh đạo UBND xã này cho biết lực lượng cứu hộ địa phương đang ra sức lặn tìm kiếm cháu.
+- Sở Sở Kế hoạch và Đầu tư kiến nghị UBND TP.HCM phê bình 11 đơn vị giải ngân dưới mức tỉ lệ giải ngân chung của TP đến hết quý 3 năm 2024 (20,2%) và không có nguyên nhân khách quan.
+- Đường Nguyễn Tất Thành là trục chính kết nối trung tâm TP.HCM với quận 7, nhưng bị ùn tắc triền miên. Hiện đường này đang đứng số 1 danh sách các điểm ùn tắc, với 'thành tích' ùn ứ 811 lần trong chín tháng đầu năm 2024.
+- Bộ trưởng Bộ Y tế Đào Hồng Lan cho rằng thực sự bác sĩ không mong muốn bệnh nhân ra ngoài mua thuốc, bởi vì mua ngoài còn liên quan đến chất lượng, điều trị.
+- Chiều 24-10, Phó chủ tịch UBND TP.HCM Võ Văn Hoan có buổi kiểm tra, làm việc với các đơn vị, thúc đẩy tiến độ dự án xây dựng nút giao An Phú, TP Thủ Đức.
+- Quận Bình Thạnh đã và đang làm nhiều cách để xử lý, ngăn tình trạng rác chất đống ở đường Tố Hữu bên cạnh Học viện Cán bộ TP.HCM (thuộc phường 12) mà Tuổi Trẻ Online phản ánh.
+- Chiều 24-10, tại Bộ Quốc phòng, Đại tướng Phan Văn Giang, bộ trưởng Bộ Quốc phòng, đã chủ trì lễ đón chính thức và hội đàm với Thượng tướng Trương Hựu Hiệp, ủy viên Bộ Chính trị, phó chủ tịch Quân ủy Trung ương Trung Quốc.
+- Nhiều bạn đọc cho rằng cần kéo dài thêm ngày nghỉ lễ Tết dù Bộ Lao động - Thương binh và Xã hội đã trình Thủ tướng phương án nghỉ Tết tới 9 ngày.
+- Chiều nay 24-10, bão Trà Mi (tên quốc tế Trami) đi vào Biển Đông và trở thành cơn bão số 6. Dự báo cường độ bão sẽ liên tục tăng và có thể đổi hướng di chuyển trong 72 đến 120 giờ tới.
+- Hiệu trưởng dùng tiền xã hội hóa do phụ huynh đóng góp lắp bạt chống nắng cho các phòng học. Nhưng sau đó phụ huynh phát hiện nhiều dấu hiệu bất thường về giá lắp công trình bạt che nắng này.
 ![New](News.png)
 ## Nhịp sống số 
 - Meta thể hiện quyết tâm chống lại nạn quảng cáo trục lợi từ hình ảnh người nổi tiếng, khi thử nghiệm công nghệ nhận diện khuôn mặt trên các nền tảng của mình.
