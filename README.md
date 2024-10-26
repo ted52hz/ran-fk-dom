@@ -1,6 +1,17 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Kết quả xác minh ban đầu của công an huyện Bình Chánh cho thấy không có camera quay lén trong nhà vệ sinh Trường THPT Tân Túc (huyện Bình Chánh, TP.HCM) như thông tin lan truyền trước đó.
+- Trước việc học sinh mua ốc mượn hồn bán quanh trường đem vào lớp chơi rồi bị thương ở tay, nhà trường và phòng giáo dục ở Đà Nẵng yêu cầu nắm thông tin, cảnh báo không chơi.
+- Nhiều trường đại học tại TP.HCM công bố lịch nghỉ Tết Ất Tỵ 3 - 4 tuần, có trường cho sinh viên học online một tuần trước và sau Tết.
+- Về 15 học sinh tiểu học xuất hiện triệu chứng giống ngộ độc, ngành y tế cho rằng không đủ cơ sở xác định vụ ngộ độc mà do hiệu ứng đám đông.
+- Công an đã mời hai thiếu niên ép một nam sinh ở huyện Nam Đàn, Nghệ An ăn đất trong đêm đến trụ sở để làm rõ vụ việc.
+- Chủ doanh nghiệp lắp bạt chống nắng cho Trường tiểu học Lý Trạch lý giải về việc hiệu trưởng kê khai giá bạt cao gấp 3 lần giá phụ huynh khảo sát.
+- Dư luận cho rằng quy định này không thực tế vì người hoạt động cách mạng trước 1945 không thể có con ở tuổi 15 để tuyển sinh vào lớp 10.
+- Giang Văn Tân - học sinh bị bại não bẩm sinh - vừa chính thức bước vào giảng đường Đại học RMIT.
+- Tại Đà Nẵng, nhiều năm qua các trường học đã công khai bữa ăn bán trú bằng nhiều cách khác nhau.
+- Trường đại học Luật TP.HCM nhận tài trợ 1 tỉ đồng do Agribank tài trợ phục vụ cho đào tạo, khoa học công nghệ, hỗ trợ sinh viên.
+- Năm học 2023-2024 có khoảng 22.000 du học sinh nước ngoài đang học tập tại các đại học của Việt Nam.
 - Vừa qua, nhiều bạn học sinh đã tham quan trang trại Green Farm (Tây Ninh) và nhà máy sữa lớn nhất tại Việt Nam của Vinamilk (Bình Dương). Đây là một hoạt động dành cho các tài năng nhí về lập trình robot đến từ nhiều tỉnh thành trên cả nước.
 - TP.HCM mong muốn giữ ổn định kỳ thi tuyển sinh lớp 10 như các năm học trước. Bên cạnh đó, Sở Giáo dục và Đào tạo TP.HCM cũng đề xuất được chọn môn thi thứ ba.
 - Hiệu trưởng dùng tiền xã hội hóa do phụ huynh đóng góp lắp bạt chống nắng cho các phòng học. Nhưng sau đó phụ huynh phát hiện nhiều dấu hiệu bất thường về giá lắp công trình bạt che nắng này.
@@ -20,51 +31,41 @@
 - Sau khi phát hiện vi phạm tuyển sinh, chế độ đối với học sinh trường phổ thông dân tộc nội trú ở một số huyện, Sở Giáo dục và Đào tạo Thanh Hóa đã tiến hành kiểm tra, rà soát hoạt động của tất cả trường nội trú.
 - Chủ tịch Hội đồng trường Trường đại học Thủ Dầu Một, tỉnh Bình Dương cho biết sẽ trả lại sinh viên 37 tỉ đồng học phí thu vượt mức, trước đó đã được nộp vào ngân sách.
 - Khi chọn ngành nghề, cần tư duy mở, liên kết các ngành, các lĩnh vực và chú ý các ngành dịch vụ hiện đại như điện tử, sản xuất phần mềm, trí tuệ nhân tạo...
-- Ông Vương Tấn Việt (tức thượng tọa Thích Chân Quang) đã học đại học ngành ngôn ngữ Anh của Trường đại học Ngoại ngữ Hà Nội, hệ đào tạo từ xa từ năm 1994 đến năm 2001.
-- Bộ Giáo dục và Đào tạo đã yêu cầu các trường đại học liên quan khẩn trương thu hồi văn bằng đã cấp cho ông Vương Tấn Việt, do phát hiện bằng tốt nghiệp cấp III của ông này không hợp pháp.
-- Theo thông tin về kết quả xử lý văn bằng của ông Vương Tấn Việt xác định ông đã sử dụng bằng cấp 3 bổ túc văn hóa không hợp pháp, ông Việt cũng thừa nhận việc này.
-- Hiệu trưởng Trường THCS Nguyễn An Ninh ở phường Trung Mỹ Tây (quận 12) đã tự nguyện giao một con tê tê Java cho Chi cục Kiểm lâm TP.HCM.
-- Thi vào lớp 10 kiểu xoay vòng các môn không thể giải quyết nạn học lệch, học tủ, vì nếu như môn A đã thi rồi thì năm sau chắc chắn sẽ bị 'bỏ lơ'...
-- Tại TP.HCM có những cuộc thi mà học sinh không hề căng thẳng, trái lại được chơi hết mình, được trải nghiệm nhiều điều thú vị...
-- Bên cạnh đó, cơ sở đại học này phải có chuẩn giảng viên không được thấp hơn quy định đối với cơ sở giáo dục Việt Nam.
-- Sáng 20-10, ĐH Quốc gia TP.HCM đã tổ chức lễ khai khóa năm học 2024 - 2025 với chủ đề: "Sinh viên ĐH Quốc gia TP.HCM sẵn sàng cho kỷ nguyên vươn mình của đất nước".
-- Ngày càng nhiều sinh viên Canada tham gia các chương trình trao đổi từ vài tuần đến vài tháng ở TP.HCM, Cần Thơ, Trà Vinh...
-- Trần Anh Nam - sinh viên ngành logistics Trường cao đẳng Kinh tế TP.HCM - vừa tốt nghiệp thủ khoa với điểm số GPA đến 3.88/4.
-- Thái Nguyễn Đăng Khoa - sinh viên năm 3 ngành quản lý nhà nước Học viện Cán bộ TP.HCM - là 1 trong 15 đại biểu Tàu SSEAYP 2024.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Dọc các tuyến phố quanh hồ Tây (Hà Nội) như phố Thanh Niên, Nguyễn Đình Thi, Trích Sài... cá chết nổi trắng mặt hồ, bốc mùi hôi thối.
-- Bộ Y tế vừa có thông tư quy định về chi trả trực tiếp bảo hiểm y tế nếu người dân tự mua thuốc, vật tư khi khám chữa bệnh bắt đầu từ năm 2025.
-- Nhức nhối 2 cơ sở tại quận 1 và Thủ Đức hành nghề phẫu thuật thẩm mỹ trái phép gây tai biến cho khách hàng.
-- Rạng sáng 25-10, bão Trà Mi (bão số 6) tăng lên cấp 9-10 (75-102km/h), giật cấp 12 và có khả năng tăng thêm 2 cấp trong hôm nay và ngày mai.
-- Một số tin tức đáng chú ý: Tỉ giá tiếp tục 'nóng'; Nắm 10% vốn Eximbank, Gelex lên tiếng trước tin đồn 'bủa vây'; Công ty phân phối ô tô lớn nhất Việt Nam thay chủ tịch; Kế toán trưởng Tập đoàn Hòa Bình xin nghỉ sau 4 tháng...
-- Hôm nay 25-10, thời tiết cả nước tương đối đẹp, ban ngày trời nắng. Biển Đông đón bão Trà Mi.
-- Trước những diễn biến phức tạp của bão Trà Mi (Trami), nhiều ngư dân đã khẩn trương đưa tàu thuyền về neo đậu tại Đà Nẵng để tránh bão.
-- Thanh niên lẻn vào vườn sâm của người khác nhổ trộm 350 cây sâm Ngọc Linh rồi mang về cất giấu nhưng bị công an bắt giữ sau 2 ngày gây án.
-- 100% thành viên Ủy ban Thường vụ Quốc hội có mặt đã thống nhất thông qua phương án sáp nhập huyện xã của TP Hải Phòng, Đà Nẵng và 19 tỉnh.
-- Gần đây, nhiều người dân đã phản ánh, thắc mắc về việc hiện nay sông Tắc tại khu vực bờ Hòn Rớ, gần cầu Bình Tân, TP Nha Trang đang bị lấn, lấp nhưng dân không rõ làm công trình gì?
-- Bộ Giao thông vận tải yêu cầu Cục Đường bộ Việt Nam khẩn trương đàm phán với nhà đầu tư, kịp thời có giải pháp xử lý dứt điểm các tồn tại của dự án BOT quốc lộ 51.
-- Công an tỉnh Lâm Đồng xác nhận đã khởi tố ông Nguyễn Trung Thành - nguyên phó chủ tịch UBND huyện Bảo Lâm (tỉnh Lâm Đồng) - liên quan đến sai phạm đất đai tại Công ty chè Minh Rồng.
-- Việc thiếu thuốc thời gian vừa qua tại TP.HCM không phải vướng ở cơ chế mua sắm, mà chủ yếu vướng chuỗi cung ứng, ông Lê Ngọc Danh - trưởng phòng nghiệp vụ dược Sở Y tế TP.HCM - cho hay.
-- UBND TP.HCM vừa có quyết định ban hành khung giá cho thuê nhà lưu trú công nhân trong khu công nghiệp tại TP.HCM.
-- Bão Trà Mi (tên quốc tế Trami, bão số 6) có thể đổi hướng bất thường do chịu tác động cùng lúc của hệ thống không khí lạnh và hoàn lưu bão mới hình thành ở vùng biển phía đông Philippines.
-- Thủ tướng Chính phủ đã có quyết định công nhận huyện Đất Đỏ, tỉnh Bà Rịa - Vũng Tàu đạt chuẩn nông thông mới nâng cao. Đây là quê hương của Anh hùng liệt sĩ Võ Thị Sáu.
-- Thủ tướng chỉ đạo chủ tịch các tỉnh, thành phố căn cứ tình hình cụ thể, chủ động quyết định việc cấm biển đối với tàu cá, tàu vận tải, tàu du lịch để ứng phó cơn bão Trà Mi.
-- Để giành chỗ đậu xe ô tô cho khách, một nhà hàng ở quận 1, TP.HCM đã nhiều để vật cản dưới lòng đường, tiềm ẩn nguy cơ tai nạn.
-- Số hồ sơ yêu cầu chứng thực bản sao trên địa bàn TP.HCM rất lớn, tăng qua từng năm. Năm 2023 là gần 7,8 triệu hồ sơ, còn 7 tháng đầu năm 2024 là hơn 3,1 triệu hồ sơ.
-- Quán cà phê kèm ăn sáng tại TP Đông Hà (Quảng Trị) tính phụ thu thêm tiền 'ăn không uống' trong hóa đơn thanh toán, khiến dân mạng dậy sóng tranh cãi.
-- Liên quan đến việc một bé trai tắm suối Lỡ ở xã Cửa Dương (TP Phú Quốc, Kiên Giang) mất tích nghi do nước cuốn trôi, lãnh đạo UBND xã này cho biết lực lượng cứu hộ địa phương đang ra sức lặn tìm kiếm cháu.
-- Sở Sở Kế hoạch và Đầu tư kiến nghị UBND TP.HCM phê bình 11 đơn vị giải ngân dưới mức tỉ lệ giải ngân chung của TP đến hết quý 3 năm 2024 (20,2%) và không có nguyên nhân khách quan.
-- Đường Nguyễn Tất Thành là trục chính kết nối trung tâm TP.HCM với quận 7, nhưng bị ùn tắc triền miên. Hiện đường này đang đứng số 1 danh sách các điểm ùn tắc, với 'thành tích' ùn ứ 811 lần trong chín tháng đầu năm 2024.
-- Bộ trưởng Bộ Y tế Đào Hồng Lan cho rằng thực sự bác sĩ không mong muốn bệnh nhân ra ngoài mua thuốc, bởi vì mua ngoài còn liên quan đến chất lượng, điều trị.
-- Chiều 24-10, Phó chủ tịch UBND TP.HCM Võ Văn Hoan có buổi kiểm tra, làm việc với các đơn vị, thúc đẩy tiến độ dự án xây dựng nút giao An Phú, TP Thủ Đức.
-- Quận Bình Thạnh đã và đang làm nhiều cách để xử lý, ngăn tình trạng rác chất đống ở đường Tố Hữu bên cạnh Học viện Cán bộ TP.HCM (thuộc phường 12) mà Tuổi Trẻ Online phản ánh.
-- Chiều 24-10, tại Bộ Quốc phòng, Đại tướng Phan Văn Giang, bộ trưởng Bộ Quốc phòng, đã chủ trì lễ đón chính thức và hội đàm với Thượng tướng Trương Hựu Hiệp, ủy viên Bộ Chính trị, phó chủ tịch Quân ủy Trung ương Trung Quốc.
-- Nhiều bạn đọc cho rằng cần kéo dài thêm ngày nghỉ lễ Tết dù Bộ Lao động - Thương binh và Xã hội đã trình Thủ tướng phương án nghỉ Tết tới 9 ngày.
-- Chiều nay 24-10, bão Trà Mi (tên quốc tế Trami) đi vào Biển Đông và trở thành cơn bão số 6. Dự báo cường độ bão sẽ liên tục tăng và có thể đổi hướng di chuyển trong 72 đến 120 giờ tới.
-- Hiệu trưởng dùng tiền xã hội hóa do phụ huynh đóng góp lắp bạt chống nắng cho các phòng học. Nhưng sau đó phụ huynh phát hiện nhiều dấu hiệu bất thường về giá lắp công trình bạt che nắng này.
+- Lần đầu tiên TP.HCM và một số tỉnh thành Đông Nam Bộ không còn được xem là 'miền đất hứa' cho người dân các tỉnh khác đến làm việc.
+- Đoàn kinh tế quốc phòng 337 quy tập được 2 hài cốt liệt sĩ, trong đó có một di vật là tấm nhôm khắc tên 'Trương Thành Ý - 21/1'.
+- TP.HCM vẫn xảy ra tình trạng thiếu thuốc cục bộ, đặc biệt là thuốc hiếm. Vậy làm sao để không thiếu thuốc cục bộ và không hết 'thuốc cứu người?'.
+- Công an phường Hòa Khánh Bắc (quận Liên Chiểu, TP Đà Nẵng) vừa tiếp nhận đơn trình báo của Phòng khám Pasteur về việc phòng khám này bị tố tắc trách để sản phụ mất con.
+- Nhiều khu vực trên bán đảo Sơn Trà đang đối mặt với nguy cơ sạt lở nghiêm trọng khi bão Trà Mi có thể ảnh hưởng trực tiếp đến đất liền.
+- Một số tin tức đáng chú ý: Quốc hội thảo luận tổ về kinh tế - xã hội; TP.HCM mở thêm ba đường sách; Hơn 40.000 ca tử vong liên quan rượu, bia mỗi năm...
+- Rạng sáng 26-10, bão Trà Mi (bão số 6) mạnh lên cấp 11 (103-117km/h), giật cấp 14. Dự báo bão hướng vào vùng biển ven bờ các tỉnh Trung Trung Bộ trước khi đổi hướng đi ra biển.
+- Hôm nay 26-10, bão Trà Mi gây mưa dữ dội trên Biển Đông, thời tiết Trung Bộ mưa to, Nam Bộ chiều tối mưa rào.
+- Bộ trưởng Lê Minh Hoan đề nghị các địa phương chuẩn bị phương án ứng phó với bão Trà Mi (bão số 6) ở mức độ cao nhất với phương châm không hối tiếc.
+- Những người bán vé số dạo đầu tiên tại thị trấn Phước Long (huyện Phước Long, Bạc Liêu) đã được kết nạp vào tổ chức Công đoàn.
+- Ngày 25-10, Cơ quan cảnh sát điều tra Bộ Công an đã khởi tố bị can và bắt tạm giam ông Bùi Văn Từ - trưởng Ban Quản lý các khu công nghiệp tỉnh Đắk Lắk.
+- Dù được các y, bác sĩ cố gắng cứu chữa, thai phụ bị bỏng 95% trong vụ nổ ở phường Tam Bình, TP Thủ Đức (TP.HCM) vẫn không qua khỏi.
+- Ngày 25-10, Chi cục Kiểm lâm TP.HCM đã có thông tin khuyến cáo sau sự việc phát hiện hai con tê tê Java tại hai nơi cách nhau vài trăm mét ở quận 12 vào đêm 20-10.
+- Có 2 đơn vị có tác phẩm vào chung khảo cuộc thi tuyển kiến trúc cầu vượt biển 3.900 tỉ đồng đề nghị xem lại tĩnh không cầu vượt biển, để các đơn vị tham gia đều công bằng.
+- Chuyến công tác Nga dự Hội nghị BRICS mở rộng của Thủ tướng Phạm Minh Chính đã thành công cả về mặt song phương và đa phương, góp phần củng cố cục diện đối ngoại thuận lợi cho Việt Nam.
+- Sau nhiều năm tìm giải pháp hạn chế xe né trạm chống thất thu, tới nay chủ BOT Điện Bàn (Quảng Nam) nói gần như không thể làm gì khác ngoài việc chờ đợi trong vô vọng.
+- Người phụ nữ chở ba con nhỏ trên xe máy va chạm với xe khách 16 chỗ chạy chiều ngược lại trên quốc lộ 14C, mấy mẹ con bị thương nặng, bé út tử vong.
+- Ngoài máy bay bị can thiệp bất hợp pháp, những máy bay vi phạm vùng trời Việt Nam, bay sai phép bay nhưng không chấp nhận hành động của máy bay Quân đội nhân dân Việt Nam thực hiện bay chặn, bay ép sẽ bị ép hạ cánh.
+- Nhiều bạn đọc cho rằng khoản phụ thu 'ăn không uống' mà quán Trà Sen Cọ Dầu (TP Đông Hà, Quảng Trị) đang áp dụng sẽ được trước mắt, nhưng thiệt về lâu dài.
+- Chỉ sau 10 ngày, giá cau từ chạm đỉnh, thu mua tại vườn 85.000 đồng/kg đã lao dốc chóng mặt, hiện chỉ còn 25.000 đồng/kg.
+- Công an Quảng Trị đã khởi tố vụ án mạng khiến hai người chết ở quán karaoke và xác định nghi phạm đi tìm các nạn nhân ở nhiều nơi rồi mượn dao vào phòng hát gây án.
+- Ông Trần Phú Vinh, trưởng Phòng Tài nguyên và Môi trường TP Vũng Tàu, vừa có giấy ủy quyền công việc cho phó trưởng phòng này.
+- Quốc hội đã thông qua nghị quyết về việc miễn nhiệm chức vụ tổng thư ký Quốc hội, cho thôi làm nhiệm vụ đại biểu Quốc hội khóa XV với ông Bùi Văn Cường.
+- Thành ủy TP.HCM vừa có thông báo phân công công tác Thường trực Thành ủy, các ủy viên Ban Thường vụ Thành ủy, trưởng các cơ quan chuyên trách tham mưu giúp việc Thành ủy, Đoàn đại biểu Quốc hội TP, HĐND TP và UBND TP.HCM.
+- Thời gian gần đây, Sở Y tế TP.HCM đã tiếp nhận nhiều phản ánh liên quan đến 'chân mày phong thủy', nhiều người chi trả hàng trăm triệu đồng.
+- Tân bí thư Tỉnh ủy Thanh Hóa Nguyễn Doãn Anh khẳng định sẽ cùng Đảng bộ, chính quyền, nhân dân đoàn kết, chung sức vượt qua mọi khó khăn; hiện thực hóa khát vọng xây dựng tỉnh Thanh Hóa trở thành cực tăng trưởng mới ở phía Bắc của Tổ quốc.
+- Dự báo mới nhất cho thấy bão Trà Mi (bão số 6) đi vào vùng biển ven bờ các tỉnh Trung Trung Bộ rồi đổi hướng. Dự báo bão số 6 gây mưa lớn ở miền Trung, có nơi trên 700mm.
+- Toàn TP Vinh sẽ có gần 600 camera được lắp đặt tại nhiều tuyến đường giao thông trọng điểm.
+- Kết quả xét nghiệm cho thấy 100% mẫu bệnh phẩm trong vụ ngộ độc thực phẩm khiến 91 người nhập viện đều dương tính với E.coli.
+- Quân đội Việt Nam - Lào tiếp tục hợp tác chặt chẽ trong ngăn chặn, đấu tranh với các loại tội phạm xuyên quốc gia trong tình hình mới.
 ![New](News.png)
 ## Nhịp sống số 
+- Đài phát thanh OFF Radio Kraków tại Ba Lan gây tranh cãi khi sa thải các nhà báo của mình để sử dụng 'người dẫn chương trình' AI.
 - Meta thể hiện quyết tâm chống lại nạn quảng cáo trục lợi từ hình ảnh người nổi tiếng, khi thử nghiệm công nghệ nhận diện khuôn mặt trên các nền tảng của mình.
 - Microsoft vừa giới thiệu các tác nhân trí tuệ nhân tạo (AI) tự động hay nhân viên ảo, với khả năng xử lý các truy vấn từ người dùng, cũng như xác định nhóm khách hàng tiềm năng.
 - Công nghệ giả mạo 'deepfake' đang gây khó cho cơ quan quản lý Hàn Quốc, trong bối cảnh người dân ngày càng dành nhiều thời gian xem YouTube, Instagram.
@@ -94,5 +95,4 @@
 - Các nhà sản xuất điện thoại smartphone từ Trung Quốc đã làm lung lay vị thế dẫn đầu lâu đời của Samsung tại thị trường Đông Nam Á.
 - Với Galaxy Z Fold6, bạn có thể thoải mái sáng tạo và sáng tác bất cứ khi nào, bất cứ nơi đâu, đặc biệt hữu ích với những bạn trong ngành thiết kế, đồ họa, truyền thông…
 - Hai đối tượng đã lắp đặt thiết bị đánh cắp thông tin thẻ ngân hàng tại một số máy ATM ở Úc, sau đó rút tiền từ tài khoản của nạn nhân.
-- Xã hội Trí tuệ nhân tạo được phác thảo là một xã hội ứng dụng sâu rộng trí tuệ nhân tạo vào mọi mặt chính trị, xã hội, kinh tế, khoa học công nghệ, kinh doanh, văn hóa, giáo dục.
 ![life](Life.png)
