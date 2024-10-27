@@ -1,6 +1,12 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Nhóm 'Liêm Chính Khoa Học' trên Facebook với gần 100.000 thành viên vừa bất ngờ biến mất. Hiện tại, liên kết đến nhóm hiển thị thông báo 'Bạn hiện không xem được nội dung này'.
+- Trường Đại học Kinh tế - Tài chính TP.HCM (UEF) đã tổ chức lễ Khai giảng năm học 2024 - 2025 cho các chương trình cử nhân quốc tế.
+- Hiệu trưởng Trường THPT Tô Hiến Thành khẳng định thời điểm tuyển sinh lớp 10 'không phải trường không được giao chỉ tiêu tuyển sinh, mà là chưa được giao chỉ tiêu'.
+- Băng lửa, vượt khói, xịt hơi, phun nước… hàng trăm sinh viên bỗng chốc 'hóa thân' thành những chiến sĩ chữa cháy, cứu nạn cứu hộ.
+- Đó là khẳng định của Bộ trưởng Bộ Giáo dục và Đào tạo tại hội nghị ngày 25-10 tổng kết công tác xã hội hóa về kiên cố hóa trường, lớp học.
+- Trong khi Úc và Canada đang siết chặt số lượng sinh viên quốc tế, nhiều nước khác như Mỹ, New Zealand dự kiến vẫn giữ những quy định dễ thở với du học sinh.
 - Kết quả xác minh ban đầu của công an huyện Bình Chánh cho thấy không có camera quay lén trong nhà vệ sinh Trường THPT Tân Túc (huyện Bình Chánh, TP.HCM) như thông tin lan truyền trước đó.
 - Trước việc học sinh mua ốc mượn hồn bán quanh trường đem vào lớp chơi rồi bị thương ở tay, nhà trường và phòng giáo dục ở Đà Nẵng yêu cầu nắm thông tin, cảnh báo không chơi.
 - Nhiều trường đại học tại TP.HCM công bố lịch nghỉ Tết Ất Tỵ 3 - 4 tuần, có trường cho sinh viên học online một tuần trước và sau Tết.
@@ -25,44 +31,38 @@
 - Ông Trần Ngọc Hà, cựu hiệu trưởng Trường phổ thông dân tộc bán trú tiểu học Hoàng Thu Phố 1 (huyện Bắc Hà, Lào Cai), bị khởi tố, bắt tạm giam sau vụ cắt xén bữa ăn bán trú.
 - Sở Nội vụ Quảng Bình rà soát và phát hiện có 3 viên chức của tỉnh này sử dụng chứng chỉ ngoại ngữ giả do tổ chức Cambridge International cấp.
 - Chỉ cần một máy tính có kết nối mạng là một người đã có thể mở lớp dạy IELTS online, nhiều trung tâm truyền thống gặp phải không ít khó khăn.
-- Sở Giáo dục và Đào tạo TP.HCM vừa có văn bản yêu cầu xử lý sai phạm về thu chi của ban đại diện cha mẹ học sinh ở một số trường.
-- Một số tin tức đáng chú ý: Phê duyệt 36 trạm dừng nghỉ trên cao tốc Bắc - Nam; TP.HCM kiểm tra, chấn chỉnh lạm thu quỹ phụ huynh; Phạt phòng khám quảng cáo 'nổ'...
-- Ông Bùi Văn Huân, hiệu trưởng Trường phổ thông dân tộc nội trú THCS và THPT thị xã Sa Pa (Lào Cai), bị tạm đình chỉ để kiểm tra, xác minh làm rõ phản ánh về tồn tại, hạn chế trong công tác quản lý của hiệu trưởng.
-- Sau khi phát hiện vi phạm tuyển sinh, chế độ đối với học sinh trường phổ thông dân tộc nội trú ở một số huyện, Sở Giáo dục và Đào tạo Thanh Hóa đã tiến hành kiểm tra, rà soát hoạt động của tất cả trường nội trú.
-- Chủ tịch Hội đồng trường Trường đại học Thủ Dầu Một, tỉnh Bình Dương cho biết sẽ trả lại sinh viên 37 tỉ đồng học phí thu vượt mức, trước đó đã được nộp vào ngân sách.
-- Khi chọn ngành nghề, cần tư duy mở, liên kết các ngành, các lĩnh vực và chú ý các ngành dịch vụ hiện đại như điện tử, sản xuất phần mềm, trí tuệ nhân tạo...
 ![Edu](Edu.png)
 ## Thời Sự 
-- Lần đầu tiên TP.HCM và một số tỉnh thành Đông Nam Bộ không còn được xem là 'miền đất hứa' cho người dân các tỉnh khác đến làm việc.
-- Đoàn kinh tế quốc phòng 337 quy tập được 2 hài cốt liệt sĩ, trong đó có một di vật là tấm nhôm khắc tên 'Trương Thành Ý - 21/1'.
-- TP.HCM vẫn xảy ra tình trạng thiếu thuốc cục bộ, đặc biệt là thuốc hiếm. Vậy làm sao để không thiếu thuốc cục bộ và không hết 'thuốc cứu người?'.
-- Công an phường Hòa Khánh Bắc (quận Liên Chiểu, TP Đà Nẵng) vừa tiếp nhận đơn trình báo của Phòng khám Pasteur về việc phòng khám này bị tố tắc trách để sản phụ mất con.
-- Nhiều khu vực trên bán đảo Sơn Trà đang đối mặt với nguy cơ sạt lở nghiêm trọng khi bão Trà Mi có thể ảnh hưởng trực tiếp đến đất liền.
-- Một số tin tức đáng chú ý: Quốc hội thảo luận tổ về kinh tế - xã hội; TP.HCM mở thêm ba đường sách; Hơn 40.000 ca tử vong liên quan rượu, bia mỗi năm...
-- Rạng sáng 26-10, bão Trà Mi (bão số 6) mạnh lên cấp 11 (103-117km/h), giật cấp 14. Dự báo bão hướng vào vùng biển ven bờ các tỉnh Trung Trung Bộ trước khi đổi hướng đi ra biển.
-- Hôm nay 26-10, bão Trà Mi gây mưa dữ dội trên Biển Đông, thời tiết Trung Bộ mưa to, Nam Bộ chiều tối mưa rào.
-- Bộ trưởng Lê Minh Hoan đề nghị các địa phương chuẩn bị phương án ứng phó với bão Trà Mi (bão số 6) ở mức độ cao nhất với phương châm không hối tiếc.
-- Những người bán vé số dạo đầu tiên tại thị trấn Phước Long (huyện Phước Long, Bạc Liêu) đã được kết nạp vào tổ chức Công đoàn.
-- Ngày 25-10, Cơ quan cảnh sát điều tra Bộ Công an đã khởi tố bị can và bắt tạm giam ông Bùi Văn Từ - trưởng Ban Quản lý các khu công nghiệp tỉnh Đắk Lắk.
-- Dù được các y, bác sĩ cố gắng cứu chữa, thai phụ bị bỏng 95% trong vụ nổ ở phường Tam Bình, TP Thủ Đức (TP.HCM) vẫn không qua khỏi.
-- Ngày 25-10, Chi cục Kiểm lâm TP.HCM đã có thông tin khuyến cáo sau sự việc phát hiện hai con tê tê Java tại hai nơi cách nhau vài trăm mét ở quận 12 vào đêm 20-10.
-- Có 2 đơn vị có tác phẩm vào chung khảo cuộc thi tuyển kiến trúc cầu vượt biển 3.900 tỉ đồng đề nghị xem lại tĩnh không cầu vượt biển, để các đơn vị tham gia đều công bằng.
-- Chuyến công tác Nga dự Hội nghị BRICS mở rộng của Thủ tướng Phạm Minh Chính đã thành công cả về mặt song phương và đa phương, góp phần củng cố cục diện đối ngoại thuận lợi cho Việt Nam.
-- Sau nhiều năm tìm giải pháp hạn chế xe né trạm chống thất thu, tới nay chủ BOT Điện Bàn (Quảng Nam) nói gần như không thể làm gì khác ngoài việc chờ đợi trong vô vọng.
-- Người phụ nữ chở ba con nhỏ trên xe máy va chạm với xe khách 16 chỗ chạy chiều ngược lại trên quốc lộ 14C, mấy mẹ con bị thương nặng, bé út tử vong.
-- Ngoài máy bay bị can thiệp bất hợp pháp, những máy bay vi phạm vùng trời Việt Nam, bay sai phép bay nhưng không chấp nhận hành động của máy bay Quân đội nhân dân Việt Nam thực hiện bay chặn, bay ép sẽ bị ép hạ cánh.
-- Nhiều bạn đọc cho rằng khoản phụ thu 'ăn không uống' mà quán Trà Sen Cọ Dầu (TP Đông Hà, Quảng Trị) đang áp dụng sẽ được trước mắt, nhưng thiệt về lâu dài.
-- Chỉ sau 10 ngày, giá cau từ chạm đỉnh, thu mua tại vườn 85.000 đồng/kg đã lao dốc chóng mặt, hiện chỉ còn 25.000 đồng/kg.
-- Công an Quảng Trị đã khởi tố vụ án mạng khiến hai người chết ở quán karaoke và xác định nghi phạm đi tìm các nạn nhân ở nhiều nơi rồi mượn dao vào phòng hát gây án.
-- Ông Trần Phú Vinh, trưởng Phòng Tài nguyên và Môi trường TP Vũng Tàu, vừa có giấy ủy quyền công việc cho phó trưởng phòng này.
-- Quốc hội đã thông qua nghị quyết về việc miễn nhiệm chức vụ tổng thư ký Quốc hội, cho thôi làm nhiệm vụ đại biểu Quốc hội khóa XV với ông Bùi Văn Cường.
-- Thành ủy TP.HCM vừa có thông báo phân công công tác Thường trực Thành ủy, các ủy viên Ban Thường vụ Thành ủy, trưởng các cơ quan chuyên trách tham mưu giúp việc Thành ủy, Đoàn đại biểu Quốc hội TP, HĐND TP và UBND TP.HCM.
-- Thời gian gần đây, Sở Y tế TP.HCM đã tiếp nhận nhiều phản ánh liên quan đến 'chân mày phong thủy', nhiều người chi trả hàng trăm triệu đồng.
-- Tân bí thư Tỉnh ủy Thanh Hóa Nguyễn Doãn Anh khẳng định sẽ cùng Đảng bộ, chính quyền, nhân dân đoàn kết, chung sức vượt qua mọi khó khăn; hiện thực hóa khát vọng xây dựng tỉnh Thanh Hóa trở thành cực tăng trưởng mới ở phía Bắc của Tổ quốc.
-- Dự báo mới nhất cho thấy bão Trà Mi (bão số 6) đi vào vùng biển ven bờ các tỉnh Trung Trung Bộ rồi đổi hướng. Dự báo bão số 6 gây mưa lớn ở miền Trung, có nơi trên 700mm.
-- Toàn TP Vinh sẽ có gần 600 camera được lắp đặt tại nhiều tuyến đường giao thông trọng điểm.
-- Kết quả xét nghiệm cho thấy 100% mẫu bệnh phẩm trong vụ ngộ độc thực phẩm khiến 91 người nhập viện đều dương tính với E.coli.
-- Quân đội Việt Nam - Lào tiếp tục hợp tác chặt chẽ trong ngăn chặn, đấu tranh với các loại tội phạm xuyên quốc gia trong tình hình mới.
+- Sáng 27-10, ngư dân đã cứu được một du khách gặp nạn khi chơi sup ở vùng biển Phú Quý.
+- Dự báo trưa nay 27-10, bão Trà Mi (bão số 6) đi vào đất liền khu vực từ phía nam Quảng Trị đến bắc Quảng Nam.
+- Cần tính giá nước sạch như thế nào và đơn giản hóa thủ tục ra sao để tạo điều kiện cho người dân và đảm bảo tiết kiệm?
+- Một vụ cháy xảy ra bên trong bãi đậu xe máy của phòng CSGT Công an tỉnh Thừa Thiên Huế khiến nhiều xe máy bị thiêu rụi.
+- Sáng nay 27-10, miền Trung đã có mưa gió do ảnh hưởng của bão Trà Mi. Tại Đà Nẵng, gió bão đánh bật ngã nhiều cây.
+- Dải hội tụ nhiệt đới có trục qua Trung Trung Bộ nối với cơn bão Trà Mi (bão số 6) hoạt động ở khu vực Bắc Biển Đông gây mưa lớn cho Nam Bộ và TP.HCM.
+- 7h sáng 27-10, tâm bão Trà Mi (bão số 6) cách Đà Nẵng chưa đầy 100km, các tỉnh Trung Trung Bộ đang có mưa to và gió mạnh dần lên.
+- Bộ Công an đã bắt cựu giám đốc ban quản lý dự án về hành vi nhận hối lộ, còn giám đốc 2 doanh nghiệp ở Đắk Lắk bị bắt để điều tra tội đưa hối lộ.
+- Sáng 27-10, Thủ tướng Phạm Minh Chính và Phu nhân cùng đoàn đại biểu cấp cao Việt Nam rời sân bay Nội Bài lên đường thăm chính thức ba nước Trung Đông.
+- Tin tức đáng chú ý: Quảng Bình sẵn sàng di dời hàng chục ngàn hộ dân trong vùng ảnh hưởng bão Trà Mi; Khẩn trương tìm kiếm 2 du khách mất tích tại đảo Phú Quý.
+- Hôm nay 27-10, do ảnh hưởng của bão Trà Mi (số 6) khi vào đất liền nên thời tiết miền Trung mưa to đến rất to, vùng biển khu vực này dông gió dữ dội.
+- Dự báo trong sáng nay (27-10), bão Trà Mi (bão số 6) đi vào đất liền các tỉnh từ Quảng Trị đến Quảng Ngãi, sau đó đổi hướng đi ra biển và suy yếu dần thành áp thấp nhiệt đới.
+- Đà Nẵng yêu cầu thuyền viên lên bờ trước 10h sáng 27-10 để tránh bão Trà Mi. Hiện đang có hơn 1.800 tàu tránh bão, trong đó có hơn 700 tàu ngoại tỉnh.
+- Rạng sáng 26-10, nam thanh niên chạy xe ôm công nghệ chở khách từ quận 5 về huyện Bình Chánh (TP.HCM) bất ngờ bị khách dùng mũ bảo hiểm đánh tới tấp. Sau đó, thanh niên đăng cảnh báo 'cướp manh động lắm' lên mạng xã hội.
+- Bão số 6 (bão Trà Mi) được dự báo sẽ gây mưa lớn, bà con ở các vùng rốn lũ của TP Đà Nẵng gấp rút kê cao đồ đạc, đưa tài sản đến nơi cao ráo.
+- Sau 1 năm triển khai thí điểm, việc phạt nguội xe quá tải kéo giảm gần 93% vi phạm so với trước, đồng thời góp phần răn đe, nâng cao ý thức chấp hành của người dân, doanh nghiệp.
+- Dự báo mới nhất cho thấy bão Trà Mi (bão số 6) có khả năng đổ bộ vào đất liền các tỉnh, thành từ Quảng Trị đến Quảng Nam trong ngày mai.
+- Không chỉ ngư dân ở Đà Nẵng đưa tàu thuyền đánh cá lên bờ đi tránh bão Trà Mi, mà những du thuyền tiền tỉ cũng được doanh nghiệp thuê xe cẩu đưa đến nơi trú ẩn.
+- Các khoản phụ cấp cho nhân viên y tế đã rất lạc hậu. Bác sĩ phẫu thuật, gây mê trong ca ghép thận, phẫu thuật tim được bồi dưỡng 280.000 đồng.
+- Ba nước UAE, Saudi Arabia và Qatar đều những đối tác, những thị trường, nhà đầu tư, trung tâm tài chính, trung tâm công nghệ mà tiềm năng, dư địa hợp tác với Việt Nam còn rất lớn.
+- Công ty trúng thầu giữ xe tại Bệnh viện Đa khoa tỉnh Khánh Hòa thừa nhận nhân viên quản lý giữ xe tại cổng số 9 đã thu tiền giữ xe của bệnh nhân, người nhà bệnh nhân quá giá quy định, niêm yết và đã bị sa thải.
+- Tổng Bí thư Tô Lâm nhấn mạnh yêu cầu phát triển kinh tế - xã hội phải bền vững, thành quả phải đến tận tay người dân, nâng cao được mức sống của người dân.
+- Bất chấp những ngọn sóng to, ngư dân thôn Phước Thiện, xã Bình Hải, huyện Bình Sơn vẫn lao ra biển đánh bắt. Bà con biết nguy hiểm, nhưng bão vào, sóng to thì cá ven bờ rất nhiều nên ham.
+- Để đảm bảo an toàn trước ảnh hưởng của bão Trà Mi, Cục Hàng không quyết định tạm dừng khai thác bốn sân bay Đồng Hới, Phú Bài, Đà Nẵng, Chu Lai trong ngày 27 và 28-10.
+- Bộ Chính trị quyết định điều động, phân công, bổ nhiệm ông Thái Thanh Quý, bí thư Tỉnh ủy Nghệ An, giữ chức phó trưởng Ban Kinh tế Trung ương.
+- Cầu Phong Châu mới được Ban quản lý dự án Thăng Long thực hiện xây dựng theo lệnh khẩn cấp từ quý 4-2024 đến quý 4-2025.
+- Thủ tướng Phạm Minh Chính sẽ công du UAE, Qatar và Saudi Arabia từ ngày 27-10, nhằm tạo đột phá trong quan hệ kinh tế với các nước còn nhiều tiềm năng hợp tác.
+- Nhiều chiến sĩ đang cùng người dân, chính quyền TP Đà Nẵng khẩn trương chằng chống nhà cửa, neo đậu tàu thuyền, cắt tỉa cây cối...
+- Nam thanh niên chạy xe máy trên đường ở quận Bình Tân (TP.HCM) chở theo bốn con chó lớn đều không đeo rọ mõm.
+- Nhân dịp 49 năm thành lập, Vùng 4 hải quân tổ chức nhiều sự kiện, hoạt động ôn lại truyền thống, lịch sử hào hùng.
 ![New](News.png)
 ## Nhịp sống số 
 - Đài phát thanh OFF Radio Kraków tại Ba Lan gây tranh cãi khi sa thải các nhà báo của mình để sử dụng 'người dẫn chương trình' AI.
