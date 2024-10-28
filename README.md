@@ -1,6 +1,10 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Nhóm 'Liêm Chính Khoa Học' trên Facebook với gần 100.000 thành viên đã hoạt động trở lại sau 4 ngày bất ngờ biến mất.
+- Phụ huynh đóng góp xã hội hóa, hiệu trưởng dùng hơn 122 triệu đồng làm bạt che nắng nhưng không công khai thu chi với phụ huynh.
+- Ngày 27-10, tại Hội trường Thành ủy TP.HCM diễn ra lễ trao Học bổng khuyến tài (học bổng 1&1) cho 318 sinh viên vượt khó học tập.
+- Giao lại điện thoại cho học sinh sau giờ học, cô giáo thấy hơn 100 thông báo, tin nhắn từ các hội, nhóm mạng xã hội khác nhau.
 - Nhóm 'Liêm Chính Khoa Học' trên Facebook với gần 100.000 thành viên vừa bất ngờ biến mất. Hiện tại, liên kết đến nhóm hiển thị thông báo 'Bạn hiện không xem được nội dung này'.
 - Trường Đại học Kinh tế - Tài chính TP.HCM (UEF) đã tổ chức lễ Khai giảng năm học 2024 - 2025 cho các chương trình cử nhân quốc tế.
 - Hiệu trưởng Trường THPT Tô Hiến Thành khẳng định thời điểm tuyển sinh lớp 10 'không phải trường không được giao chỉ tiêu tuyển sinh, mà là chưa được giao chỉ tiêu'.
@@ -27,44 +31,41 @@
 - Với khả năng theo dõi hành vi của côn trùng ở tốc độ cao, hệ thống này giúp nghiên cứu về sự suy giảm quần thể côn trùng, đa dạng sinh học hoặc phát triển robot lấy cảm hứng từ côn trùng.
 - Một nam sinh lớp 9 ở Nghệ An bị bạn cùng trường ép ăn đất, hút thuốc lá trong đêm rồi quay clip tung lên mạng xã hội.
 - Trường đại học Đông Á đã có quyết định về việc thôi giữ chức vụ phó hiệu trưởng đối với PGS.TS Hoàng Anh Tuấn.
-- Bộ Giáo dục và Đào tạo đang lấy ý kiến về 5 đối tượng được tuyển thẳng vào lớp 10.
-- Ông Trần Ngọc Hà, cựu hiệu trưởng Trường phổ thông dân tộc bán trú tiểu học Hoàng Thu Phố 1 (huyện Bắc Hà, Lào Cai), bị khởi tố, bắt tạm giam sau vụ cắt xén bữa ăn bán trú.
-- Sở Nội vụ Quảng Bình rà soát và phát hiện có 3 viên chức của tỉnh này sử dụng chứng chỉ ngoại ngữ giả do tổ chức Cambridge International cấp.
-- Chỉ cần một máy tính có kết nối mạng là một người đã có thể mở lớp dạy IELTS online, nhiều trung tâm truyền thống gặp phải không ít khó khăn.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Sáng 27-10, ngư dân đã cứu được một du khách gặp nạn khi chơi sup ở vùng biển Phú Quý.
-- Dự báo trưa nay 27-10, bão Trà Mi (bão số 6) đi vào đất liền khu vực từ phía nam Quảng Trị đến bắc Quảng Nam.
-- Cần tính giá nước sạch như thế nào và đơn giản hóa thủ tục ra sao để tạo điều kiện cho người dân và đảm bảo tiết kiệm?
-- Một vụ cháy xảy ra bên trong bãi đậu xe máy của phòng CSGT Công an tỉnh Thừa Thiên Huế khiến nhiều xe máy bị thiêu rụi.
-- Sáng nay 27-10, miền Trung đã có mưa gió do ảnh hưởng của bão Trà Mi. Tại Đà Nẵng, gió bão đánh bật ngã nhiều cây.
-- Dải hội tụ nhiệt đới có trục qua Trung Trung Bộ nối với cơn bão Trà Mi (bão số 6) hoạt động ở khu vực Bắc Biển Đông gây mưa lớn cho Nam Bộ và TP.HCM.
-- 7h sáng 27-10, tâm bão Trà Mi (bão số 6) cách Đà Nẵng chưa đầy 100km, các tỉnh Trung Trung Bộ đang có mưa to và gió mạnh dần lên.
-- Bộ Công an đã bắt cựu giám đốc ban quản lý dự án về hành vi nhận hối lộ, còn giám đốc 2 doanh nghiệp ở Đắk Lắk bị bắt để điều tra tội đưa hối lộ.
-- Sáng 27-10, Thủ tướng Phạm Minh Chính và Phu nhân cùng đoàn đại biểu cấp cao Việt Nam rời sân bay Nội Bài lên đường thăm chính thức ba nước Trung Đông.
-- Tin tức đáng chú ý: Quảng Bình sẵn sàng di dời hàng chục ngàn hộ dân trong vùng ảnh hưởng bão Trà Mi; Khẩn trương tìm kiếm 2 du khách mất tích tại đảo Phú Quý.
-- Hôm nay 27-10, do ảnh hưởng của bão Trà Mi (số 6) khi vào đất liền nên thời tiết miền Trung mưa to đến rất to, vùng biển khu vực này dông gió dữ dội.
-- Dự báo trong sáng nay (27-10), bão Trà Mi (bão số 6) đi vào đất liền các tỉnh từ Quảng Trị đến Quảng Ngãi, sau đó đổi hướng đi ra biển và suy yếu dần thành áp thấp nhiệt đới.
-- Đà Nẵng yêu cầu thuyền viên lên bờ trước 10h sáng 27-10 để tránh bão Trà Mi. Hiện đang có hơn 1.800 tàu tránh bão, trong đó có hơn 700 tàu ngoại tỉnh.
-- Rạng sáng 26-10, nam thanh niên chạy xe ôm công nghệ chở khách từ quận 5 về huyện Bình Chánh (TP.HCM) bất ngờ bị khách dùng mũ bảo hiểm đánh tới tấp. Sau đó, thanh niên đăng cảnh báo 'cướp manh động lắm' lên mạng xã hội.
-- Bão số 6 (bão Trà Mi) được dự báo sẽ gây mưa lớn, bà con ở các vùng rốn lũ của TP Đà Nẵng gấp rút kê cao đồ đạc, đưa tài sản đến nơi cao ráo.
-- Sau 1 năm triển khai thí điểm, việc phạt nguội xe quá tải kéo giảm gần 93% vi phạm so với trước, đồng thời góp phần răn đe, nâng cao ý thức chấp hành của người dân, doanh nghiệp.
-- Dự báo mới nhất cho thấy bão Trà Mi (bão số 6) có khả năng đổ bộ vào đất liền các tỉnh, thành từ Quảng Trị đến Quảng Nam trong ngày mai.
-- Không chỉ ngư dân ở Đà Nẵng đưa tàu thuyền đánh cá lên bờ đi tránh bão Trà Mi, mà những du thuyền tiền tỉ cũng được doanh nghiệp thuê xe cẩu đưa đến nơi trú ẩn.
-- Các khoản phụ cấp cho nhân viên y tế đã rất lạc hậu. Bác sĩ phẫu thuật, gây mê trong ca ghép thận, phẫu thuật tim được bồi dưỡng 280.000 đồng.
-- Ba nước UAE, Saudi Arabia và Qatar đều những đối tác, những thị trường, nhà đầu tư, trung tâm tài chính, trung tâm công nghệ mà tiềm năng, dư địa hợp tác với Việt Nam còn rất lớn.
-- Công ty trúng thầu giữ xe tại Bệnh viện Đa khoa tỉnh Khánh Hòa thừa nhận nhân viên quản lý giữ xe tại cổng số 9 đã thu tiền giữ xe của bệnh nhân, người nhà bệnh nhân quá giá quy định, niêm yết và đã bị sa thải.
-- Tổng Bí thư Tô Lâm nhấn mạnh yêu cầu phát triển kinh tế - xã hội phải bền vững, thành quả phải đến tận tay người dân, nâng cao được mức sống của người dân.
-- Bất chấp những ngọn sóng to, ngư dân thôn Phước Thiện, xã Bình Hải, huyện Bình Sơn vẫn lao ra biển đánh bắt. Bà con biết nguy hiểm, nhưng bão vào, sóng to thì cá ven bờ rất nhiều nên ham.
-- Để đảm bảo an toàn trước ảnh hưởng của bão Trà Mi, Cục Hàng không quyết định tạm dừng khai thác bốn sân bay Đồng Hới, Phú Bài, Đà Nẵng, Chu Lai trong ngày 27 và 28-10.
-- Bộ Chính trị quyết định điều động, phân công, bổ nhiệm ông Thái Thanh Quý, bí thư Tỉnh ủy Nghệ An, giữ chức phó trưởng Ban Kinh tế Trung ương.
-- Cầu Phong Châu mới được Ban quản lý dự án Thăng Long thực hiện xây dựng theo lệnh khẩn cấp từ quý 4-2024 đến quý 4-2025.
-- Thủ tướng Phạm Minh Chính sẽ công du UAE, Qatar và Saudi Arabia từ ngày 27-10, nhằm tạo đột phá trong quan hệ kinh tế với các nước còn nhiều tiềm năng hợp tác.
-- Nhiều chiến sĩ đang cùng người dân, chính quyền TP Đà Nẵng khẩn trương chằng chống nhà cửa, neo đậu tàu thuyền, cắt tỉa cây cối...
-- Nam thanh niên chạy xe máy trên đường ở quận Bình Tân (TP.HCM) chở theo bốn con chó lớn đều không đeo rọ mõm.
-- Nhân dịp 49 năm thành lập, Vùng 4 hải quân tổ chức nhiều sự kiện, hoạt động ôn lại truyền thống, lịch sử hào hùng.
+- Chính phủ đề xuất tăng tuổi nghỉ hưu của sĩ quan quân đội ở hầu hết cấp bậc quân hàm, bổ sung các quy định về thăng quân hàm, nâng lương trước hạn.
+- Mưa xối xả suốt đêm khiến nhiều vùng ở Lệ Thủy (Quảng Bình) ngập trong biển nước. Lực lượng cứu hộ đã phải hoạt động suốt đêm để ứng cứu những nơi ngập sâu.
+- Chủ đầu tư phải vay từ ngân hàng thương mại với lãi suất cao dẫn đến giá bán nhà ở xã hội cao, đối tượng thụ hưởng chính sách nhà ở xã hội khó tiếp cận.
+- Thi thể của anh Lê Ngọc Hơn - thanh niên Quảng Bình dũng cảm lội vào vùng ngập giúp người dân tránh lụt - đã được tìm thấy cách nơi bị nạn 200m.
+- Thời gian gần đây, nhiều lao động ở các tỉnh thành lớn đã bỏ phố về tìm việc làm tại quê nhà. Trước tình hình này, nhiều địa phương tại Đồng bằng sông Cửu Long đã khẩn trương tư vấn, giải quyết việc làm cho người lao động.
+- Sáng nay 28-10, Quốc hội thảo luận tại hội trường về kết quả giám sát việc thực hiện chính sách, pháp luật quản lý thị trường bất động sản và phát triển nhà ở xã hội.
+- Tối 27-10, tại TP Sầm Sơn, tỉnh Thanh Hóa tổ chức lễ kỷ niệm 70 năm đón tiếp đồng bào, cán bộ, chiến sĩ và học sinh miền Nam tập kết ra Bắc và khánh thành khu lưu niệm đồng bào miền Nam tập kết ra Bắc.
+- Một số tin tức đáng chú ý: 3 quý đầu năm chi hơn 102.000 tỉ đồng khám chữa bệnh bảo hiểm y tế; Nhà Khang Điền xóa sổ 2 công ty bất động sản thành viên; Không việc làm, một công ty dầu khí báo lợi nhuận 0 đồng...
+- Dù suy yếu và không còn khả năng mạnh lại nhưng nhiễu động từ bão Trà Mi gây mưa to đến rất to cho miền Trung, dễ tạo lũ, sạt lở nguy hiểm.
+- Mưa lớn do bão Trà Mi (bão số 6), lũ trên sông Kiến Giang qua huyện Lệ Thủy (Quảng Bình) đang lên trên mức báo động 3 khoảng 1m.
+- Nước lũ dâng nhanh và cao hơn trận mưa lũ lịch sử 2020 tới 1,2m, chính quyền xã Vĩnh Long, huyện Vĩnh Linh, Quảng Trị gấp rút di dời hàng chục hộ dân trong đêm.
+- Tuyến đường sắt Bắc Nam bị ngập lụt nhiều đoạn qua Lệ Thủy (Quảng Bình) và Vĩnh Linh (Quảng Trị) khiến nhiều chuyến tàu bị kẹt lại ga Đồng Hới và Đông Hà.
+- Điệu múa nón lá trên nền nhạc Hello Viet Nam và bài nhảy Việt Nam ơi của kiều bào tại UAE gây nhiều xúc động trong cuộc gặp của Thủ tướng với kiều bào.
+- Sau vụ tai nạn do nhóm quái xế phóng xe lạng lách trên đường gây ra, anh N.V.K. bị chấn thương sọ não, phải rời Hà Nội về nhà ở Thái Bình để bố mẹ chăm sóc.
+- Xe tải chuyển phát nhanh đi trên cao tốc Đà Nẵng - Quảng Ngãi bất ngờ bốc cháy, Cảnh sát phòng cháy chữa cháy tỉnh Quảng Ngãi kịp thời dập tắt.
+- Bão Kong-rey đang hoạt động ở ngoài khơi Philippines, dự báo cường độ tiếp tục mạnh thêm và đang có xu hướng lệch trái, không loại trừ khả năng tiệm cận Biển Đông.
+- Ba thanh niên tại Lệ Thủy (Quảng Bình) đi giúp dân dọn dẹp sau bão Trà Mi bị nước lũ cuốn trôi. Hai người bơi được vào bờ. Người còn lại mất tích.
+- Nhiều người dân ở Đà Nẵng chia sẻ hình ảnh và không khỏi xót xa khi tuyến đường ven sông Hàn hiện ra ngổn ngang gạch, đá sau khi nước rút.
+- Đồn biên phòng Bình Hải (Bộ chỉ huy Bộ đội biên phòng tỉnh Quảng Ngãi) vừa lập biên bản xử lý một ngư dân ra khơi đánh bắt lúc bão Trà Mi đổ bộ vào đất liền.
+- Chiều nay 27-10, bão Trà Mi đã suy yếu thành áp thấp nhiệt đới, tâm áp thấp nhiệt đới ở trên đất liền Thừa Thiên Huế, Đà Nẵng, Quảng Nam.
+- Tại Thừa Thiên Huế, ghi nhận 2 người chết trong bão Trà Mi. Tại Quảng Nam, 1 người thiệt mạng khi chằng chống nhà cửa tránh bão.
+- Vụ tài xế xe ôm công nghệ đăng lên mạng phản ánh bị cướp ở Bình Chánh, TP.HCM chỉ là mâu thuẫn với khách trong quá trình di chuyển.
+- Phụ huynh đóng góp xã hội hóa, hiệu trưởng dùng hơn 122 triệu đồng làm bạt che nắng nhưng không công khai thu chi với phụ huynh.
+- Cục Hàng không Việt Nam quyết định khai thác trở lại 4 sân bay tại miền Trung từ chiều 27-10 khi bão Trà Mi suy yếu.
+- Từ sau đại dịch đến nay, hàng chục ngàn công nhân đã lặng lẽ rời nhà trọ ở Đồng Nai và Bình Dương, về quê sinh sống.
+- Ngoài mức phạt tiền 30-40 triệu đồng, cơ quan soạn thảo còn đề xuất trừ toàn bộ 12 điểm bằng lái xe của tài xế.
+- Nhiều thông tin nóng bạn đọc cung cấp được triển khai nhanh thành tin bài trên Tuổi Trẻ Online tuần qua.
+- Các chuyên gia cho rằng TP.HCM cần thêm cơ chế huy động nhà đầu tư tham gia.
+- Cây phượng bên trong trường tiểu học ở quận 12, TP.HCM bất ngờ bật gốc sau cơn mưa lớn, đè ô tô đậu ngoài đường.
+- Vụ phá rừng tự nhiên nghiêm trọng khiến hàng trăm cây gỗ quý đường kính 80-100cm, cao 30-40m bị đốn hạ trên diện tích gần 1,55ha.
 ![New](News.png)
 ## Nhịp sống số 
+- Câu chuyện về một vài người nào đó trở thành tỉ phú chỉ sau một thời gian ngắn chơi tiền số đã khiến nhiều người Việt lao vào cuộc chơi.
 - Đài phát thanh OFF Radio Kraków tại Ba Lan gây tranh cãi khi sa thải các nhà báo của mình để sử dụng 'người dẫn chương trình' AI.
 - Meta thể hiện quyết tâm chống lại nạn quảng cáo trục lợi từ hình ảnh người nổi tiếng, khi thử nghiệm công nghệ nhận diện khuôn mặt trên các nền tảng của mình.
 - Microsoft vừa giới thiệu các tác nhân trí tuệ nhân tạo (AI) tự động hay nhân viên ảo, với khả năng xử lý các truy vấn từ người dùng, cũng như xác định nhóm khách hàng tiềm năng.
@@ -94,5 +95,4 @@
 - Ông Elon Musk đang trên đà trở thành tỉ phú nghìn tỉ (trillionaire) đầu tiên trên thế giới vào năm 2027.
 - Các nhà sản xuất điện thoại smartphone từ Trung Quốc đã làm lung lay vị thế dẫn đầu lâu đời của Samsung tại thị trường Đông Nam Á.
 - Với Galaxy Z Fold6, bạn có thể thoải mái sáng tạo và sáng tác bất cứ khi nào, bất cứ nơi đâu, đặc biệt hữu ích với những bạn trong ngành thiết kế, đồ họa, truyền thông…
-- Hai đối tượng đã lắp đặt thiết bị đánh cắp thông tin thẻ ngân hàng tại một số máy ATM ở Úc, sau đó rút tiền từ tài khoản của nạn nhân.
 ![life](Life.png)
