@@ -1,6 +1,12 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Từ đầu năm học 2024-2025 đến nay, tại TP Thanh Hóa có hàng chục học sinh THPT xin chuyển trường một cách “bất thường”. Đó là học sinh thi vào trường có điểm đầu vào thấp, sau đó xin chuyển đến học tại trường có điểm đầu vào cao.
+- Biết việc giao xe cho con ở tầm tuổi này là sai trái, bà Thúy vẫn đặt niềm tin vì lời hứa "con chỉ đi học và quanh trong làng".
+- Nhóm sinh viên Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) đã chế tạo robot y tá có khả năng nhận diện khuôn mặt, nhằm hỗ trợ tình trạng quá tải ở các bệnh viện.
+- Trong vai cha mẹ cần tìm trường cho con bị tự kỷ, phóng viên Tuổi Trẻ ở cả ba miền Bắc, Trung, Nam đã dành nhiều tháng tìm kiếm, thâm nhập.
+- Bành Khánh Dung, cựu sinh viên khóa 13 ngành Ngôn ngữ Anh, Trường Đại học Quốc tế Sài Gòn (SIU), đã trở thành tiếp viên hàng không của Emirates Airlines.
+- Nhóm sinh viên RED - ISB Dance Club vừa ra mắt dự án "Xích Linh", tái hiện tác phẩm văn hóa kinh dị đậm chất Việt Nam qua ngôn ngữ vũ đạo.
 - Nhóm 'Liêm Chính Khoa Học' trên Facebook với gần 100.000 thành viên đã hoạt động trở lại sau 4 ngày bất ngờ biến mất.
 - Phụ huynh đóng góp xã hội hóa, hiệu trưởng dùng hơn 122 triệu đồng làm bạt che nắng nhưng không công khai thu chi với phụ huynh.
 - Ngày 27-10, tại Hội trường Thành ủy TP.HCM diễn ra lễ trao Học bổng khuyến tài (học bổng 1&1) cho 318 sinh viên vượt khó học tập.
@@ -25,44 +31,38 @@
 - Vừa qua, nhiều bạn học sinh đã tham quan trang trại Green Farm (Tây Ninh) và nhà máy sữa lớn nhất tại Việt Nam của Vinamilk (Bình Dương). Đây là một hoạt động dành cho các tài năng nhí về lập trình robot đến từ nhiều tỉnh thành trên cả nước.
 - TP.HCM mong muốn giữ ổn định kỳ thi tuyển sinh lớp 10 như các năm học trước. Bên cạnh đó, Sở Giáo dục và Đào tạo TP.HCM cũng đề xuất được chọn môn thi thứ ba.
 - Hiệu trưởng dùng tiền xã hội hóa do phụ huynh đóng góp lắp bạt chống nắng cho các phòng học. Nhưng sau đó phụ huynh phát hiện nhiều dấu hiệu bất thường về giá lắp công trình bạt che nắng này.
-- Xin hãy gỡ từng nút thắt, cởi trói áp lực vô hình đang bủa vây nhà giáo.
-- Thời gian qua, hội đồng trường của một số trường đại học hoạt động khá hiệu quả, nhưng ở nhiều trường hội đồng trường vẫn tồn tại một cách hình thức.
-- Trong giờ ra chơi, ba nam sinh lớp 10 tại Bến Tre xúm lại đánh hội đồng một bạn nam cùng lớp khiến nạn nhân phải nhập viện sau đó.
-- Với khả năng theo dõi hành vi của côn trùng ở tốc độ cao, hệ thống này giúp nghiên cứu về sự suy giảm quần thể côn trùng, đa dạng sinh học hoặc phát triển robot lấy cảm hứng từ côn trùng.
-- Một nam sinh lớp 9 ở Nghệ An bị bạn cùng trường ép ăn đất, hút thuốc lá trong đêm rồi quay clip tung lên mạng xã hội.
-- Trường đại học Đông Á đã có quyết định về việc thôi giữ chức vụ phó hiệu trưởng đối với PGS.TS Hoàng Anh Tuấn.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Chính phủ đề xuất tăng tuổi nghỉ hưu của sĩ quan quân đội ở hầu hết cấp bậc quân hàm, bổ sung các quy định về thăng quân hàm, nâng lương trước hạn.
-- Mưa xối xả suốt đêm khiến nhiều vùng ở Lệ Thủy (Quảng Bình) ngập trong biển nước. Lực lượng cứu hộ đã phải hoạt động suốt đêm để ứng cứu những nơi ngập sâu.
-- Chủ đầu tư phải vay từ ngân hàng thương mại với lãi suất cao dẫn đến giá bán nhà ở xã hội cao, đối tượng thụ hưởng chính sách nhà ở xã hội khó tiếp cận.
-- Thi thể của anh Lê Ngọc Hơn - thanh niên Quảng Bình dũng cảm lội vào vùng ngập giúp người dân tránh lụt - đã được tìm thấy cách nơi bị nạn 200m.
-- Thời gian gần đây, nhiều lao động ở các tỉnh thành lớn đã bỏ phố về tìm việc làm tại quê nhà. Trước tình hình này, nhiều địa phương tại Đồng bằng sông Cửu Long đã khẩn trương tư vấn, giải quyết việc làm cho người lao động.
-- Sáng nay 28-10, Quốc hội thảo luận tại hội trường về kết quả giám sát việc thực hiện chính sách, pháp luật quản lý thị trường bất động sản và phát triển nhà ở xã hội.
-- Tối 27-10, tại TP Sầm Sơn, tỉnh Thanh Hóa tổ chức lễ kỷ niệm 70 năm đón tiếp đồng bào, cán bộ, chiến sĩ và học sinh miền Nam tập kết ra Bắc và khánh thành khu lưu niệm đồng bào miền Nam tập kết ra Bắc.
-- Một số tin tức đáng chú ý: 3 quý đầu năm chi hơn 102.000 tỉ đồng khám chữa bệnh bảo hiểm y tế; Nhà Khang Điền xóa sổ 2 công ty bất động sản thành viên; Không việc làm, một công ty dầu khí báo lợi nhuận 0 đồng...
-- Dù suy yếu và không còn khả năng mạnh lại nhưng nhiễu động từ bão Trà Mi gây mưa to đến rất to cho miền Trung, dễ tạo lũ, sạt lở nguy hiểm.
-- Mưa lớn do bão Trà Mi (bão số 6), lũ trên sông Kiến Giang qua huyện Lệ Thủy (Quảng Bình) đang lên trên mức báo động 3 khoảng 1m.
-- Nước lũ dâng nhanh và cao hơn trận mưa lũ lịch sử 2020 tới 1,2m, chính quyền xã Vĩnh Long, huyện Vĩnh Linh, Quảng Trị gấp rút di dời hàng chục hộ dân trong đêm.
-- Tuyến đường sắt Bắc Nam bị ngập lụt nhiều đoạn qua Lệ Thủy (Quảng Bình) và Vĩnh Linh (Quảng Trị) khiến nhiều chuyến tàu bị kẹt lại ga Đồng Hới và Đông Hà.
-- Điệu múa nón lá trên nền nhạc Hello Viet Nam và bài nhảy Việt Nam ơi của kiều bào tại UAE gây nhiều xúc động trong cuộc gặp của Thủ tướng với kiều bào.
-- Sau vụ tai nạn do nhóm quái xế phóng xe lạng lách trên đường gây ra, anh N.V.K. bị chấn thương sọ não, phải rời Hà Nội về nhà ở Thái Bình để bố mẹ chăm sóc.
-- Xe tải chuyển phát nhanh đi trên cao tốc Đà Nẵng - Quảng Ngãi bất ngờ bốc cháy, Cảnh sát phòng cháy chữa cháy tỉnh Quảng Ngãi kịp thời dập tắt.
-- Bão Kong-rey đang hoạt động ở ngoài khơi Philippines, dự báo cường độ tiếp tục mạnh thêm và đang có xu hướng lệch trái, không loại trừ khả năng tiệm cận Biển Đông.
-- Ba thanh niên tại Lệ Thủy (Quảng Bình) đi giúp dân dọn dẹp sau bão Trà Mi bị nước lũ cuốn trôi. Hai người bơi được vào bờ. Người còn lại mất tích.
-- Nhiều người dân ở Đà Nẵng chia sẻ hình ảnh và không khỏi xót xa khi tuyến đường ven sông Hàn hiện ra ngổn ngang gạch, đá sau khi nước rút.
-- Đồn biên phòng Bình Hải (Bộ chỉ huy Bộ đội biên phòng tỉnh Quảng Ngãi) vừa lập biên bản xử lý một ngư dân ra khơi đánh bắt lúc bão Trà Mi đổ bộ vào đất liền.
-- Chiều nay 27-10, bão Trà Mi đã suy yếu thành áp thấp nhiệt đới, tâm áp thấp nhiệt đới ở trên đất liền Thừa Thiên Huế, Đà Nẵng, Quảng Nam.
-- Tại Thừa Thiên Huế, ghi nhận 2 người chết trong bão Trà Mi. Tại Quảng Nam, 1 người thiệt mạng khi chằng chống nhà cửa tránh bão.
-- Vụ tài xế xe ôm công nghệ đăng lên mạng phản ánh bị cướp ở Bình Chánh, TP.HCM chỉ là mâu thuẫn với khách trong quá trình di chuyển.
-- Phụ huynh đóng góp xã hội hóa, hiệu trưởng dùng hơn 122 triệu đồng làm bạt che nắng nhưng không công khai thu chi với phụ huynh.
-- Cục Hàng không Việt Nam quyết định khai thác trở lại 4 sân bay tại miền Trung từ chiều 27-10 khi bão Trà Mi suy yếu.
-- Từ sau đại dịch đến nay, hàng chục ngàn công nhân đã lặng lẽ rời nhà trọ ở Đồng Nai và Bình Dương, về quê sinh sống.
-- Ngoài mức phạt tiền 30-40 triệu đồng, cơ quan soạn thảo còn đề xuất trừ toàn bộ 12 điểm bằng lái xe của tài xế.
-- Nhiều thông tin nóng bạn đọc cung cấp được triển khai nhanh thành tin bài trên Tuổi Trẻ Online tuần qua.
-- Các chuyên gia cho rằng TP.HCM cần thêm cơ chế huy động nhà đầu tư tham gia.
-- Cây phượng bên trong trường tiểu học ở quận 12, TP.HCM bất ngờ bật gốc sau cơn mưa lớn, đè ô tô đậu ngoài đường.
-- Vụ phá rừng tự nhiên nghiêm trọng khiến hàng trăm cây gỗ quý đường kính 80-100cm, cao 30-40m bị đốn hạ trên diện tích gần 1,55ha.
+- Bộ Y tế vừa có tờ trình Quốc hội dự luật sửa đổi, bổ sung một số điều của Luật Bảo hiểm y tế (BHYT), đề xuất bỏ giấy chuyển viện với một số trường hợp bệnh hiếm, bệnh hiểm nghèo.
+- Nhiều chính sách có hiệu lực tháng 11 như bãi bỏ quy định người dân được giám sát cảnh sát giao thông bằng camera, các quy định mới về lãi suất.
+- Người đàn ông chủ vựa ve chai trên đường Hậu Giang, quận 6, TP.HCM mua thùng phuy về cắt, sau đó phát nổ khiến người này bị thương nặng.
+- Nhiều doanh nghiệp lớn ở miền Trung tăng cường tuyển dụng lao động trí thức lẫn phổ thông phục vụ sản xuất. Đến giờ còn hàng chục ngàn vị trí tuyển dụng chờ đón lao động "rời phố về quê".
+- Một số tin tức đáng chú ý: Quốc hội thảo luận Luật Thuế giá trị gia tăng sửa đổi; Đề xuất mức điều chỉnh tiền lương, thu nhập tháng đã đóng bảo hiểm xã hội; Một công ty chứng khoán bị mạo danh lừa đảo...
+- Nước lũ trên sông Kiến Giang (Lệ Thủy, Quảng Bình) có rút xuống khoảng 10cm khiến người dân ở đây nhẹ lòng đôi chút.
+- Từ Thung lũng Silicon đến Phố Wall, một số tỉ phú Mỹ đã trở thành nhà tài trợ lớn cho ông Trump và bà Harris, trong khi có những tỉ phú không công khai ủng hộ bên nào.
+- Hôm nay 29-10, vùng mưa to vẫn duy trì ở các tỉnh miền Trung, thời tiết này còn kéo dài thêm 1-2 ngày tới.
+- Chiều 28-10, đội cảnh sát hình sự Công an quận Gò Vấp (TP.HCM) đã truy xét được tài xế không chấp hành, lái ô tô bỏ chạy khiến cửa xe đập vào mặt cán bộ công an phường.
+- Quốc vụ khanh phụ trách ngoại thương - Bộ Kinh tế UAE cho rằng Việt Nam là một đối tác lý tưởng với UAE. Thủ tướng Phạm Minh Chính kêu gọi doanh nghiệp UAE đầu tư vào Việt Nam xây dựng trung tâm tài chính quốc tế ở TP.HCM, Đà Nẵng...
+- Hiện nay, trên đường đèo Cù Hin có nhiều tảng đá nằm trên vách núi cao có nguy cơ sạt lở xuống đường gây nguy hiểm đến người dân, du khách đi lại giữa TP Nha Trang với khu du lịch Bãi Dài, sân bay Cam Ranh.
+- Sau một thời gian bị bệnh nặng, thầy Trương Minh Đạt - người được mệnh danh 'nhà Hà Tiên học' (sinh năm 1936, ở TP Hà Tiên, Kiên Giang) - đã qua đời trong sự thương tiếc của nhiều người sinh sống trên mảnh đất phía Tây Nam Tổ quốc.
+- Đó là thông tin được UBND TP Thủ Đức công bố tại hội nghị thông tin về niêm yết dự thảo phương án bồi thường, hỗ trợ, tái định cư dự án đầu tư xây dựng đường vành đai 2 (đoạn 1, đoạn 2) chiều 28-10.
+- Chiều 28-10, Đại tướng Phan Văn Giang, bộ trưởng Bộ Quốc phòng, đã có thông tin thêm một số nội dung trong sửa Luật Sĩ quan Quân đội nhân dân Việt Nam, trong đó có đề xuất nâng tuổi nghỉ hưu của nữ sĩ quan cấp tướng quân đội.
+- Từ đầu năm học 2024-2025 đến nay, tại TP Thanh Hóa có hàng chục học sinh THPT xin chuyển trường một cách “bất thường”. Đó là học sinh thi vào trường có điểm đầu vào thấp, sau đó xin chuyển đến học tại trường có điểm đầu vào cao.
+- Đồng Tháp đặt mục tiêu đến năm 2030 có 80% diện tích trồng lúa giảm phát thải, giá trị gia tăng trên đất trồng đạt 250 triệu đồng/năm; tốc độ tăng trưởng GRDP nông nghiệp đạt trên 3,5%/năm.
+- Lực lượng công an triệt phá 'căn cứ' đánh bạc quy mô lớn với hệ thống đường hầm dài hơn 300m, nhiều lối thoát hiểm, có camera giám sát, cảnh giới hiện đại.
+- Phó chủ tịch UBND TP.HCM Nguyễn Văn Dũng yêu cầu khởi công cầu đường Nguyễn Khoái vào tháng 7-2025, hoàn thành dự án thành phần 1 mở rộng đường Dương Quảng Hàm vào cuối năm và thông xe cầu Tân Kỳ Tân Quý trước Tết Nguyên đán.
+- Chiều 28-10, xe tập lái chạy trên đường Nguyễn Bình (huyện Nhà Bè, TP.HCM) xảy ra va chạm với xe máy khiến một người tử vong.
+- Người phụ nữ đầu độc người tình bằng độc chất xyanua rồi chở xác lao xuống đèo Bảo Lộc (Lâm Đồng) đã bị khởi tố.
+- Hai người đàn ông tự xưng là nhà báo thực hiện hành vi cưỡng đoạt tài sản của nhiều doanh nghiệp ở Nghệ An bị lực lượng công an bắt giữ.
+- Do xin đường không được, tài xế xe rác dùng ống thủy lực đập bể gương chiếu hậu xe taxi trên đường Nguyễn Văn Linh, huyện Bình Chánh.
+- Chiều 28-10, Thống đốc Ngân hàng Nhà nước Việt Nam Nguyễn Thị Hồng giải trình trước Quốc hội. Sau khi giải đáp ý kiến về lãi suất cao, bà Hồng đã nhắc lại thời điểm 'không thể quên'.
+- Những ngày qua nhiều địa phương tại TP.HCM bị tồn đọng rác thải vì xe chở rác ra vào bãi rác Đa Phước bị chậm.
+- Sau khi bão Trà Mi đi qua, đèo Hải Vân được thông xe trở lại. Tuy nhiên, trên cung đường đèo này xuất hiện nhiều điểm có cây xanh ngã đổ, đất đá sạt lở... gây nguy hiểm cho người dân khi lưu thông qua đây.
+- Đại tướng Phan Văn Giang - bộ trưởng Bộ Quốc phòng - đã trình Quốc hội dự Luật sửa đổi, bổ sung một số điều của Luật Sĩ quan Quân đội nhân dân Việt Nam.
+- Sau bão Trà Mi, đường sắt Bắc - Nam đoạn qua huyện Vĩnh Linh (Quảng Trị) bị nước lũ làm hư hỏng đoạn dài 1,3km, có vị trí dịch chuyển khỏi tim đường từ 3 - 3,9m, hàng trăm công nhân dầm mưa để sớm khắc phục.
+- Đà Nẵng đầu tư tuyến cống để nước từ kênh Phú Lộc chạy thẳng ra đường ven biển Nguyễn Tất Thành, nhằm tăng cường khả năng thoát nước cho các khu vực trung tâm thành phố, sân bay và khu vực rốn ngập đường Mẹ Suốt.
+- Bộ trưởng Đỗ Đức Duy nêu thực tế một số đối tượng tham gia đấu giá đất không thực sự có nhu cầu ở, mà chủ yếu vì mục đích đầu cơ, thao túng giá thông qua việc đẩy giá cao, thổi giá.
+- Bộ Quốc phòng điều động, bổ nhiệm đại tá Phạm Văn Thắng - phó chỉ huy trưởng Bộ đội biên phòng TP.HCM - giữ chức vụ chỉ huy trưởng Bộ chỉ huy Bộ đội biên phòng Kiên Giang.
 ![New](News.png)
 ## Nhịp sống số 
 - Câu chuyện về một vài người nào đó trở thành tỉ phú chỉ sau một thời gian ngắn chơi tiền số đã khiến nhiều người Việt lao vào cuộc chơi.
