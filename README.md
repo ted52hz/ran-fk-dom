@@ -1,6 +1,14 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Thực tế có nhiều rào cản cho quá trình hình thành, xây dựng các trung tâm nuôi dạy trẻ tự kỷ ở Việt Nam.
+- Đề thi văn giữa học kỳ 1 của Trường THPT Mạc Đĩnh Chi, TP.HCM yêu cầu học sinh viết về 'lối sống phông bạt' của giới trẻ.
+- Với mong muốn bảo vệ môi trường từ những việc nhỏ nhất, học sinh ở TP Đà Nẵng đã tích cực tham gia mô hình 'Chuyến xe kế hoạch nhỏ', thu gom, phân loại rác thải, gây quỹ giúp bạn.
+- Lần đầu tiên Hội nghị các thành phố học tập tại khu vực Đông Nam Á đã được tổ chức tại Bangkok, Thái Lan.
+- Thời gian làm bài được rút ngắn, cấu trúc câu hỏi được điều chỉnh tiếp cận thực tế… Đó là một số thay đổi chính của bài thi TOEFL iBT trong năm nay.
+- Bộ Giáo dục và Đào tạo dự kiến các trường đại học sẽ không được tăng chỉ tiêu tuyển sinh khi năm trước đó tỉ lệ sinh viên thôi học năm đầu cao hơn 15% hoặc tỉ lệ người tốt nghiệp có việc làm thấp hơn 70%.
+- 2025 là năm đầu tiên tổ chức kỳ thi tốt nghiệp THPT, tuyển sinh theo Chương trình giáo dục phổ thông 2018.
+- Công cuộc tìm trường cho con ban đầu tưởng đơn giản, vì chỉ cần đặt lệnh tìm kiếm "trường dành cho trẻ tự kỷ" là ngay lập tức nhận được hàng ngàn kết quả.
 - Từ đầu năm học 2024-2025 đến nay, tại TP Thanh Hóa có hàng chục học sinh THPT xin chuyển trường một cách “bất thường”. Đó là học sinh thi vào trường có điểm đầu vào thấp, sau đó xin chuyển đến học tại trường có điểm đầu vào cao.
 - Biết việc giao xe cho con ở tầm tuổi này là sai trái, bà Thúy vẫn đặt niềm tin vì lời hứa "con chỉ đi học và quanh trong làng".
 - Nhóm sinh viên Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) đã chế tạo robot y tá có khả năng nhận diện khuôn mặt, nhằm hỗ trợ tình trạng quá tải ở các bệnh viện.
@@ -23,48 +31,42 @@
 - Về 15 học sinh tiểu học xuất hiện triệu chứng giống ngộ độc, ngành y tế cho rằng không đủ cơ sở xác định vụ ngộ độc mà do hiệu ứng đám đông.
 - Công an đã mời hai thiếu niên ép một nam sinh ở huyện Nam Đàn, Nghệ An ăn đất trong đêm đến trụ sở để làm rõ vụ việc.
 - Chủ doanh nghiệp lắp bạt chống nắng cho Trường tiểu học Lý Trạch lý giải về việc hiệu trưởng kê khai giá bạt cao gấp 3 lần giá phụ huynh khảo sát.
-- Dư luận cho rằng quy định này không thực tế vì người hoạt động cách mạng trước 1945 không thể có con ở tuổi 15 để tuyển sinh vào lớp 10.
-- Giang Văn Tân - học sinh bị bại não bẩm sinh - vừa chính thức bước vào giảng đường Đại học RMIT.
-- Tại Đà Nẵng, nhiều năm qua các trường học đã công khai bữa ăn bán trú bằng nhiều cách khác nhau.
-- Trường đại học Luật TP.HCM nhận tài trợ 1 tỉ đồng do Agribank tài trợ phục vụ cho đào tạo, khoa học công nghệ, hỗ trợ sinh viên.
-- Năm học 2023-2024 có khoảng 22.000 du học sinh nước ngoài đang học tập tại các đại học của Việt Nam.
-- Vừa qua, nhiều bạn học sinh đã tham quan trang trại Green Farm (Tây Ninh) và nhà máy sữa lớn nhất tại Việt Nam của Vinamilk (Bình Dương). Đây là một hoạt động dành cho các tài năng nhí về lập trình robot đến từ nhiều tỉnh thành trên cả nước.
-- TP.HCM mong muốn giữ ổn định kỳ thi tuyển sinh lớp 10 như các năm học trước. Bên cạnh đó, Sở Giáo dục và Đào tạo TP.HCM cũng đề xuất được chọn môn thi thứ ba.
-- Hiệu trưởng dùng tiền xã hội hóa do phụ huynh đóng góp lắp bạt chống nắng cho các phòng học. Nhưng sau đó phụ huynh phát hiện nhiều dấu hiệu bất thường về giá lắp công trình bạt che nắng này.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Bộ Y tế vừa có tờ trình Quốc hội dự luật sửa đổi, bổ sung một số điều của Luật Bảo hiểm y tế (BHYT), đề xuất bỏ giấy chuyển viện với một số trường hợp bệnh hiếm, bệnh hiểm nghèo.
-- Nhiều chính sách có hiệu lực tháng 11 như bãi bỏ quy định người dân được giám sát cảnh sát giao thông bằng camera, các quy định mới về lãi suất.
-- Người đàn ông chủ vựa ve chai trên đường Hậu Giang, quận 6, TP.HCM mua thùng phuy về cắt, sau đó phát nổ khiến người này bị thương nặng.
-- Nhiều doanh nghiệp lớn ở miền Trung tăng cường tuyển dụng lao động trí thức lẫn phổ thông phục vụ sản xuất. Đến giờ còn hàng chục ngàn vị trí tuyển dụng chờ đón lao động "rời phố về quê".
-- Một số tin tức đáng chú ý: Quốc hội thảo luận Luật Thuế giá trị gia tăng sửa đổi; Đề xuất mức điều chỉnh tiền lương, thu nhập tháng đã đóng bảo hiểm xã hội; Một công ty chứng khoán bị mạo danh lừa đảo...
-- Nước lũ trên sông Kiến Giang (Lệ Thủy, Quảng Bình) có rút xuống khoảng 10cm khiến người dân ở đây nhẹ lòng đôi chút.
-- Từ Thung lũng Silicon đến Phố Wall, một số tỉ phú Mỹ đã trở thành nhà tài trợ lớn cho ông Trump và bà Harris, trong khi có những tỉ phú không công khai ủng hộ bên nào.
-- Hôm nay 29-10, vùng mưa to vẫn duy trì ở các tỉnh miền Trung, thời tiết này còn kéo dài thêm 1-2 ngày tới.
-- Chiều 28-10, đội cảnh sát hình sự Công an quận Gò Vấp (TP.HCM) đã truy xét được tài xế không chấp hành, lái ô tô bỏ chạy khiến cửa xe đập vào mặt cán bộ công an phường.
-- Quốc vụ khanh phụ trách ngoại thương - Bộ Kinh tế UAE cho rằng Việt Nam là một đối tác lý tưởng với UAE. Thủ tướng Phạm Minh Chính kêu gọi doanh nghiệp UAE đầu tư vào Việt Nam xây dựng trung tâm tài chính quốc tế ở TP.HCM, Đà Nẵng...
-- Hiện nay, trên đường đèo Cù Hin có nhiều tảng đá nằm trên vách núi cao có nguy cơ sạt lở xuống đường gây nguy hiểm đến người dân, du khách đi lại giữa TP Nha Trang với khu du lịch Bãi Dài, sân bay Cam Ranh.
-- Sau một thời gian bị bệnh nặng, thầy Trương Minh Đạt - người được mệnh danh 'nhà Hà Tiên học' (sinh năm 1936, ở TP Hà Tiên, Kiên Giang) - đã qua đời trong sự thương tiếc của nhiều người sinh sống trên mảnh đất phía Tây Nam Tổ quốc.
-- Đó là thông tin được UBND TP Thủ Đức công bố tại hội nghị thông tin về niêm yết dự thảo phương án bồi thường, hỗ trợ, tái định cư dự án đầu tư xây dựng đường vành đai 2 (đoạn 1, đoạn 2) chiều 28-10.
-- Chiều 28-10, Đại tướng Phan Văn Giang, bộ trưởng Bộ Quốc phòng, đã có thông tin thêm một số nội dung trong sửa Luật Sĩ quan Quân đội nhân dân Việt Nam, trong đó có đề xuất nâng tuổi nghỉ hưu của nữ sĩ quan cấp tướng quân đội.
-- Từ đầu năm học 2024-2025 đến nay, tại TP Thanh Hóa có hàng chục học sinh THPT xin chuyển trường một cách “bất thường”. Đó là học sinh thi vào trường có điểm đầu vào thấp, sau đó xin chuyển đến học tại trường có điểm đầu vào cao.
-- Đồng Tháp đặt mục tiêu đến năm 2030 có 80% diện tích trồng lúa giảm phát thải, giá trị gia tăng trên đất trồng đạt 250 triệu đồng/năm; tốc độ tăng trưởng GRDP nông nghiệp đạt trên 3,5%/năm.
-- Lực lượng công an triệt phá 'căn cứ' đánh bạc quy mô lớn với hệ thống đường hầm dài hơn 300m, nhiều lối thoát hiểm, có camera giám sát, cảnh giới hiện đại.
-- Phó chủ tịch UBND TP.HCM Nguyễn Văn Dũng yêu cầu khởi công cầu đường Nguyễn Khoái vào tháng 7-2025, hoàn thành dự án thành phần 1 mở rộng đường Dương Quảng Hàm vào cuối năm và thông xe cầu Tân Kỳ Tân Quý trước Tết Nguyên đán.
-- Chiều 28-10, xe tập lái chạy trên đường Nguyễn Bình (huyện Nhà Bè, TP.HCM) xảy ra va chạm với xe máy khiến một người tử vong.
-- Người phụ nữ đầu độc người tình bằng độc chất xyanua rồi chở xác lao xuống đèo Bảo Lộc (Lâm Đồng) đã bị khởi tố.
-- Hai người đàn ông tự xưng là nhà báo thực hiện hành vi cưỡng đoạt tài sản của nhiều doanh nghiệp ở Nghệ An bị lực lượng công an bắt giữ.
-- Do xin đường không được, tài xế xe rác dùng ống thủy lực đập bể gương chiếu hậu xe taxi trên đường Nguyễn Văn Linh, huyện Bình Chánh.
-- Chiều 28-10, Thống đốc Ngân hàng Nhà nước Việt Nam Nguyễn Thị Hồng giải trình trước Quốc hội. Sau khi giải đáp ý kiến về lãi suất cao, bà Hồng đã nhắc lại thời điểm 'không thể quên'.
-- Những ngày qua nhiều địa phương tại TP.HCM bị tồn đọng rác thải vì xe chở rác ra vào bãi rác Đa Phước bị chậm.
-- Sau khi bão Trà Mi đi qua, đèo Hải Vân được thông xe trở lại. Tuy nhiên, trên cung đường đèo này xuất hiện nhiều điểm có cây xanh ngã đổ, đất đá sạt lở... gây nguy hiểm cho người dân khi lưu thông qua đây.
-- Đại tướng Phan Văn Giang - bộ trưởng Bộ Quốc phòng - đã trình Quốc hội dự Luật sửa đổi, bổ sung một số điều của Luật Sĩ quan Quân đội nhân dân Việt Nam.
-- Sau bão Trà Mi, đường sắt Bắc - Nam đoạn qua huyện Vĩnh Linh (Quảng Trị) bị nước lũ làm hư hỏng đoạn dài 1,3km, có vị trí dịch chuyển khỏi tim đường từ 3 - 3,9m, hàng trăm công nhân dầm mưa để sớm khắc phục.
-- Đà Nẵng đầu tư tuyến cống để nước từ kênh Phú Lộc chạy thẳng ra đường ven biển Nguyễn Tất Thành, nhằm tăng cường khả năng thoát nước cho các khu vực trung tâm thành phố, sân bay và khu vực rốn ngập đường Mẹ Suốt.
-- Bộ trưởng Đỗ Đức Duy nêu thực tế một số đối tượng tham gia đấu giá đất không thực sự có nhu cầu ở, mà chủ yếu vì mục đích đầu cơ, thao túng giá thông qua việc đẩy giá cao, thổi giá.
-- Bộ Quốc phòng điều động, bổ nhiệm đại tá Phạm Văn Thắng - phó chỉ huy trưởng Bộ đội biên phòng TP.HCM - giữ chức vụ chỉ huy trưởng Bộ chỉ huy Bộ đội biên phòng Kiên Giang.
+- Thời tiết xấu khiến xe chở rác ra vào bãi rác Đa Phước (huyện Bình Chánh, TP.HCM) bị chậm, kéo theo hàng loạt hệ lụy dây chuyền.
+- Trên đường đi qua vùng biển Quảng Nam, một tàu hàng chứa 18.000 lít dầu D.O bị sóng đánh chìm. Tuy nhiên khi lực lượng chức năng lặn xuống thì bất ngờ phát hiện toàn bộ dầu đã biến mất.
+- Giải pháp nào để doanh nghiệp không thiếu hụt nhân lực và người lao động dù về quê hay ở lại phố vẫn có thể sống tốt hơn với sự lựa chọn của mình?
+- Trong năm 2023, cả nước có gần 1.300 ca nhập viện sau khi sử dụng thuốc lá điện tử, thuốc lá nung nóng. Trong đó nhiều ca cấp cứu ngộ độc, đột quỵ não…
+- Các nhân viên một phòng khám quận 5 (TP.HCM) liên tục hù dọa buộc người nhà phải đóng thêm 17 triệu để làm thủ thuật không đau.
+- Hoàng thái tử, Thủ tướng Saudi Arabia khẳng định như vậy khi hội đàm với Thủ tướng Phạm Minh Chính.
+- Hôm nay 30-10, thời tiết mưa to chỉ còn duy trì ở khu vực Trung Bộ. Nam Bộ mưa rào về chiều tối, Bắc Bộ hửng nắng, đêm và sáng trời lạnh.
+- Ai cũng xót xa những khu "đất vàng" - tài sản ngàn tỉ ở vị trí đắc địa tại TP Đà Nẵng bị bỏ hoang hàng chục năm qua.
+- Tin tức đáng chú ý: Đề xuất đổi quốc lộ 13, quốc lộ 50 thành đường đô thị; Người dân TP.HCM hiến gần 198.000m² đất mở hẻm trong 2 năm; Chương trình 'Thiện Nhân và những người bạn' thăm khám cho trẻ khuyết tật...
+- Tàu 267 của Vùng 2 Hải quân cấp cứu kịp thời ngư dân bị tai nạn lao động trên vùng biển Việt Nam - Indonesia.
+- Bộ trưởng Nguyễn Chí Dũng khẳng định các đề xuất chính sách được đưa ra trong dự Luật Đầu tư công (sửa đổi) đều đã qua 'cả quá trình' rà soát, tổng kết, chọn lọc những vấn đề thực sự cấp bách.
+- Lãnh đạo Cục Cảnh sát giao thông khẳng định sẽ tham mưu tăng chế tài xử lý đối với hành vi giao xe cho người không đủ điều kiện. Đặc biệt, kiên quyết xử lý hình sự nếu việc giao xe để xảy ra tai nạn gây hậu quả.
+- Tổng Bí thư Tô Lâm nhấn mạnh yêu cầu cần tập trung xây dựng đội ngũ cán bộ tuyên giáo thật sự là những chiến sĩ kiên trung trên mặt trận tư tưởng, tuyên giáo của Đảng.
+- Ban Quản lý dự án đầu tư xây dựng hạ tầng đô thị vừa có báo cáo UBND TP.HCM về những khó khăn, vướng mắc trong triển khai các dự án trọng điểm làm ảnh hưởng đến giải ngân đầu tư công năm 2024.
+- Trong kỷ nguyên mới - kỷ nguyên vươn mình của dân tộc Việt Nam, khu vực Trung Đông và đất nước UAE có vị trí rất quan trọng trong chính sách đối ngoại của Việt Nam.
+- Sau hai ngày gián đoạn bởi mưa bão, chiều 29-10 đường sắt Bắc - Nam qua Quảng Trị đã được thông tuyến sau nỗ lực khắc phục của cán bộ, công nhân ngành đường sắt.
+- Mặc dù số ca mắc sởi tại TP.HCM đã có dấu hiệu 'hạ nhiệt', thế nhưng số mắc sởi từ các tỉnh xung quanh đến khám và điều trị tại TP đang tăng mạnh.
+- Tình trạng chó thả rông, không rọ mõm xuất hiện nhiều trên địa bàn TP Nha Trang (Khánh Hòa), nhất là tại các khu vực bãi biển tập trung đông du khách, người dân.
+- Thủ tướng Phạm Minh Chính sẽ tham dự Hội nghị Sáng kiến đầu tư tương lai (FII) lần thứ 8 và thăm Vương quốc Saudi Arabia từ ngày 29 đến 30-10.
+- Không nên đánh thuế giá trị gia tăng (VAT) 10% đối với hoạt động văn hóa, triển lãm, thể dục thể thao, biểu diễn nghệ thuật, sản xuất phim, nhập khẩu, phát hành phim và chiếu phim.
+- Tuyến đường sắt đô thị Nam Thăng Long - Thượng Đình được chấp thuận đầu tư năm 2008 nhưng đến nay chưa xây dựng. Mới đây, TP Hà Nội đề xuất điều chỉnh dự án, theo đó tổng vốn đầu tư tăng từ 19.555 tỉ đồng lên 35.588 tỉ đồng.
+- Kiên Giang có khoảng 3.870 lồng bè nuôi cá trên biển, đây không chỉ là thế mạnh kinh tế biển mà còn gắn liền với việc phát triển dịch vụ du lịch biển đảo.
+- Dự báo từ ngày 4-11, ở Bắc Trung Bộ và Trung Trung Bộ có khả năng xảy ra một đợt mưa lớn diện rộng.
+- Chính quyền tỉnh Cà Mau có chủ trương xây dựng công trình biểu tượng tôm Cà Mau và dự án quảng trường Phan Ngọc Hiển với mức đầu tư 236 tỉ đồng.
+- Sau khi va chạm với ô tô con đi cùng chiều phía trước, người đàn ông chạy xe máy ngã ra đường và bị xe đầu kéo cán qua người làm ông chết tại chỗ.
+- Ủy ban Kiểm tra Trung ương đã đề nghị kỷ luật các ông Nguyễn Xuân Ký (nguyên bí thư Tỉnh ủy Quảng Ninh), Bùi Văn Cường (nguyên tổng thư ký Quốc hội) và kỷ luật nhiều cán bộ các tỉnh.
+- Đại biểu Dương Ngọc Hải (TP.HCM) nhìn nhận thủ tục đầu tư còn quá phức tạp, rườm rà làm kéo dài thời gian đầu tư.
+- Bộ Tài chính và các bộ ngành đã thống nhất đưa ra ba nhóm giải pháp và bốn phương pháp huy động nguồn lực để đầu tư dự án đường sắt tốc độ cao Bắc - Nam.
+- Ban Tuyên giáo Trung ương vừa phát động cuộc thi trực tuyến 'Quân đội nhân dân Việt Nam 80 năm xây dựng, chiến đấu và trưởng thành' trên trang thông tin điện tử tổng hợp Báo cáo viên (baocaovien.vn).
+- Cựu bí thư Bắc Ninh khai 'không thỏa thuận với doanh nghiệp' nhưng các dịp lễ Tết, sinh nhật, lên chức, về hưu đều được AIC biếu tiền. Tổng số tiền ông nhận là 14 tỉ nhưng khi đó 'bị cáo không nghĩ là tiền hối lộ'.
 ![New](News.png)
 ## Nhịp sống số 
+- Ngày 29-10, Cơ quan tư pháp Liên minh châu Âu (Eurojust) thông báo một chiến dịch toàn cầu đã giúp triệt phá các máy chủ của infostealers - một trong những nền tảng mã độc lớn nhất thế giới.
+- Hiện tại, Google có khả năng dịch hơn 94 ngôn ngữ trên toàn cầu sang 25 ngôn ngữ bản địa châu Phi.
 - Câu chuyện về một vài người nào đó trở thành tỉ phú chỉ sau một thời gian ngắn chơi tiền số đã khiến nhiều người Việt lao vào cuộc chơi.
 - Đài phát thanh OFF Radio Kraków tại Ba Lan gây tranh cãi khi sa thải các nhà báo của mình để sử dụng 'người dẫn chương trình' AI.
 - Meta thể hiện quyết tâm chống lại nạn quảng cáo trục lợi từ hình ảnh người nổi tiếng, khi thử nghiệm công nghệ nhận diện khuôn mặt trên các nền tảng của mình.
@@ -93,6 +95,4 @@
 - Ban tổ chức cho biết sự kiện nhằm ghi nhận, vinh danh và ủng hộ những đóng góp cũng như tài năng đội ngũ sáng tạo nội dung số tại Việt Nam.
 - Quyết định rút khỏi thị trường Việt Nam của Gojek để lại nhiều tiếc nuối cho các đối tác tài xế, nhà hàng và người dùng, những người đã đồng hành cùng hãng xe công nghệ thời gian qua.
 - Ông Elon Musk đang trên đà trở thành tỉ phú nghìn tỉ (trillionaire) đầu tiên trên thế giới vào năm 2027.
-- Các nhà sản xuất điện thoại smartphone từ Trung Quốc đã làm lung lay vị thế dẫn đầu lâu đời của Samsung tại thị trường Đông Nam Á.
-- Với Galaxy Z Fold6, bạn có thể thoải mái sáng tạo và sáng tác bất cứ khi nào, bất cứ nơi đâu, đặc biệt hữu ích với những bạn trong ngành thiết kế, đồ họa, truyền thông…
 ![life](Life.png)
