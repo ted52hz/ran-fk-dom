@@ -1,6 +1,15 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Kết quả giám sát của phụ huynh tại Trường mầm non 14 (quận Tân Bình, TP.HCM) cho thấy tất cả các loại thực phẩm nhà trường mua đều cao hơn giá siêu thị 3-4 lần.
+- Ne'Kiya Jackson và Calcea Johnson, đều 17 tuổi, hai học sinh trung học từ New Orleans (Mỹ), đã làm nên 'lịch sử' khi tìm ra những bằng chứng mới cho định lý Pitago tồn tại hơn 2.000 năm.
+- TP.HCM đang đẩy mạnh các hoạt động thúc đẩy học tập ở nhiều cấp độ như công dân học tập, đơn vị học tập, cộng đồng học tập…
+- Học sinh các cấp ở TP.HCM sẽ nghỉ Tết Nguyên đán 2025 tổng cộng là 9 ngày, ít hơn năm trước 7 ngày.
+- So với số liệu một năm trước (2022), số thí sinh thi SAT tại Việt Nam trong năm 2023 gấp 174%.
+- Bộ Giáo dục và Đào tạo vừa có công văn về việc tổ chức, hoạt động của Trường đại học Kinh Bắc (Bắc Ninh) sau những lùm xùm liên quan hoạt động của nhà trường.
+- Trưa 30-10, Trường THPT Mạc Đĩnh Chi, quận 6, TP.HCM đã có phản hồi về đề thi văn có nội dung về lối sống 'phông bạt'.
+- Bên cạnh những lời khen dành cho đề thi văn sáng tạo, nhiều bạn đọc cho rằng không phải ai cũng hiểu 'phông bạt' là gì.
+- Câu chuyện dùng bằng 'dỏm' nhưng vẫn được đề bạt, học lên cao, thậm chí cả thạc sĩ tiến sĩ, luôn gây bức xúc cho dư luận dù tình trạng này kéo dài nhiều năm qua.
 - Thực tế có nhiều rào cản cho quá trình hình thành, xây dựng các trung tâm nuôi dạy trẻ tự kỷ ở Việt Nam.
 - Đề thi văn giữa học kỳ 1 của Trường THPT Mạc Đĩnh Chi, TP.HCM yêu cầu học sinh viết về 'lối sống phông bạt' của giới trẻ.
 - Với mong muốn bảo vệ môi trường từ những việc nhỏ nhất, học sinh ở TP Đà Nẵng đã tích cực tham gia mô hình 'Chuyến xe kế hoạch nhỏ', thu gom, phân loại rác thải, gây quỹ giúp bạn.
@@ -22,47 +31,38 @@
 - Nhóm 'Liêm Chính Khoa Học' trên Facebook với gần 100.000 thành viên vừa bất ngờ biến mất. Hiện tại, liên kết đến nhóm hiển thị thông báo 'Bạn hiện không xem được nội dung này'.
 - Trường Đại học Kinh tế - Tài chính TP.HCM (UEF) đã tổ chức lễ Khai giảng năm học 2024 - 2025 cho các chương trình cử nhân quốc tế.
 - Hiệu trưởng Trường THPT Tô Hiến Thành khẳng định thời điểm tuyển sinh lớp 10 'không phải trường không được giao chỉ tiêu tuyển sinh, mà là chưa được giao chỉ tiêu'.
-- Băng lửa, vượt khói, xịt hơi, phun nước… hàng trăm sinh viên bỗng chốc 'hóa thân' thành những chiến sĩ chữa cháy, cứu nạn cứu hộ.
-- Đó là khẳng định của Bộ trưởng Bộ Giáo dục và Đào tạo tại hội nghị ngày 25-10 tổng kết công tác xã hội hóa về kiên cố hóa trường, lớp học.
-- Trong khi Úc và Canada đang siết chặt số lượng sinh viên quốc tế, nhiều nước khác như Mỹ, New Zealand dự kiến vẫn giữ những quy định dễ thở với du học sinh.
-- Kết quả xác minh ban đầu của công an huyện Bình Chánh cho thấy không có camera quay lén trong nhà vệ sinh Trường THPT Tân Túc (huyện Bình Chánh, TP.HCM) như thông tin lan truyền trước đó.
-- Trước việc học sinh mua ốc mượn hồn bán quanh trường đem vào lớp chơi rồi bị thương ở tay, nhà trường và phòng giáo dục ở Đà Nẵng yêu cầu nắm thông tin, cảnh báo không chơi.
-- Nhiều trường đại học tại TP.HCM công bố lịch nghỉ Tết Ất Tỵ 3 - 4 tuần, có trường cho sinh viên học online một tuần trước và sau Tết.
-- Về 15 học sinh tiểu học xuất hiện triệu chứng giống ngộ độc, ngành y tế cho rằng không đủ cơ sở xác định vụ ngộ độc mà do hiệu ứng đám đông.
-- Công an đã mời hai thiếu niên ép một nam sinh ở huyện Nam Đàn, Nghệ An ăn đất trong đêm đến trụ sở để làm rõ vụ việc.
-- Chủ doanh nghiệp lắp bạt chống nắng cho Trường tiểu học Lý Trạch lý giải về việc hiệu trưởng kê khai giá bạt cao gấp 3 lần giá phụ huynh khảo sát.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Thời tiết xấu khiến xe chở rác ra vào bãi rác Đa Phước (huyện Bình Chánh, TP.HCM) bị chậm, kéo theo hàng loạt hệ lụy dây chuyền.
-- Trên đường đi qua vùng biển Quảng Nam, một tàu hàng chứa 18.000 lít dầu D.O bị sóng đánh chìm. Tuy nhiên khi lực lượng chức năng lặn xuống thì bất ngờ phát hiện toàn bộ dầu đã biến mất.
-- Giải pháp nào để doanh nghiệp không thiếu hụt nhân lực và người lao động dù về quê hay ở lại phố vẫn có thể sống tốt hơn với sự lựa chọn của mình?
-- Trong năm 2023, cả nước có gần 1.300 ca nhập viện sau khi sử dụng thuốc lá điện tử, thuốc lá nung nóng. Trong đó nhiều ca cấp cứu ngộ độc, đột quỵ não…
-- Các nhân viên một phòng khám quận 5 (TP.HCM) liên tục hù dọa buộc người nhà phải đóng thêm 17 triệu để làm thủ thuật không đau.
-- Hoàng thái tử, Thủ tướng Saudi Arabia khẳng định như vậy khi hội đàm với Thủ tướng Phạm Minh Chính.
-- Hôm nay 30-10, thời tiết mưa to chỉ còn duy trì ở khu vực Trung Bộ. Nam Bộ mưa rào về chiều tối, Bắc Bộ hửng nắng, đêm và sáng trời lạnh.
-- Ai cũng xót xa những khu "đất vàng" - tài sản ngàn tỉ ở vị trí đắc địa tại TP Đà Nẵng bị bỏ hoang hàng chục năm qua.
-- Tin tức đáng chú ý: Đề xuất đổi quốc lộ 13, quốc lộ 50 thành đường đô thị; Người dân TP.HCM hiến gần 198.000m² đất mở hẻm trong 2 năm; Chương trình 'Thiện Nhân và những người bạn' thăm khám cho trẻ khuyết tật...
-- Tàu 267 của Vùng 2 Hải quân cấp cứu kịp thời ngư dân bị tai nạn lao động trên vùng biển Việt Nam - Indonesia.
-- Bộ trưởng Nguyễn Chí Dũng khẳng định các đề xuất chính sách được đưa ra trong dự Luật Đầu tư công (sửa đổi) đều đã qua 'cả quá trình' rà soát, tổng kết, chọn lọc những vấn đề thực sự cấp bách.
-- Lãnh đạo Cục Cảnh sát giao thông khẳng định sẽ tham mưu tăng chế tài xử lý đối với hành vi giao xe cho người không đủ điều kiện. Đặc biệt, kiên quyết xử lý hình sự nếu việc giao xe để xảy ra tai nạn gây hậu quả.
-- Tổng Bí thư Tô Lâm nhấn mạnh yêu cầu cần tập trung xây dựng đội ngũ cán bộ tuyên giáo thật sự là những chiến sĩ kiên trung trên mặt trận tư tưởng, tuyên giáo của Đảng.
-- Ban Quản lý dự án đầu tư xây dựng hạ tầng đô thị vừa có báo cáo UBND TP.HCM về những khó khăn, vướng mắc trong triển khai các dự án trọng điểm làm ảnh hưởng đến giải ngân đầu tư công năm 2024.
-- Trong kỷ nguyên mới - kỷ nguyên vươn mình của dân tộc Việt Nam, khu vực Trung Đông và đất nước UAE có vị trí rất quan trọng trong chính sách đối ngoại của Việt Nam.
-- Sau hai ngày gián đoạn bởi mưa bão, chiều 29-10 đường sắt Bắc - Nam qua Quảng Trị đã được thông tuyến sau nỗ lực khắc phục của cán bộ, công nhân ngành đường sắt.
-- Mặc dù số ca mắc sởi tại TP.HCM đã có dấu hiệu 'hạ nhiệt', thế nhưng số mắc sởi từ các tỉnh xung quanh đến khám và điều trị tại TP đang tăng mạnh.
-- Tình trạng chó thả rông, không rọ mõm xuất hiện nhiều trên địa bàn TP Nha Trang (Khánh Hòa), nhất là tại các khu vực bãi biển tập trung đông du khách, người dân.
-- Thủ tướng Phạm Minh Chính sẽ tham dự Hội nghị Sáng kiến đầu tư tương lai (FII) lần thứ 8 và thăm Vương quốc Saudi Arabia từ ngày 29 đến 30-10.
-- Không nên đánh thuế giá trị gia tăng (VAT) 10% đối với hoạt động văn hóa, triển lãm, thể dục thể thao, biểu diễn nghệ thuật, sản xuất phim, nhập khẩu, phát hành phim và chiếu phim.
-- Tuyến đường sắt đô thị Nam Thăng Long - Thượng Đình được chấp thuận đầu tư năm 2008 nhưng đến nay chưa xây dựng. Mới đây, TP Hà Nội đề xuất điều chỉnh dự án, theo đó tổng vốn đầu tư tăng từ 19.555 tỉ đồng lên 35.588 tỉ đồng.
-- Kiên Giang có khoảng 3.870 lồng bè nuôi cá trên biển, đây không chỉ là thế mạnh kinh tế biển mà còn gắn liền với việc phát triển dịch vụ du lịch biển đảo.
-- Dự báo từ ngày 4-11, ở Bắc Trung Bộ và Trung Trung Bộ có khả năng xảy ra một đợt mưa lớn diện rộng.
-- Chính quyền tỉnh Cà Mau có chủ trương xây dựng công trình biểu tượng tôm Cà Mau và dự án quảng trường Phan Ngọc Hiển với mức đầu tư 236 tỉ đồng.
-- Sau khi va chạm với ô tô con đi cùng chiều phía trước, người đàn ông chạy xe máy ngã ra đường và bị xe đầu kéo cán qua người làm ông chết tại chỗ.
-- Ủy ban Kiểm tra Trung ương đã đề nghị kỷ luật các ông Nguyễn Xuân Ký (nguyên bí thư Tỉnh ủy Quảng Ninh), Bùi Văn Cường (nguyên tổng thư ký Quốc hội) và kỷ luật nhiều cán bộ các tỉnh.
-- Đại biểu Dương Ngọc Hải (TP.HCM) nhìn nhận thủ tục đầu tư còn quá phức tạp, rườm rà làm kéo dài thời gian đầu tư.
-- Bộ Tài chính và các bộ ngành đã thống nhất đưa ra ba nhóm giải pháp và bốn phương pháp huy động nguồn lực để đầu tư dự án đường sắt tốc độ cao Bắc - Nam.
-- Ban Tuyên giáo Trung ương vừa phát động cuộc thi trực tuyến 'Quân đội nhân dân Việt Nam 80 năm xây dựng, chiến đấu và trưởng thành' trên trang thông tin điện tử tổng hợp Báo cáo viên (baocaovien.vn).
-- Cựu bí thư Bắc Ninh khai 'không thỏa thuận với doanh nghiệp' nhưng các dịp lễ Tết, sinh nhật, lên chức, về hưu đều được AIC biếu tiền. Tổng số tiền ông nhận là 14 tỉ nhưng khi đó 'bị cáo không nghĩ là tiền hối lộ'.
+- Tại Quốc hội ngày 29-10, Phó thủ tướng, Bộ trưởng Bộ Tài chính Hồ Đức Phớc cho biết Chính phủ sẽ bãi bỏ quyết định về việc miễn thuế giá trị gia tăng (VAT) với hàng hóa dưới 1 triệu đồng nhập khẩu qua các sàn thương mại điện tử.
+- Thanh tra Sở Y tế TP.HCM vừa kiểm tra đột xuất và giải cứu một thai phụ bị Phòng khám Đa khoa Tháng Tám (quận 3) "vẽ bệnh, moi tiền" ngay trên bàn mổ.
+- Kết quả chỉ đạo xử lý các vụ án, vụ việc tham nhũng, tiêu cực từ sau phiên họp thứ 26 của Ban Chỉ đạo (ngày 14-8-2024) đến nay.
+- Bộ trưởng Bộ Khoa học và Công nghệ đánh giá cao tiềm năng hợp tác giữa Việt Nam và Ả Rập Xê Út trong lĩnh vực tiêu chuẩn đo lường chất lượng, đặc biệt là trong lĩnh vực Halal.
+- Một số tin tức đáng chú ý: Quốc hội xem xét đề xuất bỏ thủ tục chuyển tuyến với bệnh hiếm, bệnh hiểm nghèo; Giá USD ngân hàng cùng 'chợ đen' bất ngờ quay đầu giảm; Một sếp Vietcombank xin từ nhiệm...
+- Hôm nay 31-10, thời tiết hai miền Nam - Bắc ngày nắng, chiều tối vài nơi mưa rào nhẹ. Trung Bộ vẫn mưa to nhưng đã giảm nhiều so với những ngày trước.
+- Giám đốc Trung tâm Giám định y khoa Thanh Hóa đã tự ý sửa 29 kết quả giám định của 29 trường hợp làm thay đổi kết quả giám định.
+- UBND quận Sơn Trà (Đà Nẵng) thu hồi khu đất tại khu biệt thự Suối Đá trên bán đảo Sơn Trà.
+- Phó chủ tịch UBND TP.HCM Bùi Xuân Cường vừa có kết luận sau khi đi khảo sát dự án vành đai 3 TP.HCM, nút giao Mỹ Thủy, metro số 1...
+- Thuyền trưởng tàu cá kiểm tra bình gas công nghiệp trên tàu thì bị lửa phựt lên gây bỏng nặng.
+- Bão tan, hàng trăm chiếc thuyền ở cảng cá Thọ Quang khẩn trương ra khơi. Nhiều ngư dân kiếm tiền triệu với những mẻ cá đầy.
+- Các chủ đầu tư dự án bất động sản tại TP.HCM không được phép phân lô bán nền trong dự án cho người dân tự xây nhà, bao gồm tất cả 5 huyện Bình Chánh, Nhà Bè, Hóc Môn, Củ Chi và Cần Giờ.
+- Ngày 30-10, Chủ tịch UBND TP Hà Nội Trần Sỹ Thanh đã ký, ban hành chỉ thị về đẩy mạnh giải ngân vốn đầu tư công những tháng cuối năm 2024.
+- Một trang mạng xã hội với hơn 360.000 lượt theo dõi ở Cà Mau đã đăng tải đoạn clip ghi lại cảnh ô tô gắn bánh xe máy chạy trên đường được cho là ở huyện Đầm Dơi, tỉnh Cà Mau.
+- Khi tổ chức chính quyền địa phương, Hải Phòng sẽ tăng 9 đại biểu chuyên trách so với hiện nay, gồm 1 phó chủ tịch HĐND, 4 phó trưởng ban và 4 ủy viên hoạt động chuyên trách thuộc các ban.
+- Chiều 30-10, Liên đoàn Lao động tỉnh Nghệ An gặp mặt đội bóng đá Công đoàn Nghệ An tham dự vòng chung kết Giải bóng đá công nhân, viên chức Việt Nam 2024.
+- Nhiều người dân nhận được các cuộc gọi xưng là cán bộ Sở Giao thông vận tải TP.HCM, yêu cầu đổi tem đăng kiểm ô tô. Thực hư ra sao?
+- Phó trưởng Ban Nội chính Trung ương Nguyễn Hữu Đông cho hay từ đầu năm đến nay đã vận động đầu thú, truy bắt 9 người trốn ra nước ngoài trong các vụ án tham nhũng.
+- Theo Bộ Y tế, việc thanh toán trực tiếp cho người bệnh tự đi mua thuốc chỉ là giải pháp tình thế. Bệnh viện phải đảm bảo thuốc, vật tư y tế để điều trị cho người bệnh.
+- Chính phủ chính thức trình Quốc hội xem xét thành lập TP Huế trực thuộc trung ương trên cơ sở toàn bộ diện tích tự nhiên và quy mô dân số của tỉnh Thừa Thiên Huế.
+- Ông Lê Thanh Sơn - phó chủ tịch UBND TP Phan Thiết, tỉnh Bình Thuận - vừa thông tin phương án quy hoạch và mở rộng TP Phan Thiết.
+- Nhiều bạn đọc đã đặt câu hỏi có nên xây biểu tượng con tôm và quảng trường Phan Ngọc Hiển 236 tỉ đồng khi Cà Mau là tỉnh còn nhiều khó khăn?
+- Hàng trăm người dân vùng lũ xã Vĩnh Long được một cửa hàng kiểm tra, súc rửa miễn phí xe máy ngâm nước lũ, giúp bà con sớm có phương tiện đi lại.
+- Tổng cục Hải quan Trung Quốc đã phê duyệt 173 mã số vùng trồng đối với cây dừa và 23 cơ sở đóng gói dừa tươi được cấp mã số xuất khẩu sang Trung Quốc.
+- Sau một năm thành lập, hầu hết các đội bắt chó thả rông tại TP Đà Nẵng chỉ bắt được vài con chó vì nhiều lý do.
+- Bộ Quốc phòng cấp phép bay hoặc phân cấp cho đơn vị thuộc quyền cấp phép bay đối với máy bay không người lái và phương tiện bay khác.
+- Bộ Chính trị, Ban Bí thư, Ủy ban Kiểm tra Trung ương đã kỷ luật 6 cán bộ cấp cao thuộc diện Bộ Chính trị, Ban Bí thư quản lý, nâng tổng số cán bộ cấp cao bị xử lý kỷ luật từ đầu năm đến nay là 52 cán bộ.
+- Tận dụng nhu cầu đi lại tăng cao trong mùa lễ Tết, các Vietnam Airlines, Vietjet, Bamboo Airways mở rộng các tuyến bay quốc tế.
+- Đà Nẵng đã quyết định đầu tư thêm 410 tỉ đầu tư công viên phần mềm số 2 gần cầu Thuận Phước. Sau  2 lần, dự án này được điều chỉnh vốn đầu tư lên tới hơn 1.400 tỉ đồng.
+- Khi thị trường biến động, các đơn vị cần cân nhắc giữa bài toán chi phí giữ chân lao động hay tuyển mới...
 ![New](News.png)
 ## Nhịp sống số 
 - Ngày 29-10, Cơ quan tư pháp Liên minh châu Âu (Eurojust) thông báo một chiến dịch toàn cầu đã giúp triệt phá các máy chủ của infostealers - một trong những nền tảng mã độc lớn nhất thế giới.
