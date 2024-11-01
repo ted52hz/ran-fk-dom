@@ -1,6 +1,19 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Nhiều bạn đọc bày tỏ ý kiến trái chiều về việc Trường mầm non 14 (quận Tân Bình, TP.HCM) mua thực phẩm giá cao hơn siêu thị.
+- Bộ Giáo dục và Đào tạo sẽ ban hành trong quy chế tuyển sinh quy định cụ thể về mặt quản lý nhà nước để bảo đảm kiểm tra, giám sát được chất lượng các kỳ thi đánh giá năng lực, đánh giá tư duy.
+- VPBank vừa công bố chương trình học bổng ‘Thắp sáng tài năng’ năm 2024, tìm kiếm 150 sinh viên giỏi, tài năng để trao học bổng với tổng số tiền lên đến 1,9 tỉ đồng.
+- Biết tin thầy hiệu trưởng nghỉ hưu, 1.400 học sinh Trường THPT Phan Chu Trinh (xã Ea Ral, Ea Hleo, tỉnh Đắk Lắk) tổ chức lễ chia tay ngay tại sân trường.
+- Trường đại học Sư phạm TP.HCM dự kiến bỏ phương thức xét tuyển điểm học bạ, trong khi Trường đại học Công Thương TP.HCM giảm chỉ tiêu cho phương thức này.
+- Trường đại học Fulbright Việt Nam cho biết đã nhận giấy phép xây dựng cho giai đoạn 1 tại Khu công nghệ cao TP.HCM vào ngày 28-10-2024.
+- Có hai luồng ý kiến trước thời gian nghỉ Tết 9 ngày năm nay của học sinh TP.HCM, trong khi năm ngoái là 16 ngày.
+- Công ty TNHH rau quả thực phẩm Phú Hưng, đơn vị cung cấp thực phẩm cho Trường mầm non 14 (Tân Bình), giải thích về giá thực phẩm cung cấp cho trường.
+- Hình ảnh học sinh lớp 11/10, Trường THPT Trần Phú, Đà Nẵng “giao nộp” điện thoại lên kệ vào đầu giờ học khiến cộng đồng mạng rần rần cổ vũ.
+- Trường THPT Tô Hiến Thành phải tổ chức xin lỗi phụ huynh học sinh về những sai phạm trong việc tuyển sinh 174 học sinh lớp 10 khi chưa được sự cho phép của Sở Giáo dục và Đào tạo Hà Nội.
+- Mẹ của cháu bé tự kỷ bị bảo mẫu trung tâm Cầu Vồng (TP Đà Nẵng) bạo hành không đồng tình với kết luận điều tra của Công an quận Sơn Trà.
+- Đề thi môn văn vốn thường bị dư luận than phiền là lối mòn, cũ kỹ, rập khuôn. Việc ra đề thi bắt trend là hướng đi mới, nhưng cần cẩn trọng.
+- Bộ Giáo dục và Đào tạo vừa công bố thông tin về các kỳ thi tốt nghiệp THPT giai đoạn 2020 -2024 cho thấy tỉ lệ tốt nghiệp liên tục tăng trong nhiều năm qua với con số gần tuyệt đối.
 - Kết quả giám sát của phụ huynh tại Trường mầm non 14 (quận Tân Bình, TP.HCM) cho thấy tất cả các loại thực phẩm nhà trường mua đều cao hơn giá siêu thị 3-4 lần.
 - Ne'Kiya Jackson và Calcea Johnson, đều 17 tuổi, hai học sinh trung học từ New Orleans (Mỹ), đã làm nên 'lịch sử' khi tìm ra những bằng chứng mới cho định lý Pitago tồn tại hơn 2.000 năm.
 - TP.HCM đang đẩy mạnh các hoạt động thúc đẩy học tập ở nhiều cấp độ như công dân học tập, đơn vị học tập, cộng đồng học tập…
@@ -18,53 +31,41 @@
 - Bộ Giáo dục và Đào tạo dự kiến các trường đại học sẽ không được tăng chỉ tiêu tuyển sinh khi năm trước đó tỉ lệ sinh viên thôi học năm đầu cao hơn 15% hoặc tỉ lệ người tốt nghiệp có việc làm thấp hơn 70%.
 - 2025 là năm đầu tiên tổ chức kỳ thi tốt nghiệp THPT, tuyển sinh theo Chương trình giáo dục phổ thông 2018.
 - Công cuộc tìm trường cho con ban đầu tưởng đơn giản, vì chỉ cần đặt lệnh tìm kiếm "trường dành cho trẻ tự kỷ" là ngay lập tức nhận được hàng ngàn kết quả.
-- Từ đầu năm học 2024-2025 đến nay, tại TP Thanh Hóa có hàng chục học sinh THPT xin chuyển trường một cách “bất thường”. Đó là học sinh thi vào trường có điểm đầu vào thấp, sau đó xin chuyển đến học tại trường có điểm đầu vào cao.
-- Biết việc giao xe cho con ở tầm tuổi này là sai trái, bà Thúy vẫn đặt niềm tin vì lời hứa "con chỉ đi học và quanh trong làng".
-- Nhóm sinh viên Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) đã chế tạo robot y tá có khả năng nhận diện khuôn mặt, nhằm hỗ trợ tình trạng quá tải ở các bệnh viện.
-- Trong vai cha mẹ cần tìm trường cho con bị tự kỷ, phóng viên Tuổi Trẻ ở cả ba miền Bắc, Trung, Nam đã dành nhiều tháng tìm kiếm, thâm nhập.
-- Bành Khánh Dung, cựu sinh viên khóa 13 ngành Ngôn ngữ Anh, Trường Đại học Quốc tế Sài Gòn (SIU), đã trở thành tiếp viên hàng không của Emirates Airlines.
-- Nhóm sinh viên RED - ISB Dance Club vừa ra mắt dự án "Xích Linh", tái hiện tác phẩm văn hóa kinh dị đậm chất Việt Nam qua ngôn ngữ vũ đạo.
-- Nhóm 'Liêm Chính Khoa Học' trên Facebook với gần 100.000 thành viên đã hoạt động trở lại sau 4 ngày bất ngờ biến mất.
-- Phụ huynh đóng góp xã hội hóa, hiệu trưởng dùng hơn 122 triệu đồng làm bạt che nắng nhưng không công khai thu chi với phụ huynh.
-- Ngày 27-10, tại Hội trường Thành ủy TP.HCM diễn ra lễ trao Học bổng khuyến tài (học bổng 1&1) cho 318 sinh viên vượt khó học tập.
-- Giao lại điện thoại cho học sinh sau giờ học, cô giáo thấy hơn 100 thông báo, tin nhắn từ các hội, nhóm mạng xã hội khác nhau.
-- Nhóm 'Liêm Chính Khoa Học' trên Facebook với gần 100.000 thành viên vừa bất ngờ biến mất. Hiện tại, liên kết đến nhóm hiển thị thông báo 'Bạn hiện không xem được nội dung này'.
-- Trường Đại học Kinh tế - Tài chính TP.HCM (UEF) đã tổ chức lễ Khai giảng năm học 2024 - 2025 cho các chương trình cử nhân quốc tế.
-- Hiệu trưởng Trường THPT Tô Hiến Thành khẳng định thời điểm tuyển sinh lớp 10 'không phải trường không được giao chỉ tiêu tuyển sinh, mà là chưa được giao chỉ tiêu'.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Tại Quốc hội ngày 29-10, Phó thủ tướng, Bộ trưởng Bộ Tài chính Hồ Đức Phớc cho biết Chính phủ sẽ bãi bỏ quyết định về việc miễn thuế giá trị gia tăng (VAT) với hàng hóa dưới 1 triệu đồng nhập khẩu qua các sàn thương mại điện tử.
-- Thanh tra Sở Y tế TP.HCM vừa kiểm tra đột xuất và giải cứu một thai phụ bị Phòng khám Đa khoa Tháng Tám (quận 3) "vẽ bệnh, moi tiền" ngay trên bàn mổ.
-- Kết quả chỉ đạo xử lý các vụ án, vụ việc tham nhũng, tiêu cực từ sau phiên họp thứ 26 của Ban Chỉ đạo (ngày 14-8-2024) đến nay.
-- Bộ trưởng Bộ Khoa học và Công nghệ đánh giá cao tiềm năng hợp tác giữa Việt Nam và Ả Rập Xê Út trong lĩnh vực tiêu chuẩn đo lường chất lượng, đặc biệt là trong lĩnh vực Halal.
-- Một số tin tức đáng chú ý: Quốc hội xem xét đề xuất bỏ thủ tục chuyển tuyến với bệnh hiếm, bệnh hiểm nghèo; Giá USD ngân hàng cùng 'chợ đen' bất ngờ quay đầu giảm; Một sếp Vietcombank xin từ nhiệm...
-- Hôm nay 31-10, thời tiết hai miền Nam - Bắc ngày nắng, chiều tối vài nơi mưa rào nhẹ. Trung Bộ vẫn mưa to nhưng đã giảm nhiều so với những ngày trước.
-- Giám đốc Trung tâm Giám định y khoa Thanh Hóa đã tự ý sửa 29 kết quả giám định của 29 trường hợp làm thay đổi kết quả giám định.
-- UBND quận Sơn Trà (Đà Nẵng) thu hồi khu đất tại khu biệt thự Suối Đá trên bán đảo Sơn Trà.
-- Phó chủ tịch UBND TP.HCM Bùi Xuân Cường vừa có kết luận sau khi đi khảo sát dự án vành đai 3 TP.HCM, nút giao Mỹ Thủy, metro số 1...
-- Thuyền trưởng tàu cá kiểm tra bình gas công nghiệp trên tàu thì bị lửa phựt lên gây bỏng nặng.
-- Bão tan, hàng trăm chiếc thuyền ở cảng cá Thọ Quang khẩn trương ra khơi. Nhiều ngư dân kiếm tiền triệu với những mẻ cá đầy.
-- Các chủ đầu tư dự án bất động sản tại TP.HCM không được phép phân lô bán nền trong dự án cho người dân tự xây nhà, bao gồm tất cả 5 huyện Bình Chánh, Nhà Bè, Hóc Môn, Củ Chi và Cần Giờ.
-- Ngày 30-10, Chủ tịch UBND TP Hà Nội Trần Sỹ Thanh đã ký, ban hành chỉ thị về đẩy mạnh giải ngân vốn đầu tư công những tháng cuối năm 2024.
-- Một trang mạng xã hội với hơn 360.000 lượt theo dõi ở Cà Mau đã đăng tải đoạn clip ghi lại cảnh ô tô gắn bánh xe máy chạy trên đường được cho là ở huyện Đầm Dơi, tỉnh Cà Mau.
-- Khi tổ chức chính quyền địa phương, Hải Phòng sẽ tăng 9 đại biểu chuyên trách so với hiện nay, gồm 1 phó chủ tịch HĐND, 4 phó trưởng ban và 4 ủy viên hoạt động chuyên trách thuộc các ban.
-- Chiều 30-10, Liên đoàn Lao động tỉnh Nghệ An gặp mặt đội bóng đá Công đoàn Nghệ An tham dự vòng chung kết Giải bóng đá công nhân, viên chức Việt Nam 2024.
-- Nhiều người dân nhận được các cuộc gọi xưng là cán bộ Sở Giao thông vận tải TP.HCM, yêu cầu đổi tem đăng kiểm ô tô. Thực hư ra sao?
-- Phó trưởng Ban Nội chính Trung ương Nguyễn Hữu Đông cho hay từ đầu năm đến nay đã vận động đầu thú, truy bắt 9 người trốn ra nước ngoài trong các vụ án tham nhũng.
-- Theo Bộ Y tế, việc thanh toán trực tiếp cho người bệnh tự đi mua thuốc chỉ là giải pháp tình thế. Bệnh viện phải đảm bảo thuốc, vật tư y tế để điều trị cho người bệnh.
-- Chính phủ chính thức trình Quốc hội xem xét thành lập TP Huế trực thuộc trung ương trên cơ sở toàn bộ diện tích tự nhiên và quy mô dân số của tỉnh Thừa Thiên Huế.
-- Ông Lê Thanh Sơn - phó chủ tịch UBND TP Phan Thiết, tỉnh Bình Thuận - vừa thông tin phương án quy hoạch và mở rộng TP Phan Thiết.
-- Nhiều bạn đọc đã đặt câu hỏi có nên xây biểu tượng con tôm và quảng trường Phan Ngọc Hiển 236 tỉ đồng khi Cà Mau là tỉnh còn nhiều khó khăn?
-- Hàng trăm người dân vùng lũ xã Vĩnh Long được một cửa hàng kiểm tra, súc rửa miễn phí xe máy ngâm nước lũ, giúp bà con sớm có phương tiện đi lại.
-- Tổng cục Hải quan Trung Quốc đã phê duyệt 173 mã số vùng trồng đối với cây dừa và 23 cơ sở đóng gói dừa tươi được cấp mã số xuất khẩu sang Trung Quốc.
-- Sau một năm thành lập, hầu hết các đội bắt chó thả rông tại TP Đà Nẵng chỉ bắt được vài con chó vì nhiều lý do.
-- Bộ Quốc phòng cấp phép bay hoặc phân cấp cho đơn vị thuộc quyền cấp phép bay đối với máy bay không người lái và phương tiện bay khác.
-- Bộ Chính trị, Ban Bí thư, Ủy ban Kiểm tra Trung ương đã kỷ luật 6 cán bộ cấp cao thuộc diện Bộ Chính trị, Ban Bí thư quản lý, nâng tổng số cán bộ cấp cao bị xử lý kỷ luật từ đầu năm đến nay là 52 cán bộ.
-- Tận dụng nhu cầu đi lại tăng cao trong mùa lễ Tết, các Vietnam Airlines, Vietjet, Bamboo Airways mở rộng các tuyến bay quốc tế.
-- Đà Nẵng đã quyết định đầu tư thêm 410 tỉ đầu tư công viên phần mềm số 2 gần cầu Thuận Phước. Sau  2 lần, dự án này được điều chỉnh vốn đầu tư lên tới hơn 1.400 tỉ đồng.
-- Khi thị trường biến động, các đơn vị cần cân nhắc giữa bài toán chi phí giữ chân lao động hay tuyển mới...
+- Giao UBND TP Hà Tiên tổ chức kiểm điểm rút kinh nghiệm đối với tập thể lãnh đạo UBND TP trong việc chỉ đạo, quản lý điều hành.
+- UBND thành phố Hà Nội vừa có quyết định về việc ban hành giá vé vận chuyển hành khách công cộng bằng xe buýt có trợ giá trên địa bàn thành phố bắt đầu từ ngày 1-11.
+- Hà Nội, TP.HCM đang gồng mình chịu ô nhiễm, trong đó có lượng khí thải khổng lồ từ xe cộ dùng xăng dầu thải ra hằng ngày.
+- Một số tin tức đáng chú ý: Quốc hội thảo luận Luật Phòng cháy, chữa cháy và cứu nạn, cứu hộ; Miền Tây lại đối mặt triều cường cao; Việt Nam nằm trong nhóm nước bị thiếu i ốt...
+- Hôm nay 1-11, thời tiết Bắc Bộ sẽ chuyển lạnh do không khí lạnh tăng cường. Nam Bộ và Trung Bộ nắng gián đoạn, có lúc mưa rào.
+- Trong 1 tháng cao điểm xử lý vi phạm của cảnh sát giao thông, có hơn 77.000 trường hợp vi phạm nồng độ cồn bị xử lý.
+- Bảo tàng Lịch sử quân sự Việt Nam mới tại quận Nam Từ Liêm, Hà Nội chính thức mở cửa phục vụ người dân và du khách từ ngày mai 1-11.
+- Gặp mặt lãnh đạo TP.HCM, đoàn Hội Tiểu nông Cuba mong muốn thắt chặt quan hệ hợp tác, hữu nghị giữa Hội Tiểu nông Cuba với TP.HCM.
+- Xưởng nội thất ở An Đồng (huyện An Dương, Hải Phòng) cháy lan làm 7 hộ dân liền kề bị thiệt hại.
+- Tỉnh Khánh Hòa đang đề nghị các bộ ngành trung ương góp ý về đề án xây dựng Trung tâm Nghiên cứu quốc gia về công nghệ đại dương tại tỉnh này.
+- Ngày 1-11, thị xã Đông Triều (tỉnh Quảng Ninh) sẽ chính thức trở thành thành phố, như vậy Quảng Ninh sẽ có 5 thành phố trực thuộc tỉnh.
+- HĐND tỉnh Khánh Hòa đã gác lại việc thông qua nghị quyết phê duyệt danh mục 18 khu đất để thực hiện đấu thầu lựa chọn nhà đầu tư.
+- Ngày 31-10, Phó thủ tướng thường trực Nguyễn Hòa Bình đã ký quyết định số 1303/QĐ-TTg về việc thi hành kỷ luật đối với bà Nguyễn Thị Hồng, nguyên phó chủ tịch UBND TP.HCM.
+- Dự án xây dựng đoạn tuyến nối từ đường Võ Văn Kiệt đến đường cao tốc TP.HCM - Trung Lương (giai đoạn 1) khởi công từ năm 2016.
+- Việt Nam bày tỏ mong muốn hợp tác chặt chẽ với chính quyền Mỹ trong thời gian tới, trong bối cảnh chỉ còn vài ngày nữa là bầu cử tổng thống Mỹ.
+- Kết luận có nhiều nội dung để tháo gỡ những điểm nghẽn, khó khăn.
+- Đại biểu Tạ Văn Hạ nêu dẫn chứng con ông đi học phổ thông, được gia đình mua bảo hiểm của công ty nước ngoài, nhưng cũng phải đóng bảo hiểm y tế.
+- Bộ Ngoại giao cho hay Việt Nam sẽ nghiên cứu các quy chế của nhóm BRICS và việc tham gia được xem xét trên cơ sở lợi ích, điều kiện, khả năng của Việt Nam.
+- Nhà thầu thi công mặt đường bề rộng 4m, nhưng lại nghiệm thu với bề rộng 13m, dẫn đến phần diện tích chênh lệch là 1.836m2.
+- Trong 10 ngày đầu tháng 11, ở Biển Đông xuất hiện áp thấp nhiệt đới, còn miền Trung có khả năng gặp đợt mưa đặc biệt lớn, gây ngập lụt.
+- Bộ Ngoại giao nhấn mạnh chủ quyền đối với quần đảo Hoàng Sa, kiên quyết phản đối việc bắt giữ của Trung Quốc và yêu cầu thả ngư dân đồng thời bồi thường.
+- Bộ Ngoại giao Việt Nam bày tỏ hết sức quan ngại khi có thông tin Trung Quốc đang hoàn thiện cơ sở hạ tầng để đưa radar ra đảo Tri Tôn, thuộc quần đảo Hoàng Sa.
+- Biết tin thầy hiệu trưởng nghỉ hưu, 1.400 học sinh Trường THPT Phan Chu Trinh (xã Ea Ral, Ea Hleo, tỉnh Đắk Lắk) tổ chức lễ chia tay ngay tại sân trường.
+- Trường đại học Fulbright Việt Nam cho biết đã nhận giấy phép xây dựng cho giai đoạn 1 tại Khu công nghệ cao TP.HCM vào ngày 28-10-2024.
+- Đại biểu Quốc hội đề nghị quy định thanh toán cho bệnh nhân khám bảo hiểm y tế phải mua thuốc, vật tư y tế bên ngoài khi bệnh viện không có.
+- Quân khu 4 sẽ cử y bác sĩ về thị trấn Lăng Cô (huyện Phú Lộc, Thừa Thiên Huế) để khám, cấp phát thuốc cho người dân ở vùng bị thiệt hại do bão Trà Mi gây ra.
+- Bà Hoàng Thị Kim Châu, nguyên tổng giám đốc Công ty cổ phần Bách Đạt An, đã bị Công an tỉnh Quảng Nam khởi tố, bắt tạm giam.
+- Tại kỳ họp thứ 14 HĐND tỉnh Tiền Giang khóa X, bà Châu Thị Mỹ Phương, trưởng Ban Tuyên giáo Tỉnh ủy Tiền Giang, đã được bầu làm chủ tịch Hội đồng nhân dân tỉnh Tiền Giang khóa 10, nhiệm kỳ 2021-2026
+- Dự án cầu Rạch Miễu 2 đã thi công hoàn thành 100% thân trụ tháp dây văng cho cả 2 trụ tháp P19 và P20, hoàn thành vượt tiến độ hơn 3 tháng so với kế hoạch.
+- Cầu đi bộ kết nối với tuyến metro số 1 sẽ tạo nhiều thuận tiện cho người dân đi lại. Việc xây dựng hoàn thành tất cả 9 cây cầu đi bộ là bước ngoặt quan trọng, tiến đến vận hành chính thức trong tháng 12.
 ![New](News.png)
 ## Nhịp sống số 
+- Whisper, công cụ AI chuyển lời nói thành văn bản của OpenAI - đã tạo ra các đoạn văn bản và những câu hoàn toàn không có thật.
 - Ngày 29-10, Cơ quan tư pháp Liên minh châu Âu (Eurojust) thông báo một chiến dịch toàn cầu đã giúp triệt phá các máy chủ của infostealers - một trong những nền tảng mã độc lớn nhất thế giới.
 - Hiện tại, Google có khả năng dịch hơn 94 ngôn ngữ trên toàn cầu sang 25 ngôn ngữ bản địa châu Phi.
 - Câu chuyện về một vài người nào đó trở thành tỉ phú chỉ sau một thời gian ngắn chơi tiền số đã khiến nhiều người Việt lao vào cuộc chơi.
@@ -94,5 +95,4 @@
 - Cục Viễn thông đang đề xuất lùi thời gian tắt sóng 2G, để các nhà mạng có thêm thời gian hỗ trợ 3,4 triệu khách hàng chuyển đổi từ thuê 2G lên 4G.
 - Ban tổ chức cho biết sự kiện nhằm ghi nhận, vinh danh và ủng hộ những đóng góp cũng như tài năng đội ngũ sáng tạo nội dung số tại Việt Nam.
 - Quyết định rút khỏi thị trường Việt Nam của Gojek để lại nhiều tiếc nuối cho các đối tác tài xế, nhà hàng và người dùng, những người đã đồng hành cùng hãng xe công nghệ thời gian qua.
-- Ông Elon Musk đang trên đà trở thành tỉ phú nghìn tỉ (trillionaire) đầu tiên trên thế giới vào năm 2027.
 ![life](Life.png)
