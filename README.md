@@ -1,6 +1,19 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Nhiều người có tên trong danh sách giảng viên cơ hữu toàn thời gian của các trường đại học tại Việt Nam nhưng đang sinh sống và làm việc ở nước ngoài nhiều năm qua.
+- Giám đốc dự án khu vực châu Á - Thái Bình Dương - Trung Đông Google for Education khẳng định như vậy tại buổi làm việc với Phó chủ tịch UBND TP.HCM.
+- HĐND tỉnh Bắc Ninh dự kiến kinh phí hơn 215 tỉ đồng để hỗ trợ hợp đồng lao động giáo viên, nhân viên nấu ăn… năm học 2024 - 2025.
+- Giám đốc Đại học Huế đã đưa ra khẳng định như trên. Việc thu học phí rẻ khiến câu chuyện tái đầu tư cho cơ sở hạ tầng để đạt tiêu chí đại học quốc gia gặp khó khăn.
+- Theo PGS.TS Bùi Anh Tuấn, hiệu trưởng Trường đại học Ngoại thương, các chi nhánh quốc tế (IBCs) đóng vai trò là cầu nối quan trọng, giúp sinh viên được tiếp cận với nền giáo dục quốc tế chất lượng cao mà không cần phải rời khỏi quê hương của mình.
+- Năm 2025, Trường đại học Sư phạm TP.HCM vừa công bố thay đổi hàng loạt nội dung quan trọng trong đề án tuyển sinh đại học năm 2025.
+- Rà soát lại hoạt động của ban đại diện cha mẹ học sinh; xử lý hiệu trưởng nếu thu chi không đúng quy định…
+- Trường quốc tế AISVN bất ngờ thông báo đến phụ huynh dự kiến khai giảng trở lại vào tháng 1-2025. Sở Giáo dục và Đào tạo TP.HCM nói gì về việc này?
+- Thầy hiệu trưởng trong clip '1.400 học sinh chia tay trước ngày nghỉ hưu' nói muốn được yêu mến, thầy giáo trước tiên phải trải lòng với học trò. Thầy là cha mẹ, nhưng cũng là bạn để các em tâm sự những nỗi niềm tuổi mới lớn.
+- Future Frame Celebration Week - Tuần phim công nghệ do khoa truyền thông và thiết kế Trường đại học Công nghệ TP.HCM (HUTECH).
+- Mới đây nhiều trường đại học lớn tại Úc đã thông báo kế hoạch tăng học phí cho sinh viên quốc tế bắt đầu ngay từ năm 2025.
+- Ngày 1-11, một lãnh đạo Công an TP Pleiku cho biết hiện cơ quan điều tra đang thụ lý vụ nữ sinh bị đánh tập thể rồi lột đồ quay clip.
+- TP.HCM đang xây dựng mạng lưới thành phố học tập toàn cầu theo bộ tiêu chí của UNESCO.
 - Nhiều bạn đọc bày tỏ ý kiến trái chiều về việc Trường mầm non 14 (quận Tân Bình, TP.HCM) mua thực phẩm giá cao hơn siêu thị.
 - Bộ Giáo dục và Đào tạo sẽ ban hành trong quy chế tuyển sinh quy định cụ thể về mặt quản lý nhà nước để bảo đảm kiểm tra, giám sát được chất lượng các kỳ thi đánh giá năng lực, đánh giá tư duy.
 - VPBank vừa công bố chương trình học bổng ‘Thắp sáng tài năng’ năm 2024, tìm kiếm 150 sinh viên giỏi, tài năng để trao học bổng với tổng số tiền lên đến 1,9 tỉ đồng.
@@ -18,51 +31,38 @@
 - Ne'Kiya Jackson và Calcea Johnson, đều 17 tuổi, hai học sinh trung học từ New Orleans (Mỹ), đã làm nên 'lịch sử' khi tìm ra những bằng chứng mới cho định lý Pitago tồn tại hơn 2.000 năm.
 - TP.HCM đang đẩy mạnh các hoạt động thúc đẩy học tập ở nhiều cấp độ như công dân học tập, đơn vị học tập, cộng đồng học tập…
 - Học sinh các cấp ở TP.HCM sẽ nghỉ Tết Nguyên đán 2025 tổng cộng là 9 ngày, ít hơn năm trước 7 ngày.
-- So với số liệu một năm trước (2022), số thí sinh thi SAT tại Việt Nam trong năm 2023 gấp 174%.
-- Bộ Giáo dục và Đào tạo vừa có công văn về việc tổ chức, hoạt động của Trường đại học Kinh Bắc (Bắc Ninh) sau những lùm xùm liên quan hoạt động của nhà trường.
-- Trưa 30-10, Trường THPT Mạc Đĩnh Chi, quận 6, TP.HCM đã có phản hồi về đề thi văn có nội dung về lối sống 'phông bạt'.
-- Bên cạnh những lời khen dành cho đề thi văn sáng tạo, nhiều bạn đọc cho rằng không phải ai cũng hiểu 'phông bạt' là gì.
-- Câu chuyện dùng bằng 'dỏm' nhưng vẫn được đề bạt, học lên cao, thậm chí cả thạc sĩ tiến sĩ, luôn gây bức xúc cho dư luận dù tình trạng này kéo dài nhiều năm qua.
-- Thực tế có nhiều rào cản cho quá trình hình thành, xây dựng các trung tâm nuôi dạy trẻ tự kỷ ở Việt Nam.
-- Đề thi văn giữa học kỳ 1 của Trường THPT Mạc Đĩnh Chi, TP.HCM yêu cầu học sinh viết về 'lối sống phông bạt' của giới trẻ.
-- Với mong muốn bảo vệ môi trường từ những việc nhỏ nhất, học sinh ở TP Đà Nẵng đã tích cực tham gia mô hình 'Chuyến xe kế hoạch nhỏ', thu gom, phân loại rác thải, gây quỹ giúp bạn.
-- Lần đầu tiên Hội nghị các thành phố học tập tại khu vực Đông Nam Á đã được tổ chức tại Bangkok, Thái Lan.
-- Thời gian làm bài được rút ngắn, cấu trúc câu hỏi được điều chỉnh tiếp cận thực tế… Đó là một số thay đổi chính của bài thi TOEFL iBT trong năm nay.
-- Bộ Giáo dục và Đào tạo dự kiến các trường đại học sẽ không được tăng chỉ tiêu tuyển sinh khi năm trước đó tỉ lệ sinh viên thôi học năm đầu cao hơn 15% hoặc tỉ lệ người tốt nghiệp có việc làm thấp hơn 70%.
-- 2025 là năm đầu tiên tổ chức kỳ thi tốt nghiệp THPT, tuyển sinh theo Chương trình giáo dục phổ thông 2018.
-- Công cuộc tìm trường cho con ban đầu tưởng đơn giản, vì chỉ cần đặt lệnh tìm kiếm "trường dành cho trẻ tự kỷ" là ngay lập tức nhận được hàng ngàn kết quả.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Giao UBND TP Hà Tiên tổ chức kiểm điểm rút kinh nghiệm đối với tập thể lãnh đạo UBND TP trong việc chỉ đạo, quản lý điều hành.
-- UBND thành phố Hà Nội vừa có quyết định về việc ban hành giá vé vận chuyển hành khách công cộng bằng xe buýt có trợ giá trên địa bàn thành phố bắt đầu từ ngày 1-11.
-- Hà Nội, TP.HCM đang gồng mình chịu ô nhiễm, trong đó có lượng khí thải khổng lồ từ xe cộ dùng xăng dầu thải ra hằng ngày.
-- Một số tin tức đáng chú ý: Quốc hội thảo luận Luật Phòng cháy, chữa cháy và cứu nạn, cứu hộ; Miền Tây lại đối mặt triều cường cao; Việt Nam nằm trong nhóm nước bị thiếu i ốt...
-- Hôm nay 1-11, thời tiết Bắc Bộ sẽ chuyển lạnh do không khí lạnh tăng cường. Nam Bộ và Trung Bộ nắng gián đoạn, có lúc mưa rào.
-- Trong 1 tháng cao điểm xử lý vi phạm của cảnh sát giao thông, có hơn 77.000 trường hợp vi phạm nồng độ cồn bị xử lý.
-- Bảo tàng Lịch sử quân sự Việt Nam mới tại quận Nam Từ Liêm, Hà Nội chính thức mở cửa phục vụ người dân và du khách từ ngày mai 1-11.
-- Gặp mặt lãnh đạo TP.HCM, đoàn Hội Tiểu nông Cuba mong muốn thắt chặt quan hệ hợp tác, hữu nghị giữa Hội Tiểu nông Cuba với TP.HCM.
-- Xưởng nội thất ở An Đồng (huyện An Dương, Hải Phòng) cháy lan làm 7 hộ dân liền kề bị thiệt hại.
-- Tỉnh Khánh Hòa đang đề nghị các bộ ngành trung ương góp ý về đề án xây dựng Trung tâm Nghiên cứu quốc gia về công nghệ đại dương tại tỉnh này.
-- Ngày 1-11, thị xã Đông Triều (tỉnh Quảng Ninh) sẽ chính thức trở thành thành phố, như vậy Quảng Ninh sẽ có 5 thành phố trực thuộc tỉnh.
-- HĐND tỉnh Khánh Hòa đã gác lại việc thông qua nghị quyết phê duyệt danh mục 18 khu đất để thực hiện đấu thầu lựa chọn nhà đầu tư.
-- Ngày 31-10, Phó thủ tướng thường trực Nguyễn Hòa Bình đã ký quyết định số 1303/QĐ-TTg về việc thi hành kỷ luật đối với bà Nguyễn Thị Hồng, nguyên phó chủ tịch UBND TP.HCM.
-- Dự án xây dựng đoạn tuyến nối từ đường Võ Văn Kiệt đến đường cao tốc TP.HCM - Trung Lương (giai đoạn 1) khởi công từ năm 2016.
-- Việt Nam bày tỏ mong muốn hợp tác chặt chẽ với chính quyền Mỹ trong thời gian tới, trong bối cảnh chỉ còn vài ngày nữa là bầu cử tổng thống Mỹ.
-- Kết luận có nhiều nội dung để tháo gỡ những điểm nghẽn, khó khăn.
-- Đại biểu Tạ Văn Hạ nêu dẫn chứng con ông đi học phổ thông, được gia đình mua bảo hiểm của công ty nước ngoài, nhưng cũng phải đóng bảo hiểm y tế.
-- Bộ Ngoại giao cho hay Việt Nam sẽ nghiên cứu các quy chế của nhóm BRICS và việc tham gia được xem xét trên cơ sở lợi ích, điều kiện, khả năng của Việt Nam.
-- Nhà thầu thi công mặt đường bề rộng 4m, nhưng lại nghiệm thu với bề rộng 13m, dẫn đến phần diện tích chênh lệch là 1.836m2.
-- Trong 10 ngày đầu tháng 11, ở Biển Đông xuất hiện áp thấp nhiệt đới, còn miền Trung có khả năng gặp đợt mưa đặc biệt lớn, gây ngập lụt.
-- Bộ Ngoại giao nhấn mạnh chủ quyền đối với quần đảo Hoàng Sa, kiên quyết phản đối việc bắt giữ của Trung Quốc và yêu cầu thả ngư dân đồng thời bồi thường.
-- Bộ Ngoại giao Việt Nam bày tỏ hết sức quan ngại khi có thông tin Trung Quốc đang hoàn thiện cơ sở hạ tầng để đưa radar ra đảo Tri Tôn, thuộc quần đảo Hoàng Sa.
-- Biết tin thầy hiệu trưởng nghỉ hưu, 1.400 học sinh Trường THPT Phan Chu Trinh (xã Ea Ral, Ea Hleo, tỉnh Đắk Lắk) tổ chức lễ chia tay ngay tại sân trường.
-- Trường đại học Fulbright Việt Nam cho biết đã nhận giấy phép xây dựng cho giai đoạn 1 tại Khu công nghệ cao TP.HCM vào ngày 28-10-2024.
-- Đại biểu Quốc hội đề nghị quy định thanh toán cho bệnh nhân khám bảo hiểm y tế phải mua thuốc, vật tư y tế bên ngoài khi bệnh viện không có.
-- Quân khu 4 sẽ cử y bác sĩ về thị trấn Lăng Cô (huyện Phú Lộc, Thừa Thiên Huế) để khám, cấp phát thuốc cho người dân ở vùng bị thiệt hại do bão Trà Mi gây ra.
-- Bà Hoàng Thị Kim Châu, nguyên tổng giám đốc Công ty cổ phần Bách Đạt An, đã bị Công an tỉnh Quảng Nam khởi tố, bắt tạm giam.
-- Tại kỳ họp thứ 14 HĐND tỉnh Tiền Giang khóa X, bà Châu Thị Mỹ Phương, trưởng Ban Tuyên giáo Tỉnh ủy Tiền Giang, đã được bầu làm chủ tịch Hội đồng nhân dân tỉnh Tiền Giang khóa 10, nhiệm kỳ 2021-2026
-- Dự án cầu Rạch Miễu 2 đã thi công hoàn thành 100% thân trụ tháp dây văng cho cả 2 trụ tháp P19 và P20, hoàn thành vượt tiến độ hơn 3 tháng so với kế hoạch.
-- Cầu đi bộ kết nối với tuyến metro số 1 sẽ tạo nhiều thuận tiện cho người dân đi lại. Việc xây dựng hoàn thành tất cả 9 cây cầu đi bộ là bước ngoặt quan trọng, tiến đến vận hành chính thức trong tháng 12.
+- Chủ tịch Quốc hội Trần Thanh Mẫn ký ban hành nghị quyết của Ủy ban Thường vụ Quốc hội về sáp nhập huyện, xã giai đoạn 2023 - 2025 của 21 tỉnh thành.
+- Một tàu trật bánh khỏi đường ray, hàng trăm hành khách trên tàu SE7, SE8 được trung chuyển từ ga Lăng Cô (Thừa Thiên Huế) vào ga Đà Nẵng và ngược lại.
+- Tin tức đáng chú ý: TP.HCM ban hành nhiều chính sách hỗ trợ trong trường hợp bị thu hồi đất; 7,1% người trưởng thành tại Việt Nam mắc đái tháo đường; TP Phan Rang - Tháp Chàm sáp nhập 5 phường xã...
+- Hôm nay 2-11, thời tiết các tỉnh Bắc Bộ lạnh, Nam Bộ mưa rào, Trung Bộ có mưa và chuẩn bị vào đợt mưa to dài ngày.
+- Xe tải cẩu chạy trên cao tốc Phan Thiết - Dầu Giây bất ngờ nổ lốp, lật ngửa, chắn ngang đường. Vụ việc khiến giao thông trên đường cao tốc kẹt xe kéo dài nhiều km.
+- Việc này giúp khai thác và phát triển tốt các quỹ đất có điều kiện chỉnh trang, tạo thành các khu đô thị nén xung quanh nhà ga tuyến metro số 1, 2, dọc vành đai 3… ở TP.HCM.
+- Ông Nguyễn Viết Hải, chủ tịch Tập đoàn Sơn Hải, hỏi như trên. Nhiều bạn đọc thì thắc mắc về quy định có cho phép ghi chữ trên biển báo giao thông không, trong khi Tập đoàn Sơn Hải khẳng định đây là biển thông báo của doanh nghiệp.
+- Bí thư Quận ủy quận Bình Tân (TP.HCM) chỉ đạo cơ quan chức năng quận cân nhắc tiến độ cưỡng chế tháo dỡ diện tích vi phạm tại chung cư Nguyễn Quyền phù hợp, bảo vệ quyền lợi cho các hộ dân.
+- Chủ tịch Quốc hội Trần Thanh Mẫn vừa ký ban hành nghị quyết về việc tăng thêm một thứ trưởng Bộ Nông nghiệp và Phát triển nông thôn.
+- Lực lượng chức năng đã cưỡng chế tháo dỡ tấm biển quảng cáo chữa bách bệnh bằng nước ion kiềm của ông Nguyễn Tiến Nam (sinh năm 1958, trú tại số nhà 47, đường Đìa 1, thôn Đìa, xã Bình Minh, Thanh Oai, Hà Nội) trong ngày 1-11.
+- Di tích Quốc Tử Giám triều Nguyễn sau nhiều năm là trụ sở của Bảo tàng Lịch sử Thừa Thiên Huế sắp được bàn giao, trả lại nguyên trạng cho Trung tâm Bảo tồn di tích cố đô Huế quản lý, tu bổ và phát huy giá trị.
+- Từ ngày 3 đến 5-11, miền Trung, đặc biệt khu vực từ Hà Tĩnh đến Đà Nẵng có mưa to đến rất to với lượng mưa phổ biến 200-400mm, có nơi trên 500mm.
+- Giám đốc Đại học Huế đã đưa ra khẳng định như trên. Việc thu học phí rẻ khiến câu chuyện tái đầu tư cho cơ sở hạ tầng để đạt tiêu chí đại học quốc gia gặp khó khăn.
+- Sau đợt mưa lũ, sò huyết dạt vào bờ biển khiến hàng trăm người dân thị xã Ba Đồn (Quảng Bình) đổ ra bãi biển nhặt. Đây là hiện tượng lạ với vùng biển này.
+- UBND thành phố Quảng Ngãi đang tìm kiếm một thiết kế logo đáp ứng các tiêu chí nhận diện và có ý nghĩa với xứ sở. Thiết kế đoạt giải nhất nhận thưởng 100 triệu đồng và được sử dụng làm biểu trưng cho thành phố.
+- Ngày 1-11, thông tin từ Bệnh viện Trường đại học Y Dược Cần Thơ cho biết bệnh viện này vừa phẫu thuật thành công lấy ra chiếc đũa trong vùng ổ mắt và vách mũi một nam bệnh nhân.
+- Theo phản ánh của người dân, ven đường dọc rạch Cầu Suối (xã Vĩnh Lộc B, huyện Bình Chánh, TP.HCM) đang trở thành nơi đổ rác bừa bãi.
+- Thầy hiệu trưởng trong clip '1.400 học sinh chia tay trước ngày nghỉ hưu' nói muốn được yêu mến, thầy giáo trước tiên phải trải lòng với học trò. Thầy là cha mẹ, nhưng cũng là bạn để các em tâm sự những nỗi niềm tuổi mới lớn.
+- Một vết nứt dài vừa được phát hiện trên một ngọn núi ở phía tây huyện Lệ Thủy (tỉnh Quảng Bình) sau mưa lũ. Chính quyền đang khẩn cấp di dời các hộ dân bên dưới chân núi.
+- Sau 50 ngày được điều trị tại Bệnh viện Bạch Mai, bé M.H.T.N. (11 tuổi) từng bị lũ cuốn trôi ở bản Làng Nủ, Lào Cai ngày đã được ra viện.
+- Liên quan vụ 21 con hổ, báo chết ở Đồng Nai, các mẫu xét nghiệm lấy tại khu du lịch Vườn Xoài liên tiếp âm tính với cúm gia cầm A/H5N1.
+- Đà Nẵng sẽ nghiên cứu kết hợp với thương mại dịch vụ tại các điểm nhà vệ sinh công cộng trên các tuyến đường du lịch.
+- Phường An Phú, An Cư và An Nghiệp được sáp nhập vào phường Thới Bình, quận Ninh Kiều để thành lập phường mới từ hôm nay.
+- Chuyển từ quốc lộ sang đường đô thị là một tất yếu mang tính quy luật do quá trình đô thị hóa và sự thay đổi mạnh mẽ của ngành giao thông.
+- Ông Nguyễn Thanh Lâm, thứ trưởng Bộ Thông tin và Truyền thông, được Thủ tướng Chính phủ bổ nhiệm giữ chức tổng giám đốc VTV.
+- Cơ quan cảnh sát điều tra Bộ Công an vừa kết luận điều tra vụ án xảy ra ở dự án Khu đô thị du lịch biển Phan Thiết, tỉnh Bình Thuận.
+- Chính phủ trình Quốc hội chủ trương đầu tư Chương trình mục tiêu quốc gia phát triển văn hóa 2025-2035 với tổng nguồn 256.250 tỉ đồng.
+- Ngày 1-11, một lãnh đạo Công an TP Pleiku cho biết hiện cơ quan điều tra đang thụ lý vụ nữ sinh bị đánh tập thể rồi lột đồ quay clip.
+- Nguyễn Văn Tiền (ở xã Dương Tơ, Phú Quốc) cùng hai người khác đã chuyển nhượng khoảng 3ha đất lấy 4 tỉ đồng.
+- Để cấm xe máy cá nhân, Hà Nội cần đánh giá tác động xã hội, bởi cấm xe cá nhân thì phải có xe thay thế, phương tiện công cộng phải tiện lợi.
 ![New](News.png)
 ## Nhịp sống số 
 - Whisper, công cụ AI chuyển lời nói thành văn bản của OpenAI - đã tạo ra các đoạn văn bản và những câu hoàn toàn không có thật.
