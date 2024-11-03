@@ -1,6 +1,11 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Bảo đảm ngân sách nhà nước chi cho giáo dục, đào tạo tối thiểu 20% tổng chi ngân sách, từng bước đưa tiếng Anh trở thành ngôn ngữ thứ hai và đào tạo ngoại ngữ khác theo nhu cầu.
+- Ban tổ chức ngày hội STEM quận Tân Phú, TP.HCM đã bất ngờ với những sản phẩm sáng tạo từ AI của học sinh trong nội dung 'sáng tác truyện tranh bằng AI'.
+- Chương trình đào tạo về 'Cấy ghép Implant Nha khoa All-on-X & GBR' do Công ty Dentium kết hợp cùng Đại học (ĐH) Harvard và ĐH Duy Tân đã được tổ chức từ ngày 19 - 20-10.
+- Vấn nạn 'tiến sĩ dỏm' là câu chuyện nhức nhối, đang thu hút sự quan tâm mạnh mẽ của dư luận.
+- Trong năm 2025, kỳ thi đánh giá tư duy của Đại học Bách khoa Hà Nội (TSA) dự kiến tổ chức trong 3 đợt thi vào các ngày cuối tuần.
 - Nhiều người có tên trong danh sách giảng viên cơ hữu toàn thời gian của các trường đại học tại Việt Nam nhưng đang sinh sống và làm việc ở nước ngoài nhiều năm qua.
 - Giám đốc dự án khu vực châu Á - Thái Bình Dương - Trung Đông Google for Education khẳng định như vậy tại buổi làm việc với Phó chủ tịch UBND TP.HCM.
 - HĐND tỉnh Bắc Ninh dự kiến kinh phí hơn 215 tỉ đồng để hỗ trợ hợp đồng lao động giáo viên, nhân viên nấu ăn… năm học 2024 - 2025.
@@ -26,43 +31,38 @@
 - Trường THPT Tô Hiến Thành phải tổ chức xin lỗi phụ huynh học sinh về những sai phạm trong việc tuyển sinh 174 học sinh lớp 10 khi chưa được sự cho phép của Sở Giáo dục và Đào tạo Hà Nội.
 - Mẹ của cháu bé tự kỷ bị bảo mẫu trung tâm Cầu Vồng (TP Đà Nẵng) bạo hành không đồng tình với kết luận điều tra của Công an quận Sơn Trà.
 - Đề thi môn văn vốn thường bị dư luận than phiền là lối mòn, cũ kỹ, rập khuôn. Việc ra đề thi bắt trend là hướng đi mới, nhưng cần cẩn trọng.
-- Bộ Giáo dục và Đào tạo vừa công bố thông tin về các kỳ thi tốt nghiệp THPT giai đoạn 2020 -2024 cho thấy tỉ lệ tốt nghiệp liên tục tăng trong nhiều năm qua với con số gần tuyệt đối.
-- Kết quả giám sát của phụ huynh tại Trường mầm non 14 (quận Tân Bình, TP.HCM) cho thấy tất cả các loại thực phẩm nhà trường mua đều cao hơn giá siêu thị 3-4 lần.
-- Ne'Kiya Jackson và Calcea Johnson, đều 17 tuổi, hai học sinh trung học từ New Orleans (Mỹ), đã làm nên 'lịch sử' khi tìm ra những bằng chứng mới cho định lý Pitago tồn tại hơn 2.000 năm.
-- TP.HCM đang đẩy mạnh các hoạt động thúc đẩy học tập ở nhiều cấp độ như công dân học tập, đơn vị học tập, cộng đồng học tập…
-- Học sinh các cấp ở TP.HCM sẽ nghỉ Tết Nguyên đán 2025 tổng cộng là 9 ngày, ít hơn năm trước 7 ngày.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Chủ tịch Quốc hội Trần Thanh Mẫn ký ban hành nghị quyết của Ủy ban Thường vụ Quốc hội về sáp nhập huyện, xã giai đoạn 2023 - 2025 của 21 tỉnh thành.
-- Một tàu trật bánh khỏi đường ray, hàng trăm hành khách trên tàu SE7, SE8 được trung chuyển từ ga Lăng Cô (Thừa Thiên Huế) vào ga Đà Nẵng và ngược lại.
-- Tin tức đáng chú ý: TP.HCM ban hành nhiều chính sách hỗ trợ trong trường hợp bị thu hồi đất; 7,1% người trưởng thành tại Việt Nam mắc đái tháo đường; TP Phan Rang - Tháp Chàm sáp nhập 5 phường xã...
-- Hôm nay 2-11, thời tiết các tỉnh Bắc Bộ lạnh, Nam Bộ mưa rào, Trung Bộ có mưa và chuẩn bị vào đợt mưa to dài ngày.
-- Xe tải cẩu chạy trên cao tốc Phan Thiết - Dầu Giây bất ngờ nổ lốp, lật ngửa, chắn ngang đường. Vụ việc khiến giao thông trên đường cao tốc kẹt xe kéo dài nhiều km.
-- Việc này giúp khai thác và phát triển tốt các quỹ đất có điều kiện chỉnh trang, tạo thành các khu đô thị nén xung quanh nhà ga tuyến metro số 1, 2, dọc vành đai 3… ở TP.HCM.
-- Ông Nguyễn Viết Hải, chủ tịch Tập đoàn Sơn Hải, hỏi như trên. Nhiều bạn đọc thì thắc mắc về quy định có cho phép ghi chữ trên biển báo giao thông không, trong khi Tập đoàn Sơn Hải khẳng định đây là biển thông báo của doanh nghiệp.
-- Bí thư Quận ủy quận Bình Tân (TP.HCM) chỉ đạo cơ quan chức năng quận cân nhắc tiến độ cưỡng chế tháo dỡ diện tích vi phạm tại chung cư Nguyễn Quyền phù hợp, bảo vệ quyền lợi cho các hộ dân.
-- Chủ tịch Quốc hội Trần Thanh Mẫn vừa ký ban hành nghị quyết về việc tăng thêm một thứ trưởng Bộ Nông nghiệp và Phát triển nông thôn.
-- Lực lượng chức năng đã cưỡng chế tháo dỡ tấm biển quảng cáo chữa bách bệnh bằng nước ion kiềm của ông Nguyễn Tiến Nam (sinh năm 1958, trú tại số nhà 47, đường Đìa 1, thôn Đìa, xã Bình Minh, Thanh Oai, Hà Nội) trong ngày 1-11.
-- Di tích Quốc Tử Giám triều Nguyễn sau nhiều năm là trụ sở của Bảo tàng Lịch sử Thừa Thiên Huế sắp được bàn giao, trả lại nguyên trạng cho Trung tâm Bảo tồn di tích cố đô Huế quản lý, tu bổ và phát huy giá trị.
-- Từ ngày 3 đến 5-11, miền Trung, đặc biệt khu vực từ Hà Tĩnh đến Đà Nẵng có mưa to đến rất to với lượng mưa phổ biến 200-400mm, có nơi trên 500mm.
-- Giám đốc Đại học Huế đã đưa ra khẳng định như trên. Việc thu học phí rẻ khiến câu chuyện tái đầu tư cho cơ sở hạ tầng để đạt tiêu chí đại học quốc gia gặp khó khăn.
-- Sau đợt mưa lũ, sò huyết dạt vào bờ biển khiến hàng trăm người dân thị xã Ba Đồn (Quảng Bình) đổ ra bãi biển nhặt. Đây là hiện tượng lạ với vùng biển này.
-- UBND thành phố Quảng Ngãi đang tìm kiếm một thiết kế logo đáp ứng các tiêu chí nhận diện và có ý nghĩa với xứ sở. Thiết kế đoạt giải nhất nhận thưởng 100 triệu đồng và được sử dụng làm biểu trưng cho thành phố.
-- Ngày 1-11, thông tin từ Bệnh viện Trường đại học Y Dược Cần Thơ cho biết bệnh viện này vừa phẫu thuật thành công lấy ra chiếc đũa trong vùng ổ mắt và vách mũi một nam bệnh nhân.
-- Theo phản ánh của người dân, ven đường dọc rạch Cầu Suối (xã Vĩnh Lộc B, huyện Bình Chánh, TP.HCM) đang trở thành nơi đổ rác bừa bãi.
-- Thầy hiệu trưởng trong clip '1.400 học sinh chia tay trước ngày nghỉ hưu' nói muốn được yêu mến, thầy giáo trước tiên phải trải lòng với học trò. Thầy là cha mẹ, nhưng cũng là bạn để các em tâm sự những nỗi niềm tuổi mới lớn.
-- Một vết nứt dài vừa được phát hiện trên một ngọn núi ở phía tây huyện Lệ Thủy (tỉnh Quảng Bình) sau mưa lũ. Chính quyền đang khẩn cấp di dời các hộ dân bên dưới chân núi.
-- Sau 50 ngày được điều trị tại Bệnh viện Bạch Mai, bé M.H.T.N. (11 tuổi) từng bị lũ cuốn trôi ở bản Làng Nủ, Lào Cai ngày đã được ra viện.
-- Liên quan vụ 21 con hổ, báo chết ở Đồng Nai, các mẫu xét nghiệm lấy tại khu du lịch Vườn Xoài liên tiếp âm tính với cúm gia cầm A/H5N1.
-- Đà Nẵng sẽ nghiên cứu kết hợp với thương mại dịch vụ tại các điểm nhà vệ sinh công cộng trên các tuyến đường du lịch.
-- Phường An Phú, An Cư và An Nghiệp được sáp nhập vào phường Thới Bình, quận Ninh Kiều để thành lập phường mới từ hôm nay.
-- Chuyển từ quốc lộ sang đường đô thị là một tất yếu mang tính quy luật do quá trình đô thị hóa và sự thay đổi mạnh mẽ của ngành giao thông.
-- Ông Nguyễn Thanh Lâm, thứ trưởng Bộ Thông tin và Truyền thông, được Thủ tướng Chính phủ bổ nhiệm giữ chức tổng giám đốc VTV.
-- Cơ quan cảnh sát điều tra Bộ Công an vừa kết luận điều tra vụ án xảy ra ở dự án Khu đô thị du lịch biển Phan Thiết, tỉnh Bình Thuận.
-- Chính phủ trình Quốc hội chủ trương đầu tư Chương trình mục tiêu quốc gia phát triển văn hóa 2025-2035 với tổng nguồn 256.250 tỉ đồng.
-- Ngày 1-11, một lãnh đạo Công an TP Pleiku cho biết hiện cơ quan điều tra đang thụ lý vụ nữ sinh bị đánh tập thể rồi lột đồ quay clip.
-- Nguyễn Văn Tiền (ở xã Dương Tơ, Phú Quốc) cùng hai người khác đã chuyển nhượng khoảng 3ha đất lấy 4 tỉ đồng.
-- Để cấm xe máy cá nhân, Hà Nội cần đánh giá tác động xã hội, bởi cấm xe cá nhân thì phải có xe thay thế, phương tiện công cộng phải tiện lợi.
+- Temu có nguy cơ bị chịu mức phạt lên tới 6% doanh thu toàn cầu hằng năm của nền tảng này sau khi Liên minh châu Âu (EU) mở cuộc điều tra.
+- Nhiều người có các khoản thu nhập vãng lai nhỏ nhận thông báo yêu cầu kê khai thuế bổ sung và truy thu, phạt, tính tiền chậm nộp số tiền khủng.
+- Xe tải và xe container xảy ra va chạm trên quốc lộ 22, huyện Củ Chi (TP.HCM), khiến hai vợ chồng kẹt cứng trong cabin, người dân hỗ trợ dùng dây cáp kéo giãn cabin, cứu người bị nạn.
+- Gia đình hiếm muộn được hoàn tiền nếu thụ tinh ống nghiệm không thành công; Người mua vàng gặp khó, "chợ mạng" sôi nổi.
+- Hôm nay 3-11, không khí lạnh ảnh hưởng nhiều nơi ở Bắc Bộ. Trung Bộ mưa to đến rất to, còn Nam Bộ thời tiết có lúc mưa rào.
+- Đoạn clip ghi cảnh tài xế xe buýt vừa lái xe vừa bấm điện thoại trên đường Lý Thường Kiệt khiến nhiều người bức xúc.
+- Chủ tịch Quốc hội Cuba Esteban Lazo Hernández trân trọng cảm ơn sự hỗ trợ, đồng thời cho biết Cuba rất quan tâm trao đổi và học hỏi các kinh nghiệm phong phú của Việt Nam.
+- Căn hộ ở tầng cao block A3 chung cư The Era Town Đức Khải, phường Phú Mỹ, quận 7, TP.HCM bốc cháy tối 2-11.
+- Cơn mưa cực lớn và kéo dài đúng lúc có triều cường nên nhiều tuyến đường ở thành phố Bạc Liêu (tỉnh Bạc Liêu) ngập nặng. Có nơi lượng mưa đo được hơn 221mm.
+- Do ảnh hưởng của không khí lạnh và gió đông nên từ sáng mai 3-11, ở miền Trung có mưa lớn trên diện rộng, nguy cơ cao xảy ra ngập lụt ở đô thị các tỉnh từ Hà Tĩnh đến Quảng Ngãi.
+- Lực lượng chức năng TP Cam Ranh (tỉnh Khánh Hòa) vẫn đang tiến hành thu thập thông tin để xác định danh tính 1 hài cốt liệt sĩ được tìm thấy ở nương rẫy trên địa bàn thành phố này.
+- Chủ tịch Quốc hội Cuba Esteban Lazo Hernandez đã bày tỏ điều này trong cuộc hội đàm với Chủ tịch Quốc hội Trần Thanh Mẫn tại Hà Nội ngày 2-11.
+- Đoạn đường sắt qua đèo Hải Vân đã chính thức thông đường sau sự cố tàu hàng bị trật bánh khi qua đèo ở Đà Nẵng.
+- Ngày 2-11, Ủy ban Kiểm tra Tỉnh ủy Đồng Nai đã phát đi thông báo về việc kiểm tra, giám sát và đề nghị kỷ luật một số tổ chức Đảng, đảng viên trên địa bàn.
+- Thành viên đoàn công tác Ủy ban Kinh tế của Quốc hội đồng tình kiến nghị đầu tư xây sớm đường băng thứ hai thuộc dự án sân bay Long Thành.
+- Một thi thể đang trong trạng thái phân hủy trong thùng container trên khu đất trống ở xã Phước Đồng, TP Nha Trang (Khánh Hòa) được người dân phát hiện.
+- Diễn đàn Trinity Forum 2024, sự kiện quốc tế hàng đầu trong lĩnh vực hàng không và bán lẻ du lịch, diễn ra tại TP.HCM từ ngày 5 đến 6-11, quy tụ hàng loạt thương hiệu lớn L'Oréal, Qatar Airways, Mondelēz, Diageo, Dubai Duty Free, China Duty Free...
+- Văn phòng đăng ký đất đai TP.HCM cho rằng đã đề nghị cấp sổ hồng cho gia đình ông Bùi Mộc từ tháng 5-2023, việc cấp sổ còn lại thuộc thẩm quyền của UBND quận Tân Bình.
+- Dự án di dời nghĩa trang Bình Hưng Hòa gần như hoàn tất công tác bốc mộ ở 2 giai đoạn đầu, bắt đầu giai đoạn 3.
+- Cuộc thi thiết kế cầu vượt biển vịnh Rạch Giá được quy định ngay từ đầu là cao không quá 45m. Thế nhưng có một đơn vị thiết kế cầu cao đến 78m.
+- Trong vụ án xảy ra ở dự án khu đô thị du lịch biển Phan Thiết, Cơ quan cảnh sát điều tra Bộ Công an đã kết luận 2 nội dung vi phạm chính.
+- Nội dung kiểm tra, xác minh, xử lý cần được gởi về Sở Thông tin và Truyền thông trước ngày 8-11 để báo cáo UBND tỉnh Khánh Hòa.
+- Sở Giao thông vận tải TP.HCM đề xuất tháo dỡ cầu sắt cũ Long Kiểng 50 tuổi, xuống cấp nghiêm trọng để đảm bảo an toàn, đỡ tốn phí quản lý.
+- Tàu cá Phú Yên bị đứt neo trôi dạt từ TP Tuy Hòa về phía bãi biển thị xã Đông Hòa, tỉnh Phú Yên. Công việc cứu hộ rất khó khăn do thời tiết bất lợi, sóng rất lớn.
+- PGS.TS Nguyễn Thị Kim Tiến cho biết Việt Nam đang đứng đầu các nước Đông Nam Á về ghép tạng với hơn 1.000 ca mỗi năm.
+- Trong 10 tháng đầu năm 2024, trên địa bàn TP.HCM đã xảy ra 1.235 vụ tai nạn giao thông làm 384 người chết và 765 người bị thương.
+- Chiều 2-11, tại Khánh Hòa diễn ra hội nghị công bố, trao quyết định của Bộ Chính trị điều động, chỉ định ông Nghiêm Xuân Thành - ủy viên Trung ương Đảng, bí thư Tỉnh ủy Hậu Giang - giữ chức bí thư Tỉnh ủy Khánh Hòa.
+- Khu quản lý đường bộ II cho rằng biển báo trên cao tốc Nghi Sơn - Diễn Châu là của Nhà nước, nên chỉ đạo xóa chữ không có trong thiết kế. Nhưng Tập đoàn Sơn Hải vẫn khẳng định đây là tài sản doanh nghiệp.
+- Kết luận điều tra xác định cựu bộ trưởng, chủ nhiệm Văn phòng Chính phủ Mai Tiến Dũng nhận 200 triệu “cảm ơn” từ đại gia Nguyễn Cao Trí. Cựu bí thư Lâm Đồng Trần Đức Quận nhận hối lộ 2,1 tỉ, cựu chủ tịch tỉnh nhận 4,2 tỉ.
+- Thái Lan là nơi điển hình về bảo tồn sếu bởi đã nuôi thả thành công, có thể nói "ban đầu người nuôi sếu, sau này sếu sẽ nuôi người" gắn với phát triển sinh kế, du lịch địa phương. Đó là ý kiến của đa số nhà tài trợ đề án bảo tồn sếu đầu đỏ.
 ![New](News.png)
 ## Nhịp sống số 
 - Whisper, công cụ AI chuyển lời nói thành văn bản của OpenAI - đã tạo ra các đoạn văn bản và những câu hoàn toàn không có thật.
