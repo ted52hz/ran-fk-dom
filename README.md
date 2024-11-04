@@ -1,6 +1,7 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Ngôi sao nhạc kịch người Úc Philip Quast cho biết ông yêu cầu các bạn trẻ khi tham gia các buổi huấn luyện về nghệ thuật do ông giảng dạy tại Việt Nam không sử dụng điện thoại.
 - Bảo đảm ngân sách nhà nước chi cho giáo dục, đào tạo tối thiểu 20% tổng chi ngân sách, từng bước đưa tiếng Anh trở thành ngôn ngữ thứ hai và đào tạo ngoại ngữ khác theo nhu cầu.
 - Ban tổ chức ngày hội STEM quận Tân Phú, TP.HCM đã bất ngờ với những sản phẩm sáng tạo từ AI của học sinh trong nội dung 'sáng tác truyện tranh bằng AI'.
 - Chương trình đào tạo về 'Cấy ghép Implant Nha khoa All-on-X & GBR' do Công ty Dentium kết hợp cùng Đại học (ĐH) Harvard và ĐH Duy Tân đã được tổ chức từ ngày 19 - 20-10.
@@ -30,41 +31,41 @@
 - Hình ảnh học sinh lớp 11/10, Trường THPT Trần Phú, Đà Nẵng “giao nộp” điện thoại lên kệ vào đầu giờ học khiến cộng đồng mạng rần rần cổ vũ.
 - Trường THPT Tô Hiến Thành phải tổ chức xin lỗi phụ huynh học sinh về những sai phạm trong việc tuyển sinh 174 học sinh lớp 10 khi chưa được sự cho phép của Sở Giáo dục và Đào tạo Hà Nội.
 - Mẹ của cháu bé tự kỷ bị bảo mẫu trung tâm Cầu Vồng (TP Đà Nẵng) bạo hành không đồng tình với kết luận điều tra của Công an quận Sơn Trà.
-- Đề thi môn văn vốn thường bị dư luận than phiền là lối mòn, cũ kỹ, rập khuôn. Việc ra đề thi bắt trend là hướng đi mới, nhưng cần cẩn trọng.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Bệnh dại gia tăng khiến chủ tịch tỉnh Quảng Nam yêu cầu người đứng đầu các địa phương phải chịu trách nhiệm.
+- Theo cơ quan khí tượng Nhật Bản, ngoài khơi Philippines vừa hình thành bão Yinxing, hướng di chuyển cho thấy bão có thể đi vào Biển Đông.
+- Hôm nay 4-11, thời tiết các tỉnh miền Trung vẫn duy trì mưa to đến rất to, miền Bắc chuyển rét, miền Nam mưa dông chiều tối.
+- Một số tin tức đáng chú ý: Lần đầu Việt Nam có ngân hàng nắm khối tài sản trên 100 tỉ USD; Đại gia dầu khí bị 'cuốn' nghìn tỉ lợi nhuận; Hết năm 2024, cả nước có 243km đường ven biển...
+- Hàng chục quái xế phóng xe máy tốc độ cao trên đường phố Hà Nội. Tới ngã tư Trần Hưng Đạo - Bà Triệu, nhóm này tông trúng người phụ nữ dừng đèn đỏ khiến nạn nhân tử vong.
+- Cơ quan cảnh sát điều tra cáo buộc trong vụ án Sài Gòn Đại Ninh, số tiền 2.700 tỉ đồng đại gia Nguyễn Cao Trí nhận của Tập đoàn Novaland là thu lợi bất chính từ hành vi vi phạm pháp luật, nên đề nghị sung công quỹ nhà nước.
+- Ngày 3-11, Tổng công ty Điện lực miền Nam đã kiểm tra tiến độ thi công trạm biến áp 110kV sân bay Long Thành và đường dây kết nối phục vụ sân bay.
+- Theo thông báo từ Bộ Ngoại giao, Thủ tướng Phạm Minh Chính sẽ tới Trung Quốc tham dự Hội nghị Thượng đỉnh Hợp tác tiểu vùng Mekong mở rộng lần thứ 8.
+- Thay thế kịp thời những cán bộ, công chức, viên chức yếu kém về năng lực, sợ sai, sợ trách nhiệm, đùn đẩy, né tránh liên quan đến giải ngân vốn đầu tư công.
+- Gần 164.000 doanh nghiệp rút khỏi thị trường trong 9 tháng đầu năm 2024, đại biểu Quốc hội đề nghị phân tích, làm rõ tình hình.
+- Ngày 31-10, tại Học viện Chính trị quốc gia Hồ Chí Minh, Giáo sư, Tiến sĩ Tô Lâm, Tổng Bí thư Ban Chấp hành Trung ương Đảng Cộng sản Việt Nam, đã có buổi trao đổi một số nội dung về kỷ nguyên mới, kỷ nguyên vươn mình của dân tộc.
+- Dự báo từ chiều nay đến 5-11, ở các tỉnh, thành từ Hà Tĩnh đến Quảng Ngãi có mưa lớn diện rộng, có nơi trên 400mm và mưa to còn kéo dài nhiều ngày sau đó.
+- Ngày 29-10, Ban cưỡng chế huyện Cần Đước đã thực hiện kiểm đếm 17 hộ dân, ngày 30-10 kiểm đếm 9 hộ dân và ngày 31-10 kiểm đếm 17 hộ dân.
+- Phó chủ tịch Quốc hội Nguyễn Đức Hải nêu rõ Ủy ban Thường vụ Quốc hội thống nhất trình Quốc hội xem xét, quyết định việc thí điểm.
+- Mỗi lần có mưa bão là trên TikTok, Facebook… xuất hiện những “nhà khí tượng học online” livestream, đăng thông tin cảnh báo thời tiết.
+- Sáng 3-11, Tổng cục II (Bộ Quốc phòng) đã tổ chức Hội nghị bàn giao chức trách, nhiệm vụ tổng cục trưởng Tổng cục II.
+- Một người đàn ông dùng ô tô chở 158kg pháo nổ các loại từ Campuchia dự tính về Đồng Nai tiêu thụ bị bắt giữ ở gần biên giới Tây Ninh.
+- Nam thanh niên không được tỉnh táo cầm súng nhựa chặn xe, dọa người đi đường ở quận Bình Tân, TP.HCM.
+- Nhà thầu Sơn Hải gắn hàng chữ "Vào đường Sơn Hải bảo hành 10 năm” trên biển báo ở cao tốc Nghi Sơn - Diễn Châu là không đúng quy định.
+- Bộ Công an đề xuất phạt 20 - 30 triệu đồng với hành vi kiểm soát tài sản, thu nhập của thành viên gia đình nhằm tạo lệ thuộc về mặt vật chất, tinh thần.
+- Từ ngày 3 đến 9-11, Bắc Bộ lạnh đến rét vì các đợt không khí lạnh. Thời tiết Trung Bộ mưa to dài ngày, Nam Bộ mưa rào về chiều tối.
+- Đó là ý kiến của ông Lê Hữu Nghĩa (tổng giám đốc Công ty Lê Thành) về vấn đề nhà ở xã hội.
+- Ngày 3-11, Công an tỉnh Đồng Nai đã triển khai lực lượng “đột kích” các lò độ chế xe máy trái phép, phát hiện hàng loạt sai phạm.
+- Các tỉnh thành vừa lấy ý kiến hoặc ban hành mức giá cho thuê nhà ở xã hội.
+- Trong tuần qua báo Tuổi Trẻ tiếp tục nhận rất nhiều thông tin của bạn đọc phản ánh và Tuổi Trẻ đã nhanh chóng phản hồi.
 - Temu có nguy cơ bị chịu mức phạt lên tới 6% doanh thu toàn cầu hằng năm của nền tảng này sau khi Liên minh châu Âu (EU) mở cuộc điều tra.
 - Nhiều người có các khoản thu nhập vãng lai nhỏ nhận thông báo yêu cầu kê khai thuế bổ sung và truy thu, phạt, tính tiền chậm nộp số tiền khủng.
 - Xe tải và xe container xảy ra va chạm trên quốc lộ 22, huyện Củ Chi (TP.HCM), khiến hai vợ chồng kẹt cứng trong cabin, người dân hỗ trợ dùng dây cáp kéo giãn cabin, cứu người bị nạn.
 - Gia đình hiếm muộn được hoàn tiền nếu thụ tinh ống nghiệm không thành công; Người mua vàng gặp khó, "chợ mạng" sôi nổi.
 - Hôm nay 3-11, không khí lạnh ảnh hưởng nhiều nơi ở Bắc Bộ. Trung Bộ mưa to đến rất to, còn Nam Bộ thời tiết có lúc mưa rào.
-- Đoạn clip ghi cảnh tài xế xe buýt vừa lái xe vừa bấm điện thoại trên đường Lý Thường Kiệt khiến nhiều người bức xúc.
-- Chủ tịch Quốc hội Cuba Esteban Lazo Hernández trân trọng cảm ơn sự hỗ trợ, đồng thời cho biết Cuba rất quan tâm trao đổi và học hỏi các kinh nghiệm phong phú của Việt Nam.
-- Căn hộ ở tầng cao block A3 chung cư The Era Town Đức Khải, phường Phú Mỹ, quận 7, TP.HCM bốc cháy tối 2-11.
-- Cơn mưa cực lớn và kéo dài đúng lúc có triều cường nên nhiều tuyến đường ở thành phố Bạc Liêu (tỉnh Bạc Liêu) ngập nặng. Có nơi lượng mưa đo được hơn 221mm.
-- Do ảnh hưởng của không khí lạnh và gió đông nên từ sáng mai 3-11, ở miền Trung có mưa lớn trên diện rộng, nguy cơ cao xảy ra ngập lụt ở đô thị các tỉnh từ Hà Tĩnh đến Quảng Ngãi.
-- Lực lượng chức năng TP Cam Ranh (tỉnh Khánh Hòa) vẫn đang tiến hành thu thập thông tin để xác định danh tính 1 hài cốt liệt sĩ được tìm thấy ở nương rẫy trên địa bàn thành phố này.
-- Chủ tịch Quốc hội Cuba Esteban Lazo Hernandez đã bày tỏ điều này trong cuộc hội đàm với Chủ tịch Quốc hội Trần Thanh Mẫn tại Hà Nội ngày 2-11.
-- Đoạn đường sắt qua đèo Hải Vân đã chính thức thông đường sau sự cố tàu hàng bị trật bánh khi qua đèo ở Đà Nẵng.
-- Ngày 2-11, Ủy ban Kiểm tra Tỉnh ủy Đồng Nai đã phát đi thông báo về việc kiểm tra, giám sát và đề nghị kỷ luật một số tổ chức Đảng, đảng viên trên địa bàn.
-- Thành viên đoàn công tác Ủy ban Kinh tế của Quốc hội đồng tình kiến nghị đầu tư xây sớm đường băng thứ hai thuộc dự án sân bay Long Thành.
-- Một thi thể đang trong trạng thái phân hủy trong thùng container trên khu đất trống ở xã Phước Đồng, TP Nha Trang (Khánh Hòa) được người dân phát hiện.
-- Diễn đàn Trinity Forum 2024, sự kiện quốc tế hàng đầu trong lĩnh vực hàng không và bán lẻ du lịch, diễn ra tại TP.HCM từ ngày 5 đến 6-11, quy tụ hàng loạt thương hiệu lớn L'Oréal, Qatar Airways, Mondelēz, Diageo, Dubai Duty Free, China Duty Free...
-- Văn phòng đăng ký đất đai TP.HCM cho rằng đã đề nghị cấp sổ hồng cho gia đình ông Bùi Mộc từ tháng 5-2023, việc cấp sổ còn lại thuộc thẩm quyền của UBND quận Tân Bình.
-- Dự án di dời nghĩa trang Bình Hưng Hòa gần như hoàn tất công tác bốc mộ ở 2 giai đoạn đầu, bắt đầu giai đoạn 3.
-- Cuộc thi thiết kế cầu vượt biển vịnh Rạch Giá được quy định ngay từ đầu là cao không quá 45m. Thế nhưng có một đơn vị thiết kế cầu cao đến 78m.
-- Trong vụ án xảy ra ở dự án khu đô thị du lịch biển Phan Thiết, Cơ quan cảnh sát điều tra Bộ Công an đã kết luận 2 nội dung vi phạm chính.
-- Nội dung kiểm tra, xác minh, xử lý cần được gởi về Sở Thông tin và Truyền thông trước ngày 8-11 để báo cáo UBND tỉnh Khánh Hòa.
-- Sở Giao thông vận tải TP.HCM đề xuất tháo dỡ cầu sắt cũ Long Kiểng 50 tuổi, xuống cấp nghiêm trọng để đảm bảo an toàn, đỡ tốn phí quản lý.
-- Tàu cá Phú Yên bị đứt neo trôi dạt từ TP Tuy Hòa về phía bãi biển thị xã Đông Hòa, tỉnh Phú Yên. Công việc cứu hộ rất khó khăn do thời tiết bất lợi, sóng rất lớn.
-- PGS.TS Nguyễn Thị Kim Tiến cho biết Việt Nam đang đứng đầu các nước Đông Nam Á về ghép tạng với hơn 1.000 ca mỗi năm.
-- Trong 10 tháng đầu năm 2024, trên địa bàn TP.HCM đã xảy ra 1.235 vụ tai nạn giao thông làm 384 người chết và 765 người bị thương.
-- Chiều 2-11, tại Khánh Hòa diễn ra hội nghị công bố, trao quyết định của Bộ Chính trị điều động, chỉ định ông Nghiêm Xuân Thành - ủy viên Trung ương Đảng, bí thư Tỉnh ủy Hậu Giang - giữ chức bí thư Tỉnh ủy Khánh Hòa.
-- Khu quản lý đường bộ II cho rằng biển báo trên cao tốc Nghi Sơn - Diễn Châu là của Nhà nước, nên chỉ đạo xóa chữ không có trong thiết kế. Nhưng Tập đoàn Sơn Hải vẫn khẳng định đây là tài sản doanh nghiệp.
-- Kết luận điều tra xác định cựu bộ trưởng, chủ nhiệm Văn phòng Chính phủ Mai Tiến Dũng nhận 200 triệu “cảm ơn” từ đại gia Nguyễn Cao Trí. Cựu bí thư Lâm Đồng Trần Đức Quận nhận hối lộ 2,1 tỉ, cựu chủ tịch tỉnh nhận 4,2 tỉ.
-- Thái Lan là nơi điển hình về bảo tồn sếu bởi đã nuôi thả thành công, có thể nói "ban đầu người nuôi sếu, sau này sếu sẽ nuôi người" gắn với phát triển sinh kế, du lịch địa phương. Đó là ý kiến của đa số nhà tài trợ đề án bảo tồn sếu đầu đỏ.
 ![New](News.png)
 ## Nhịp sống số 
+- Dù liên tục được nhà mạng tăng thêm trạm phát sóng nhưng mật độ vẫn còn rất thấp, do đó tình trạng tốc độ 5G phập phù vẫn diễn ra ở nhiều nơi, người dùng nên cân nhắc khi mua gói cước 5G.
 - Whisper, công cụ AI chuyển lời nói thành văn bản của OpenAI - đã tạo ra các đoạn văn bản và những câu hoàn toàn không có thật.
 - Ngày 29-10, Cơ quan tư pháp Liên minh châu Âu (Eurojust) thông báo một chiến dịch toàn cầu đã giúp triệt phá các máy chủ của infostealers - một trong những nền tảng mã độc lớn nhất thế giới.
 - Hiện tại, Google có khả năng dịch hơn 94 ngôn ngữ trên toàn cầu sang 25 ngôn ngữ bản địa châu Phi.
@@ -94,5 +95,4 @@
 - Mô hình o1 của OpenAI được nói là sẽ 'suy nghĩ' trước khi trả lời, có thể giải quyết các vấn đề khó hơn về khoa học, toán học hay lập trình.
 - Cục Viễn thông đang đề xuất lùi thời gian tắt sóng 2G, để các nhà mạng có thêm thời gian hỗ trợ 3,4 triệu khách hàng chuyển đổi từ thuê 2G lên 4G.
 - Ban tổ chức cho biết sự kiện nhằm ghi nhận, vinh danh và ủng hộ những đóng góp cũng như tài năng đội ngũ sáng tạo nội dung số tại Việt Nam.
-- Quyết định rút khỏi thị trường Việt Nam của Gojek để lại nhiều tiếc nuối cho các đối tác tài xế, nhà hàng và người dùng, những người đã đồng hành cùng hãng xe công nghệ thời gian qua.
 ![life](Life.png)
