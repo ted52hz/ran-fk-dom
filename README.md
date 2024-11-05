@@ -1,6 +1,13 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Sáng 5-11, phụ huynh quận Hải Châu, Liên Chiểu chuẩn bị đưa con đến trường thì nhận được thông báo nghỉ học.
+- Ngày 4-11, Sở Giáo dục và Đào tạo TP.HCM công bố danh sách 50 giáo viên, cán bộ quản lý nhận Giải thưởng Võ Trường Toản lần thứ 27 năm 2024.
+- Hội đồng Giáo sư nhà nước vừa công bố danh sách 615 ứng viên được công nhận đạt tiêu chuẩn chức danh giáo sư, phó giáo sư năm 2024.
+- Một nghiên cứu ở 38 quốc gia cho thấy 1/3 nhà nghiên cứu bỏ khoa học trong vòng 5 năm sau khi công bố bài báo đầu tiên.
+- Trường tiểu học Tân Sơn Nhì và Trường tiểu học Lê Đức Thọ là hai trường ở vùng ven nhưng cơ sở vật chất không thua gì trường quốc tế.
+- Sư Sikruadong Phra Phalek tiếp tục chinh phục chương trình cử nhân và chuẩn bị hoàn thành chương trình cao học.
+- Tổ chức đại học Pháp ngữ và Trường đại học Y khoa Phạm Ngọc Thạch ký kết hợp tác phát triển Không gian hợp tác đại học Pháp ngữ tại TP.HCM.
 - Ngôi sao nhạc kịch người Úc Philip Quast cho biết ông yêu cầu các bạn trẻ khi tham gia các buổi huấn luyện về nghệ thuật do ông giảng dạy tại Việt Nam không sử dụng điện thoại.
 - Bảo đảm ngân sách nhà nước chi cho giáo dục, đào tạo tối thiểu 20% tổng chi ngân sách, từng bước đưa tiếng Anh trở thành ngôn ngữ thứ hai và đào tạo ngoại ngữ khác theo nhu cầu.
 - Ban tổ chức ngày hội STEM quận Tân Phú, TP.HCM đã bất ngờ với những sản phẩm sáng tạo từ AI của học sinh trong nội dung 'sáng tác truyện tranh bằng AI'.
@@ -22,47 +29,40 @@
 - TP.HCM đang xây dựng mạng lưới thành phố học tập toàn cầu theo bộ tiêu chí của UNESCO.
 - Nhiều bạn đọc bày tỏ ý kiến trái chiều về việc Trường mầm non 14 (quận Tân Bình, TP.HCM) mua thực phẩm giá cao hơn siêu thị.
 - Bộ Giáo dục và Đào tạo sẽ ban hành trong quy chế tuyển sinh quy định cụ thể về mặt quản lý nhà nước để bảo đảm kiểm tra, giám sát được chất lượng các kỳ thi đánh giá năng lực, đánh giá tư duy.
-- VPBank vừa công bố chương trình học bổng ‘Thắp sáng tài năng’ năm 2024, tìm kiếm 150 sinh viên giỏi, tài năng để trao học bổng với tổng số tiền lên đến 1,9 tỉ đồng.
+- Theo đuổi chiến lược Home of Talents, hằng năm, VPBank đều triển khai chương trình học bổng ý nghĩa nhằm chắp cánh tài năng trẻ phát huy được năng lực trở thành nhà lãnh đạo tài ba, đóng góp vào sự phát triển và tăng trưởng bền vững của ngân hàng.
 - Biết tin thầy hiệu trưởng nghỉ hưu, 1.400 học sinh Trường THPT Phan Chu Trinh (xã Ea Ral, Ea Hleo, tỉnh Đắk Lắk) tổ chức lễ chia tay ngay tại sân trường.
-- Trường đại học Sư phạm TP.HCM dự kiến bỏ phương thức xét tuyển điểm học bạ, trong khi Trường đại học Công Thương TP.HCM giảm chỉ tiêu cho phương thức này.
-- Trường đại học Fulbright Việt Nam cho biết đã nhận giấy phép xây dựng cho giai đoạn 1 tại Khu công nghệ cao TP.HCM vào ngày 28-10-2024.
-- Có hai luồng ý kiến trước thời gian nghỉ Tết 9 ngày năm nay của học sinh TP.HCM, trong khi năm ngoái là 16 ngày.
-- Công ty TNHH rau quả thực phẩm Phú Hưng, đơn vị cung cấp thực phẩm cho Trường mầm non 14 (Tân Bình), giải thích về giá thực phẩm cung cấp cho trường.
-- Hình ảnh học sinh lớp 11/10, Trường THPT Trần Phú, Đà Nẵng “giao nộp” điện thoại lên kệ vào đầu giờ học khiến cộng đồng mạng rần rần cổ vũ.
-- Trường THPT Tô Hiến Thành phải tổ chức xin lỗi phụ huynh học sinh về những sai phạm trong việc tuyển sinh 174 học sinh lớp 10 khi chưa được sự cho phép của Sở Giáo dục và Đào tạo Hà Nội.
-- Mẹ của cháu bé tự kỷ bị bảo mẫu trung tâm Cầu Vồng (TP Đà Nẵng) bạo hành không đồng tình với kết luận điều tra của Công an quận Sơn Trà.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Bệnh dại gia tăng khiến chủ tịch tỉnh Quảng Nam yêu cầu người đứng đầu các địa phương phải chịu trách nhiệm.
-- Theo cơ quan khí tượng Nhật Bản, ngoài khơi Philippines vừa hình thành bão Yinxing, hướng di chuyển cho thấy bão có thể đi vào Biển Đông.
-- Hôm nay 4-11, thời tiết các tỉnh miền Trung vẫn duy trì mưa to đến rất to, miền Bắc chuyển rét, miền Nam mưa dông chiều tối.
-- Một số tin tức đáng chú ý: Lần đầu Việt Nam có ngân hàng nắm khối tài sản trên 100 tỉ USD; Đại gia dầu khí bị 'cuốn' nghìn tỉ lợi nhuận; Hết năm 2024, cả nước có 243km đường ven biển...
-- Hàng chục quái xế phóng xe máy tốc độ cao trên đường phố Hà Nội. Tới ngã tư Trần Hưng Đạo - Bà Triệu, nhóm này tông trúng người phụ nữ dừng đèn đỏ khiến nạn nhân tử vong.
-- Cơ quan cảnh sát điều tra cáo buộc trong vụ án Sài Gòn Đại Ninh, số tiền 2.700 tỉ đồng đại gia Nguyễn Cao Trí nhận của Tập đoàn Novaland là thu lợi bất chính từ hành vi vi phạm pháp luật, nên đề nghị sung công quỹ nhà nước.
-- Ngày 3-11, Tổng công ty Điện lực miền Nam đã kiểm tra tiến độ thi công trạm biến áp 110kV sân bay Long Thành và đường dây kết nối phục vụ sân bay.
-- Theo thông báo từ Bộ Ngoại giao, Thủ tướng Phạm Minh Chính sẽ tới Trung Quốc tham dự Hội nghị Thượng đỉnh Hợp tác tiểu vùng Mekong mở rộng lần thứ 8.
-- Thay thế kịp thời những cán bộ, công chức, viên chức yếu kém về năng lực, sợ sai, sợ trách nhiệm, đùn đẩy, né tránh liên quan đến giải ngân vốn đầu tư công.
-- Gần 164.000 doanh nghiệp rút khỏi thị trường trong 9 tháng đầu năm 2024, đại biểu Quốc hội đề nghị phân tích, làm rõ tình hình.
-- Ngày 31-10, tại Học viện Chính trị quốc gia Hồ Chí Minh, Giáo sư, Tiến sĩ Tô Lâm, Tổng Bí thư Ban Chấp hành Trung ương Đảng Cộng sản Việt Nam, đã có buổi trao đổi một số nội dung về kỷ nguyên mới, kỷ nguyên vươn mình của dân tộc.
-- Dự báo từ chiều nay đến 5-11, ở các tỉnh, thành từ Hà Tĩnh đến Quảng Ngãi có mưa lớn diện rộng, có nơi trên 400mm và mưa to còn kéo dài nhiều ngày sau đó.
-- Ngày 29-10, Ban cưỡng chế huyện Cần Đước đã thực hiện kiểm đếm 17 hộ dân, ngày 30-10 kiểm đếm 9 hộ dân và ngày 31-10 kiểm đếm 17 hộ dân.
-- Phó chủ tịch Quốc hội Nguyễn Đức Hải nêu rõ Ủy ban Thường vụ Quốc hội thống nhất trình Quốc hội xem xét, quyết định việc thí điểm.
-- Mỗi lần có mưa bão là trên TikTok, Facebook… xuất hiện những “nhà khí tượng học online” livestream, đăng thông tin cảnh báo thời tiết.
-- Sáng 3-11, Tổng cục II (Bộ Quốc phòng) đã tổ chức Hội nghị bàn giao chức trách, nhiệm vụ tổng cục trưởng Tổng cục II.
-- Một người đàn ông dùng ô tô chở 158kg pháo nổ các loại từ Campuchia dự tính về Đồng Nai tiêu thụ bị bắt giữ ở gần biên giới Tây Ninh.
-- Nam thanh niên không được tỉnh táo cầm súng nhựa chặn xe, dọa người đi đường ở quận Bình Tân, TP.HCM.
-- Nhà thầu Sơn Hải gắn hàng chữ "Vào đường Sơn Hải bảo hành 10 năm” trên biển báo ở cao tốc Nghi Sơn - Diễn Châu là không đúng quy định.
-- Bộ Công an đề xuất phạt 20 - 30 triệu đồng với hành vi kiểm soát tài sản, thu nhập của thành viên gia đình nhằm tạo lệ thuộc về mặt vật chất, tinh thần.
-- Từ ngày 3 đến 9-11, Bắc Bộ lạnh đến rét vì các đợt không khí lạnh. Thời tiết Trung Bộ mưa to dài ngày, Nam Bộ mưa rào về chiều tối.
-- Đó là ý kiến của ông Lê Hữu Nghĩa (tổng giám đốc Công ty Lê Thành) về vấn đề nhà ở xã hội.
-- Ngày 3-11, Công an tỉnh Đồng Nai đã triển khai lực lượng “đột kích” các lò độ chế xe máy trái phép, phát hiện hàng loạt sai phạm.
-- Các tỉnh thành vừa lấy ý kiến hoặc ban hành mức giá cho thuê nhà ở xã hội.
-- Trong tuần qua báo Tuổi Trẻ tiếp tục nhận rất nhiều thông tin của bạn đọc phản ánh và Tuổi Trẻ đã nhanh chóng phản hồi.
-- Temu có nguy cơ bị chịu mức phạt lên tới 6% doanh thu toàn cầu hằng năm của nền tảng này sau khi Liên minh châu Âu (EU) mở cuộc điều tra.
-- Nhiều người có các khoản thu nhập vãng lai nhỏ nhận thông báo yêu cầu kê khai thuế bổ sung và truy thu, phạt, tính tiền chậm nộp số tiền khủng.
-- Xe tải và xe container xảy ra va chạm trên quốc lộ 22, huyện Củ Chi (TP.HCM), khiến hai vợ chồng kẹt cứng trong cabin, người dân hỗ trợ dùng dây cáp kéo giãn cabin, cứu người bị nạn.
-- Gia đình hiếm muộn được hoàn tiền nếu thụ tinh ống nghiệm không thành công; Người mua vàng gặp khó, "chợ mạng" sôi nổi.
-- Hôm nay 3-11, không khí lạnh ảnh hưởng nhiều nơi ở Bắc Bộ. Trung Bộ mưa to đến rất to, còn Nam Bộ thời tiết có lúc mưa rào.
+- Công an tỉnh Quảng Nam kiểm tra, phát hiện mẫu nước thải tại vị trí xả thải thuộc Bệnh viện Đa khoa Thái Bình Dương - Tam Kỳ có hai thông số vượt, trong đó coliforms vượt 480 lần.
+- Rạng sáng nay Đà Nẵng đã đón đợt mưa rất to kéo dài suốt 6 tiếng. Đây là cơn mưa lớn đầu tiên trong đợt mưa lớn được dự báo quét qua miền Trung từ ngày 3 đến 10-11.
+- Văn phòng UBND TP.HCM có văn bản truyền đạt chỉ đạo của Phó chủ tịch Bùi Xuân Cường đến các sở ngành về dự án ngăn triều 10.000 tỉ đồng.
+- 7h55 sáng 5-11, Thủ tướng Phạm Minh Chính cùng đoàn đại biểu cấp cao đã rời sân bay Nội Bài lên đường đi Trung Quốc tham dự Hội nghị Tiểu vùng sông Mekong mở rộng (GMS).
+- Trận mưa kéo dài từ khuya đến tảng sáng nay ở TP Đà Nẵng đã khiến nhiều khu vực trũng thấp ngập sâu. Xe cộ, người dân đi làm đầu ngày không kịp trở tay vì nước lên quá nhanh.
+- Căn nhà 2 tầng ở thị xã Sơn Tây (Hà Nội) đổ sập hoàn toàn vào tối 4-11. Sự cố xảy ra do nhà bên cạnh đang thi công đào móng, gây sạt lở.
+- Sáng 5-11, phụ huynh quận Hải Châu, Liên Chiểu chuẩn bị đưa con đến trường thì nhận được thông báo nghỉ học.
+- Thời tiết ở Đà Nẵng mưa xối xả, nhiều nơi đang bị ngập cục bộ. Một số trường đã thông báo cho học sinh nghỉ học.
+- Dự báo của Nhật, Hong Kong, Philippines đều nhận định bão Yinxing tiếp tục tăng cấp trong những ngày tới và có khả năng vào Biển Đông, trở thành cơn bão số 7 trong năm nay.
+- Tin tức đáng chú ý: Cơ cấu lại kinh tế vùng Đông Nam Bộ theo hướng hiện đại; Gia hạn thẻ bảo hiểm từ 1-1-2025 thế nào?; Chi phí điều trị các bệnh do thuốc lá gấp 5 lần thuế thuốc lá...
+- Hôm nay 5-11, không khí lạnh đã tác động hầu hết Bắc Bộ, trời lạnh đến rét. Trung Bộ thời tiết vẫn mưa, có nơi mưa rất to.
+- Phụ huynh giật mình vì đã từng xuê xoa, chiều con, cho con đua đòi chạy xe máy đi chơi. Cũng có người giật mình lo sợ khi để con tự đi xe máy vào buổi tối.
+- Thêm 7 cơ quan của tỉnh Khánh Hòa và TP Nha Trang kiểm tra, thống nhất hòn đá nằm cao 30m trên núi Cù Hin có nguy cơ sạt lở, lăn xuống đường gây mất an toàn cho người và xe cộ, nhưng vẫn còn để nguyên.
+- Dự kiến, siêu đề án thực hiện mục tiêu di dời toàn bộ nhà trên và ven kênh rạch của TP.HCM sẽ được thí điểm thực hiện tại quận 8.
+- Bà Nguyễn Hải Trâm - phó viện trưởng thường trực Viện Kiểm sát nhân dân tối cao - giữ chức phó bí thư thường trực Tỉnh ủy Tiền Giang nhiệm kỳ 2020-2025.
+- Trung tâm Phát triển quỹ đất huyện Hoài Đức đưa ra đấu giá 20 lô đất, giá khởi điểm 7,3 triệu đồng/m², kết quả có lô trúng cao nhất 103 triệu đồng/m².
+- Một thai phụ tại TP Thủ Đức phải nhập viện, phẫu thuật vì tình trạng quá kích buồng trứng ở mức độ trầm trọng rất hiếm thấy.
+- Sau thiệt hại nặng nề của bão số 3 (bão Yagi), Bộ trưởng Lê Minh Hoan cho biết cần nhận dạng và nâng cấp tư duy về thảm họa thiên tai ở cấp độ cao hơn.
+- Bộ Công an đã gửi thư khen các đơn vị đã triệt phá đường dây sử dụng không gian mạng hoạt động mua bán trái phép ma túy quy mô lớn.
+- UBND TP.HCM vừa ban hành quyết định số 101 quy định khu vực trên địa bàn TP có đường giao thông rộng tối thiểu 3,5m mới được xây 'chung cư mini'.
+- Theo UBND phường Trung Mỹ Tây (quận 12, TP.HCM), chủ cơ sở đồ gỗ nơi gây ra tiếng ồn, bụi và mùi hôi đã làm bản cam kết chuyển cơ sở đi nơi khác.
+- Bộ trưởng Bộ Giáo dục và Đào tạo đề nghị các đại biểu Quốc hội chỉ rõ nhóm lợi ích bất hợp pháp về sách giáo khoa để phối hợp 'bắt mang đi tiếp'.
+- Vụ tai nạn khi xe ben tông liên hoàn vào các xe đang dừng chờ đèn đỏ tại Bình Dương khiến 1 người chết, 1 người bị thương.
+- Ông Đặng An Thanh - phó chánh án TAND tỉnh Bình Dương - được điều động, bổ nhiệm làm chánh án TAND tỉnh Bình Phước.
+- Phó bí thư thường trực Thành ủy TP.HCM Nguyễn Hồ Hải đã trao huy hiệu 60 năm tuổi Đảng cho bà Trần Thị Minh Hoàng, nguyên bí thư Tỉnh ủy Đồng Nai.
+- Thực hiện việc sáp nhập đơn vị hành chính cấp huyện, xã giai đoạn 2023-2025, tỉnh Nghệ An sẽ có 5 thị trấn mới sau sáp nhập.
+- Đại biểu Quốc hội Vũ Trọng Kim (Nam Định) cho hay có bộ trưởng nói với ông rằng nếu 'bộ tôi giảm 30-40% biên chế chẳng hề hấn gì'.
+- Lực lượng chức năng địa phương đang điều tra ai là người đứng sau nhóm người chạy ca nô quăng rác thải sinh hoạt xuống biển Phú Quốc.
+- Việt Nam là nước sản xuất cà phê hàng đầu thế giới, nhưng giá cả hiện do các sàn giao dịch nước ngoài quyết định.
+- Thanh tra tỉnh Đồng Nai vừa ban hành các quyết định thanh tra trách nhiệm nguyên chủ tịch huyện Nhơn Trạch và huyện Trảng Bom.
 ![New](News.png)
 ## Nhịp sống số 
 - Dù liên tục được nhà mạng tăng thêm trạm phát sóng nhưng mật độ vẫn còn rất thấp, do đó tình trạng tốc độ 5G phập phù vẫn diễn ra ở nhiều nơi, người dùng nên cân nhắc khi mua gói cước 5G.
