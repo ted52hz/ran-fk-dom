@@ -1,70 +1,43 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
-- Sáng 5-11, phụ huynh quận Hải Châu, Liên Chiểu chuẩn bị đưa con đến trường thì nhận được thông báo nghỉ học.
-- Ngày 4-11, Sở Giáo dục và Đào tạo TP.HCM công bố danh sách 50 giáo viên, cán bộ quản lý nhận Giải thưởng Võ Trường Toản lần thứ 27 năm 2024.
-- Hội đồng Giáo sư nhà nước vừa công bố danh sách 615 ứng viên được công nhận đạt tiêu chuẩn chức danh giáo sư, phó giáo sư năm 2024.
-- Một nghiên cứu ở 38 quốc gia cho thấy 1/3 nhà nghiên cứu bỏ khoa học trong vòng 5 năm sau khi công bố bài báo đầu tiên.
-- Trường tiểu học Tân Sơn Nhì và Trường tiểu học Lê Đức Thọ là hai trường ở vùng ven nhưng cơ sở vật chất không thua gì trường quốc tế.
-- Sư Sikruadong Phra Phalek tiếp tục chinh phục chương trình cử nhân và chuẩn bị hoàn thành chương trình cao học.
-- Tổ chức đại học Pháp ngữ và Trường đại học Y khoa Phạm Ngọc Thạch ký kết hợp tác phát triển Không gian hợp tác đại học Pháp ngữ tại TP.HCM.
-- Ngôi sao nhạc kịch người Úc Philip Quast cho biết ông yêu cầu các bạn trẻ khi tham gia các buổi huấn luyện về nghệ thuật do ông giảng dạy tại Việt Nam không sử dụng điện thoại.
-- Bảo đảm ngân sách nhà nước chi cho giáo dục, đào tạo tối thiểu 20% tổng chi ngân sách, từng bước đưa tiếng Anh trở thành ngôn ngữ thứ hai và đào tạo ngoại ngữ khác theo nhu cầu.
-- Ban tổ chức ngày hội STEM quận Tân Phú, TP.HCM đã bất ngờ với những sản phẩm sáng tạo từ AI của học sinh trong nội dung 'sáng tác truyện tranh bằng AI'.
-- Chương trình đào tạo về 'Cấy ghép Implant Nha khoa All-on-X & GBR' do Công ty Dentium kết hợp cùng Đại học (ĐH) Harvard và ĐH Duy Tân đã được tổ chức từ ngày 19 - 20-10.
-- Vấn nạn 'tiến sĩ dỏm' là câu chuyện nhức nhối, đang thu hút sự quan tâm mạnh mẽ của dư luận.
-- Trong năm 2025, kỳ thi đánh giá tư duy của Đại học Bách khoa Hà Nội (TSA) dự kiến tổ chức trong 3 đợt thi vào các ngày cuối tuần.
-- Nhiều người có tên trong danh sách giảng viên cơ hữu toàn thời gian của các trường đại học tại Việt Nam nhưng đang sinh sống và làm việc ở nước ngoài nhiều năm qua.
-- Giám đốc dự án khu vực châu Á - Thái Bình Dương - Trung Đông Google for Education khẳng định như vậy tại buổi làm việc với Phó chủ tịch UBND TP.HCM.
-- HĐND tỉnh Bắc Ninh dự kiến kinh phí hơn 215 tỉ đồng để hỗ trợ hợp đồng lao động giáo viên, nhân viên nấu ăn… năm học 2024 - 2025.
-- Giám đốc Đại học Huế đã đưa ra khẳng định như trên. Việc thu học phí rẻ khiến câu chuyện tái đầu tư cho cơ sở hạ tầng để đạt tiêu chí đại học quốc gia gặp khó khăn.
-- Theo PGS.TS Bùi Anh Tuấn, hiệu trưởng Trường đại học Ngoại thương, các chi nhánh quốc tế (IBCs) đóng vai trò là cầu nối quan trọng, giúp sinh viên được tiếp cận với nền giáo dục quốc tế chất lượng cao mà không cần phải rời khỏi quê hương của mình.
-- Năm 2025, Trường đại học Sư phạm TP.HCM vừa công bố thay đổi hàng loạt nội dung quan trọng trong đề án tuyển sinh đại học năm 2025.
-- Rà soát lại hoạt động của ban đại diện cha mẹ học sinh; xử lý hiệu trưởng nếu thu chi không đúng quy định…
-- Trường quốc tế AISVN bất ngờ thông báo đến phụ huynh dự kiến khai giảng trở lại vào tháng 1-2025. Sở Giáo dục và Đào tạo TP.HCM nói gì về việc này?
-- Thầy hiệu trưởng trong clip '1.400 học sinh chia tay trước ngày nghỉ hưu' nói muốn được yêu mến, thầy giáo trước tiên phải trải lòng với học trò. Thầy là cha mẹ, nhưng cũng là bạn để các em tâm sự những nỗi niềm tuổi mới lớn.
-- Future Frame Celebration Week - Tuần phim công nghệ do khoa truyền thông và thiết kế Trường đại học Công nghệ TP.HCM (HUTECH).
-- Mới đây nhiều trường đại học lớn tại Úc đã thông báo kế hoạch tăng học phí cho sinh viên quốc tế bắt đầu ngay từ năm 2025.
-- Ngày 1-11, một lãnh đạo Công an TP Pleiku cho biết hiện cơ quan điều tra đang thụ lý vụ nữ sinh bị đánh tập thể rồi lột đồ quay clip.
-- TP.HCM đang xây dựng mạng lưới thành phố học tập toàn cầu theo bộ tiêu chí của UNESCO.
-- Nhiều bạn đọc bày tỏ ý kiến trái chiều về việc Trường mầm non 14 (quận Tân Bình, TP.HCM) mua thực phẩm giá cao hơn siêu thị.
-- Bộ Giáo dục và Đào tạo sẽ ban hành trong quy chế tuyển sinh quy định cụ thể về mặt quản lý nhà nước để bảo đảm kiểm tra, giám sát được chất lượng các kỳ thi đánh giá năng lực, đánh giá tư duy.
-- Theo đuổi chiến lược Home of Talents, hằng năm, VPBank đều triển khai chương trình học bổng ý nghĩa nhằm chắp cánh tài năng trẻ phát huy được năng lực trở thành nhà lãnh đạo tài ba, đóng góp vào sự phát triển và tăng trưởng bền vững của ngân hàng.
-- Biết tin thầy hiệu trưởng nghỉ hưu, 1.400 học sinh Trường THPT Phan Chu Trinh (xã Ea Ral, Ea Hleo, tỉnh Đắk Lắk) tổ chức lễ chia tay ngay tại sân trường.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Công an tỉnh Quảng Nam kiểm tra, phát hiện mẫu nước thải tại vị trí xả thải thuộc Bệnh viện Đa khoa Thái Bình Dương - Tam Kỳ có hai thông số vượt, trong đó coliforms vượt 480 lần.
-- Rạng sáng nay Đà Nẵng đã đón đợt mưa rất to kéo dài suốt 6 tiếng. Đây là cơn mưa lớn đầu tiên trong đợt mưa lớn được dự báo quét qua miền Trung từ ngày 3 đến 10-11.
-- Văn phòng UBND TP.HCM có văn bản truyền đạt chỉ đạo của Phó chủ tịch Bùi Xuân Cường đến các sở ngành về dự án ngăn triều 10.000 tỉ đồng.
-- 7h55 sáng 5-11, Thủ tướng Phạm Minh Chính cùng đoàn đại biểu cấp cao đã rời sân bay Nội Bài lên đường đi Trung Quốc tham dự Hội nghị Tiểu vùng sông Mekong mở rộng (GMS).
-- Trận mưa kéo dài từ khuya đến tảng sáng nay ở TP Đà Nẵng đã khiến nhiều khu vực trũng thấp ngập sâu. Xe cộ, người dân đi làm đầu ngày không kịp trở tay vì nước lên quá nhanh.
-- Căn nhà 2 tầng ở thị xã Sơn Tây (Hà Nội) đổ sập hoàn toàn vào tối 4-11. Sự cố xảy ra do nhà bên cạnh đang thi công đào móng, gây sạt lở.
-- Sáng 5-11, phụ huynh quận Hải Châu, Liên Chiểu chuẩn bị đưa con đến trường thì nhận được thông báo nghỉ học.
-- Thời tiết ở Đà Nẵng mưa xối xả, nhiều nơi đang bị ngập cục bộ. Một số trường đã thông báo cho học sinh nghỉ học.
-- Dự báo của Nhật, Hong Kong, Philippines đều nhận định bão Yinxing tiếp tục tăng cấp trong những ngày tới và có khả năng vào Biển Đông, trở thành cơn bão số 7 trong năm nay.
-- Tin tức đáng chú ý: Cơ cấu lại kinh tế vùng Đông Nam Bộ theo hướng hiện đại; Gia hạn thẻ bảo hiểm từ 1-1-2025 thế nào?; Chi phí điều trị các bệnh do thuốc lá gấp 5 lần thuế thuốc lá...
-- Hôm nay 5-11, không khí lạnh đã tác động hầu hết Bắc Bộ, trời lạnh đến rét. Trung Bộ thời tiết vẫn mưa, có nơi mưa rất to.
-- Phụ huynh giật mình vì đã từng xuê xoa, chiều con, cho con đua đòi chạy xe máy đi chơi. Cũng có người giật mình lo sợ khi để con tự đi xe máy vào buổi tối.
-- Thêm 7 cơ quan của tỉnh Khánh Hòa và TP Nha Trang kiểm tra, thống nhất hòn đá nằm cao 30m trên núi Cù Hin có nguy cơ sạt lở, lăn xuống đường gây mất an toàn cho người và xe cộ, nhưng vẫn còn để nguyên.
-- Dự kiến, siêu đề án thực hiện mục tiêu di dời toàn bộ nhà trên và ven kênh rạch của TP.HCM sẽ được thí điểm thực hiện tại quận 8.
-- Bà Nguyễn Hải Trâm - phó viện trưởng thường trực Viện Kiểm sát nhân dân tối cao - giữ chức phó bí thư thường trực Tỉnh ủy Tiền Giang nhiệm kỳ 2020-2025.
-- Trung tâm Phát triển quỹ đất huyện Hoài Đức đưa ra đấu giá 20 lô đất, giá khởi điểm 7,3 triệu đồng/m², kết quả có lô trúng cao nhất 103 triệu đồng/m².
-- Một thai phụ tại TP Thủ Đức phải nhập viện, phẫu thuật vì tình trạng quá kích buồng trứng ở mức độ trầm trọng rất hiếm thấy.
-- Sau thiệt hại nặng nề của bão số 3 (bão Yagi), Bộ trưởng Lê Minh Hoan cho biết cần nhận dạng và nâng cấp tư duy về thảm họa thiên tai ở cấp độ cao hơn.
-- Bộ Công an đã gửi thư khen các đơn vị đã triệt phá đường dây sử dụng không gian mạng hoạt động mua bán trái phép ma túy quy mô lớn.
-- UBND TP.HCM vừa ban hành quyết định số 101 quy định khu vực trên địa bàn TP có đường giao thông rộng tối thiểu 3,5m mới được xây 'chung cư mini'.
-- Theo UBND phường Trung Mỹ Tây (quận 12, TP.HCM), chủ cơ sở đồ gỗ nơi gây ra tiếng ồn, bụi và mùi hôi đã làm bản cam kết chuyển cơ sở đi nơi khác.
-- Bộ trưởng Bộ Giáo dục và Đào tạo đề nghị các đại biểu Quốc hội chỉ rõ nhóm lợi ích bất hợp pháp về sách giáo khoa để phối hợp 'bắt mang đi tiếp'.
-- Vụ tai nạn khi xe ben tông liên hoàn vào các xe đang dừng chờ đèn đỏ tại Bình Dương khiến 1 người chết, 1 người bị thương.
-- Ông Đặng An Thanh - phó chánh án TAND tỉnh Bình Dương - được điều động, bổ nhiệm làm chánh án TAND tỉnh Bình Phước.
-- Phó bí thư thường trực Thành ủy TP.HCM Nguyễn Hồ Hải đã trao huy hiệu 60 năm tuổi Đảng cho bà Trần Thị Minh Hoàng, nguyên bí thư Tỉnh ủy Đồng Nai.
-- Thực hiện việc sáp nhập đơn vị hành chính cấp huyện, xã giai đoạn 2023-2025, tỉnh Nghệ An sẽ có 5 thị trấn mới sau sáp nhập.
-- Đại biểu Quốc hội Vũ Trọng Kim (Nam Định) cho hay có bộ trưởng nói với ông rằng nếu 'bộ tôi giảm 30-40% biên chế chẳng hề hấn gì'.
-- Lực lượng chức năng địa phương đang điều tra ai là người đứng sau nhóm người chạy ca nô quăng rác thải sinh hoạt xuống biển Phú Quốc.
-- Việt Nam là nước sản xuất cà phê hàng đầu thế giới, nhưng giá cả hiện do các sàn giao dịch nước ngoài quyết định.
-- Thanh tra tỉnh Đồng Nai vừa ban hành các quyết định thanh tra trách nhiệm nguyên chủ tịch huyện Nhơn Trạch và huyện Trảng Bom.
+- Nhiều năm qua, khu vực đường Mẹ Suốt, các khu dân cư dọc kênh Đa Cô ở quận Liên Chiểu được xem là một 'điểm nóng' ngập lụt ở Đà Nẵng.
+- Ngày 6-11, UBND xã Cư M'Lan, huyện Ea Súp, tỉnh Đắk Lắk thông tin ở địa phương vừa xảy ra vụ việc 2 người tử vong trong lúc trú mưa dưới gầm xe máy cày.
+- Trong lúc đi làm về chạy xe máy qua đoạn đường ngập lũ, người đàn ông ở huyện Nông Sơn, Quảng Nam bị nước lũ cuốn trôi.
+- Sau một đêm tìm kiếm, đến sáng sớm nay, thi thể người đàn ông bị lũ cuốn khi cứu một học sinh tại Quảng Bình đã được tìm thấy.
+- Dự báo của Nhật, Hong Kong và Philippines đều nhận định cường độ bão Yinxing mạnh cấp 13, giật cấp 15-16 và có khả năng đi vào Biển Đông.
+- Sau vụ nhóm "quái xế" tông chết cô gái ở Hà Nội, Công an quận Hoàn Kiếm (Hà Nội) đã tạm giữ 10 người liên quan, đồng thời ra quyết định khởi tố vụ án để điều tra.
+- Ngay khi ông Nguyễn Đức Thái nhậm chức chủ tịch NXB Giáo Dục Việt Nam năm 2017, hai doanh nghiệp đã đến gặp đề nghị được "dọn đường" cho tham gia các gói thầu cung cấp giấy in sách giáo khoa và "sẽ cảm ơn".
+- Một số tin tức đáng chú ý: Quốc hội thảo luận về các nhóm chính sách lớn sửa Luật Đầu tư công; 10 tháng đầu năm, thu bảo hiểm xã hội, thất nghiệp, y tế tăng gần 13% so với cùng kỳ; Việt Nam đạt kỷ lục 9 triệu tài khoản chứng khoán...
+- Hôm nay 6-11, thời tiết mưa to vẫn duy trì từ Hà Tĩnh và bao phủ tới tận Khánh Hòa, còn Tây Nguyên và Nam Bộ cũng mưa rào chiều tối.
+- Liên đoàn Luật sư VN vừa có văn bản cảnh báo về việc liên đoàn và chủ tịch liên đoàn này đã bị các đối tượng mạo danh quảng cáo “hỗ trợ lấy lại tiền” đầu tư chứng khoán, thương mại điện tử, để lừa đảo công dân.
+- Từ ngày 10-11 sắp tới, việc hợp thửa, tách thửa đất ở đô thị, nông thôn và các loại đất khác tại Khánh Hòa phải đảm bảo các điều kiện theo quy định mới tỉnh vừa ban hành.
+- Chiều 5-11, UBND huyện Tam Đường, tỉnh Lai Châu tổ chức họp báo đột xuất cung cấp thông tin về vụ việc trẻ nhập viện nghi ngộ độc do ăn nhầm thuốc diệt chuột tại Trường mầm non xã Giang Ma.
+- Một vết nứt dài khoảng 50m trên núi Phú Gia (xã Lộc Tiến, huyện Phú Lộc, Thừa Thiên Huế) vừa xuất hiện gây nguy cơ sạt lở. Quân đội đã phải di dời người dân ở bên dưới đến nơi an toàn.
+- Dự án mở rộng và nâng cấp quốc lộ 13 đoạn qua tỉnh Bình Dương có tổng mức đầu tư 1.360 tỉ đồng.
+- Tiếp đại sứ Singapore, bí thư Thành ủy TP.HCM hy vọng Singapore có thể chia sẻ, hỗ trợ thành phố trên tinh thần sẵn sàng cùng hợp tác phát triển.
+- Hơn 300 phụ huynh ở Đồng Nai bị xử phạt hành chính do giao xe cho học sinh chưa đủ tuổi điều khiển.
+- 'Thấu hiểu, sẻ chia, lắng nghe, giải quyết thấu đáo các kiến nghị, ý kiến của ngư dân…' là cam kết của Bí thư Tỉnh ủy Quảng Ngãi Bùi Thị Quỳnh Vân trong buổi đối thoại với ngư dân.
+- Phó thủ tướng Lê Thành Long ủy quyền bộ trưởng Bộ Lao động - Thương binh và Xã hội trình Chủ tịch nước Lương Cường tặng quà người có công dịp Tết Nguyên đán Ất Tỵ 2025.
+- Người Việt ở Vân Nam đi theo tuyến đường sắt Côn Minh - Hà Nội tới Trung Quốc và sinh sống ở đây đã 4 thế hệ, góp phần vun đắp cho quan hệ hữu nghị Việt Nam - Trung Quốc.
+- Hằng đêm, sáu thanh thiếu niên chạy quanh các tuyến đường gặp nhà dân ven đường thì ném chất bẩn vào nhà dân, gây hoang mang và bức xúc trong nhân dân.
+- Sau điều chỉnh, tổng giá trị đầu tư dự án BOT đường 768 giảm từ 615 tỉ đồng xuống còn 425 tỉ đồng, thời gian thu phí giảm từ 35 năm xuống còn 24 năm.
+- Người đàn ông tại Quảng Bình bị lũ cuốn mất tích khi lao xuống nước lũ cứu một học sinh đang chới với.
+- Nhận tiền của người khác để giúp hoãn gọi khám nghĩa vụ và hoãn nhập ngũ, phó chỉ huy trưởng ban chỉ huy quân sự xã ở Quảng Nam bị bắt tạm giam.
+- Tổ công tác sẽ thống kê nhà ở thương mại chưa được cấp giấy chứng nhận. Xác định rõ nguyên nhân, vướng mắc, phân loại và đề ra các giải pháp tháo gỡ vướng mắc theo lộ trình.
+- Lực lượng cứu nạn, cứu hộ tỉnh Lào Cai vừa tìm thấy du khách Thụy Sĩ bị lạc trong rừng khi đi khám phá Vườn quốc gia Hoàng Liên.
+- Đường ven biển ở đập Hòa Duân (giáp ranh giữa phường Thuận An, TP Huế và xã Phú Thuận, huyện Phú Vang) bị sóng biển đợt bão Trà Mi đánh tan nát.
+- TP.HCM đặt mục tiêu đến năm 2030, tuổi thọ trung bình của người dân là 77 tuổi, trong đó thời gian sống khỏe mạnh đạt tối thiểu 68 năm.
+- Bắc Ninh thí điểm tổ chức dạy học 5 ngày trong tuần và nghỉ ngày thứ bảy, chủ nhật tại 4 trường trong tỉnh.
+- Ngày 5-11, Trinity Forum 2024 - diễn đàn thương mại bán lẻ hàng không hàng đầu thế giới - đã chính thức khai mạc. Nhiều cơ hội đã mở ra khi doanh nghiệp quốc tế tìm đến Việt Nam, đổ vốn vào đầu tư dịch vụ hàng không, bán lẻ tại các sân bay.
+- Bộ Giao thông vận tải đề nghị Bộ Tài chính sớm xác lập quyền sở hữu toàn dân đối với dự án BOT quốc lộ 51.
 ![New](News.png)
 ## Nhịp sống số 
+- Những lỗ hổng này có thể ảnh hưởng từ smartphone, máy tính bảng cho đến phương tiện di chuyển có kết nối công nghệ và hệ thống viễn thông.
+- Không chỉ đủ năng lực phát hiện ra các lỗ hổng bảo mật trên các thiết bị lưu trữ hình ảnh, dữ liệu nhạy cảm, Viettel Cyber Security (VCS) đặt mục tiêu làm thế nào để những sản phẩm này an toàn hơn cho người dùng.
+- Hàn Quốc phát hiện Meta đã thu thập dữ liệu về tôn giáo, quan điểm chính trị, tình trạng hôn nhân và khuynh hướng tình dục của khoảng 980.000 người dùng Facebook Hàn Quốc.
 - Dù liên tục được nhà mạng tăng thêm trạm phát sóng nhưng mật độ vẫn còn rất thấp, do đó tình trạng tốc độ 5G phập phù vẫn diễn ra ở nhiều nơi, người dùng nên cân nhắc khi mua gói cước 5G.
 - Whisper, công cụ AI chuyển lời nói thành văn bản của OpenAI - đã tạo ra các đoạn văn bản và những câu hoàn toàn không có thật.
 - Ngày 29-10, Cơ quan tư pháp Liên minh châu Âu (Eurojust) thông báo một chiến dịch toàn cầu đã giúp triệt phá các máy chủ của infostealers - một trong những nền tảng mã độc lớn nhất thế giới.
@@ -92,7 +65,4 @@
 - Ứng dụng Instagram đã cho ra mắt tính năng được thiết kế dành riêng cho lứa tuổi thanh thiếu niên nhằm tăng cường các biện pháp bảo vệ nhóm đối tượng này.
 - Với sự phát triển chóng mặt của trí tuệ nhân tạo (AI), những kẻ lừa đảo chỉ mất 3 phút để tạo app giả, trang web, fanpage mạo danh.
 - Năm 2024, một chiếc laptop sinh viên chuẩn mực ngoài yếu tố hiệu năng và giá cả còn cần thêm các tiêu chí về sự linh hoạt, công nghệ AI cũng như màn hình OLED. Đây cũng chính là các tính năng trên các dòng laptop sinh viên ASUS.
-- Mô hình o1 của OpenAI được nói là sẽ 'suy nghĩ' trước khi trả lời, có thể giải quyết các vấn đề khó hơn về khoa học, toán học hay lập trình.
-- Cục Viễn thông đang đề xuất lùi thời gian tắt sóng 2G, để các nhà mạng có thêm thời gian hỗ trợ 3,4 triệu khách hàng chuyển đổi từ thuê 2G lên 4G.
-- Ban tổ chức cho biết sự kiện nhằm ghi nhận, vinh danh và ủng hộ những đóng góp cũng như tài năng đội ngũ sáng tạo nội dung số tại Việt Nam.
 ![life](Life.png)
