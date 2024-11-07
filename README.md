@@ -1,38 +1,68 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Quy định mới trong dự thảo thông tư tuyển sinh đại học 2025 sẽ giúp các trường đỡ sợ tuyển vượt chỉ tiêu.
+- Sinh viên của Trường đại học Mở TP.HCM đã đến UBND phường Cô Giang (quận 1, TP.HCM) học tập thực tế về quản lý công.
+- Trường phổ thông Thực hành Sư phạm thuộc Đại học Đồng Nai đang thiếu tiền trả lương cho giáo viên. Hoạt động giảng dạy của trường cầm chừng vì thiếu kinh phí.
+- Đó là khẳng định của ông Nguyễn Văn Hiếu, giám đốc Sở Giáo dục và Đào tạo TP.HCM, khi trao đổi với Tuổi Trẻ về định hướng phát triển mô hình trường tiên tiến, hội nhập quốc tế (sau đây gọi tắt là trường tiên tiến).
+- Những năm qua Hà Nội triển khai nhiều giải pháp nâng cao chất lượng nguồn nhân lực, trong đó có quyết tâm thực hiện ‘dạy thật, học thật, thi thật, nhân tài thật’.
+- Chiều 5-11, UBND huyện Tam Đường, tỉnh Lai Châu tổ chức họp báo đột xuất cung cấp thông tin về vụ việc trẻ nhập viện nghi ngộ độc do ăn nhầm thuốc diệt chuột tại Trường mầm non xã Giang Ma.
+- Hơn 300 phụ huynh ở Đồng Nai bị xử phạt hành chính do giao xe cho học sinh chưa đủ tuổi điều khiển.
+- Bắc Ninh thí điểm tổ chức dạy học 5 ngày trong tuần và nghỉ ngày thứ bảy, chủ nhật tại 4 trường trong tỉnh.
+- Xét về số lượng giáo sư, phó giáo sư được xét năm 2024, Trường đại học Cần Thơ đứng đầu cơ sở giáo dục, Hà Nội dẫn đầu theo tỉnh thành.
+- Phụ huynh nên cân nhắc khi giao xe máy cho con vì đó là sự an toàn, là tính mạng của con em mình.
+- Công an huyện Bố Trạch (Quảng Bình) đã vào cuộc xác minh những thông tin liên quan đến vụ hiệu trưởng kê khai giá bạt chống nắng cao gấp 3 giá khảo sát của phụ huynh tại Trường tiểu học Lý Trạch.
+- Sáng 5-11, trước tình hình mưa lớn gây ngập nhiều tuyến đường, nhiều trường ở Đà Nẵng thông báo cho học sinh nghỉ học. Một số bếp ăn bán trú của trường không kịp trở tay.
+- Hầu hết các trường tiên tiến, hội nhập quốc tế (gọi tắt là trường tiên tiến) đã và đang là những trường "hot" ở TP.HCM.
+- Chính phủ Công đảng Anh vừa công bố quyết định tăng học phí đại học tại Anh lần đầu tiên sau 8 năm, trong bối cảnh các trường đại học đang đối mặt với tình trạng thâm hụt tài chính nghiêm trọng.
+- Sáng 5-11, phụ huynh quận Hải Châu, Liên Chiểu chuẩn bị đưa con đến trường thì nhận được thông báo nghỉ học.
+- Ngày 4-11, Sở Giáo dục và Đào tạo TP.HCM công bố danh sách 50 giáo viên, cán bộ quản lý nhận Giải thưởng Võ Trường Toản lần thứ 27 năm 2024.
+- Hội đồng Giáo sư nhà nước vừa công bố danh sách 615 ứng viên được công nhận đạt tiêu chuẩn chức danh giáo sư, phó giáo sư năm 2024.
+- Một nghiên cứu ở 38 quốc gia cho thấy 1/3 nhà nghiên cứu bỏ khoa học trong vòng 5 năm sau khi công bố bài báo đầu tiên.
+- Trường tiểu học Tân Sơn Nhì và Trường tiểu học Lê Đức Thọ là hai trường ở vùng ven nhưng cơ sở vật chất không thua gì trường quốc tế.
+- Sư Sikruadong Phra Phalek tiếp tục chinh phục chương trình cử nhân và chuẩn bị hoàn thành chương trình cao học.
+- Tổ chức đại học Pháp ngữ và Trường đại học Y khoa Phạm Ngọc Thạch ký kết hợp tác phát triển Không gian hợp tác đại học Pháp ngữ tại TP.HCM.
+- Ngôi sao nhạc kịch người Úc Philip Quast cho biết ông yêu cầu các bạn trẻ khi tham gia các buổi huấn luyện về nghệ thuật do ông giảng dạy tại Việt Nam không sử dụng điện thoại.
+- Bảo đảm ngân sách nhà nước chi cho giáo dục, đào tạo tối thiểu 20% tổng chi ngân sách, từng bước đưa tiếng Anh trở thành ngôn ngữ thứ hai và đào tạo ngoại ngữ khác theo nhu cầu.
+- Ban tổ chức ngày hội STEM quận Tân Phú, TP.HCM đã bất ngờ với những sản phẩm sáng tạo từ AI của học sinh trong nội dung 'sáng tác truyện tranh bằng AI'.
+- Chương trình đào tạo về 'Cấy ghép Implant Nha khoa All-on-X & GBR' do Công ty Dentium kết hợp cùng Đại học (ĐH) Harvard và ĐH Duy Tân đã được tổ chức từ ngày 19 - 20-10.
+- Vấn nạn 'tiến sĩ dỏm' là câu chuyện nhức nhối, đang thu hút sự quan tâm mạnh mẽ của dư luận.
+- Trong năm 2025, kỳ thi đánh giá tư duy của Đại học Bách khoa Hà Nội (TSA) dự kiến tổ chức trong 3 đợt thi vào các ngày cuối tuần.
+- Nhiều người có tên trong danh sách giảng viên cơ hữu toàn thời gian của các trường đại học tại Việt Nam nhưng đang sinh sống và làm việc ở nước ngoài nhiều năm qua.
+- Giám đốc dự án khu vực châu Á - Thái Bình Dương - Trung Đông Google for Education khẳng định như vậy tại buổi làm việc với Phó chủ tịch UBND TP.HCM.
+- HĐND tỉnh Bắc Ninh dự kiến kinh phí hơn 215 tỉ đồng để hỗ trợ hợp đồng lao động giáo viên, nhân viên nấu ăn… năm học 2024 - 2025.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Nhiều năm qua, khu vực đường Mẹ Suốt, các khu dân cư dọc kênh Đa Cô ở quận Liên Chiểu được xem là một 'điểm nóng' ngập lụt ở Đà Nẵng.
-- Ngày 6-11, UBND xã Cư M'Lan, huyện Ea Súp, tỉnh Đắk Lắk thông tin ở địa phương vừa xảy ra vụ việc 2 người tử vong trong lúc trú mưa dưới gầm xe máy cày.
-- Trong lúc đi làm về chạy xe máy qua đoạn đường ngập lũ, người đàn ông ở huyện Nông Sơn, Quảng Nam bị nước lũ cuốn trôi.
-- Sau một đêm tìm kiếm, đến sáng sớm nay, thi thể người đàn ông bị lũ cuốn khi cứu một học sinh tại Quảng Bình đã được tìm thấy.
-- Dự báo của Nhật, Hong Kong và Philippines đều nhận định cường độ bão Yinxing mạnh cấp 13, giật cấp 15-16 và có khả năng đi vào Biển Đông.
-- Sau vụ nhóm "quái xế" tông chết cô gái ở Hà Nội, Công an quận Hoàn Kiếm (Hà Nội) đã tạm giữ 10 người liên quan, đồng thời ra quyết định khởi tố vụ án để điều tra.
-- Ngay khi ông Nguyễn Đức Thái nhậm chức chủ tịch NXB Giáo Dục Việt Nam năm 2017, hai doanh nghiệp đã đến gặp đề nghị được "dọn đường" cho tham gia các gói thầu cung cấp giấy in sách giáo khoa và "sẽ cảm ơn".
-- Một số tin tức đáng chú ý: Quốc hội thảo luận về các nhóm chính sách lớn sửa Luật Đầu tư công; 10 tháng đầu năm, thu bảo hiểm xã hội, thất nghiệp, y tế tăng gần 13% so với cùng kỳ; Việt Nam đạt kỷ lục 9 triệu tài khoản chứng khoán...
-- Hôm nay 6-11, thời tiết mưa to vẫn duy trì từ Hà Tĩnh và bao phủ tới tận Khánh Hòa, còn Tây Nguyên và Nam Bộ cũng mưa rào chiều tối.
-- Liên đoàn Luật sư VN vừa có văn bản cảnh báo về việc liên đoàn và chủ tịch liên đoàn này đã bị các đối tượng mạo danh quảng cáo “hỗ trợ lấy lại tiền” đầu tư chứng khoán, thương mại điện tử, để lừa đảo công dân.
-- Từ ngày 10-11 sắp tới, việc hợp thửa, tách thửa đất ở đô thị, nông thôn và các loại đất khác tại Khánh Hòa phải đảm bảo các điều kiện theo quy định mới tỉnh vừa ban hành.
-- Chiều 5-11, UBND huyện Tam Đường, tỉnh Lai Châu tổ chức họp báo đột xuất cung cấp thông tin về vụ việc trẻ nhập viện nghi ngộ độc do ăn nhầm thuốc diệt chuột tại Trường mầm non xã Giang Ma.
-- Một vết nứt dài khoảng 50m trên núi Phú Gia (xã Lộc Tiến, huyện Phú Lộc, Thừa Thiên Huế) vừa xuất hiện gây nguy cơ sạt lở. Quân đội đã phải di dời người dân ở bên dưới đến nơi an toàn.
-- Dự án mở rộng và nâng cấp quốc lộ 13 đoạn qua tỉnh Bình Dương có tổng mức đầu tư 1.360 tỉ đồng.
-- Tiếp đại sứ Singapore, bí thư Thành ủy TP.HCM hy vọng Singapore có thể chia sẻ, hỗ trợ thành phố trên tinh thần sẵn sàng cùng hợp tác phát triển.
-- Hơn 300 phụ huynh ở Đồng Nai bị xử phạt hành chính do giao xe cho học sinh chưa đủ tuổi điều khiển.
-- 'Thấu hiểu, sẻ chia, lắng nghe, giải quyết thấu đáo các kiến nghị, ý kiến của ngư dân…' là cam kết của Bí thư Tỉnh ủy Quảng Ngãi Bùi Thị Quỳnh Vân trong buổi đối thoại với ngư dân.
-- Phó thủ tướng Lê Thành Long ủy quyền bộ trưởng Bộ Lao động - Thương binh và Xã hội trình Chủ tịch nước Lương Cường tặng quà người có công dịp Tết Nguyên đán Ất Tỵ 2025.
-- Người Việt ở Vân Nam đi theo tuyến đường sắt Côn Minh - Hà Nội tới Trung Quốc và sinh sống ở đây đã 4 thế hệ, góp phần vun đắp cho quan hệ hữu nghị Việt Nam - Trung Quốc.
-- Hằng đêm, sáu thanh thiếu niên chạy quanh các tuyến đường gặp nhà dân ven đường thì ném chất bẩn vào nhà dân, gây hoang mang và bức xúc trong nhân dân.
-- Sau điều chỉnh, tổng giá trị đầu tư dự án BOT đường 768 giảm từ 615 tỉ đồng xuống còn 425 tỉ đồng, thời gian thu phí giảm từ 35 năm xuống còn 24 năm.
-- Người đàn ông tại Quảng Bình bị lũ cuốn mất tích khi lao xuống nước lũ cứu một học sinh đang chới với.
-- Nhận tiền của người khác để giúp hoãn gọi khám nghĩa vụ và hoãn nhập ngũ, phó chỉ huy trưởng ban chỉ huy quân sự xã ở Quảng Nam bị bắt tạm giam.
-- Tổ công tác sẽ thống kê nhà ở thương mại chưa được cấp giấy chứng nhận. Xác định rõ nguyên nhân, vướng mắc, phân loại và đề ra các giải pháp tháo gỡ vướng mắc theo lộ trình.
-- Lực lượng cứu nạn, cứu hộ tỉnh Lào Cai vừa tìm thấy du khách Thụy Sĩ bị lạc trong rừng khi đi khám phá Vườn quốc gia Hoàng Liên.
-- Đường ven biển ở đập Hòa Duân (giáp ranh giữa phường Thuận An, TP Huế và xã Phú Thuận, huyện Phú Vang) bị sóng biển đợt bão Trà Mi đánh tan nát.
-- TP.HCM đặt mục tiêu đến năm 2030, tuổi thọ trung bình của người dân là 77 tuổi, trong đó thời gian sống khỏe mạnh đạt tối thiểu 68 năm.
-- Bắc Ninh thí điểm tổ chức dạy học 5 ngày trong tuần và nghỉ ngày thứ bảy, chủ nhật tại 4 trường trong tỉnh.
-- Ngày 5-11, Trinity Forum 2024 - diễn đàn thương mại bán lẻ hàng không hàng đầu thế giới - đã chính thức khai mạc. Nhiều cơ hội đã mở ra khi doanh nghiệp quốc tế tìm đến Việt Nam, đổ vốn vào đầu tư dịch vụ hàng không, bán lẻ tại các sân bay.
-- Bộ Giao thông vận tải đề nghị Bộ Tài chính sớm xác lập quyền sở hữu toàn dân đối với dự án BOT quốc lộ 51.
+- Sau khi 2 phi công nhảy dù, chiếc máy bay Yak-130 tiếp tục bay và rơi ở vị trí chưa xác định, nhiều hướng tìm kiếm đang được triển khai.
+- Lâu nay chúng ta cứ nói giải quyết nạn quá tải ở trung tâm bằng cách mở đô thị vệ tinh, giãn dân... Nay có khái niệm khác là đô thị nén, tức tập trung vào với mật độ dân số cực cao. Điều này góp phần làm thay đổi xu hướng của thị trường bất động sản.
+- Ngày 6-11, Quốc hội thảo luận ở hội trường về dự án Luật sửa đổi, bổ sung một số điều của Luật Quy hoạch, Luật Đầu tư, Luật Đầu tư theo phương thức đối tác công tư và Luật Đấu thầu.
+- Giám đốc Sở Tài nguyên và Môi trường TP.HCM vừa chấn chỉnh việc kiểm tra hiện trạng nhà ở, công trình khi cấp giấy chứng nhận đối với hệ thống Văn phòng đăng ký đất đai tại TP.HCM.
+- Rạng sáng 7-11, bão Yinxing tiếp tục mạnh thêm một cấp lên cấp 15 (167 - 183km/h) - tiệm cận siêu bão. Dự báo sáng mai bão vào Biển Đông và trở thành cơn bão số 7 trong năm 2024.
+- Một số tin tức đáng chú ý: Quốc hội thảo luận sửa Luật Điện lực, xem xét giá điện; Chứng khoán DNSE bị phạt; Hà Nội có lực lượng cảnh sát chữa cháy và cứu nạn đặc biệt tinh nhuệ...
+- Hôm nay 7-11, thời tiết mưa to chỉ còn duy trì chủ yếu ở Quảng Nam đến Khánh Hòa và có xu hướng giảm dần. Bão Yinxing đang áp sát Biển Đông.
+- Dự án sân bay Long Thành giai đoạn 1 được đề xuất xây thêm một đường băng trong giai đoạn 1 và điều chỉnh thời gian hoàn thành, khai thác vào cuối năm 2026.
+- Xã Phước Đồng (TP Nha Trang) vừa báo cáo để xem xét lại việc Sở Giao thông vận tải tỉnh Khánh Hòa đề nghị giao UBND xã “chủ trì xử lý” tảng đá có nguy cơ sạt lở, lăn xuống đường đi sân bay Cam Ranh.
+- Cường độ bão Yinxing mạnh lên cấp 14 (150-166km/h), giật cấp 17. Các tỉnh từ Quảng Ninh đến Bình Thuận thông báo ngay cho các tàu thuyền hoạt động trên Biển Đông.
+- Lúc 22h30, nguồn tin từ Trung đoàn Không quân 940 cho biết đã tìm thấy phi công thứ 2 là đại tá Nguyễn Văn Sơn. Hiện đại tá Sơn và thượng tá Quân đã được đưa xuống núi, chuyển đến bệnh viện.
+- Bà Phạm Thị Bích Thủy, chánh án TAND tỉnh Bình Phước, được điều động làm bí thư Thành ủy Đồng Xoài.
+- Chủ tịch nước Lương Cường thăm chính thức Chile và Peru, dự Tuần lễ cấp cao APEC từ ngày 9 đến 16-11. Đây là chuyến công du nước ngoài đầu tiên của ông sau khi nhậm chức.
+- Chiều 6-11, lãnh đạo UBND tỉnh Đồng Nai đã công bố quyết định phê chuẩn kết quả bầu chủ tịch UBND TP Biên Hòa.
+- Bộ trưởng Nguyễn Chí Dũng nhấn mạnh việc cần đổi mới tư duy xây dựng pháp luật, trong đó giải phóng các nguồn lực, khơi thông các điểm nghẽn.
+- Ngày 6-11, UBND TP.HCM có văn bản gửi các nhà đầu tư về sự quan tâm đối với dự án đường cao tốc TP.HCM - Mộc Bài.
+- Đại sứ Mỹ Marc Knapper dành phút mặc niệm, nghiêng mình trước đài tưởng niệm các y bác sĩ Bệnh viện Bạch Mai đã hy sinh trong đợt ném bom của Không quân Mỹ năm 1972.
+- Ngày 6-11, bà Nguyễn Thị Tuyến, phó bí thư thường trực Thành ủy Hà Nội, đã được bầu giữ chức chủ tịch Hội Liên hiệp phụ nữ Việt Nam.
+- Chủ tịch Quảng Tây khẳng định quyết tâm thúc đẩy hợp tác giữa hai bên. Trong đó, đẩy mạnh kết nối giao thông đường bộ, đường sắt, nhất là các tuyến đường sắt từ Quảng Tây với Đồng Đăng - Hà Nội, Móng Cái - Hải Phòng.
+- Đến chiều tối  6-11, hai phi công nhảy dù thoát hiểm trong vụ rơi máy bay huấn luyện Yak-130 tại Bình Định đã liên lạc được với đội tìm kiếm.
+- Sau khi được một nhà thầu 'mượn' chở vật liệu xây dựng cao tốc Bắc - Nam, đoạn tỉnh lộ ở Nghệ An chi chít hàng trăm ổ gà, ổ voi khiến người dân kêu trời.
+- Nhiều hoạt động, chương trình nghệ thuật được Bộ Văn hóa, Thể thao và Du lịch cùng hai tỉnh Nghệ An, Hà Tĩnh kỷ niệm 10 năm dân ca ví, giặm Nghệ Tĩnh được UNESCO ghi danh.
+- Ông Định khai do muốn nâng rơ moóc để những người trú mưa khỏi ướt nên ông khởi động máy cày, không may khiến 2 người tử vong.
+- Tổng cục Thuế vừa có văn bản yêu cầu Cục Thuế Đắk Lắk xem xét hành vi doanh nghiệp trốn thuế trong chuyển nhượng vốn.
+- Cục Đường bộ khẳng định việc gắn dòng chữ 'đoạn đường Sơn Hải bảo hành 10 năm' trên biển báo hiệu đường bộ của cao tốc Nghi Sơn - Diễn Châu là không phù hợp.
+- Tài là nhân viên ngân hàng đã dùng hình ảnh 2 sổ đỏ của người thân đang thế chấp tại ngân hàng để gửi cho nạn nhân, qua đó nói dối vay gần 4 tỉ đồng để đáo hạn và chiếm đoạt.
+- Cơ sở khám bệnh, chữa bệnh được tự quyết định việc mua thuốc, thiết bị y tế... cho các nhà thuốc trong bệnh viện thay vì đấu thầu.
+- Dự án cầu cảng thương mại dịch vụ Hàm Ninh (xã Hàm Ninh, TP Phú Quốc, Kiên Giang) được kỳ vọng tạo điểm nhấn phát triển du lịch địa phương.
+- Tài xế xe ben chạy xe qua dải phân cách cố định để chuyển làn trên đường Nguyễn Văn Linh (huyện Bình Chánh, TP.HCM) bị cảnh sát giao thông lập biên bản.
+- Trong quá trình tác nghiệp tại Bệnh viện Đa khoa tỉnh Đắk Lắk (cũ), một phóng viên của báo Công An Nhân Dân đã bị bảo vệ đánh và thu máy ảnh.
 ![New](News.png)
 ## Nhịp sống số 
 - Những lỗ hổng này có thể ảnh hưởng từ smartphone, máy tính bảng cho đến phương tiện di chuyển có kết nối công nghệ và hệ thống viễn thông.
