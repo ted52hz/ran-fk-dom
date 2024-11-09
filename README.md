@@ -1,6 +1,17 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Bộ trưởng Nguyễn Kim Sơn nêu rõ so với quy định hiện hành, dự Luật Nhà giáo có nhiều chính sách mới về tuyển dụng, tiền lương, tuổi nghỉ hưu với nhà giáo.
+- Nhiều giảng viên đại học cho biết rất sợ mỗi khi trường vào đợt kiểm định vì họ mất rất nhiều thời gian, công sức cho việc này.
+- Bữa ăn của trẻ vượt quá tiêu chuẩn cho phép không chỉ gây hại cho sức khỏe trẻ như béo phì, sâu răng, tăng huyết áp mà còn hình thành thói quen ăn uống không lành mạnh ngay từ nhỏ qua bữa ăn bán trú.
+- Tối 8-11, Trường đại học Kinh tế - Luật (Đại học Quốc gia TP.HCM) công bố phương án tuyển sinh đại học chính quy năm 2025 với 3 phương thức xét tuyển.
+- Kết quả một nghiên cứu vừa được công bố cho thấy mức độ cô đơn của sinh viên năm tư có xu hướng tập trung cao nhất trong tất cả sinh viên các năm.
+- Học sinh bị bạn làm gãy tay, phụ huynh muốn nhà trường chuyển lớp cho bạn gây tai nạn vì sợ học chung không an toàn. Nhà trường nói gì?
+- Một số hiệu trưởng trường tiểu học, THCS ở TP.HCM nhận được tin nhắn yêu cầu theo dõi, bắt và lập biên bản các giáo viên dạy thêm.
+- Nhiều phụ huynh có con học tiểu học tại xã DLiê Yang (Đắk Lắk) tố bị "ăn chặn" tiền bảo hiểm y tế nhưng ngành giáo dục khẳng định đó là hiểu lầm.
+- Ngày 8-11, tại TP Pleiku, ấn phẩm Mực Tím - báo Tuổi Trẻ tổ chức chương trình trao học bổng "Vì tương lai Việt Nam" cho học sinh tỉnh Gia Lai.
+- Hàng loạt trường đại học công bố sẽ không sử dụng phương thức xét tuyển học bạ THPT từ năm 2025.
+- Phụ huynh than thở bị 'bội thực' với app, nào là Enetviet, Vietschool, K12Online, LMS... Có những app tốn phí, ít dùng tới nhưng buộc phải cài.
 - TS Ray Nguyễn - giám đốc Mảng thiết kế mạch điện tương tự và hỗn hợp ở Marvell Technology, công ty tại Thung lũng Silicon (Mỹ) - vừa có buổi nói chuyện tại Trường ĐH Fulbright Việt Nam.
 - Trường Đại học Kinh Bắc khẳng định 160 bằng tốt nghiệp do ông Phạm Ngọc Trúc ký, cấp phát cho sinh viên đợt 2 năm 2024 là không đúng quy định pháp luật.
 - Sinh viên Đại học Quốc gia TP.HCM có cơ hội giao lưu và học hỏi kinh nghiệm từ những người đã và đang thành công trên nhiều lĩnh vực.
@@ -20,51 +31,41 @@
 - Sáng 5-11, trước tình hình mưa lớn gây ngập nhiều tuyến đường, nhiều trường ở Đà Nẵng thông báo cho học sinh nghỉ học. Một số bếp ăn bán trú của trường không kịp trở tay.
 - Hầu hết các trường tiên tiến, hội nhập quốc tế (gọi tắt là trường tiên tiến) đã và đang là những trường "hot" ở TP.HCM.
 - Chính phủ Công đảng Anh vừa công bố quyết định tăng học phí đại học tại Anh lần đầu tiên sau 8 năm, trong bối cảnh các trường đại học đang đối mặt với tình trạng thâm hụt tài chính nghiêm trọng.
-- Sáng 5-11, phụ huynh quận Hải Châu, Liên Chiểu chuẩn bị đưa con đến trường thì nhận được thông báo nghỉ học.
-- Ngày 4-11, Sở Giáo dục và Đào tạo TP.HCM công bố danh sách 50 giáo viên, cán bộ quản lý nhận Giải thưởng Võ Trường Toản lần thứ 27 năm 2024.
-- Hội đồng Giáo sư nhà nước vừa công bố danh sách 615 ứng viên được công nhận đạt tiêu chuẩn chức danh giáo sư, phó giáo sư năm 2024.
-- Một nghiên cứu ở 38 quốc gia cho thấy 1/3 nhà nghiên cứu bỏ khoa học trong vòng 5 năm sau khi công bố bài báo đầu tiên.
-- Trường tiểu học Tân Sơn Nhì và Trường tiểu học Lê Đức Thọ là hai trường ở vùng ven nhưng cơ sở vật chất không thua gì trường quốc tế.
-- Sư Sikruadong Phra Phalek tiếp tục chinh phục chương trình cử nhân và chuẩn bị hoàn thành chương trình cao học.
-- Tổ chức đại học Pháp ngữ và Trường đại học Y khoa Phạm Ngọc Thạch ký kết hợp tác phát triển Không gian hợp tác đại học Pháp ngữ tại TP.HCM.
-- Ngôi sao nhạc kịch người Úc Philip Quast cho biết ông yêu cầu các bạn trẻ khi tham gia các buổi huấn luyện về nghệ thuật do ông giảng dạy tại Việt Nam không sử dụng điện thoại.
-- Bảo đảm ngân sách nhà nước chi cho giáo dục, đào tạo tối thiểu 20% tổng chi ngân sách, từng bước đưa tiếng Anh trở thành ngôn ngữ thứ hai và đào tạo ngoại ngữ khác theo nhu cầu.
-- Ban tổ chức ngày hội STEM quận Tân Phú, TP.HCM đã bất ngờ với những sản phẩm sáng tạo từ AI của học sinh trong nội dung 'sáng tác truyện tranh bằng AI'.
-- Chương trình đào tạo về 'Cấy ghép Implant Nha khoa All-on-X & GBR' do Công ty Dentium kết hợp cùng Đại học (ĐH) Harvard và ĐH Duy Tân đã được tổ chức từ ngày 19 - 20-10.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Dự Luật Quảng cáo sửa đổi đề xuất bổ sung quy định nhằm "siết" người nổi tiếng, có ảnh hưởng quảng cáo sản phẩm tràn lan trên mạng.
-- Tin tức đáng chú ý: TP.HCM phát hiện hơn 17.700 phương tiện vi phạm an toàn kỹ thuật; Hôm nay Quốc hội nghe trình nhiều nội dung quan trọng, thảo luận dự Luật Dữ liệu...
-- Hôm nay 8-11, thời tiết mưa to ở miền Trung đã giảm, miền Bắc trời lạnh. Nam Bộ ngày nắng, Biển Đông đón bão Yinxing.
-- Sáng sớm nay (8-11), bão Yinxing có gió mạnh cấp 14 (150-166km/h), giật cấp 17, đã đi vào khu vực Bắc Biển Đông, trở thành cơn bão số 7 trong năm 2024.
-- Chuyến công tác nước ngoài đầu tiên của Chủ tịch nước Lương Cường có ý nghĩa và tầm quan trọng đặc biệt, cả về song phương và đa phương.
-- Đại tá Nguyễn Quốc Vương - trưởng phòng thuộc Cục Tổ chức cán bộ (Bộ Công an) - được điều động đến nhận công tác và giữ chức vụ phó giám đốc Công an tỉnh Phú Thọ.
-- Phó thủ tướng Nguyễn Hòa Bình yêu cầu tập trung khắc phục hậu quả, khẩn trương điều tra, làm rõ trách nhiệm trong vụ cháy ở Vũng Tàu khiến hai cháu bé tử vong.
-- Dự báo sáng 8-11, bão Yinxing đi vào Biển Đông với cường độ cấp 14 (150-166km/h), giật cấp 17. Thủ tướng yêu cầu bảo đảm an toàn cho phương tiện, tàu thuyền còn hoạt động trên biển.
-- Thấy nhóm bạn của vợ cũ đang ngồi uống rượu, do mâu thuẫn từ trước, Hội đã bắn súng tự chế gây thương tích cho một người trong nhóm.
-- Bộ Giao thông vận tải thống nhất với tỉnh Quảng Trị tăng tỉ lệ vốn nhà nước tại dự án PPP cao tốc Cam Lộ - Lao Bảo, sử dụng ngân sách đầu tư mới 8km quốc lộ 15D, xây mới cầu Đakrông…
-- Ngày 7-11, Công ty TNHH MTV Thảo cầm viên Sài Gòn (Thảo cầm viên) đã phối hợp cùng Vườn quốc gia Cát Tiên thả hai con rái cá vuốt bé và hai con mèo rừng về tự nhiên.
-- Là dự án có tổng mức đầu tư lớn nhất từ trước tới nay, Ủy ban Kinh tế đề nghị Chính phủ báo cáo rõ hơn phương án bố trí vốn, khả năng cân đối vốn ngân sách nhà nước sử dụng cho dự án đường sắt tốc độ cao Bắc - Nam.
-- Bộ trưởng Nguyễn Hồng Diên nói thiếu điện do có những dự án giao cả chục năm không làm, lần này không làm phải bị thu hồi.
-- Gói thầu nối hầm chui Trần Quốc Hoàn - Phan Thúc Duyện là đoạn nối đường Thăng Long - 18E - Cộng Hòa (cửa ngõ Tân Sơn Nhất, TP.HCM) đã thông xe, giúp giải tỏa áp lực cho vòng xoay Lăng Cha Cả.
-- Hà Nội sẽ tạm dừng vận hành metro Nhổn - ga Hà Nội đoạn trên cao trong sáng 9-11, để tổ chức lễ gắn biển khánh thành công trình chào mừng 70 năm Giải phóng thủ đô.
-- Chình phủ cần nghiên cứu có thể phục hồi nhà máy điện hạt nhân Ninh Thuận hoặc khởi động dự án điện hạt nhân khác trong thời gian sớm nhất.
-- Một số dự án giao thông ở TP.HCM như mở rộng đường Tân Kỳ Tân Quý, Dương Quảng Hàm, xây cầu Bà Hòm bị vướng lưới điện (dây và cột điện), làm ảnh hưởng đến tiến độ và nguy hiểm đến người đi đường.
-- Cạnh quốc lộ 61 (đoạn qua xã Vĩnh Hòa Hưng Nam, huyện Gò Quao, Kiên Giang) thời gian qua có bãi rác lộ thiên nhếch nhác bầy hầy. Rác và nước rác thải rỉ chảy ra đồng, ra đường hôi thối khiến người đi đường ngao ngán.
-- Không thể để ngành điện báo lỗ hằng năm do phải bù chênh lệch giá điện, mua cao phải bán cao, không thể mua cao lại bán thấp.
-- Chiều 7-11, thông tin thêm về vụ việc máy bay Yak-130 gặp nạn tại Bình Định, Đại tướng Phan Văn Giang, bộ trưởng Bộ Quốc phòng, khẳng định hành động xử lý của hai phi công vô cùng anh dũng và việc trở về an toàn, đó là điều trân trọng nhất.
-- TP.HCM mong muốn có nhiều hoạt động giao lưu giữa tuổi trẻ TP.HCM và tuổi trẻ ở các địa phương Liên bang Nga, làm sâu sắc hơn mối quan hệ truyền thống gắn bó lâu đời giữa nhân dân hai nước.
-- Các nhà lãnh đạo CLMV khẳng định khát vọng chung về xây dựng một tiểu vùng hòa bình, thịnh vượng và hiện thực hóa mục tiêu trở thành các nước có thu nhập trung bình cao vào năm 2030.
-- Nghị quyết 98 có quy định để TP.HCM thu hút nhà đầu tư chiến lược, tuy nhiên nhà đầu tư phải cam kết giải ngân toàn bộ tổng vốn đầu tư trong vòng 5 năm. Việc này rất khó với các dự án lớn như cảng trung chuyển quốc tế Cần Giờ.
-- Tổng giám đốc công ty sản xuất thương hiệu dầu gió 'con ó' ở Singapore đã đến trao thư cảm ơn giám đốc Công an tỉnh Long An phá vụ án sản xuất 30.000 chai dầu 'con ó' giả bán qua Shopee.
-- Tỉnh Thừa Thiên Huế vừa được Tổ chức Công nghiệp điện toán châu Á - châu Đại Dương (ASOCIO) vinh danh là Thành phố thông minh - ASOCIO Smart City.
-- Tổng Bí thư Tô Lâm yêu cầu tháo gỡ điểm nghẽn, nút thắt có nguyên nhân từ quy định của pháp luật; thực hiện cơ chế "sửa một luật, điều chỉnh nhiều luật" để khắc phục ngay tình trạng mâu thuẫn, chồng chéo của các luật.
-- Dù khối lượng thi công dự án ngăn triều 10.000 tỉ đồng tại TP.HCM (nhà đầu tư là Tập đoàn Trung Nam) đã hoàn thành 90%, tuy nhiên vẫn bị tạm dừng do những vướng mắc về tài chính và pháp lý.
-- Đại biểu Quốc hội Trần Hữu Hậu cho rằng muốn có thị trường điện cạnh tranh thực sự, góp phần quan trọng gỡ những rối rắm hiện nay của ngành điện, phải thay đổi triệt để.
-- Sau thời gian triển khai thí điểm tại ba bệnh viện mang lại hiệu quả tốt, TP.HCM đã phát động đợt cao điểm 55 ngày đêm triển khai sổ sức khỏe điện tử trên ứng dụng VNeID.
-- Nhà máy alumin Tân Rai (Lâm Đồng) đã chạy vượt công suất thiết kế, liệu bùn đỏ có vượt mức đã báo cáo Bộ Tài nguyên và Môi trường?
+- Bộ trưởng Nguyễn Kim Sơn nêu rõ so với quy định hiện hành, dự Luật Nhà giáo có nhiều chính sách mới về tuyển dụng, tiền lương, tuổi nghỉ hưu với nhà giáo.
+- Việc làm thủ tục hoạt động phà Bình Quới (quận Bình Thạnh, TP.HCM) phức tạp nên đến nay phà chưa thể chạy lại gây khó khăn cho việc đi lại của người dân.
+- Dự báo bão số 7 (Yinxing) duy trì cường độ mạnh cấp 14, giật cấp 17 trong khoảng 24 giờ tới, sau đó suy yếu. Trong khi đó, ở ngoài khơi Philippines vừa hình thành áp thấp nhiệt đới có khả năng mạnh lên thành bão và đi vào Biển Đông.
+- Một số tin tức đáng chú ý: Quốc hội xem xét thí điểm cho mua bán vật chứng, tài sản ở các vụ án; Không đơn hàng 18 tháng, doanh nghiệp may trầy trật bán lô đất trăm tỉ; 'Nhập nhằng' về nhân sự, một công ty quản lý quỹ bị phạt...
+- Hôm nay 9-11, thời tiết đất liền tương đối ổn định, vài nơi mưa rào. Biển Đông dông gió dữ dội khi bão số 7 (Yinxing) áp sát quần đảo Hoàng Sa.
+- Tối 8-11, Chủ tịch nước Lương Cường rời Hà Nội, bắt đầu chuyến công tác nước ngoài đầu tiên với hai điểm đến là Chile và Peru.
+- Lúc 17h ngày 8-11, tại Km1194+850 đường sắt Thống Nhất qua phường 9 (TP Tuy Hòa, Phú Yên), tàu hàng đi hướng Nam - Bắc tông phải một bé trai 7 tuổi.
+- Đoàn kiểm tra liên ngành tỉnh Bắc Ninh do lãnh đạo Công an tỉnh Bắc Ninh bắt đầu kiểm tra toàn diện cụm công nghiệp làng nghề Mẫn Xá.
+- Theo Trung tâm Dự báo khí tượng thủy văn quốc gia lúc 19h tối nay 8-11, tâm bão số 7 (bão Yinxing) đang cách quần đảo Hoàng Sa hơn 600km về phía đông, sức gió mạnh nhất vùng gần tâm bão mạnh cấp 14 (150-166km/h), giật cấp 17.
+- Ông Nguyễn Văn Phong - phó bí thư Thành ủy Hà Nội - được bí thư Hà Nội phân công làm phó bí thư thường trực Thành ủy Hà Nội khóa XVII, nhiệm kỳ 2020-2025.
+- Cô gái bị Công an TP Rạch Giá mời về làm việc sau khi đăng tải tin sai sự thật, chửi lãnh đạo Công an TP dù không chứng kiến vụ việc để câu like.
+- Lực lượng vũ trang Đắk Lắk phối hợp với các đơn vị không quân tăng cường công tác bảo vệ hiện trường máy bay Yak-130 rơi, chờ lên phương án xử lý.
+- Bí thư Tỉnh ủy Khánh Hòa Nghiêm Xuân Thành đã đến hiện trường xem xét, giao UBND TP Nha Trang chủ trì phối hợp, xử lý đưa khối đá nguy cơ sạt lở xuống đại lộ Nguyễn Tất Thành khỏi núi Cù Hin trong vòng 24 giờ.
+- Cục Quản lý khám, chữa bệnh có văn bản khẩn gửi Bệnh viện Giao thông vận tải và Bệnh viện Đại học Quốc gia Hà Nội sau phản ảnh tình trạng bát nháo trong khám sức khỏe để đi nước ngoài.
+- Thu nhập quá thấp, công việc áp lực và không có cơ hội thăng tiến là những nguyên nhân khiến công chức nghĩ đến việc bỏ việc. Hơn 75% công chức tại TP.HCM đánh giá khối lượng công việc ở mức nhiều hoặc rất nhiều.
+- Người đàn ông cầm cây gỗ bất ngờ lao vào tấn công cán bộ công an ở phường 10, quận Tân Bình (TP.HCM). Người này sau đó bị khống chế, đưa về công an phường xử lý.
+- Đại biểu Trần Quốc Tuấn đề nghị Luật Quảng cáo sửa đổi cần có các quy định chặt chẽ hơn về việc kiểm tra và xử lý nghiêm các hành vi quảng cáo sai sự thật.
+- Phó cục trưởng Cục Phổ biến, giáo dục pháp luật - Bộ Tư pháp cho rằng vụ việc nhóm quái xế tông tử vong cô gái chờ đèn đỏ là hồi chuông đáng báo động.
+- Công an TP Đà Nẵng bước đầu xác định Công ty GFDI nợ 7.500 khách hàng, với số tiền nợ gốc hơn 3.700 tỉ đồng.
+- Công ty lữ hành quốc tế Việt Nam Winner ở Phú Quốc phản ánh thanh tra viên Sở Du lịch Kiên Giang có dấu hiệu vòi vĩnh xin điện thoại di động.
+- Các lực lượng gìn giữ hòa bình Việt Nam và Úc đã có buổi trao đổi kinh nghiệm về chủ đề phụ nữ, hòa bình và an ninh trong hoạt động gìn giữ hòa bình Liên Hiệp Quốc.
+- Để ứng phó với bão số 7, các đơn vị thuộc Bộ Quốc phòng đã sẵn sàng 270.000 cán bộ, chiến sĩ, dân quân tự vệ, hơn 5.000 phương tiện các loại, trong đó có máy bay trực thăng.
+- Không ở đâu mua hóa chất dễ dàng như ở Việt Nam và đọc báo các vụ án về xyanua giật mình thom thóp.
+- Rủ bạn đi câu cá rồi nam thanh niên mượn xe máy của bạn, điện thoại của mẹ bạn và trốn đến tận Campuchia.
+- Thừa nhận có việc lợi dụng người nổi tiếng để quảng cáo sản phẩm nhưng theo đại biểu Quốc hội, quy định bắt người nổi tiếng phải dùng rồi mới được quảng cáo hơi khó.
+- Huyện ủy Hướng Hóa chỉ đạo xã Thanh rà soát lại đất sản xuất của các hộ dân lấn chiếm, tiếp tục vận động trả đất trong vụ việc người dân lấn chiếm 30ha rẫy sắn.
+- Sau một thời gian phục kích trong đêm, lực lượng Hạt kiểm lâm TP Phú Quốc đã bắt được hai người lén vào tiểu khu 60 rừng đặc dụng ở xã Gành Dầu.
+- Người đi xe máy va quẹt với người chạy xe đạp trên đường Nguyễn Thái Sơn (quận Gò Vấp) rồi ngã xuống đường, bị xe buýt chạy cùng chiều cán tử vong chiều 8-11.
+- Sau khi đi vào Biển Đông, bão số 7 (bão Yinxing) đang có dấu hiệu mạnh trở lại.
+- Bộ trưởng Nguyễn Mạnh Hùng cho biết quảng cáo của một số nhãn hàng, doanh nghiệp Việt bị gắn vào nội dung xấu độc, phản động.
 ![New](News.png)
 ## Nhịp sống số 
+- Máy móc vận hành tự động, robot xuất hiện ở mọi công đoạn, hoạt động sản suất được giám sát toàn trình… và tất cả được kết nối trên hạ tầng mạng là viễn cảnh sản xuất thông minh mà 5G2B của Viettel đang hiện thực hoá.
 - Những lỗ hổng này có thể ảnh hưởng từ smartphone, máy tính bảng cho đến phương tiện di chuyển có kết nối công nghệ và hệ thống viễn thông.
 - Không chỉ đủ năng lực phát hiện ra các lỗ hổng bảo mật trên các thiết bị lưu trữ hình ảnh, dữ liệu nhạy cảm, Viettel Cyber Security (VCS) đặt mục tiêu làm thế nào để những sản phẩm này an toàn hơn cho người dùng.
 - Hàn Quốc phát hiện Meta đã thu thập dữ liệu về tôn giáo, quan điểm chính trị, tình trạng hôn nhân và khuynh hướng tình dục của khoảng 980.000 người dùng Facebook Hàn Quốc.
@@ -94,5 +95,4 @@
 - Sở Y tế TP.HCM đã triển khai phần mềm tra cứu thuốc cấp cứu, với 14 bệnh viện tham gia tra cứu, chia sẻ 37 loại thuốc cấp cứu.
 - Ứng dụng Instagram đã cho ra mắt tính năng được thiết kế dành riêng cho lứa tuổi thanh thiếu niên nhằm tăng cường các biện pháp bảo vệ nhóm đối tượng này.
 - Với sự phát triển chóng mặt của trí tuệ nhân tạo (AI), những kẻ lừa đảo chỉ mất 3 phút để tạo app giả, trang web, fanpage mạo danh.
-- Năm 2024, một chiếc laptop sinh viên chuẩn mực ngoài yếu tố hiệu năng và giá cả còn cần thêm các tiêu chí về sự linh hoạt, công nghệ AI cũng như màn hình OLED. Đây cũng chính là các tính năng trên các dòng laptop sinh viên ASUS.
 ![life](Life.png)
