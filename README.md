@@ -1,6 +1,15 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- 139 học sinh, sinh viên xuất sắc tiêu biểu năm 2024 của thành phố Hải Phòng được tặng bằng khen và phần thưởng 10 triệu đồng/em.
+- Giữa áp lực thời gian và nỗi lo an toàn, nhiều phụ huynh đứng trước lựa chọn khó khăn: giao xe máy cho con đi học hay tiếp tục vất vả đưa đón?
+- Ngày 9-11, ứng dụng học tập trực tuyến Studify được một nhóm bạn trẻ ra mắt tại TP.HCM.
+- Năm nay có những nghiên cứu mới trong lĩnh vực trí tuệ nhân tạo, và số lượng bài báo công bố quốc tế tăng. Đặc biệt, trình bày tiếng Anh trong nghiên cứu khoa học tốt hơn những năm trước.
+- Theo đại biểu Hoàng Văn Cường, không nên quy định cấm nhà giáo bắt ép người học phải nộp tiền, bởi có khi không ép họ vẫn nộp bằng những cách 'rất khéo, tế nhị'.
+- Nhiều thí sinh lo lắng sau khi Trường đại học Kinh tế - Luật (Đại học Quốc gia TP.HCM) công bố phương án tuyển sinh năm 2025, trong đó có việc cắt giảm 2 tổ hợp môn xét tuyển.
+- Tổng Bí thư cho rằng Luật Nhà giáo khi ban hành phải tạo cho nhà giáo sự phấn khởi, được tôn vinh, tạo điều kiện thuận lợi cho công tác giảng dạy.
+- Trong 4 ứng viên đạt chuẩn phó giáo sư thuộc thế hệ 9X, người trẻ nhất năm nay 33 tuổi, từng học đại học của Mỹ, học thạc sĩ tại Anh và hiện tại đang tích cực hỗ trợ sinh viên Việt Nam tại Học viện Ngân hàng.
+- Lớp học giản dị bên hiên nhà với vài bộ bàn ghế, nhưng đối với các em học sinh, nơi đây là cả bầu trời tri thức, là nơi các em lần đầu biết đến con chữ và được vui chơi thỏa thích với tình yêu của người giáo viên đặc biệt.
 - Bộ trưởng Nguyễn Kim Sơn nêu rõ so với quy định hiện hành, dự Luật Nhà giáo có nhiều chính sách mới về tuyển dụng, tiền lương, tuổi nghỉ hưu với nhà giáo.
 - Nhiều giảng viên đại học cho biết rất sợ mỗi khi trường vào đợt kiểm định vì họ mất rất nhiều thời gian, công sức cho việc này.
 - Bữa ăn của trẻ vượt quá tiêu chuẩn cho phép không chỉ gây hại cho sức khỏe trẻ như béo phì, sâu răng, tăng huyết áp mà còn hình thành thói quen ăn uống không lành mạnh ngay từ nhỏ qua bữa ăn bán trú.
@@ -22,49 +31,41 @@
 - Trường phổ thông Thực hành Sư phạm thuộc Đại học Đồng Nai đang thiếu tiền trả lương cho giáo viên. Hoạt động giảng dạy của trường cầm chừng vì thiếu kinh phí.
 - Đó là khẳng định của ông Nguyễn Văn Hiếu, giám đốc Sở Giáo dục và Đào tạo TP.HCM, khi trao đổi với Tuổi Trẻ về định hướng phát triển mô hình trường tiên tiến, hội nhập quốc tế (sau đây gọi tắt là trường tiên tiến).
 - Những năm qua Hà Nội triển khai nhiều giải pháp nâng cao chất lượng nguồn nhân lực, trong đó có quyết tâm thực hiện ‘dạy thật, học thật, thi thật, nhân tài thật’.
-- Chiều 5-11, UBND huyện Tam Đường, tỉnh Lai Châu tổ chức họp báo đột xuất cung cấp thông tin về vụ việc trẻ nhập viện nghi ngộ độc do ăn nhầm thuốc diệt chuột tại Trường mầm non xã Giang Ma.
-- Hơn 300 phụ huynh ở Đồng Nai bị xử phạt hành chính do giao xe cho học sinh chưa đủ tuổi điều khiển.
-- Bắc Ninh thí điểm tổ chức dạy học 5 ngày trong tuần và nghỉ ngày thứ bảy, chủ nhật tại 4 trường trong tỉnh.
-- Xét về số lượng giáo sư, phó giáo sư được xét năm 2024, Trường đại học Cần Thơ đứng đầu cơ sở giáo dục, Hà Nội dẫn đầu theo tỉnh thành.
-- Phụ huynh nên cân nhắc khi giao xe máy cho con vì đó là sự an toàn, là tính mạng của con em mình.
-- Công an huyện Bố Trạch (Quảng Bình) đã vào cuộc xác minh những thông tin liên quan đến vụ hiệu trưởng kê khai giá bạt chống nắng cao gấp 3 giá khảo sát của phụ huynh tại Trường tiểu học Lý Trạch.
-- Sáng 5-11, trước tình hình mưa lớn gây ngập nhiều tuyến đường, nhiều trường ở Đà Nẵng thông báo cho học sinh nghỉ học. Một số bếp ăn bán trú của trường không kịp trở tay.
-- Hầu hết các trường tiên tiến, hội nhập quốc tế (gọi tắt là trường tiên tiến) đã và đang là những trường "hot" ở TP.HCM.
-- Chính phủ Công đảng Anh vừa công bố quyết định tăng học phí đại học tại Anh lần đầu tiên sau 8 năm, trong bối cảnh các trường đại học đang đối mặt với tình trạng thâm hụt tài chính nghiêm trọng.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Bộ trưởng Nguyễn Kim Sơn nêu rõ so với quy định hiện hành, dự Luật Nhà giáo có nhiều chính sách mới về tuyển dụng, tiền lương, tuổi nghỉ hưu với nhà giáo.
-- Việc làm thủ tục hoạt động phà Bình Quới (quận Bình Thạnh, TP.HCM) phức tạp nên đến nay phà chưa thể chạy lại gây khó khăn cho việc đi lại của người dân.
-- Dự báo bão số 7 (Yinxing) duy trì cường độ mạnh cấp 14, giật cấp 17 trong khoảng 24 giờ tới, sau đó suy yếu. Trong khi đó, ở ngoài khơi Philippines vừa hình thành áp thấp nhiệt đới có khả năng mạnh lên thành bão và đi vào Biển Đông.
-- Một số tin tức đáng chú ý: Quốc hội xem xét thí điểm cho mua bán vật chứng, tài sản ở các vụ án; Không đơn hàng 18 tháng, doanh nghiệp may trầy trật bán lô đất trăm tỉ; 'Nhập nhằng' về nhân sự, một công ty quản lý quỹ bị phạt...
-- Hôm nay 9-11, thời tiết đất liền tương đối ổn định, vài nơi mưa rào. Biển Đông dông gió dữ dội khi bão số 7 (Yinxing) áp sát quần đảo Hoàng Sa.
-- Tối 8-11, Chủ tịch nước Lương Cường rời Hà Nội, bắt đầu chuyến công tác nước ngoài đầu tiên với hai điểm đến là Chile và Peru.
-- Lúc 17h ngày 8-11, tại Km1194+850 đường sắt Thống Nhất qua phường 9 (TP Tuy Hòa, Phú Yên), tàu hàng đi hướng Nam - Bắc tông phải một bé trai 7 tuổi.
-- Đoàn kiểm tra liên ngành tỉnh Bắc Ninh do lãnh đạo Công an tỉnh Bắc Ninh bắt đầu kiểm tra toàn diện cụm công nghiệp làng nghề Mẫn Xá.
-- Theo Trung tâm Dự báo khí tượng thủy văn quốc gia lúc 19h tối nay 8-11, tâm bão số 7 (bão Yinxing) đang cách quần đảo Hoàng Sa hơn 600km về phía đông, sức gió mạnh nhất vùng gần tâm bão mạnh cấp 14 (150-166km/h), giật cấp 17.
-- Ông Nguyễn Văn Phong - phó bí thư Thành ủy Hà Nội - được bí thư Hà Nội phân công làm phó bí thư thường trực Thành ủy Hà Nội khóa XVII, nhiệm kỳ 2020-2025.
-- Cô gái bị Công an TP Rạch Giá mời về làm việc sau khi đăng tải tin sai sự thật, chửi lãnh đạo Công an TP dù không chứng kiến vụ việc để câu like.
-- Lực lượng vũ trang Đắk Lắk phối hợp với các đơn vị không quân tăng cường công tác bảo vệ hiện trường máy bay Yak-130 rơi, chờ lên phương án xử lý.
-- Bí thư Tỉnh ủy Khánh Hòa Nghiêm Xuân Thành đã đến hiện trường xem xét, giao UBND TP Nha Trang chủ trì phối hợp, xử lý đưa khối đá nguy cơ sạt lở xuống đại lộ Nguyễn Tất Thành khỏi núi Cù Hin trong vòng 24 giờ.
-- Cục Quản lý khám, chữa bệnh có văn bản khẩn gửi Bệnh viện Giao thông vận tải và Bệnh viện Đại học Quốc gia Hà Nội sau phản ảnh tình trạng bát nháo trong khám sức khỏe để đi nước ngoài.
-- Thu nhập quá thấp, công việc áp lực và không có cơ hội thăng tiến là những nguyên nhân khiến công chức nghĩ đến việc bỏ việc. Hơn 75% công chức tại TP.HCM đánh giá khối lượng công việc ở mức nhiều hoặc rất nhiều.
-- Người đàn ông cầm cây gỗ bất ngờ lao vào tấn công cán bộ công an ở phường 10, quận Tân Bình (TP.HCM). Người này sau đó bị khống chế, đưa về công an phường xử lý.
-- Đại biểu Trần Quốc Tuấn đề nghị Luật Quảng cáo sửa đổi cần có các quy định chặt chẽ hơn về việc kiểm tra và xử lý nghiêm các hành vi quảng cáo sai sự thật.
-- Phó cục trưởng Cục Phổ biến, giáo dục pháp luật - Bộ Tư pháp cho rằng vụ việc nhóm quái xế tông tử vong cô gái chờ đèn đỏ là hồi chuông đáng báo động.
-- Công an TP Đà Nẵng bước đầu xác định Công ty GFDI nợ 7.500 khách hàng, với số tiền nợ gốc hơn 3.700 tỉ đồng.
-- Công ty lữ hành quốc tế Việt Nam Winner ở Phú Quốc phản ánh thanh tra viên Sở Du lịch Kiên Giang có dấu hiệu vòi vĩnh xin điện thoại di động.
-- Các lực lượng gìn giữ hòa bình Việt Nam và Úc đã có buổi trao đổi kinh nghiệm về chủ đề phụ nữ, hòa bình và an ninh trong hoạt động gìn giữ hòa bình Liên Hiệp Quốc.
-- Để ứng phó với bão số 7, các đơn vị thuộc Bộ Quốc phòng đã sẵn sàng 270.000 cán bộ, chiến sĩ, dân quân tự vệ, hơn 5.000 phương tiện các loại, trong đó có máy bay trực thăng.
-- Không ở đâu mua hóa chất dễ dàng như ở Việt Nam và đọc báo các vụ án về xyanua giật mình thom thóp.
-- Rủ bạn đi câu cá rồi nam thanh niên mượn xe máy của bạn, điện thoại của mẹ bạn và trốn đến tận Campuchia.
-- Thừa nhận có việc lợi dụng người nổi tiếng để quảng cáo sản phẩm nhưng theo đại biểu Quốc hội, quy định bắt người nổi tiếng phải dùng rồi mới được quảng cáo hơi khó.
-- Huyện ủy Hướng Hóa chỉ đạo xã Thanh rà soát lại đất sản xuất của các hộ dân lấn chiếm, tiếp tục vận động trả đất trong vụ việc người dân lấn chiếm 30ha rẫy sắn.
-- Sau một thời gian phục kích trong đêm, lực lượng Hạt kiểm lâm TP Phú Quốc đã bắt được hai người lén vào tiểu khu 60 rừng đặc dụng ở xã Gành Dầu.
-- Người đi xe máy va quẹt với người chạy xe đạp trên đường Nguyễn Thái Sơn (quận Gò Vấp) rồi ngã xuống đường, bị xe buýt chạy cùng chiều cán tử vong chiều 8-11.
-- Sau khi đi vào Biển Đông, bão số 7 (bão Yinxing) đang có dấu hiệu mạnh trở lại.
-- Bộ trưởng Nguyễn Mạnh Hùng cho biết quảng cáo của một số nhãn hàng, doanh nghiệp Việt bị gắn vào nội dung xấu độc, phản động.
+- Đại biểu Quốc hội và đại diện cơ quan chức năng nói như vậy về tình trạng cha mẹ, người thân, chủ phương tiện giao xe cho người không đủ điều kiện sử dụng và gây tai nạn giao thông.
+- 139 học sinh, sinh viên xuất sắc tiêu biểu năm 2024 của thành phố Hải Phòng được tặng bằng khen và phần thưởng 10 triệu đồng/em.
+- Hiện nhiều địa phương ở miền Bắc có chất lượng không khí ở ngưỡng xấu, có nơi rất kém cả ngày lẫn đêm.
+- Đêm qua và rạng sáng 10-11, bão Yinxing (bão số 7) có xu hướng đi chậm lại, dần đổi hướng đi về vùng biển các tỉnh Trung Trung Bộ và cường độ bắt đầu suy yếu.
+- Một số tin tức đáng chú ý: Lãi suất liên ngân hàng lên cao nhất 20 tháng;  Lào Cai miễn học phí các cấp năm học 2024-2025; Cứ 3 giây có một người bị đột quỵ...
+- Bệnh viện dã chiến cấp 2 số 6 của Việt Nam tại Nam Sudan đã vận chuyển bay liên hoàn một thai phụ  mang thai đôi trong tình trạng nguy kịch.
+- Hòn đá trên núi Cù Hin có nguy cơ mất an toàn đã bị “xóa sổ”, chấm dứt việc “xà quần” xử lý hơn 1 tháng rưỡi.
+- Chiều tối 9-11, bão Yinxing (bão số 7) mạnh lên cấp 14-15 (150-183km/h), giật trên cấp 17. Dự báo từ ngày mai bão sẽ suy yếu dần do tương tác với không khí lạnh.
+- Hai phiên tòa sơ thẩm và phúc thẩm tuyên Công ty Trung Nam bị mất số tiền đặt cọc 93 tỉ nhưng quyết định giám đốc thẩm đã hủy cả hai bản án.
+- Gian hàng VinFast nổi bật giữa sự kiện với 6 mẫu xe máy điện, khách tham dự từ người trẻ đến trung niên nhộn nhịp đăng ký, háo hức chờ lái thử. Chuỗi hoạt động VinFast khiến khách thích mê trong tiếng cười, quà tặng ngập tràn.
+- Cập nhật chất lượng không khí theo từng giờ cho thấy nhiều nơi ở Hà Nội, Thái Nguyên, Hải Dương, Hưng Yên, Thái Bình có chất lượng không khí ở ngưỡng xấu, rất kém.
+- Chiều 9-11, một trận động đất mạnh 3,3 độ xảy ra tại khu vực huyện Thanh Thủy, Phú Thọ, khu vực giáp ranh huyện Ba Vì, Hà Nội.
+- Lao động trở về từ Hàn Quốc, Nhật Bản đang được doanh nghiệp săn đón do có ngoại ngữ, kỹ năng nghề, tác phong công nghiệp.
+- Theo Cơ quan khí tượng Nhật Bản, ở tây bắc Thái Bình Dương vừa hình thành bão Toraji và bão Man-yi, trong đó bão Toraji có khả năng đi vào Biển Đông, trở thành cơn bão số 8 trong năm 2024.
+- Theo Bộ trưởng Chủ nhiệm Văn phòng Chính phủ, trong sáng 9-11, Thủ tướng đã có chỉ đạo trong 6 tháng tới Bộ Y tế cùng các đơn vị liên quan phải hoàn thiện và đưa vào bàn giao dự án cơ sở 2 Bệnh viện Bạch Mai và Việt Đức.
+- Ông Đoàn Quốc Việt, nhà sáng lập Tập đoàn BIM, đã qua đời vào ngày 7-11 ở tuổi 70, lễ viếng ông sẽ diễn ra tại Hà Nội vào ngày 10-11.
+- Theo thiếu tướng Hoàng Anh Tuyên, cơ quan điều tra đã khởi tố vụ án xảy ra tại Công ty Vàng bạc đá quý Sài Gòn (SJC), đồng thời khởi tố 6 người để điều tra về hai tội danh.
+- Xử lý tồn đọng, kéo dài, gồm khẩn trương trình phương án chuyển giao bắt buộc các ngân hàng kiểm soát đặc biệt còn lại.
+- Trưởng Phòng Tài nguyên và Môi trường TP Vũng Tàu Trần Phú Vinh vừa bị khởi tố, bắt tạm giam để điều tra về hành vi môi giới hối lộ.
+- Theo đại biểu Hoàng Văn Cường, không nên quy định cấm nhà giáo bắt ép người học phải nộp tiền, bởi có khi không ép họ vẫn nộp bằng những cách 'rất khéo, tế nhị'.
+- Quảng Ngãi vừa chọn 10 sản phẩm OCOP đạt tiêu chí của Bộ Nông nghiệp và Phát triển nông thôn để đăng ký tham gia quảng bá, giới thiệu ở một số hệ thống phân phối tại thị trường Mỹ.
+- Trong hai năm qua, có ít nhất 282 bé gái tuổi vị thành niên ở Quảng Ngãi mang thai. Có trường hợp chưa đến 13 tuổi.
+- Tổng Bí thư cho rằng Luật Nhà giáo khi ban hành phải tạo cho nhà giáo sự phấn khởi, được tôn vinh, tạo điều kiện thuận lợi cho công tác giảng dạy.
+- Công an TP Hà Nội xác định trang web Fmovies đang có gần 50.000 phim lậu xâm phạm quyền tác giả, quyền liên quan, trong đó có rất nhiều phim của Hiệp hội Điện ảnh Hoa Kỳ đang được bảo hộ.
+- Đại sứ Pháp Olivier Brochet chia sẻ Pháp đang theo dõi sát sao quyết định của Quốc hội Việt Nam về chủ trương đầu tư đường sắt tốc độ cao Bắc - Nam, trước khi có phương án tham gia.
+- Hiện nay nhiều vựa thu mua sầu riêng tại tỉnh Tiền Giang đang phát giá 195.000 đồng/kg sầu riêng Monthong (Thái) và 140.000 đồng/kg sầu riêng ri 6, nhưng không có hàng để mua.
+- Ông Olivier Brochet - đại sứ đặc mệnh toàn quyền Cộng hòa Pháp tại Việt Nam - khẳng định như vậy tại lễ vận hành đoạn trên cao tuyến metro Nhổn - ga Hà Nội diễn ra sáng 9-11, tại ga S8 - ga Cầu Giấy.
+- Tài sản là máy móc, trang thiết bị trong vụ án tại Bệnh viện Bạch Mai 'không có tội' nhưng khi xảy ra vụ án, hệ thống máy để đấy, không hoạt động rất lãng phí.
+- Sở Giao thông vận tải TP.HCM vừa có văn bản gửi các đơn vị về tăng cường phổ biến cho tài xế (xe buýt, xe taxi...) tuân thủ và chấp hành nghiêm các quy định về an toàn giao thông.
+- Không khí lạnh, độ ẩm thấp và nhiệt độ mặt nước biển không cao khiến bão số 7 (Yinxing) có nhiều khả năng suy yếu nhanh khi đi vào gần đất liền Việt Nam.
 ![New](News.png)
 ## Nhịp sống số 
+- Ngày 9-11, ứng dụng học tập trực tuyến Studify được một nhóm bạn trẻ ra mắt tại TP.HCM.
 - Máy móc vận hành tự động, robot xuất hiện ở mọi công đoạn, hoạt động sản suất được giám sát toàn trình… và tất cả được kết nối trên hạ tầng mạng là viễn cảnh sản xuất thông minh mà 5G2B của Viettel đang hiện thực hoá.
 - Những lỗ hổng này có thể ảnh hưởng từ smartphone, máy tính bảng cho đến phương tiện di chuyển có kết nối công nghệ và hệ thống viễn thông.
 - Không chỉ đủ năng lực phát hiện ra các lỗ hổng bảo mật trên các thiết bị lưu trữ hình ảnh, dữ liệu nhạy cảm, Viettel Cyber Security (VCS) đặt mục tiêu làm thế nào để những sản phẩm này an toàn hơn cho người dùng.
@@ -94,5 +95,4 @@
 - Nhằm giúp doanh nghiệp tiết kiệm chi phí mà vẫn có thể tận dụng nhiều lợi ích của các máy chủ cloud, Bizfly Cloud tung ra dòng máy chủ Cloud VPS giá rẻ hấp dẫn.
 - Sở Y tế TP.HCM đã triển khai phần mềm tra cứu thuốc cấp cứu, với 14 bệnh viện tham gia tra cứu, chia sẻ 37 loại thuốc cấp cứu.
 - Ứng dụng Instagram đã cho ra mắt tính năng được thiết kế dành riêng cho lứa tuổi thanh thiếu niên nhằm tăng cường các biện pháp bảo vệ nhóm đối tượng này.
-- Với sự phát triển chóng mặt của trí tuệ nhân tạo (AI), những kẻ lừa đảo chỉ mất 3 phút để tạo app giả, trang web, fanpage mạo danh.
 ![life](Life.png)
