@@ -1,6 +1,17 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Trong 17 năm qua, quỹ học bổng của gia đình giáo sư Lê Viết Ly đã tài trợ cho tỉnh Thanh Hóa để xây dựng trường học, hỗ trợ thiết bị giáo dục, trao học bổng, trao thưởng với tổng số tiền hơn 75 tỉ đồng.
+- Bộ tem 'Những dấu ấn lịch sử của Chủ tịch Hồ Chí Minh' được tác giả trưng bày tại Trường THPT chuyên Lê Hồng Phong (TP.HCM) từ nay đến hết ngày 15-11.
+- Chuỗi tọa đàm trực tuyến InnovaTalk do Quỹ VinFuture tổ chức trở thành cầu nối vững chắc cho cộng đồng khoa học Việt Nam vươn tới thế giới.
+- Hội nghị khoa học lần 14 năm 2024 với chủ đề "Khoa học và công nghệ hướng tới tương lai xanh và thông minh".
+- Sở Giáo dục và Đào tạo Đà Nẵng đã yêu cầu các đơn vị liên quan xác minh, xử lý 2 cơ sở dạy trẻ tự kỷ sau phản ánh của báo Tuổi Trẻ.
+- Sở Giáo dục và Đào tạo đã tổ chức gặp gỡ những nhà giáo đi B, nhà giáo nội đô nhân kỷ niệm 42 năm Ngày Nhà giáo Việt Nam 20-11.
+- 568 em học sinh tại huyện Mỏ Cày Nam và Mỏ Cày Bắc, tỉnh Bến Tre đón nhận những phần học bổng từ Tập đoàn TTC.
+- Quốc hội vừa thảo luận về những điều cấm giáo viên không được làm, đặc biệt là cấm giáo viên nhận tiền của người học.
+- Quá nhiều app, có app gần như không tác dụng, cả năm dùng đôi ba lần, trẻ học mầm non, phụ huynh cũng phải tốn tiền tải app sổ liên lạc điện tử.
+- Nếu một quốc gia có một nền giáo dục tốt, có chất lượng cao thì sự phát triển về mặt kinh tế, văn hóa, xã hội cũng nhanh hơn và ngược lại.
+- Nhiều sinh viên đã chủ động xây dựng và phát triển hồ sơ cá nhân, tích cực cọ xát công việc thực tế từ khi còn đi học.
 - Con tôi giờ đã học THPT, nhưng mỗi khi nhắc về trường THCS, nó lại nói: 'Ước gì thầy Khoa, cô Thủy, thầy Hào chuyển lên trường cấp III dạy con'.
 - Trung tâm Khảo thí quốc gia và Đánh giá chất lượng giáo dục (Bộ Giáo dục và Đào tạo) vừa công bố đề minh họa 8 bài thi đánh giá đầu vào đại học trên máy tính (V-SAT) năm 2025.
 - Trường đại học Duy Tân trở thành trường đại học tư thục đầu tiên của Việt Nam chuyển qua mô hình đại học.
@@ -20,49 +31,38 @@
 - Bộ trưởng Nguyễn Kim Sơn nêu rõ so với quy định hiện hành, dự Luật Nhà giáo có nhiều chính sách mới về tuyển dụng, tiền lương, tuổi nghỉ hưu với nhà giáo.
 - Nhiều giảng viên đại học cho biết rất sợ mỗi khi trường vào đợt kiểm định vì họ mất rất nhiều thời gian, công sức cho việc này.
 - Bữa ăn của trẻ vượt quá tiêu chuẩn cho phép không chỉ gây hại cho sức khỏe trẻ như béo phì, sâu răng, tăng huyết áp mà còn hình thành thói quen ăn uống không lành mạnh ngay từ nhỏ qua bữa ăn bán trú.
-- Tối 8-11, Trường đại học Kinh tế - Luật (Đại học Quốc gia TP.HCM) công bố phương án tuyển sinh đại học chính quy năm 2025 với 3 phương thức xét tuyển.
-- Kết quả một nghiên cứu vừa được công bố cho thấy mức độ cô đơn của sinh viên năm tư có xu hướng tập trung cao nhất trong tất cả sinh viên các năm.
-- Học sinh bị bạn làm gãy tay, phụ huynh muốn nhà trường chuyển lớp cho bạn gây tai nạn vì sợ học chung không an toàn. Nhà trường nói gì?
-- Một số hiệu trưởng trường tiểu học, THCS ở TP.HCM nhận được tin nhắn yêu cầu theo dõi, bắt và lập biên bản các giáo viên dạy thêm.
-- Nhiều phụ huynh có con học tiểu học tại xã DLiê Yang (Đắk Lắk) tố bị "ăn chặn" tiền bảo hiểm y tế nhưng ngành giáo dục khẳng định đó là hiểu lầm.
-- Ngày 8-11, tại TP Pleiku, ấn phẩm Mực Tím - báo Tuổi Trẻ tổ chức chương trình trao học bổng "Vì tương lai Việt Nam" cho học sinh tỉnh Gia Lai.
-- Hàng loạt trường đại học công bố sẽ không sử dụng phương thức xét tuyển học bạ THPT từ năm 2025.
-- Phụ huynh than thở bị 'bội thực' với app, nào là Enetviet, Vietschool, K12Online, LMS... Có những app tốn phí, ít dùng tới nhưng buộc phải cài.
-- TS Ray Nguyễn - giám đốc Mảng thiết kế mạch điện tương tự và hỗn hợp ở Marvell Technology, công ty tại Thung lũng Silicon (Mỹ) - vừa có buổi nói chuyện tại Trường ĐH Fulbright Việt Nam.
-- Trường Đại học Kinh Bắc khẳng định 160 bằng tốt nghiệp do ông Phạm Ngọc Trúc ký, cấp phát cho sinh viên đợt 2 năm 2024 là không đúng quy định pháp luật.
-- Sinh viên Đại học Quốc gia TP.HCM có cơ hội giao lưu và học hỏi kinh nghiệm từ những người đã và đang thành công trên nhiều lĩnh vực.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Một người đàn ông bất ngờ nhảy từ cầu Sài Gòn (TP.HCM) xuống sông trong trạng thái mất bình tĩnh. Các nhân viên buýt sông đã cứu kịp thời.
-- Chủ tịch nước Lương Cường gặp bà Patricia Abarzua, người đã dành thời thanh niên xuống đường ủng hộ cuộc đấu tranh chính nghĩa của Việt Nam.
-- Thống đốc Nguyễn Thị Hồng là vị "tư lệnh" ngành đầu tiên đăng đàn trả lời chất vấn tại Quốc hội với nhiều nội dung quan trọng.
-- Từ số vốn điều lệ ban đầu 80 tỉ đồng năm 2018, đến khi vỡ nợ Công ty GFDI ở Đà Nẵng đã vay của khách hàng lên tới hơn 3.700 tỉ đồng.
-- Hàng chục quái xế trong lứa tuổi thanh, thiếu niên điều khiển xe máy gây náo loạn đường phố đã bị lực lượng tuần tra hóa trang kết hợp công khai tại Hưng Yên phát hiện, xử lý.
-- Đêm qua và rạng sáng 11-11, bão Toraji tiếp tục mạnh lên cấp 12 (118-133km/h), giật cấp 15. Dự báo trong tối nay bão đi vào Biển Đông, trở thành cơn bão số 8 trong năm nay.
-- Tin tức đáng chú ý: Quốc hội chất vấn 'tư lệnh' ngành ngân hàng, y tế; Theo dõi chặt bão Toraji để chủ động ứng phó; FLC Faros có sếp mới 9X.
-- Hôm nay 11-11, bão Yinxing đổi hướng thẳng về phía Hoàng Sa rồi dần suy yếu, thời tiết đất liền ổn định hết ngày nay, sau đó miền Trung có đợt mưa to.
-- Thống đốc Nguyễn Thị Hồng, Bộ trưởng Y tế Đào Hồng Lan, Bộ trưởng Thông tin và Truyền thông Nguyễn Mạnh Hùng sẽ đăng đàn trả lời chất vấn tại Quốc hội.
-- Cùng tham dự với Chủ tịch nước Lương Cường có nguyên Tổng thống Chile Michelle Bachellet, Chủ tịch Đảng Cộng sản Chile Lautaro Carmona và đông đảo người dân.
-- Ngày 10-11, lãnh đạo UBND TP.HCM, lãnh đạo các ban Đảng TP đã tham dự Ngày hội Đại đoàn kết toàn dân tộc năm 2024 tại các địa phương.
-- Trời mưa to, sóng cao gần nửa mét nhưng đoàn đại biểu TP.HCM vẫn vượt sóng vượt gió trao tận tay những phần quà nghĩa tình đến các chiến sĩ đảo Hòn Khoai, Cà Mau.
-- Theo đại diện Cục Kiểm soát ô nhiễm môi trường (Bộ Tài nguyên và Môi trường), có nhiều nguồn thải dẫn đến ô nhiễm không khí ở Hà Nội.
-- Cũng trong tối 10-11, gala trao giải Tái tạo xanh và Tuổi Trẻ Start-up Award 2024 đã diễn ra trong khuôn khổ bế mạc 2 ngày hội Việt Nam Xanh.
-- Vụ cháy khiến khói bao trùm các hành lang, xộc thẳng vào phòng, nhiều người chỉ kịp quơ vội vài vật dụng chạy lên tầng thượng. Nhưng đã có người không thoát kịp, tử vong.
-- Dự báo sau khi bão Yinxing (bão số 7) suy yếu, Biển Đông có thể đón liên tiếp cơn bão số 8 (bão Toraji) và bão số 9.
-- UBND xã Hòa Thắng (TP Buôn Ma Thuột, tỉnh Đắk Lắk) đã có quyết định cưỡng chế đối với công trình xây dựng trái phép trên sân golf của vợ chồng giám đốc một chi nhánh ngân hàng.
-- Ngày cuối tuần, nhiều gia đình đã hào hứng tham gia Ngày hội Việt Nam Xanh mang theo đủ loại rác thải - từ chai nhựa, lọ thủy tinh đến túi ni lông để đổi lấy những phần quà thú vị từ INSEE Việt Nam.
-- Trong dòng người đến Việt Nam Xanh vào ngày 10-11, có một vị khách đặc biệt lặng lẽ đi từng không gian xanh, nhìn ngắm những sản phẩm tái chế và nán lại sẻ chia về cảm nhận của mình.
-- Ban chỉ đạo thống nhất nâng mức hỗ trợ lên 60 triệu đồng/căn nhà xây mới, hỗ trợ 30 triệu đồng/căn nhà sửa chữa.
-- Trước thềm phiên chất đối với 3 'tư lệnh' ngành vào sáng mai (11-11), đã có nhiều câu hỏi 'nóng' được đại biểu Quốc hội chia sẻ mong muốn nhận lời giải đáp.
-- Lực lượng chức năng đã kết thúc khám nghiệm hiện trường và đưa máy bay Yak-130 rơi ở Vườn quốc gia Yok Đôn về đơn vị thuộc Trường Sĩ quan Không quân.
-- Ngày 10-11, lực lượng chức năng TP Thủ Đức (TP.HCM) đưa 4 người đàn ông dùng tay đánh rồi cầm dao, kéo đe dọa tài xế taxi ở Bệnh viện TP Thủ Đức để thực nghiệm hiện trường, củng cố hồ sơ xử lý.
-- Cây xanh không chỉ èo uột trên đường vành đai phía tây Đà Nẵng, mà tuyến đường vành đai phía nam trăm tỉ (đoạn Hòa Phước - Hòa Khương) cũng có hàng loạt cây xanh chết trụi.
-- Phòng gym lắp camera trong khu thay đồ nữ; Tranh chấp phí quản lý bị cắt nước sinh hoạt... là những thông tin bạn đọc phản ánh đến Tuổi Trẻ trong tuần qua.
-- Cử tri cho rằng TP.HCM có số lượng án dân sự phải thi hành cao nhất cả nước, nhưng tỉ lệ thi hành án xong chỉ đạt khoảng 70% hằng năm.
-- Người dân TP.HCM vừa thở phào với động thái chấn chỉnh việc kiểm tra hiện trạng nhà ở đối với hệ thống Văn phòng đăng ký đất đai từ Sở Tài nguyên và Môi trường.
-- Theo chuyên gia thời tiết, khi bão Toraji gần vào Biển Đông thì tương tác bão đôi xuất hiện, bão Toraji sẽ làm cho bão Yinxing lệch nhiều hơn xuống phía nam.
-- Ngày 10-11, tại quận 3, TP.HCM, hàng ngàn người dân đến bờ kênh Nhiêu Lộc - Thị Nghè để cổ vũ cho Lễ hội đua ghe ngo, một trong những hoạt động thể thao truyền thống nổi bật của cộng đồng người Khmer.
-- Một vụ cháy nhà trong hẻm đường Bà Hạt, quận 10, TP.HCM làm nhiều người mắc kẹt, lực lượng chức năng đến ứng cứu. Tuy nhiên, vụ cháy đã làm một cụ bà khoảng 77 tuổi tử vong.
+- Bộ trưởng Đào Hồng Lan nêu rõ bản thân rất quan tâm và "mấy ngày trước đây cũng đeo khẩu trang bịt mặt ra hàng thuốc gần nhà mua thuốc kê đơn".
+- Đàn chó dữ trong sân golf của gia đình giám đốc ngân hàng rất nguy hiểm nên phải hoãn cưỡng chế chờ sự hỗ trợ của đội huấn luyện chó nghiệp vụ Công an tỉnh Đắk Lắk đến xử lý.
+- Sáng 12-11, áp thấp nhiệt đới suy yếu từ bão số 7 (bão Yinxing) đang ở ngay trên vùng biển các tỉnh Quảng Nam đến Bình Định và gây mưa các tỉnh Trung và Nam Trung Bộ.
+- Sở Xây dựng TP.HCM vừa tham mưu UBND TP xây dựng Đề án thực hiện di dời toàn bộ nhà trên và ven sông, kênh, rạch trên địa bàn TP.HCM.
+- Theo chương trình, từ 9h05 sáng nay 12-11, Bộ trưởng Bộ Thông tin và Truyền thông Nguyễn Mạnh Hùng sẽ là ‘tư lệnh’ ngành thứ 3 đăng đàn trả lời chất vấn.
+- Đề xuất cần phải tịch thu xe để xử lý quái xế có phù hợp?
+- Tại phiên chất vấn đối với lĩnh vực ngân hàng vào hôm 11-11, quản lý thị trường vàng và tăng trưởng tín dụng là hai nội dung được nhiều đại biểu quan tâm nhất.
+- Chỉ hơn 2 tuần sau khi đảm nhận cương vị mới, Chủ tịch nước Lương Cường đã chọn Chile là điểm đến cho chuyến thăm nước ngoài đầu tiên.
+- Sau phản ánh của Tuổi Trẻ Online về việc vỉa hè dọc hồ Tây ngang nhiên biến thành chốn ăn nhậu, trong tối 11-11, Công an quận Tây Hồ (Hà Nội) đã phối hợp với công an các phường ra quân nhắc nhở, xử lý vi phạm.
+- Vì cho rằng UBND tỉnh Khánh Hòa chưa có văn bản trả lời ý kiến của Cục Thuế tỉnh, một chi cục thuế ở tỉnh này đã dừng xử lý hồ sơ xác định nghĩa vụ tài chính về đất đai cho dân.
+- Một số tin tức đáng chú ý: Hôm nay Thủ tướng Phạm Minh Chính sẽ trả lời chất vấn trước Quốc hội; Cổ phiếu một doanh nghiệp bất động sản vào diện cảnh báo; "Cơn mưa" tiền mặt cổ tức về cuối năm, một công ty Sông Đà sắp chi hàng trăm tỉ...
+- Tổng Bí thư Tô Lâm và Tổng thống đắc cử của Mỹ Donald Trump đã trao đổi đánh giá về quan hệ song phương, cũng như phương hướng tăng cường quan hệ kinh tế, thương mại trong cuộc điện đàm tối 11-11.
+- Hôm nay 12-11, bão số 7 (Yinxing) suy yếu nhanh chóng nhưng gây mưa to cho miền Trung, bão Toraji dự báo vào Biển Đông thành bão số 8.
+- Trong khuôn khổ chuyến thăm chính thức Chile, Chủ tịch nước Lương Cường đã hội kiến Chủ tịch Thượng viện José Garcia Ruminot và Chủ tịch Hạ viện Karol Cariola ngày 11-11.
+- Hai giám đốc sở Nội vụ và Tài nguyên và Môi trường đã trúng cử chức danh ủy viên UBND thành phố Hải Phòng khóa XVI.
+- Tối 11-11, bão Toraji đi vào Biển Đông, trở thành cơn bão số 8 trong năm 2024. Trong khi đó, bão Yinxing (bão số 7) suy yếu thành áp thấp nhiệt đới.
+- Tổng thống Gabriel Boric Font chủ trì lễ đón chính thức Chủ tịch nước Lương Cường tại Quảng trường Hiến Pháp trưa 11-11.
+- 90 tác phẩm đã được trao giải báo chí ‘Vì sự nghiệp đại đoàn kết toàn dân tộc’ lần thứ 16.
+- Tổng Bí thư Tô Lâm nêu rõ cần khẩn trương thực hiện nghị quyết 18 về tinh gọn tổ chức bộ máy với quyết tâm chính trị cao, hành động quyết liệt, thống nhất về tư tưởng của cả hệ thống chính trị.
+- Ngoài điện chúc mừng Thủ tướng Nhật Bản Ishiba Shigeru của Thủ tướng Phạm Minh Chính, Chủ tịch Quốc hội Trần Thanh Mẫn cũng có thư mừng Chủ tịch Hạ viện và Chủ tịch Thượng viện Nhật Bản.
+- Ban Giao thông vừa có báo cáo về tình hình thi công các dự án trọng điểm như nút giao An Phú, hầm chui Nguyễn Hữu Thọ, đường nối ở sân bay Tân Sơn Nhất...
+- Ngày 11-11, Tỉnh ủy Bình Thuận tổ chức hội nghị công bố quyết định của Ban thường vụ về công tác cán bộ tại huyện đảo Phú Quý.
+- Dự kiến lễ khai mạc triển lãm sẽ có màn trình diễn bay của lực lượng không quân và khoảng 2.200 cán bộ, chiến sĩ đặc công biểu diễn võ thuật.
+- Công an TP.HCM đang tạm giữ bà Nguyễn Thị Linh và Lý Thị Ngọc Bích do liên quan vụ mang trái phép 716 viên kim cương qua sân bay Tân Sơn Nhất.
+- Người đàn ông bị còng tay rồi bị một thanh niên dùng chân đá vào người ở khu vực ngã tư An Sương, quận 12, TP.HCM.
+- Đó là khẳng định của Bộ trưởng Bộ Công Thương Nguyễn Hồng Diên khi giải trình thêm về việc quản lý thuốc lá điện tử, thuốc lá nung nóng tại phiên chất vấn và trả lời chất vấn chiều 11-11.
+- Sở Lao động, Thương binh và Xã hội TP Cần Thơ nói không chi sai 4,7 tỉ đồng tiền trợ cấp thất nghiệp, mà do người lao động gian lận, hưởng sai.
+- UBND TP Tuy Hòa (Phú Yên) thông báo cưỡng chế tháo dỡ 2 tầng xây vượt của khách sạn Bạch Dương Aries, 17 đường Điện Biên Phủ, TP Tuy Hòa.
+- HĐND tỉnh Cà Mau khóa X, nhiệm kỳ 2021-2026 tổ chức kỳ họp thứ 16 (chuyên đề) và thống nhất bầu ông Phạm Thành Ngại - phó bí thư thường trực Tỉnh ủy - giữ chức chủ tịch UBND tỉnh Cà Mau.
+- Ông Nguyễn Đức Trung - phó bí thư Tỉnh ủy, chủ tịch UBND tỉnh Nghệ An - được bầu giữ chức bí thư Tỉnh ủy nhiệm kỳ 2020-2025.
 ![New](News.png)
 ## Nhịp sống số 
 - Ngày 9-11, ứng dụng học tập trực tuyến Studify được một nhóm bạn trẻ ra mắt tại TP.HCM.
