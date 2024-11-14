@@ -1,6 +1,11 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Nhà trường đã tạm đình chỉ công tác cô giáo dùng thước đánh học sinh lớp 6 bầm tím hai chân.
+- Trường phổ thông Năng khiếu, Đại học Quốc gia TP.HCM yêu cầu học sinh không sử dụng điện thoại trong lớp học.
+- Nhiều bạn đọc tranh luận về đề xuất cấm giáo viên nhận tiền người học dưới mọi hình thức.
+- Hằng tháng, các thầy cô huyện đảo Cần Giờ, TP.HCM cùng nhiều bà con mỗi người đóng góp 100.000 đồng để hỗ trợ học sinh, người khó khăn trên địa bàn.
+- Dạy các môn toán, lý, hóa... bằng tiếng Anh không phải chuyện dễ dàng với hầu hết thầy cô Việt Nam.
 - Chỉ thống thông thạo tiếng Anh EPI của Việt Nam năm 2024 giảm so với năm 2023, dẫn đến sự tuột bậc trên bảng xếp hạng.
 - Nhiều học sinh, phụ huynh lo lắng trước thông tin kỳ thi đánh giá năng lực Đại học Quốc gia TP.HCM năm 2025 chỉ dành cho học sinh lớp 12. Thực hư việc này ra sao?
 - Hiệu trưởng Trường tiểu học Phan Văn Trị, quận 1, TP.HCM viết thư ngỏ xin không nhận hoa, quà ngày 20-11, mà đổi thành tập, sữa… cho học sinh.
@@ -26,43 +31,38 @@
 - Nhiều sinh viên đã chủ động xây dựng và phát triển hồ sơ cá nhân, tích cực cọ xát công việc thực tế từ khi còn đi học.
 - Con tôi giờ đã học THPT, nhưng mỗi khi nhắc về trường THCS, nó lại nói: 'Ước gì thầy Khoa, cô Thủy, thầy Hào chuyển lên trường cấp III dạy con'.
 - Trung tâm Khảo thí quốc gia và Đánh giá chất lượng giáo dục (Bộ Giáo dục và Đào tạo) vừa công bố đề minh họa 8 bài thi đánh giá đầu vào đại học trên máy tính (V-SAT) năm 2025.
-- Trường đại học Duy Tân trở thành trường đại học tư thục đầu tiên của Việt Nam chuyển qua mô hình đại học.
-- Sáng 10-11, tại phố đi bộ hồ Hoàn Kiếm, gần 3.000 học sinh, giáo viên, đại diện các đơn vị, trường học đã tham gia chương trình "Hành khúc học sinh thủ đô" và thưởng thức những màn diễu hành ấn tượng.
-- Giải thưởng Trần Đại Nghĩa lần 2 năm 2024 được TP.HCM tổ chức như một sự ghi nhận và tôn vinh những giáo viên, nhà quản lý xuất sắc tại các cơ sở giáo dục nghề nghiệp.
-- Hôm qua 9-11, Quốc hội đã thảo luận tổ về dự thảo Luật Nhà giáo với nhiều ý kiến quan tâm các chính sách đột phá cho nhà giáo như: tiền lương, phụ cấp, chế độ ưu đãi...
-- Cả năm học phụ huynh chỉ nhận được một chục tin nhắn qua sổ liên lạc điện tử, tính ra phụ huynh phải trả 7.000 - 10.000 đồng/tin nhắn.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Theo Bộ trưởng Nguyễn Văn Thắng, dự án đường sắt tốc độ cao Bắc - Nam là đường đôi, tốc độ thiết kế 350km/h, dự kiến tổng vốn hơn 67 tỉ USD.
-- Bên cạnh chấn chỉnh việc kiểm tra hiện trạng, Sở Tài nguyên và Môi trường kiến nghị UBND TP.HCM cho chỉnh sửa quy chế phối hợp quản lý trật tự xây dựng trên địa bàn.
-- Đại biểu Quốc hội hỏi phát triển đất nước ưu tiên cho cái gì, Thủ tướng nói ngoài thể chế, phân cấp phân quyền thì sẽ ưu tiên cho tăng trưởng.
-- Trước đó, huyện Vĩnh Linh hướng dẫn người dân kiện ra tòa và sẽ ghi tên cha theo bản án vào giấy khai sinh để công nhận con liệt sĩ.
-- Sau khi bị ô tô tông đuôi, người đàn ông đi xe máy dùng mũ bảo hiểm đập bể kính chắn gió ô tô ngay vòng xoay công viên Gia Định, quận Gò Vấp, TP.HCM. Hiện công an đang xác minh, làm rõ.
-- Một số nhà vườn tại huyện Chợ Lách, tỉnh Bến Tre phải nhổ bỏ hàng ngàn giỏ hoa cúc mâm xôi được trồng cho mùa Tết 2025. Vì sao lại có chuyện trái khoáy này?
-- Kết thúc chuyến thăm chính thức Chile, Chủ tịch nước Lương Cường đã đến Peru chiều 12-11 (giờ địa phương), bắt đầu chuyến thăm nước này và dự Tuần lễ cấp cao APEC 2024.
-- Một số tin tức đáng chú ý: Quốc hội xem xét chủ trương đầu tư đường sắt tốc độ cao Bắc - Nam; Loạt doanh nghiệp trên sàn chứng khoán bị xử phạt về thuế; TP.HCM tước giấy phép hai phòng khám 'vẽ bệnh moi tiền'...
-- Hôm nay 13-11, thời tiết mưa to kết thúc tại miền Trung. Miền Bắc sáng có sương mù, còn miền Nam ngày nắng, chiều tối có mưa.
-- UBND TP.HCM vừa ủy quyền cho Sở Xây dựng tiếp nhận, giải quyết hồ sơ chuyển nhượng dự án bất động sản, cấp phép sàn giao dịch bất động sản...
-- Hiệu trưởng Trường tiểu học Phan Văn Trị, quận 1, TP.HCM viết thư ngỏ xin không nhận hoa, quà ngày 20-11, mà đổi thành tập, sữa… cho học sinh.
-- Trong tờ trình mới nhất gửi Quốc hội quyết định chủ trương đầu tư dự án đường sắt tốc độ cao trên trục Bắc - Nam, Chính phủ đã giải trình nhiều nội dung về ý kiến thẩm tra sơ bộ của Ủy ban kinh tế của Quốc hội.
-- Ngày 12-11, đường tạm dân sinh dưới cầu Rạch Chiếc (gần BOT xa lộ Hà Nội) bị rào chắn khiến nhiều người thắc mắc.
-- Bộ Chính trị vừa quyết định điều động, bổ nhiệm Bí thư Tỉnh ủy Nam Định Phạm Gia Túc giữ chức phó chánh Văn phòng Trung ương Đảng.
-- Sau khi vào Biển Đông, bão số 8 (Toraji) đang hướng về khu vực phía bắc của bắc Biển Đông và duy trì cường độ mạnh cấp 9-10 (75-102km/h), giật cấp 12.
-- Đó là thông tin được lãnh đạo UBND TP Thủ Đức (TP.HCM) khẳng định tại hội nghị phản biện dự thảo phương án bồi thường, hỗ trợ, tái định cư dự án đầu tư xây dựng đường vành đai 2 (đoạn 1, đoạn 2) chiều 12-11.
-- Số vụ vi phạm tải trọng đã giảm đáng kể khi TP.HCM áp dụng việc thí điểm xử phạt nguội thông qua các trạm cân.
-- Chiều 12-11, Bộ trưởng Bộ Giao thông vận tải Nguyễn Văn Thắng thừa ủy quyền của Thủ tướng trình tờ trình điều chỉnh chủ trương đầu tư dự án sân bay Long Thành.
-- Công ty TNHH Mediterranean Shipping Company (MSC) Việt Nam mong đóng góp một phần nhỏ vào sự ổn định cuộc sống của bà con vùng bão lũ.
-- Lại thêm một thanh niên leo lên nóc Bảo tàng Lịch sử quân sự Việt Nam quay clip bản thân rồi tung lên mạng kèm theo lời bình: "Trải nghiệm góc nhìn có 1 không 2. Thoát khỏi đám đông tìm kiếm sự khác biệt".
-- Theo nghị quyết được thông qua, Quốc hội quyết nghị mục tiêu năm 2025, tốc độ tăng tổng sản phẩm trong nước (GDP) khoảng 6,5 - 7% và phấn đấu 7 - 7,5%.
-- UBND xã Hòa Thắng (TP Buôn Ma Thuột, Đắk Lắk) đã 'đạt được thỏa thuận' với giám đốc ngân hàng hủy hoại đất, để ông này sẽ tự tháo dỡ công trình trái phép trong sân golf.
-- Đầu tư ban đầu để thực hiện chuyển đổi xanh, chuyển đổi số trong sản xuất rất lớn, doanh nghiệp quy mô lớn làm được nhưng hầu hết doanh nghiệp nhỏ gặp khó về tài chính.
-- Một doanh nghiệp tự ý chuyển đổi hàng ngàn mét vuông đất xây trại heo gây ô nhiễm, dù bị cấm hoạt động vẫn tiếp tục xả thải ra môi trường...
-- Thời gian dài không liên hệ được, người nhà nhờ chủ vườn đi kiếm thì phát hiện ông L. đã chết dưới chân thang sắt. Sự vụ xảy ra ở Đồng Phú, Bình Phước.
-- Ban Bí thư quyết định kỷ luật cách chức tất cả các chức vụ trong Đảng đối với ông Nguyễn Viết Hiển, cựu giám đốc Sở Giáo dục và Đào tạo Thái Bình.
-- Tòa án nhân dân tỉnh Quảng Ngãi tuyên án tử hình đối với bị cáo Phan Thanh Việt - người tham gia giết 6 người vào năm 1981, rồi trốn lệnh truy nã 43 năm.
-- Ban chỉ đạo triển khai thực hiện các công trình trọng điểm tỉnh Quảng Ngãi do ông Đặng Ngọc Huy, phó bí thư Tỉnh ủy kiêm trưởng Đoàn ĐBQH tỉnh, làm trưởng ban vừa có cuộc họp xem xét chỉ đạo tiến độ, công tác đền bù, giải phóng mặt bằng ở các dự án.
-- Dự án mở rộng xa lộ Hà Nội được khởi công từ năm 2010, dự kiến 3 năm sẽ làm xong, nhưng đã kéo dài 14 năm vẫn còn dang dở vì vướng mặt bằng.
-- Chủ tịch UBND tỉnh Quảng Trị Võ Văn Hưng đã ngay lập tức chỉ đạo Công an TP Đông Hà xử lý vụ nhóm người chặn cổng công ty gas. Nhóm này đã đưa toàn bộ xe rời đi sau đó.
+- Nói đến làm đường thì phải nghĩ ngay đến những khó khăn trong giải phóng mặt bằng. Tuy nhiên đến thời điểm này, có không ít bài học kinh nghiệm được rút ra từ dự án đường vành đai 3 TP.HCM và đường vành đai 4 vùng thủ đô.
+- Chủ tịch Quốc hội Trần Thanh Mẫn nêu rõ tinh thần đổi mới trong xây dựng pháp luật đã được đại biểu Quốc hội đồng thuận, đánh giá cao.
+- Ông Thích Minh Tuệ nêu nguyện vọng mọi người không quay phim, chụp ảnh và đưa hình ảnh của ông lên mạng xã hội vì ảnh hưởng tới quá trình tu học.
+- Khi giấc mơ đường vành đai 3 TP.HCM sắp thành hiện thực thì các địa phương lại tiếp tục đề xuất làm dự án đường vành đai 4 TP.HCM - con đường bộ lớn nhất vùng Đông Nam Bộ từ trước đến nay.
+- Chiều 13-11 (giờ Peru, rạng sáng 14-11 giờ Việt Nam), lễ đón chính thức Chủ tịch nước Lương Cường đã diễn ra trọng thể tại Phủ Tổng thống Peru ở thủ đô Lima.
+- Sáng nay 14-11, HĐND TP.HCM khóa X chính thức khai mạc kỳ họp thứ 19 (kỳ họp chuyên đề) bàn loạt chính sách dân sinh, phát triển công nghệ cao.
+- Nhiều đại biểu Quốc hội đồng tình việc triển khai tuyến đường sắt tốc độ cao Bắc - Nam song đề nghị Chính phủ có đánh giá kỹ lưỡng về nguồn vốn, công nghệ và chuẩn bị nguồn nhân lực...
+- Vụ nổ lớn khiến ngôi nhà của người đàn ông 33 tuổi bị hư hỏng nặng, mái nhà bị thổi bay, gạch vỡ tung tóe trên nền đất.
+- Hàng cây sưa đỏ quý hiếm trên đường Nguyễn Văn Huyên (Cầu Giấy, Hà Nội) đang bị kìm hãm sự phát triển vì lồng sắt quây kín từ gốc tới thân hơn 4 năm qua.
+- Tin tức đáng chú ý: Xem xét sáp nhập cấp huyện, xã của Hà Nội, TP.HCM và 10 tỉnh; Sửa quy định về điều kiện kinh doanh dịch vụ karaoke, vũ trường; Trung tâm cấp cứu 115 TP.HCM đạt chứng nhận vàng về cấp cứu ngoại viện.
+- Hôm nay 14-11, thời tiết cả nước nhiều mây, ngày nắng. Trên Biển Đông bão số 8 bắt đầu đổi hướng và suy yếu nhanh.
+- UBND tỉnh Khánh Hòa vừa giao các cơ quan kiểm tra, khẩn trương tham mưu tỉnh xử lý vụ việc 'quên thu hồi 1,9ha đất tại Nha Trang từ công ty đại gia Lã Quang Bình' mà Tuổi Trẻ Online phản ánh.
+- Bộ Nội vụ khẩn trương đề xuất việc thành lập ban chỉ đạo, tổ giúp việc về tinh gọn bộ máy của Chính phủ, báo cáo Thủ tướng trước ngày 20-11-2024.
+- Các đối tượng mạo danh cơ quan điều tra, viện kiểm sát nhân dân để liên hệ người nhà chuyển tiền 'chạy án' cho các bị can trong vụ án hình sự.
+- Nhà trường đã tạm đình chỉ công tác cô giáo dùng thước đánh học sinh lớp 6 bầm tím hai chân.
+- Phó chánh Văn phòng Trung ương Đảng Đặng Khánh Toàn được điều động, chỉ định tham gia Ban Chấp hành, Ban Thường vụ Tỉnh ủy, giữ chức bí thư Tỉnh ủy Nam Định.
+- UBND tỉnh Quảng Nam giao Ban Quản lý dự án đầu tư xây dựng các công trình giao thông tỉnh lập đề xuất dự án chống ngập TP Tam Kỳ 4.000 tỉ đồng.
+- Do lượng khách đông, nhu cầu kết nối từ sân bay Long Thành đến TP.HCM hết sức quan trọng, cần đảm bảo tính liền mạch.
+- Báo cáo Thủ tướng và Phó thủ tướng Trần Hồng Hà, Bộ Giao thông vận tải bày tỏ ủng hộ việc giao UBND tỉnh Bình Định tổ chức thực hiện đầu tư đường băng thứ hai của sân bay Phù Cát.
+- Ủy ban Kiểm tra Trung ương đã kỷ luật nhiều cán bộ của Bộ Giao thông vận tải và đề nghị kỷ luật ông Nguyễn Văn Thể - nguyên bộ trưởng.
+- Chính quyền TP Vũng Tàu sẽ cưỡng chế cơ sở kinh doanh du lịch ở Bãi Sau để thu hồi mặt bằng cho dự án chỉnh trang đường Thùy Vân. Thời gian cưỡng chế ấn định vào ngày 18-11.
+- Tàu hỏa chở khách số hiệu SE7 khi qua Hà Tĩnh bất ngờ bị trật bánh khỏi đường ray. Hiện lực lượng chức năng đang tiếp cận hiện trường để khắc phục sự cố.
+- Chủ tịch Tập đoàn Vingroup, ông Phạm Nhật Vượng, quyết định tặng quà tri ân đặc biệt đến tất cả khách hàng sở hữu xe xăng và xe điện mua trực tiếp từ VinFast và đại lý ủy quyền trước ngày 31-12. Bộ quà Tết đặc biệt do ông Vượng lựa chọn, ký tặng.
+- Tỉnh Quảng Nam muốn Bộ Quốc phòng bàn giao trước khoảng 868ha đất khu vực phía đông đường trục chính vào sân bay Chu Lai cho tỉnh.
+- Cứ sau những đợt mưa lớn, trên tuyến đường vành đai ngàn tỉ của Đà Nẵng lại xảy ra hiện tượng sạt lở, bùn đất tràn xuống đường.
+- Đại biểu Trần Quốc Thuận đề nghị Chính phủ nghiên cứu mở thêm ga đường sắt tốc độ cao ở giữa 2 tỉnh Thanh Hóa - Nghệ An bởi khoảng cách xa, nhu cầu đi lại đông.
+- Ninh Thuận kiến nghị cần xác định lộ trình phát triển điện hạt nhân nhằm tránh lãng phí nguồn lực .
+- Ngày 13-11, với hơn 90% đại biểu tán thành, nghị quyết về phân bổ ngân sách trung ương năm 2025 được Quốc hội thông qua.
+- UBND TP.HCM sẽ chỉ đạo Sở Giao thông vận tải phối hợp đơn vị tư vấn hoàn thiện hồ sơ nghiên cứu tiền khả thi dự án tổng thể vành đai 4.
+- Đợt triều cường tháng 10 âm lịch thường là đợt triều cường lớn nhất của năm, nhiều địa phương ở miền Tây đã chủ động các giải pháp ứng phó.
 ![New](News.png)
 ## Nhịp sống số 
 - Ngày 9-11, ứng dụng học tập trực tuyến Studify được một nhóm bạn trẻ ra mắt tại TP.HCM.
