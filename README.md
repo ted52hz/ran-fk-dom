@@ -1,6 +1,18 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Hiện tại mô hình giảng dạy AI và mã hóa đã được thử nghiệm tại một số trường học ở thủ đô Jakarta, Indonesia.
+- 'Nhiệm vụ giáo dục ở vùng sâu, vùng xa và những trường chuyên biệt còn nhiều thử thách, thiếu thốn, bất cập, nên cần hơn hết những nhà giáo tiên phong, lĩnh xướng nhận nhiệm vụ đó', Thứ trưởng Nguyễn Thị Kim Chi chia sẻ với các nhà giáo.
+- Cuộc thi Vô địch quốc gia STEM, AI và Robotics 2024 (Vietnam STEM AI Robotics - VSAR) dành cho học sinh phổ thông với chủ đề "Nông nghiệp xanh - Phát triển bền vững" khai mạc chiều 14-11, do báo Tiền Phong tổ chức.
+- Năm 2024 đánh dấu chương trình học bổng Acecook Happy Scholarship lần thứ 9 với quy mô và thông điệp mới mẻ hơn, tiếp nối thành công của 8 mùa trước.
+- Đó là những điều 'gan ruột' mà ông Đống Lương Sơn, nguyên tổng giám đốc khách sạn Yasaka-Saigon-Nhatrang, nói với học sinh Trường THPT chuyên Lê Hồng Phong, TP.HCM tại buổi định hướng nghề nghiệp giữa tháng 11-2024.
+- UBND TP.HCM vừa có văn bản về việc rà soát chứng chỉ ngoại ngữ, liên quan đến chứng chỉ mang tên 'Cambridge International'.
+- Suốt 20 năm qua, thiếu tá Nguyễn Văn Tưởng (Đồn biên phòng Cầu Bóng, thuộc Bộ chỉ huy Bộ đội biên phòng tỉnh Khánh Hòa) vẫn đều đặn gieo chữ cho học trò nghèo ở Nha Trang.
+- Chiều 13-11, gần 50 học sinh Trường THPT Võ Văn Kiệt (quận 8, TP.HCM) đến tham quan và học tập thực tế tại Nhà máy mì Acecook Việt Nam.
+- Sáng 14-11, báo Người Lao Động đã tổ chức lễ tổng kết và trao giải cuộc thi 'Người thầy kính yêu' lần 3.
+- Tặng hay cho làm sao để mọi người đồng cảm, để người cho và người nhận không bị phiền, điều đó liên quan đến lối sống.
+- Một học sinh học tại một trung tâm giáo dục ở Hội An trong lúc vui chơi đã gặp tai nạn. Chỉ khi phụ huynh phát hiện và yêu cầu làm rõ thì chủ trường mới đứng ra nhận lỗi.
+- LTS: Nhiều nhà giáo, bên cạnh công việc chuyên môn, quản lý, luôn đau đáu với xã hội và âm thầm, bền bỉ có nhiều nỗ lực, đóng góp để giải quyết các vấn đề xã hội.
 - Nhà trường đã tạm đình chỉ công tác cô giáo dùng thước đánh học sinh lớp 6 bầm tím hai chân.
 - Trường phổ thông Năng khiếu, Đại học Quốc gia TP.HCM yêu cầu học sinh không sử dụng điện thoại trong lớp học.
 - Nhiều bạn đọc tranh luận về đề xuất cấm giáo viên nhận tiền người học dưới mọi hình thức.
@@ -19,50 +31,38 @@
 - Cơ quan Giáo dục New Zealand (ENZ) vừa công bố học bổng Chính phủ New Zealand bậc đại học (NZUA) dành riêng cho học sinh, sinh viên Việt Nam.
 - Trong kỷ nguyên chuyển đổi số, các hình thức thi đánh giá năng lực ngoại ngữ đã bắt kịp xu thế mới và thi trên máy vi tính đang được thí sinh toàn cầu ưa chuộng.
 - Trong 17 năm qua, quỹ học bổng của gia đình giáo sư Lê Viết Ly đã tài trợ cho tỉnh Thanh Hóa để xây dựng trường học, hỗ trợ thiết bị giáo dục, trao học bổng, trao thưởng với tổng số tiền hơn 75 tỉ đồng.
-- Bộ tem 'Những dấu ấn lịch sử của Chủ tịch Hồ Chí Minh' được tác giả trưng bày tại Trường THPT chuyên Lê Hồng Phong (TP.HCM) từ nay đến hết ngày 15-11.
-- Chuỗi tọa đàm trực tuyến InnovaTalk do Quỹ VinFuture tổ chức trở thành cầu nối vững chắc cho cộng đồng khoa học Việt Nam vươn tới thế giới.
-- Hội nghị khoa học lần 14 năm 2024 với chủ đề "Khoa học và công nghệ hướng tới tương lai xanh và thông minh".
-- Sở Giáo dục và Đào tạo Đà Nẵng đã yêu cầu các đơn vị liên quan xác minh, xử lý 2 cơ sở dạy trẻ tự kỷ sau phản ánh của báo Tuổi Trẻ.
-- Sở Giáo dục và Đào tạo đã tổ chức gặp gỡ những nhà giáo đi B, nhà giáo nội đô nhân kỷ niệm 42 năm Ngày Nhà giáo Việt Nam 20-11.
-- 568 em học sinh tại huyện Mỏ Cày Nam và Mỏ Cày Bắc, tỉnh Bến Tre đón nhận những phần học bổng từ Tập đoàn TTC.
-- Quốc hội vừa thảo luận về những điều cấm giáo viên không được làm, đặc biệt là cấm giáo viên nhận tiền của người học.
-- Quá nhiều app, có app gần như không tác dụng, cả năm dùng đôi ba lần, trẻ học mầm non, phụ huynh cũng phải tốn tiền tải app sổ liên lạc điện tử.
-- Nếu một quốc gia có một nền giáo dục tốt, có chất lượng cao thì sự phát triển về mặt kinh tế, văn hóa, xã hội cũng nhanh hơn và ngược lại.
-- Nhiều sinh viên đã chủ động xây dựng và phát triển hồ sơ cá nhân, tích cực cọ xát công việc thực tế từ khi còn đi học.
-- Con tôi giờ đã học THPT, nhưng mỗi khi nhắc về trường THCS, nó lại nói: 'Ước gì thầy Khoa, cô Thủy, thầy Hào chuyển lên trường cấp III dạy con'.
-- Trung tâm Khảo thí quốc gia và Đánh giá chất lượng giáo dục (Bộ Giáo dục và Đào tạo) vừa công bố đề minh họa 8 bài thi đánh giá đầu vào đại học trên máy tính (V-SAT) năm 2025.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Nói đến làm đường thì phải nghĩ ngay đến những khó khăn trong giải phóng mặt bằng. Tuy nhiên đến thời điểm này, có không ít bài học kinh nghiệm được rút ra từ dự án đường vành đai 3 TP.HCM và đường vành đai 4 vùng thủ đô.
-- Chủ tịch Quốc hội Trần Thanh Mẫn nêu rõ tinh thần đổi mới trong xây dựng pháp luật đã được đại biểu Quốc hội đồng thuận, đánh giá cao.
-- Ông Thích Minh Tuệ nêu nguyện vọng mọi người không quay phim, chụp ảnh và đưa hình ảnh của ông lên mạng xã hội vì ảnh hưởng tới quá trình tu học.
-- Khi giấc mơ đường vành đai 3 TP.HCM sắp thành hiện thực thì các địa phương lại tiếp tục đề xuất làm dự án đường vành đai 4 TP.HCM - con đường bộ lớn nhất vùng Đông Nam Bộ từ trước đến nay.
-- Chiều 13-11 (giờ Peru, rạng sáng 14-11 giờ Việt Nam), lễ đón chính thức Chủ tịch nước Lương Cường đã diễn ra trọng thể tại Phủ Tổng thống Peru ở thủ đô Lima.
-- Sáng nay 14-11, HĐND TP.HCM khóa X chính thức khai mạc kỳ họp thứ 19 (kỳ họp chuyên đề) bàn loạt chính sách dân sinh, phát triển công nghệ cao.
-- Nhiều đại biểu Quốc hội đồng tình việc triển khai tuyến đường sắt tốc độ cao Bắc - Nam song đề nghị Chính phủ có đánh giá kỹ lưỡng về nguồn vốn, công nghệ và chuẩn bị nguồn nhân lực...
-- Vụ nổ lớn khiến ngôi nhà của người đàn ông 33 tuổi bị hư hỏng nặng, mái nhà bị thổi bay, gạch vỡ tung tóe trên nền đất.
-- Hàng cây sưa đỏ quý hiếm trên đường Nguyễn Văn Huyên (Cầu Giấy, Hà Nội) đang bị kìm hãm sự phát triển vì lồng sắt quây kín từ gốc tới thân hơn 4 năm qua.
-- Tin tức đáng chú ý: Xem xét sáp nhập cấp huyện, xã của Hà Nội, TP.HCM và 10 tỉnh; Sửa quy định về điều kiện kinh doanh dịch vụ karaoke, vũ trường; Trung tâm cấp cứu 115 TP.HCM đạt chứng nhận vàng về cấp cứu ngoại viện.
-- Hôm nay 14-11, thời tiết cả nước nhiều mây, ngày nắng. Trên Biển Đông bão số 8 bắt đầu đổi hướng và suy yếu nhanh.
-- UBND tỉnh Khánh Hòa vừa giao các cơ quan kiểm tra, khẩn trương tham mưu tỉnh xử lý vụ việc 'quên thu hồi 1,9ha đất tại Nha Trang từ công ty đại gia Lã Quang Bình' mà Tuổi Trẻ Online phản ánh.
-- Bộ Nội vụ khẩn trương đề xuất việc thành lập ban chỉ đạo, tổ giúp việc về tinh gọn bộ máy của Chính phủ, báo cáo Thủ tướng trước ngày 20-11-2024.
-- Các đối tượng mạo danh cơ quan điều tra, viện kiểm sát nhân dân để liên hệ người nhà chuyển tiền 'chạy án' cho các bị can trong vụ án hình sự.
-- Nhà trường đã tạm đình chỉ công tác cô giáo dùng thước đánh học sinh lớp 6 bầm tím hai chân.
-- Phó chánh Văn phòng Trung ương Đảng Đặng Khánh Toàn được điều động, chỉ định tham gia Ban Chấp hành, Ban Thường vụ Tỉnh ủy, giữ chức bí thư Tỉnh ủy Nam Định.
-- UBND tỉnh Quảng Nam giao Ban Quản lý dự án đầu tư xây dựng các công trình giao thông tỉnh lập đề xuất dự án chống ngập TP Tam Kỳ 4.000 tỉ đồng.
-- Do lượng khách đông, nhu cầu kết nối từ sân bay Long Thành đến TP.HCM hết sức quan trọng, cần đảm bảo tính liền mạch.
-- Báo cáo Thủ tướng và Phó thủ tướng Trần Hồng Hà, Bộ Giao thông vận tải bày tỏ ủng hộ việc giao UBND tỉnh Bình Định tổ chức thực hiện đầu tư đường băng thứ hai của sân bay Phù Cát.
-- Ủy ban Kiểm tra Trung ương đã kỷ luật nhiều cán bộ của Bộ Giao thông vận tải và đề nghị kỷ luật ông Nguyễn Văn Thể - nguyên bộ trưởng.
-- Chính quyền TP Vũng Tàu sẽ cưỡng chế cơ sở kinh doanh du lịch ở Bãi Sau để thu hồi mặt bằng cho dự án chỉnh trang đường Thùy Vân. Thời gian cưỡng chế ấn định vào ngày 18-11.
-- Tàu hỏa chở khách số hiệu SE7 khi qua Hà Tĩnh bất ngờ bị trật bánh khỏi đường ray. Hiện lực lượng chức năng đang tiếp cận hiện trường để khắc phục sự cố.
-- Chủ tịch Tập đoàn Vingroup, ông Phạm Nhật Vượng, quyết định tặng quà tri ân đặc biệt đến tất cả khách hàng sở hữu xe xăng và xe điện mua trực tiếp từ VinFast và đại lý ủy quyền trước ngày 31-12. Bộ quà Tết đặc biệt do ông Vượng lựa chọn, ký tặng.
-- Tỉnh Quảng Nam muốn Bộ Quốc phòng bàn giao trước khoảng 868ha đất khu vực phía đông đường trục chính vào sân bay Chu Lai cho tỉnh.
-- Cứ sau những đợt mưa lớn, trên tuyến đường vành đai ngàn tỉ của Đà Nẵng lại xảy ra hiện tượng sạt lở, bùn đất tràn xuống đường.
-- Đại biểu Trần Quốc Thuận đề nghị Chính phủ nghiên cứu mở thêm ga đường sắt tốc độ cao ở giữa 2 tỉnh Thanh Hóa - Nghệ An bởi khoảng cách xa, nhu cầu đi lại đông.
-- Ninh Thuận kiến nghị cần xác định lộ trình phát triển điện hạt nhân nhằm tránh lãng phí nguồn lực .
-- Ngày 13-11, với hơn 90% đại biểu tán thành, nghị quyết về phân bổ ngân sách trung ương năm 2025 được Quốc hội thông qua.
-- UBND TP.HCM sẽ chỉ đạo Sở Giao thông vận tải phối hợp đơn vị tư vấn hoàn thiện hồ sơ nghiên cứu tiền khả thi dự án tổng thể vành đai 4.
-- Đợt triều cường tháng 10 âm lịch thường là đợt triều cường lớn nhất của năm, nhiều địa phương ở miền Tây đã chủ động các giải pháp ứng phó.
+- 12 người có hành vi môi giới mại dâm, mua bán và tổ chức sử dụng ma túy đã bị Công an quận Ngô Quyền (TP Hải Phòng) bắt giữ.
+- Ban giám đốc Công an TP.HCM đã chỉ đạo triển khai thực hiện kế hoạch tăng cường công tác phòng ngừa, quản lý, đấu tranh xử lý các hành vi vi phạm pháp luật liên quan kinh doanh hóa chất nguy hiểm, độc hại, trong đó có xyanua.
+- Dự báo ngày 15-11, bão Usagi có khả năng đi vào đông bắc của Bắc Biển Đông, trở thành cơn bão số 9, nhưng ít có khả năng ảnh hưởng tới đất liền nước ta.
+- TP.HCM lập hội đồng thu hút người tài trong lĩnh vực văn hóa, nghệ thuật, thể thao; Khách của ngân hàng chưa xác thực sinh trắc học sẽ gặp khó.
+- Về khái niệm người Hà Nội gốc gây tranh cãi và "bất hòa" nhiều năm nay, nhà nghiên cứu, phê bình văn học Phạm Xuân Thạch nói: 'Tốt nhất là nên quên nó đi'.
+- Hôm nay 15-11, thời tiết cả nước ổn định, ba miền ngày nắng. Trên biển bão số 8 suy yếu nhanh rồi tan.
+- Trong các ưu tiên trao đổi của thượng đỉnh G20 năm nay tại Brazil, có các lĩnh vực Việt Nam đã đạt được thành tựu to lớn.
+- Bí thư Thành ủy TP.HCM Nguyễn Văn Nên đã tiếp Đại sứ Mông Cổ tại Việt Nam Jigjee Sereejav đến chào từ biệt nhân dịp kết thúc nhiệm kỳ tại Việt Nam.
+- Thủ tướng yêu cầu các bên nỗ lực nối đường cao tốc từ Cao Bằng - Lạng Sơn tới Hà Nội và thông tuyến cao tốc từ Bắc vào Nam, tới tận mũi Cà Mau, mục tiêu hoàn thành trong năm 2025.
+- Biết người từng giúp mình nhập khẩu chiếc Mercedes-Benz là phó chánh văn phòng Ban chỉ đạo 389, chủ một công ty bất động sản đe dọa tống tiền 10 tỉ nếu không sẽ cho 'bay chức'. Chủ doanh nghiệp này bị tòa tuyên án phạt 12 năm tù.
+- Về vụ tiền đất tăng đột biến ở Khánh Hòa, từ năm 2023 tỉnh đã báo cáo Bộ Tài chính có tới 86 đơn vị bị ảnh hưởng, do điều chỉnh đơn giá đất “không tương ứng” và tỉnh chậm ban hành quyết định liên quan nhưng đến nay chưa “sửa sai”.
+- Thủ tướng Chính phủ ký quyết định bổ nhiệm ông Lê Tiến Đạt giữ chức phó tổng Thanh tra Chính phủ. Trước đó ông giữ chức vụ cục trưởng ở cơ quan này.
+- Chủ tịch UBND huyện Tri Tôn, tỉnh An Giang cho hay cơ quan công an đang xem xét, củng cố hồ sơ khởi tố vụ án và bị can là tài xế lái ô tô tải làm sập cầu.
+- Khảo sát đầu tư tại tỉnh Quảng Trị, Tập đoàn Công nghiệp than - khoáng sản Việt Nam (TKV) mong muốn đầu tư dự án để nhập khẩu 5 triệu tấn than đá từ Lào qua tỉnh này, dự án chế biến than từ 8 - 10 triệu tấn/năm.
+- Tổng Bí thư Tô Lâm nhấn mạnh nhiệm vụ xây dựng TP Hải Phòng phát triển ngang tầm với các thành phố tiêu biểu châu Á.
+- Phó bí thư thường trực Thành ủy TP.HCM Nguyễn Hồ Hải lưu ý việc tự kiểm tra giám sát, ngăn ngừa được những sai phạm lớn là điều quan trọng.
+- Người phụ nữ từ Trà Vinh lên thuê trọ tại TP Thủ Đức để trị bệnh ung thư. Sau khi làm tiểu phẫu tại phòng trọ, bà bị mệt, được đưa đến bệnh viện nhưng đã tử vong.
+- HĐND tỉnh Ninh Thuận ra nghị quyết điều chỉnh giảm mức đầu tư đường nối từ cao tốc Bắc - Nam đến cảng Cà Ná so với trước đây hơn 200 tỉ đồng, giảm bề rộng mặt đường để kéo dài toàn tuyến thêm 8,2km.
+- Theo giáo sư Nguyễn Ngọc Trân, kênh Vĩnh Tế mà cha ông đã tốn bao công sức, kể cả sinh mạng để tạo nên là một tài sản vô cùng quý giá của quốc gia.
+- Thủ tướng Phạm Minh Chính sẽ dự Hội nghị Thượng đỉnh G20 tại Rio de Janeiro, và thăm Cộng hòa Dominica sau đó từ ngày 16 đến 21-11.
+- Tại dự Luật Đầu tư công sửa đổi mới nhất, tiếp tục quy định phân cấp cho UBND các cấp quyết định chủ trương đầu tư nhóm B, nhóm C do địa phương quản lý.
+- Thanh tra Bộ Tài nguyên và Môi trường quyết định thanh tra công tác cấp giấy chứng nhận tại TP.HCM và đang triển khai đoàn thanh tra.
+- UBND TP.HCM vừa có văn bản gửi các sở ban ngành, quận huyện yêu cầu tập trung giải quyết dứt điểm các dự án tồn đọng.
+- Ngày 14-11, tại trụ sở Thành ủy Hà Nội, Ban Chỉ đạo Thành ủy về phòng, chống tham nhũng, tiêu cực đã tổ chức họp cho ý kiến về tình hình, kết quả hoạt động thời gian qua, nhiệm vụ trọng tâm những tháng cuối năm 2024.
+- TP Cần Thơ sắp mở đường bay tới tỉnh Vân Nam và thành phố Trùng Khánh của Trung Quốc để giao thương và khai thác hiệu quả sân bay quốc tế Cần Thơ.
+- Theo kế hoạch, dự án đường nối Trần Quốc Hoàn sẽ hoàn thành trong năm 2024, nhưng hiện còn 68 mặt bằng chưa bàn giao.
+- Nhiều bệnh viện tại TP.HCM siết chặt quản lý công tác thu phí gửi xe tại bệnh viện, thu phí gửi xe đúng giá, đúng quy định.
+- Trong 5 dự án BOT cửa ngõ TP.HCM theo nghị quyết 98, các đơn vị tư vấn đề xuất 3 dự án đi trên cao, 2 dự án còn lại đi thấp.
+- Hàng loạt cây xanh được trồng dọc quốc lộ 15B bị trụi lá, chết khô. Được biết tình trạng này từng xảy ra sau khi hoàn thành dự án, và đơn vị cung cấp cây xanh buộc phải trồng cây thay thế.
+- Sau khi quận Phú Nhuận triển khai sửa chữa, cải tạo cơ sở hạ tầng phố ẩm thực Phan Xích Long, doanh thu của các cửa hàng tăng từ 20-30%, giờ cao điểm một số điểm phải đặt chỗ trước.
 ![New](News.png)
 ## Nhịp sống số 
 - Ngày 9-11, ứng dụng học tập trực tuyến Studify được một nhóm bạn trẻ ra mắt tại TP.HCM.
