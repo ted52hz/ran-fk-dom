@@ -1,6 +1,16 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Trước khi bị hủy văn bằng cử nhân văn học, bà Đào Thị Bích Thủy từng được phó chủ tịch hội đồng trường Trường đại học Kinh Bắc ký quyết định tiếp nhận và bổ nhiệm giữ chức vụ phó hiệu trưởng, kiêm chánh văn phòng của trường.
+- Thủ tướng lưu ý hoàn thiện cơ chế chính sách tuyển dụng, đãi ngộ để giáo viên được thụ hưởng mức lương tương xứng với công sức của mình.
+- Đại sứ New Zealand tại Việt Nam Caroline Beresford ví von giáo dục như một 'viên ngọc trên chiếc vương miện' của mối quan hệ hợp tác giữa hai nước.
+- Trường đại học Công Thương TP.HCM vừa công bố định hướng tuyển sinh đại học chính quy năm 2025, với nhiều thay đổi bất ngờ.
+- Chính phủ vừa ban hành quyết định về việc chuyển Trường đại học Kinh tế quốc dân thành Đại học Kinh tế quốc dân.
+- Một sinh viên sáng chế sản phẩm sáng tạo gặp khó khi tìm đường đưa sản phẩm ra thị trường Việt Nam. Nhưng cũng với nghiên cứu này, sinh viên đã nhận được học bổng du học của một trường nước ngoài.
+- Bộ Giáo dục và Đào tạo khẳng định không giao Trung tâm khảo thí quốc gia và đánh giá chất lượng giáo dục xây dựng bài thi V-SAT.
+- Nhiều năm đóng góp cho hoạt động xã hội, giải thưởng khoa học… GS.TS Lê Ngọc Thạch nói nhẹ bâng: 'Tôi làm bổn phận một công dân. Tôi học thầy tôi'.
+- Phó thủ tướng Chính phủ Lê Thành Long chỉ đạo Bộ Giáo dục và Đào tạo do nhận thấy những lo lắng của phụ huynh.
+- Đây là nghiên cứu khoa học đầu tiên ở cấp độ sinh viên dùng công nghệ đo điện não để hỗ trợ tâm lý cho người có biểu hiện trầm cảm.
 - Hiện tại mô hình giảng dạy AI và mã hóa đã được thử nghiệm tại một số trường học ở thủ đô Jakarta, Indonesia.
 - 'Nhiệm vụ giáo dục ở vùng sâu, vùng xa và những trường chuyên biệt còn nhiều thử thách, thiếu thốn, bất cập, nên cần hơn hết những nhà giáo tiên phong, lĩnh xướng nhận nhiệm vụ đó', Thứ trưởng Nguyễn Thị Kim Chi chia sẻ với các nhà giáo.
 - Cuộc thi Vô địch quốc gia STEM, AI và Robotics 2024 (Vietnam STEM AI Robotics - VSAR) dành cho học sinh phổ thông với chủ đề "Nông nghiệp xanh - Phát triển bền vững" khai mạc chiều 14-11, do báo Tiền Phong tổ chức.
@@ -21,50 +31,42 @@
 - Chỉ thống thông thạo tiếng Anh EPI của Việt Nam năm 2024 giảm so với năm 2023, dẫn đến sự tuột bậc trên bảng xếp hạng.
 - Nhiều học sinh, phụ huynh lo lắng trước thông tin kỳ thi đánh giá năng lực Đại học Quốc gia TP.HCM năm 2025 chỉ dành cho học sinh lớp 12. Thực hư việc này ra sao?
 - Hiệu trưởng Trường tiểu học Phan Văn Trị, quận 1, TP.HCM viết thư ngỏ xin không nhận hoa, quà ngày 20-11, mà đổi thành tập, sữa… cho học sinh.
-- Cấu trúc bài thi đánh giá năng lực Đại học Quốc gia TP.HCM từ năm 2025 được điều chỉnh phù hợp với Chương trình giáo dục phổ thông 2018.
-- Ngày 12-11, ông Trần Đề - hiệu trưởng Trường TH & THCS Thuận Lộc, thị xã Hồng Lĩnh, tỉnh Hà Tĩnh - cho biết nhà trường đã nhận thêm 580 quyển sách quý do báo Tuổi Trẻ chuyển đến từ TP.HCM giúp xây thư viện cho các em học sinh.
-- Đây là nội dung vừa được thống nhất trong buổi làm việc giữa Đại học Quốc gia Hà Nội và Bộ Công an về việc hợp tác đào tạo, bồi dưỡng nguồn nhân lực y tế cho lực lượng Công an nhân dân.
-- Theo Bộ trưởng Nguyễn Kim Sơn, giáo dục thủ đô cần hướng tới mục tiêu cao hơn yêu cầu chung cả nước, tạo nên những công dân có kỹ năng khoa học công nghệ, văn minh thanh lịch thời đại số, tốt chuyên môn, giỏi ngoại ngữ.
-- Với kinh nghiệm lâu năm và chiến lược giáo dục không ngừng đổi mới, Đài Loan đã xây dựng một cơ chế đào tạo nhân lực ngành bán dẫn hiệu quả.
-- Do mâu thuẫn từ trước trong trường học, 2 nam sinh đâm 2 nữ sinh trọng thương phải nhập viện cấp cứu.
-- Sinh viên sư phạm Trường đại học Sài Gòn phản ánh học đến năm 4 vẫn chưa nhận được hỗ trợ sinh hoạt phí. Có sinh viên phải tạm thời nghỉ học.
-- Cơ quan Giáo dục New Zealand (ENZ) vừa công bố học bổng Chính phủ New Zealand bậc đại học (NZUA) dành riêng cho học sinh, sinh viên Việt Nam.
-- Trong kỷ nguyên chuyển đổi số, các hình thức thi đánh giá năng lực ngoại ngữ đã bắt kịp xu thế mới và thi trên máy vi tính đang được thí sinh toàn cầu ưa chuộng.
-- Trong 17 năm qua, quỹ học bổng của gia đình giáo sư Lê Viết Ly đã tài trợ cho tỉnh Thanh Hóa để xây dựng trường học, hỗ trợ thiết bị giáo dục, trao học bổng, trao thưởng với tổng số tiền hơn 75 tỉ đồng.
 ![Edu](Edu.png)
 ## Thời Sự 
-- 12 người có hành vi môi giới mại dâm, mua bán và tổ chức sử dụng ma túy đã bị Công an quận Ngô Quyền (TP Hải Phòng) bắt giữ.
-- Ban giám đốc Công an TP.HCM đã chỉ đạo triển khai thực hiện kế hoạch tăng cường công tác phòng ngừa, quản lý, đấu tranh xử lý các hành vi vi phạm pháp luật liên quan kinh doanh hóa chất nguy hiểm, độc hại, trong đó có xyanua.
-- Dự báo ngày 15-11, bão Usagi có khả năng đi vào đông bắc của Bắc Biển Đông, trở thành cơn bão số 9, nhưng ít có khả năng ảnh hưởng tới đất liền nước ta.
-- TP.HCM lập hội đồng thu hút người tài trong lĩnh vực văn hóa, nghệ thuật, thể thao; Khách của ngân hàng chưa xác thực sinh trắc học sẽ gặp khó.
-- Về khái niệm người Hà Nội gốc gây tranh cãi và "bất hòa" nhiều năm nay, nhà nghiên cứu, phê bình văn học Phạm Xuân Thạch nói: 'Tốt nhất là nên quên nó đi'.
-- Hôm nay 15-11, thời tiết cả nước ổn định, ba miền ngày nắng. Trên biển bão số 8 suy yếu nhanh rồi tan.
-- Trong các ưu tiên trao đổi của thượng đỉnh G20 năm nay tại Brazil, có các lĩnh vực Việt Nam đã đạt được thành tựu to lớn.
-- Bí thư Thành ủy TP.HCM Nguyễn Văn Nên đã tiếp Đại sứ Mông Cổ tại Việt Nam Jigjee Sereejav đến chào từ biệt nhân dịp kết thúc nhiệm kỳ tại Việt Nam.
-- Thủ tướng yêu cầu các bên nỗ lực nối đường cao tốc từ Cao Bằng - Lạng Sơn tới Hà Nội và thông tuyến cao tốc từ Bắc vào Nam, tới tận mũi Cà Mau, mục tiêu hoàn thành trong năm 2025.
-- Biết người từng giúp mình nhập khẩu chiếc Mercedes-Benz là phó chánh văn phòng Ban chỉ đạo 389, chủ một công ty bất động sản đe dọa tống tiền 10 tỉ nếu không sẽ cho 'bay chức'. Chủ doanh nghiệp này bị tòa tuyên án phạt 12 năm tù.
-- Về vụ tiền đất tăng đột biến ở Khánh Hòa, từ năm 2023 tỉnh đã báo cáo Bộ Tài chính có tới 86 đơn vị bị ảnh hưởng, do điều chỉnh đơn giá đất “không tương ứng” và tỉnh chậm ban hành quyết định liên quan nhưng đến nay chưa “sửa sai”.
-- Thủ tướng Chính phủ ký quyết định bổ nhiệm ông Lê Tiến Đạt giữ chức phó tổng Thanh tra Chính phủ. Trước đó ông giữ chức vụ cục trưởng ở cơ quan này.
-- Chủ tịch UBND huyện Tri Tôn, tỉnh An Giang cho hay cơ quan công an đang xem xét, củng cố hồ sơ khởi tố vụ án và bị can là tài xế lái ô tô tải làm sập cầu.
-- Khảo sát đầu tư tại tỉnh Quảng Trị, Tập đoàn Công nghiệp than - khoáng sản Việt Nam (TKV) mong muốn đầu tư dự án để nhập khẩu 5 triệu tấn than đá từ Lào qua tỉnh này, dự án chế biến than từ 8 - 10 triệu tấn/năm.
-- Tổng Bí thư Tô Lâm nhấn mạnh nhiệm vụ xây dựng TP Hải Phòng phát triển ngang tầm với các thành phố tiêu biểu châu Á.
-- Phó bí thư thường trực Thành ủy TP.HCM Nguyễn Hồ Hải lưu ý việc tự kiểm tra giám sát, ngăn ngừa được những sai phạm lớn là điều quan trọng.
-- Người phụ nữ từ Trà Vinh lên thuê trọ tại TP Thủ Đức để trị bệnh ung thư. Sau khi làm tiểu phẫu tại phòng trọ, bà bị mệt, được đưa đến bệnh viện nhưng đã tử vong.
-- HĐND tỉnh Ninh Thuận ra nghị quyết điều chỉnh giảm mức đầu tư đường nối từ cao tốc Bắc - Nam đến cảng Cà Ná so với trước đây hơn 200 tỉ đồng, giảm bề rộng mặt đường để kéo dài toàn tuyến thêm 8,2km.
-- Theo giáo sư Nguyễn Ngọc Trân, kênh Vĩnh Tế mà cha ông đã tốn bao công sức, kể cả sinh mạng để tạo nên là một tài sản vô cùng quý giá của quốc gia.
-- Thủ tướng Phạm Minh Chính sẽ dự Hội nghị Thượng đỉnh G20 tại Rio de Janeiro, và thăm Cộng hòa Dominica sau đó từ ngày 16 đến 21-11.
-- Tại dự Luật Đầu tư công sửa đổi mới nhất, tiếp tục quy định phân cấp cho UBND các cấp quyết định chủ trương đầu tư nhóm B, nhóm C do địa phương quản lý.
-- Thanh tra Bộ Tài nguyên và Môi trường quyết định thanh tra công tác cấp giấy chứng nhận tại TP.HCM và đang triển khai đoàn thanh tra.
-- UBND TP.HCM vừa có văn bản gửi các sở ban ngành, quận huyện yêu cầu tập trung giải quyết dứt điểm các dự án tồn đọng.
-- Ngày 14-11, tại trụ sở Thành ủy Hà Nội, Ban Chỉ đạo Thành ủy về phòng, chống tham nhũng, tiêu cực đã tổ chức họp cho ý kiến về tình hình, kết quả hoạt động thời gian qua, nhiệm vụ trọng tâm những tháng cuối năm 2024.
-- TP Cần Thơ sắp mở đường bay tới tỉnh Vân Nam và thành phố Trùng Khánh của Trung Quốc để giao thương và khai thác hiệu quả sân bay quốc tế Cần Thơ.
-- Theo kế hoạch, dự án đường nối Trần Quốc Hoàn sẽ hoàn thành trong năm 2024, nhưng hiện còn 68 mặt bằng chưa bàn giao.
-- Nhiều bệnh viện tại TP.HCM siết chặt quản lý công tác thu phí gửi xe tại bệnh viện, thu phí gửi xe đúng giá, đúng quy định.
-- Trong 5 dự án BOT cửa ngõ TP.HCM theo nghị quyết 98, các đơn vị tư vấn đề xuất 3 dự án đi trên cao, 2 dự án còn lại đi thấp.
-- Hàng loạt cây xanh được trồng dọc quốc lộ 15B bị trụi lá, chết khô. Được biết tình trạng này từng xảy ra sau khi hoàn thành dự án, và đơn vị cung cấp cây xanh buộc phải trồng cây thay thế.
-- Sau khi quận Phú Nhuận triển khai sửa chữa, cải tạo cơ sở hạ tầng phố ẩm thực Phan Xích Long, doanh thu của các cửa hàng tăng từ 20-30%, giờ cao điểm một số điểm phải đặt chỗ trước.
+- Bão Man-yi mạnh cấp 15 (167-183km/h), giật trên cấp 17 đang hướng về đảo Luzon của Philippines và khả năng đi vào Biển Đông sáng 18-11.
+- Người Việt tiêu thụ tới 6,67 tỉ lít đồ uống có đường; Thêm ca tử vong ở Bình Định do cúm A/H1 pdm, bệnh nhân 59 tuổi.
+- Hôm nay 16-11, thời tiết cả nước tiếp tục chuỗi ngày ổn định, ba miền ngày nắng. Bắc Bộ sáng sớm có sương mù, Nam Bộ nhiều mây.
+- Rạng sáng 16-11, Thủ tướng Phạm Minh Chính và Phu nhân lên chuyên cơ rời Hà Nội, hướng đến điểm dừng chân đầu tiên trong chuyến công du là Brazil.
+- Vụ nổ lớn xảy ra trong căn nhà hai tầng ở thôn 1, xã Du Lễ, huyện Kiến Thụy, TP Hải Phòng làm một người bị thương nặng.
+- Tối 15-11, tại Hà Nội, Ban Tuyên giáo Trung ương chủ trì, phối hợp với Đài Truyền hình Việt Nam tổ chức chương trình 'Hồ Chí Minh - Hành trình khát vọng 2024'.
+- Buổi gặp gỡ không chỉ là cầu nối giữa quá khứ và hiện tại, mà còn thắp lên trong lòng thế hệ thanh niên TP niềm tự hào dân tộc.
+- Các tổ chức, doanh nghiệp, ngân hàng, cá nhân đã đóng góp gần 69 tỉ đồng ủng hộ quỹ Vì người nghèo năm 2024 và hưởng ứng phong trào thi đua xóa nhà tạm, nhà dột nát tại tỉnh Khánh Hòa.
+- Chủ tịch UBND TP.HCM Phan Văn Mãi chủ trì buổi tiếp và chiêu đãi đoàn đại biểu tỉnh Savannakhet (Lào).
+- Doanh nghiệp thuê khu đất 419 Lê Hồng Phong (quận 10, TP.HCM) đang khẩn trương tháo dỡ nhà xưởng, để trả khu đất cho Nhà nước trước ngày 31-12-2024.
+- Tài xế trong vụ cháy xe trên tỉnh lộ 725 đã được tìm thấy dưới vực đèo Con Ó (huyện Đạ Tẻh, Lâm Đồng).
+- Thủ tướng lưu ý hoàn thiện cơ chế chính sách tuyển dụng, đãi ngộ để giáo viên được thụ hưởng mức lương tương xứng với công sức của mình.
+- Đại Cung Môn - cánh cửa mở lối vào Tử Cấm Thành bên trong hoàng cung triều Nguyễn - sắp được phục dựng nguyên trạng.
+- Từ nay đến cuối năm, Chủ tịch UBND TP.HCM Phan Văn Mãi yêu cầu các cấp các ngành tập trung thi đua hoàn thành các chỉ tiêu, nhiệm vụ năm 2024 về đầu tư công, tăng trưởng, giải quyết tồn đọng, chuyển đổi số và nghị quyết 98.
+- Bộ Chính trị kỷ luật cảnh cáo Ban Thường vụ Tỉnh ủy Quảng Ninh, Ban Thường vụ Tỉnh ủy Đắk Lắk và các ông Nguyễn Xuân Ký, Bùi Văn Cường.
+- Người dân trong lúc đi tập thể dục ở đầu cồn Tân Long, TP Mỹ Tho bất ngờ phát hiện một thi thể nam giới trôi dạt vướng vào cầu ra bè nuôi cá, nên trình báo công an.
+- Sau khi tìm và đưa máy bay Yak-130 về, Trường Sĩ quan Không quân đã đến cảm ơn lực lượng tìm kiếm ở Đắk Lắk.
+- Tỉnh Cà Mau vừa tổ chức hội thảo khoa học 200 ngày tập kết ra Bắc tại Cà Mau - tầm nhìn chiến lược và giá trị lịch sử. Đây là một trong nhiều hoạt động kỷ niệm 70 năm tập kết ra Bắc (1954 - 2024).
+- Do vướng mặt bằng, dự án mở rộng xa lộ Hà Nội đến nay vẫn chưa hoàn thiện. Theo ghi nhận của phóng viên, hiện đoạn hầm dạ cầu vượt Trạm 2 thuộc dự án này còn ngổn ngang, chưa thể thông suốt.
+- Dự kiến từ ngày 2-12, Viện Nghiên cứu phát triển TP.HCM sẽ điều tra xã hội học hơn 48.000 nhà trên và ven kênh rạch để xây dựng đề án di dời toàn bộ số nhà này.
+- Ngân hàng SCB xin Lâm Đồng dừng thu hồi đất, dừng chấm dứt hoạt động dự án Đà Lạt Plaza do có liên quan vụ án bà Trương Mỹ Lan.
+- 4 phó thủ tướng được phân công trực tiếp theo dõi, chỉ đạo nhiều kiến nghị của tỉnh Quảng Trị sau chuyến công tác của Tổng Bí thư Tô Lâm.
+- Ông Trần Văn Mẫn - giám đốc Sở Xây dựng Quảng Ngãi - được điều động, bổ nhiệm làm trưởng Ban quản lý Khu kinh tế Dung Quất và các khu công nghiệp tỉnh Quảng Ngãi.
+- UBND xã Xuân Tô, nay là phường Tịnh Biên, thị xã Tịnh Biên, tỉnh An Giang bán vượt thẩm quyền 1,5ha đất công, nhưng 20 năm nay chưa giải quyết xong.
+- Bộ Công an cam kết cùng các bộ, ngành, Liên Hiệp Quốc hưởng ứng Tháng hành động vì bình đẳng giới và phòng ngừa, ứng phó với bạo lực trên cơ sở giới năm 2024 bằng nhiều hành động cụ thể.
+- Sáng 15-11, tại Hà Nội, Hội đồng khoa học các cơ quan Đảng Trung ương chủ trì, phối hợp với bộ biên tập tạp chí Cộng sản tổ chức Hội thảo khoa học quốc gia “Kỷ nguyên mới, kỷ nguyên vươn mình của dân tộc Việt Nam - Những vấn đề lý luận và thực tiễn”.
+- 5 ngày qua, tuyến metro số 1 đã vận hành thử nghiệm 100% công suất. Đây là một bước quan trọng cuối cùng trước khi chính thức chạy thương mại, đánh dấu một cột mốc quan trọng để phát triển giao thông công cộng của TP.HCM.
+- Để bước vào kỷ nguyên mới, PGS Lê Minh Thông cho hay cơ quan, công chức nhà nước tư duy kiểu 'mình có quyền' là không ổn mà phải tư duy 'mình có nghĩa vụ phục vụ'.
+- Sau hơn 50 năm treo lá cờ của Mặt trận Dân tộc Giải phóng miền Nam Việt Nam trên chóp tháp nhà thờ Đức Bà Paris (Pháp), 2 công dân người Thụy Sĩ lần đầu đặt chân đến Việt Nam.
+- Một sinh viên sáng chế sản phẩm sáng tạo gặp khó khi tìm đường đưa sản phẩm ra thị trường Việt Nam. Nhưng cũng với nghiên cứu này, sinh viên đã nhận được học bổng du học của một trường nước ngoài.
 ![New](News.png)
 ## Nhịp sống số 
+- Theo các chuyên gia, mục tiêu cuối cùng của an toàn thông tin không phải là xử lý được bao nhiêu lỗ hổng, ngăn chặn bao nhiêu cuộc tấn công, mà là bảo đảm tính liên tục, hiệu quả cho hoạt động của doanh nghiệp.
+- Nghiên cứu mới cho thấy lượng rác thải điện tử do trí tuệ nhân tạo (AI) tạo ra có thể tăng gấp 2.000 lần vào năm 2030, lên đến 5 triệu tấn.
 - Ngày 9-11, ứng dụng học tập trực tuyến Studify được một nhóm bạn trẻ ra mắt tại TP.HCM.
 - Máy móc vận hành tự động, robot xuất hiện ở mọi công đoạn, hoạt động sản suất được giám sát toàn trình… và tất cả được kết nối trên hạ tầng mạng là viễn cảnh sản xuất thông minh mà 5G2B của Viettel đang hiện thực hoá.
 - Những lỗ hổng này có thể ảnh hưởng từ smartphone, máy tính bảng cho đến phương tiện di chuyển có kết nối công nghệ và hệ thống viễn thông.
@@ -93,6 +95,4 @@
 - Intel công bố ra mắt sản phẩm chip AI mới, cạnh tranh với các đối thủ AMD và Nvidia.
 - Thông tin được ông Nguyễn Minh Hồng - chủ tịch Hội Truyền thông số Việt Nam - đưa ra tại hội thảo an toàn thông tin trong chuyển đổi số ngày 24-9, tại Cần Thơ.
 - Nhằm giúp doanh nghiệp tiết kiệm chi phí mà vẫn có thể tận dụng nhiều lợi ích của các máy chủ cloud, Bizfly Cloud tung ra dòng máy chủ Cloud VPS giá rẻ hấp dẫn.
-- Sở Y tế TP.HCM đã triển khai phần mềm tra cứu thuốc cấp cứu, với 14 bệnh viện tham gia tra cứu, chia sẻ 37 loại thuốc cấp cứu.
-- Ứng dụng Instagram đã cho ra mắt tính năng được thiết kế dành riêng cho lứa tuổi thanh thiếu niên nhằm tăng cường các biện pháp bảo vệ nhóm đối tượng này.
 ![life](Life.png)
