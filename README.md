@@ -1,7 +1,16 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
-- Tôi cũng như hàng triệu phụ huynh có con đang họp lớp 9 trên cả nước rất 'đau tim' khi chờ đợi môn thi thứ ba vào lớp 10.
+- Chuyện thầy hiệu trưởng xin đổi hoa 20-11 thành học cụ là một cách mời gọi các nhà quản lý, thầy cô giáo hướng đến tinh thần vì học sinh.
+- Nhiều người gọi thầy giáo Phùng Quán là "chiến binh" vì gần như mặt trận nào thầy cũng lăn xả, nhiệt huyết vì cộng đồng, từ chống dịch COVID-19 đến thiện nguyện, tư vấn tuyển sinh, đoàn thể...
+- Ngoài câu chuyện tình yêu đôi lứa, tình yêu biển đảo là động lực lớn thôi thúc cô giáo trẻ quyết tâm ra Thổ Châu dạy học.
+- Giữa những xôn xao thế sự lớn lao và nhỏ nhặt, tháng 11 luôn dung chứa những niềm xôn xao khác của ký ức và lòng biết ơn khi gần đến 20-11 - Ngày Nhà giáo Việt Nam.
+- Họ là những người dạy nghề thầm lặng cho người khuyết tật có được cái nghề kiếm sống - ước mơ lớn nhất trong đời của người bất hạnh.
+- Khi ngẫm lại cuộc đời, nhiều người trong chúng ta phải thốt lên 'nhờ thầy cô nghiêm khắc, nay con nên người'.
+- Có 1.188 nhà giáo được Chủ tịch nước phong tặng danh hiệu Nhà giáo nhân dân, Nhà giáo ưu tú. Lễ trao tặng danh hiệu diễn ra vào ngày 17-11.
+- Sáng 17-11, Thành Đoàn Đà Nẵng cùng Sở Giáo dục và Đào tạo Đà Nẵng đã tuyên dương 39 nhà giáo trẻ tiêu biểu nhân dịp kỷ niệm 42 năm Ngày Nhà giáo Việt Nam 20-11.
+- Nhiều vụ tai nạn thương tâm từ việc học sinh chạy xe đạp điện, xe máy đến trường, nhưng hiện nhiều cha mẹ vẫn giao xe và "khoán trắng" cho con.
+- Tôi cũng như hàng triệu phụ huynh có con đang học lớp 9 trên cả nước rất 'đau tim' khi chờ đợi môn thi thứ ba vào lớp 10.
 - Nữ sinh chưa từng biết mặt cha suốt 6 năm qua vẫn đều đặn đến sân tập võ, thành kiện tướng karate, dùng tiền bồi dưỡng thi đấu để trang trải chi phí ăn học và theo đuổi ước mơ vào đại học.
 - Hiệu trưởng Trường đại học Kinh tế nhắn nhủ sinh viên "tương lai của nhà trường phụ thuộc vào sự cống hiến và khát vọng của các bạn sinh viên".
 - Dự án 'Khát vọng thống nhất' thu hút 8.600 học sinh từ 8 trường THPT thuộc cụm chuyên môn 1 tại TP.HCM tham gia với hơn 1.000 sản phẩm độc đáo, mang đậm dấu ấn lịch sử.
@@ -22,49 +31,41 @@
 - Hiện tại mô hình giảng dạy AI và mã hóa đã được thử nghiệm tại một số trường học ở thủ đô Jakarta, Indonesia.
 - 'Nhiệm vụ giáo dục ở vùng sâu, vùng xa và những trường chuyên biệt còn nhiều thử thách, thiếu thốn, bất cập, nên cần hơn hết những nhà giáo tiên phong, lĩnh xướng nhận nhiệm vụ đó', Thứ trưởng Nguyễn Thị Kim Chi chia sẻ với các nhà giáo.
 - Cuộc thi Vô địch quốc gia STEM, AI và Robotics 2024 (Vietnam STEM AI Robotics - VSAR) dành cho học sinh phổ thông với chủ đề "Nông nghiệp xanh - Phát triển bền vững" khai mạc chiều 14-11, do báo Tiền Phong tổ chức.
-- Năm 2024 đánh dấu chương trình học bổng Acecook Happy Scholarship lần thứ 9 với quy mô và thông điệp mới mẻ hơn, tiếp nối thành công của 8 mùa trước.
-- Đó là những điều 'gan ruột' mà ông Đống Lương Sơn, nguyên tổng giám đốc khách sạn Yasaka-Saigon-Nhatrang, nói với học sinh Trường THPT chuyên Lê Hồng Phong, TP.HCM tại buổi định hướng nghề nghiệp giữa tháng 11-2024.
-- UBND TP.HCM vừa có văn bản về việc rà soát chứng chỉ ngoại ngữ, liên quan đến chứng chỉ mang tên 'Cambridge International'.
-- Suốt 20 năm qua, thiếu tá Nguyễn Văn Tưởng (Đồn biên phòng Cầu Bóng, thuộc Bộ chỉ huy Bộ đội biên phòng tỉnh Khánh Hòa) vẫn đều đặn gieo chữ cho học trò nghèo ở Nha Trang.
-- Chiều 13-11, gần 50 học sinh Trường THPT Võ Văn Kiệt (quận 8, TP.HCM) đến tham quan và học tập thực tế tại Nhà máy mì Acecook Việt Nam.
-- Sáng 14-11, báo Người Lao Động đã tổ chức lễ tổng kết và trao giải cuộc thi 'Người thầy kính yêu' lần 3.
-- Tặng hay cho làm sao để mọi người đồng cảm, để người cho và người nhận không bị phiền, điều đó liên quan đến lối sống.
-- Một học sinh học tại một trung tâm giáo dục ở Hội An trong lúc vui chơi đã gặp tai nạn. Chỉ khi phụ huynh phát hiện và yêu cầu làm rõ thì chủ trường mới đứng ra nhận lỗi.
-- LTS: Nhiều nhà giáo, bên cạnh công việc chuyên môn, quản lý, luôn đau đáu với xã hội và âm thầm, bền bỉ có nhiều nỗ lực, đóng góp để giải quyết các vấn đề xã hội.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Phó thủ tướng, Bộ trưởng Ngoại giao Bùi Thanh Sơn nhận định chuyến thăm Chile, Peru và dự Tuần lễ cấp cao APEC 2024 của Chủ tịch nước Lương Cường đã đạt được nhiều kết quả nổi bật.
-- Gặp đại diện cộng đồng người Việt và cán bộ, nhân viên đại sứ quán tại Brazil, Thủ tướng Phạm Minh Chính dặn dò bà con tiếp tục đoàn kết, phát huy sức mình vì sự phát triển của đất nước.
-- Vai trò của báo chí chính thống trong cuộc chiến ngăn chặn tin giả, đảm bảo thông tin minh bạch cho xã hội là vô cùng quan trọng, tuy nhiên những chính sách, hỗ trợ báo chí chính thống chưa đủ mạnh.
-- Sau gần 17 tháng khởi công, dự án cao tốc Châu Đốc - Cần Thơ - Sóc Trăng đã từng bước thành hình trong sự nỗ lực của các tỉnh thành ĐBSCL. Tuy nhiên khả năng chậm tiến độ vẫn hiển hiện.
-- Dự báo trong 24 giờ tới, siêu bão Man-yi đi vào Biển Đông, nhiều khả năng đây là cơn bão số 9 trong năm 2024.
-- Vì tin vào lời "mật ngọt", nhiều người dân đã đóng tiền để đi xuất khẩu lao động ở Singapore làm đầu bếp, giúp việc…
-- Tin tức đáng chú ý: Một số tỉ phú thế giới đến trải nghiệm du lịch cao cấp vịnh Hạ Long dịp đầu năm 2025; Cứ 10 trẻ sơ sinh có 1 bé sinh non tháng, nhẹ cân; Cẩn trọng khi được mời đầu tư gói bảo hiểm linh hoạt...
-- Chiều 16-11 (giờ Brazil, rạng sáng 17-11 giờ Việt Nam), Thủ tướng Phạm Minh Chính và Phu nhân cùng đoàn đại biểu cấp cao Việt Nam đã đến Rio de Janeiro, bắt đầu các hoạt động của chuyến công tác dự thượng đỉnh G20.
-- Hôm nay 17-11, thời tiết các tỉnh Bắc Bộ chịu ảnh hưởng của không khí lạnh. Trung Bộ mưa rào, Nam Bộ sáng và tối triều cường.
-- Tai nạn liên hoàn xảy ra tại Bình Dương, khá hy hữu khi hai xe cùng hãng taxi tông nhau.
-- Ban Chỉ đạo sẽ có nhiệm vụ tổng kết việc thực hiện nghị quyết số 18, từ đó có giải pháp về đổi mới, sắp xếp mô hình tổ chức bộ máy của Chính phủ, các bộ, cơ quan ngang bộ.
-- Sở Giao dịch chứng khoán TP.HCM thống kê số lượng công ty vi phạm công bố thông tin trên sàn HOSE giảm trong năm 2024.
-- Công an TP Đà Lạt đang truy tìm tài xế xe taxi mang biển số tỉnh Bình Dương bị tố xịt hơi cay vào 2 hành khách tại Đà Lạt.
-- Chiều 16-11, Chủ tịch UBND TP.HCM Phan Văn Mãi đã đến dự và phát biểu chúc mừng Ngày hội đại đoàn kết toàn dân tộc tại ấp Long Thạnh 2, xã Long Hòa, huyện Cần Giờ.
-- Hàng chục trụ điện chằng chịt dây nhợ trên đường Tân Kỳ - Tân Quý (TP.HCM) đã được các đơn vị liên quan thu hồi, đường trở nên thông thoáng.
-- Quận 6 kiến nghị UBND TP.HCM điều chỉnh ranh dự án, tách dự án kênh Hàng Bàng và đường Phan Văn Khỏe thành hai dự án riêng.
-- Vĩnh Long tổ chức lễ hội ‘Gạch gốm đỏ - Kinh tế xanh’ lần thứ nhất và công bố đồ án quy hoạch chung xây dựng khu lò gạch, gốm huyện Mang Thít đến năm 2045.
-- Triều cường tại TP.HCM đạt đỉnh tháng 10 âm lịch, một số khu vực ven sông rạch nước tràn lên bờ, người dân vất vả ứng phó.
-- Tại ngày hội đại đoàn kết dân tộc được tổ chức tại xã Nam Xuân (huyện Krông Nô, Đắk Nông), thượng tướng Trần Quang Phương - phó chủ tịch Quốc hội - nói người dân cần cùng nhau đánh thức "nàng tiên xanh" đang ngủ.
-- Tài xế xe bán tải vừa bị lập biên bản vi phạm hành chính với mức phạt 5 triệu đồng, tước bằng lái 2 tháng vì vượt ẩu không đúng quy định khi qua cầu phao Phong Châu, Phú Thọ.
-- Sáng 16-11, đoàn đại biểu TP.HCM đã về đến cảng Lữ đoàn 125 hải quân (TP Thủ Đức, TP.HCM), khép lại hành trình hướng về biển đảo phía tây nam của Tổ quốc.
-- Thủ tướng Phạm Minh Chính vừa ký quyết định điều động, bổ nhiệm ông Võ Văn Hưng - chủ tịch UBND tỉnh Quảng Trị - giữ chức thứ trưởng Bộ Nông nghiệp và Phát triển nông thôn.
-- Chiều 16-11, hai xe va chạm trên cầu Long Thành khiến dòng xe trên cao tốc hướng TP.HCM đi Đồng Nai, Vũng Tàu... ùn ứ kéo dài.
-- Đề xuất đóng nút giao thông Nguyễn Văn Linh - Phạm Hùng (TP.HCM) để giảm kẹt xe tạo ra nhiều tranh luận từ bạn đọc.
-- Kiểm tra việc thi công ở dự án cao tốc Hòa Liên - Túy Loan, thứ trưởng Bộ Giao thông vận tải nhận xét: "Cắm biển cho hoành tráng, thi công vắng tanh như chùa Bà Đanh".
-- Với gió mạnh lên tới gần 200km/h, giật trên 220km/h, dự báo siêu bão Man-yi sẽ quét qua một số đảo của Philippines trước khi đổ bộ đảo Luzon vào ngày 17-11.
-- UBND TP.HCM vừa có văn bản chỉ đạo giải quyết các khó khăn, vướng mắc trong sửa chữa căn hộ và phần sở hữu chung tại các chung cư do Trung tâm Quản lý nhà và giám định xây dựng quản lý.
-- Trong chặng đường 100 năm đạo Cao Đài - Tòa thánh Tây Ninh hình thành, nhiều giá trị tôn giáo tốt đẹp đã được lan tỏa từ nhắc nhở việc tu thân, sống tốt đời đẹp đạo cho đến hỗ trợ những người có hoàn cảnh khó khăn.
-- Củ Chi đất thép thành đồng là điểm đến đầu tiên của hai nhân vật người Thụy Sĩ trong hành trình thăm TP.HCM.
-- Đội cảnh sát giao thông số 6 cho biết việc cả nhà dừng ô tô, ngồi ăn uống tại điểm khẩn cấp trên cao tốc Vĩnh Hảo - Phan Thiết  là vô cùng nguy hiểm.
+- Ông Thích Minh Tuệ thông báo sẽ tạm dừng khất thực do thời gian qua có nhiều người tìm đến, tụ tập đông người gây mất an ninh trật tự.
+- Ông Trương Tuấn Anh vừa được bổ nhiệm làm tổng giám đốc Công ty Đầu tư tài chính nhà nước TP.HCM (HFIC).
+- Để tránh nguy cơ lừa đảo, người lao động cần tìm hiểu thông tin doanh nghiệp đã được cấp phép hay chưa.
+- Dự báo trong hai ngày tới, bão số 9 (Man-yi) sẽ tiếp tục suy yếu do tương tác với không khí lạnh nên có thể tan trên biển và ít có khả năng bão đổ bộ vào đất liền Việt Nam.
+- Lãnh đạo Việt Nam và Brazil đã nâng cấp quan hệ lên Đối tác chiến lược, mở ra giai đoạn phát triển mới trong quan hệ hai nước.
+- Một số tin tức đáng chú ý: Lý do vốn FDI vào Việt Nam tăng trưởng chậm dần; 'Cơn mưa' tiền mặt cổ tức tuần này; HUD có chủ tịch mới; Chủ tịch Digiworld bán bớt vốn ở Viettel Construction...
+- Hôm nay 18-11, không khí lạnh sẽ ảnh hưởng tới Bắc Bộ, Trung Bộ thời tiết có mưa, Nam Bộ ngày nắng.
+- Để khắc phục khó khăn là khoảng cách địa lý hai nước, Thủ tướng Phạm Minh Chính cho biết Việt Nam đang phát triển mạnh đội tàu biển, xây dựng các cảng trung chuyển lớn để giảm chi phí vận tải, logistics.
+- Thủ tướng Phạm Minh Chính và Phu nhân cùng các đại biểu Việt Nam, Brazil đã vỗ tay, hòa theo lời của bài hát 'Như có Bác Hồ trong ngày vui đại thắng' tại lễ khánh thành biển kỷ niệm 112 năm ngày Người đến Rio de Janeiro.
+- Tối 17-11, sau khi đổ bộ vào đảo Luzon (Philippines), siêu bão Man-yi đã suy yếu xuống cấp 13 (134-149km/h), giật cấp 16 và đi vào Biển Đông, trở thành cơn bão số 9 trong năm nay.
+- 'Việc xây dựng khối đại đoàn kết phải đi lên từ những việc nhỏ nhất mà sát với điều kiện cuộc sống của người dân'.
+- Nhân dịp kỷ niệm 42 năm Ngày Nhà giáo Việt Nam, nhiều siêu thị, điểm mua sắm, gian hàng sách... tung ra chương trình giảm giá, sự kiện tri ân, tôn vinh các thầy cô giáo.
+- Phó thủ tướng Trần Hồng Hà gọi tai nạn giao thông là kẻ thù. Đồng thời ông yêu cầu cần có các chế tài đủ mạnh để xử lý nghiêm, không khoan nhượng, kể cả áp dụng các biện pháp hình sự để răn đe các hành vi vi phạm.
+- Bí thư Thành ủy TP.HCM Nguyễn Văn Nên cho rằng hành động treo cờ của các nhân vật rất đáng trân trọng, bởi không vì quyền lợi cá nhân mà vì công lý, vì ủng hộ cho cuộc đấu tranh của nhân dân Việt Nam.
+- Công an tỉnh Quảng Bình đã quyết định khởi tố, bắt tạm giam hàng loạt cán bộ lãnh đạo ở các huyện thị, thành phố để điều tra những liên quan đến đại án cây xanh.
+- Để không vỡ mộng, bị lừa đảo khi có nguyện vọng đi xuất khẩu lao động, cần phải kiểm tra thật kỹ thông tin doanh nghiệp trước khi đóng tiền. Trong trường hợp phát hiện bị lừa đảo thì báo ngay cơ quan chức năng.
+- Cầu Vàm Cái Sứt nằm trên hương lộ 2 được thi công hơn 4 năm qua, nhưng đến nay đường vẫn chưa xong để kết nối vào cao tốc.
+- 100 cán bộ, chiến sĩ công an chia thành 12 tổ đồng loạt khám xét, bắt giữ 12 nghi phạm trong đường dây cá độ bóng đá quy mô hơn 2.000 tỉ đồng.
+- TP.HCM sẽ quyết tâm dồn sức để thực hiện những chỉ tiêu, nhiệm vụ của TP đề ra cho năm 2024. Trong đó xử lý nghiêm các tồn đọng để tăng tốc bước vào kỷ nguyên mới.
+- Ngán ngẩm với tài xế ô tô dừng xe tại điểm khẩn cấp cao tốc Vĩnh Hảo - Phan Thiết, đoạn qua huyện Hàm Thuận Nam, tỉnh Bình Thuận để gia đình… ăn tối.
+- Trong chiều đến tối nay 17-11, siêu bão Man-yi đổ bộ vào đảo Luzon (Philippines) với gió mạnh cấp 16 (184-201km/h), giật trên cấp 17 (trên 220km/h).
+- Các trò chơi dân gian được tái hiện ở thành phố tạo nên trận cười nắc nẻ cho người tham gia "Ngày hội Đại đoàn kết toàn dân tộc".
+- Trong khi lấy mẫu giám định ADN ở Nghĩa trang liệt sĩ Quốc gia Đường 9, lực lượng làm nhiệm vụ phát hiện cây viết khắc chữ "XUÂN ĐÀI" hoặc "XUÂN LÀI" và hình cây dừa, đôi chim bồ câu…
+- Tổng Bí thư Tô Lâm cùng các thành viên trong đoàn công tác Trung ương và lãnh đạo tỉnh đến dự Ngày hội Đại đoàn kết toàn dân tộc tại xã Đất Mũi, huyện Ngọc Hiển, Cà Mau.
+- Từ 1-7-2025, nhiều quy định mới về điều kiện hưởng lương hưu, thời gian đóng bảo hiểm xã hội... có hiệu lực.
+- Bãi xe bệnh viện thu phí cao hơn quy định; Đề xuất đóng nút giao thông Nguyễn Văn Linh - Phạm Hùng để giảm kẹt xe... là thông tin bạn đọc phản ánh tuần qua.
+- Dự ngày hội đoàn kết dân tộc và tổng kết đề án trao 1.200 căn nhà cho người nghèo, Bộ trưởng Bộ Công an Lương Tam Quang nói về sự đoàn kết, tương thân tương ái để không ai bị bỏ lại phía sau.
+- Từ 1-1-2025, tỉnh Thừa Thiên Huế sẽ không còn miễn phí vé tham quan di tích thuộc Quần thể di tích cố đô Huế vào 3 ngày Tết Nguyên đán như thường niên.
+- Sáng 17-11, Ban An toàn giao thông TP.HCM phối hợp các đơn vị tổ chức lễ tưởng niệm các nạn nhân tử vong do tai nạn giao thông.
+- Tuần này miền Bắc sẽ đón đợt không khí lạnh, miền Trung mưa rào đến mưa to, miền Nam ngày nắng, có lúc mưa rào.
 ![New](News.png)
 ## Nhịp sống số 
+- Loại kính mới có thể chỉ cho shipper chính xác nơi cần đến trong tòa nhà, chẳng hạn như các hướng rẽ, và chụp ảnh các gói hàng sau khi giao xong.
 - Apple được cho là đã vi phạm luật cạnh tranh của Anh khi ưu tiên dịch vụ lưu trữ iCloud, 'bẫy' khách hàng buộc phải dùng iCloud.
 - Theo các chuyên gia, mục tiêu cuối cùng của an toàn thông tin không phải là xử lý được bao nhiêu lỗ hổng, ngăn chặn bao nhiêu cuộc tấn công, mà là bảo đảm tính liên tục, hiệu quả cho hoạt động của doanh nghiệp.
 - Nghiên cứu mới cho thấy lượng rác thải điện tử do trí tuệ nhân tạo (AI) tạo ra có thể tăng gấp 2.000 lần vào năm 2030, lên đến 5 triệu tấn.
@@ -94,5 +95,4 @@
 - Viettel đang tăng tốc chuyển đổi cho 500.000 thuê bao 2G cuối cùng trước ngày tắt sóng 15-10.
 - FPT Shop mở bán iPhone 16 Series trên toàn quốc
 - Intel công bố ra mắt sản phẩm chip AI mới, cạnh tranh với các đối thủ AMD và Nvidia.
-- Thông tin được ông Nguyễn Minh Hồng - chủ tịch Hội Truyền thông số Việt Nam - đưa ra tại hội thảo an toàn thông tin trong chuyển đổi số ngày 24-9, tại Cần Thơ.
 ![life](Life.png)
