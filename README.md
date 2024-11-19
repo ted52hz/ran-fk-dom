@@ -1,8 +1,23 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- 'Từ năm học lớp 4, đến giờ 17 tuổi, con vẫn mắc màn cho tôi mỗi tối. Tôi biết ơn thầy Huy vì con tôi đã được gieo vào tâm hồn những điều tốt đẹp'.
+- Tối 18-11, Thành Đoàn TP.HCM đã tuyên dương 457 nhà giáo trẻ đạt giải thưởng "Nhà giáo trẻ tiêu biểu" TP.HCM năm 2024.
+- Phó bí thư Thường trực Thành ủy TP.HCM Nguyễn Hồ Hải đã đến thăm, chúc mừng gia đình cố GS.TS Nguyễn Thiện Thành nhân Ngày Nhà giáo Việt Nam 20-11.
+- Công việc của một giảng viên không chỉ là truyền đạt kiến thức mà còn tạo dựng những tác động tích cực đối với sự phát triển của thế hệ trẻ.
+- Khóa học trang bị cho học viên kỹ năng và kiến thức về thiết kế nghiên cứu khoa học, cách soạn và công bố bài báo khoa học trên các tập san quốc tế do GS Nguyễn Văn Tuấn và TS Trần Sơn Thạch (Úc) hướng dẫn.
+- Hiện nay giáo viên đang chịu nhiều áp lực về tài chính, các hoạt động chuyên môn, nhưng áp lực lớn nhất đến từ phụ huynh học sinh.
+- Tiết học của cô Oanh nhen nhóm cho học sinh đam mê tìm tòi, khơi gợi các em hướng khởi nghiệp ngay trên quê nhà.
+- Báo Tuổi Trẻ và Quỹ hỗ trợ xây dựng môi trường xanh Việt Nam sẽ gửi tặng học bổng cho 100 học sinh khó khăn tại huyện Bát Xát (Lào Cai).
+- Nhiều phụ huynh Trường THCS Nguyễn Chánh (Quảng Ngãi) phản ảnh 960 học sinh khám trong 450 phút (chưa đến 30 giây/học sinh)!
+- Năm 2024, ngành giáo dục và đào tạo tỉnh Thanh Hóa đã có nhiều chuyển biến mới, tạo đà cho công tác dạy và học năm học 2024-2025.
+- Trong số 50 nhà giáo nhận giải thưởng Võ Trường Toản năm nay, có 2 người là trưởng phòng giáo dục và đào tạo.
+- Đại học Đà Nẵng sẽ có thêm trường đại học quốc tế trên cơ sở phát triển từ Viện Nghiên cứu và Đào tạo Việt - Anh.
+- Ngày 18-11, các trường học tại New Delhi của Ấn Độ đã chuyển sang học trực tuyến vì tình trạng ô nhiễm không khí ngày càng trầm trọng.
+- Tổng Bí thư Tô Lâm chỉ rõ một số hạn chế của giáo dục, đào tạo kéo dài nhiều năm chưa giải quyết dứt điểm.
+- Quỹ VinFuture chính thức công bố lịch trình Tuần lễ Khoa học công nghệ và lễ trao giải VinFuture 2024 diễn ra từ ngày 4 đến 7-12 tại Hà Nội.
 - Chuyện thầy hiệu trưởng xin đổi hoa 20-11 thành học cụ là một cách mời gọi các nhà quản lý, thầy cô giáo hướng đến tinh thần vì học sinh.
-- Nhiều người gọi thầy giáo Phùng Quán là "chiến binh" vì gần như mặt trận nào thầy cũng lăn xả, nhiệt huyết vì cộng đồng, từ chống dịch COVID-19 đến thiện nguyện, tư vấn tuyển sinh, đoàn thể...
+- Nhiều người gọi thầy giáo Phùng Quán là 'chiến binh' vì gần như mặt trận nào thầy cũng lăn xả, nhiệt huyết vì cộng đồng, từ chống dịch COVID-19 đến thiện nguyện, tư vấn tuyển sinh, đoàn thể...
 - Ngoài câu chuyện tình yêu đôi lứa, tình yêu biển đảo là động lực lớn thôi thúc cô giáo trẻ quyết tâm ra Thổ Châu dạy học.
 - Giữa những xôn xao thế sự lớn lao và nhỏ nhặt, tháng 11 luôn dung chứa những niềm xôn xao khác của ký ức và lòng biết ơn khi gần đến 20-11 - Ngày Nhà giáo Việt Nam.
 - Họ là những người dạy nghề thầm lặng cho người khuyết tật có được cái nghề kiếm sống - ước mơ lớn nhất trong đời của người bất hạnh.
@@ -16,53 +31,38 @@
 - Dự án 'Khát vọng thống nhất' thu hút 8.600 học sinh từ 8 trường THPT thuộc cụm chuyên môn 1 tại TP.HCM tham gia với hơn 1.000 sản phẩm độc đáo, mang đậm dấu ấn lịch sử.
 - AI, ChatGPT mở ra nhiều cơ hội và thách thức mới trong lĩnh vực nghiên cứu và giáo dục, đặc biệt là trong giảng dạy ngôn ngữ.
 - Trong 30 năm qua, Đại học Đà Nẵng đã đào tạo cho đất nước hàng vạn nhân lực có trình độ cao ở nhiều lĩnh vực, góp phần quan trọng vào sự nghiệp xây dựng, phát triển đất nước.
-- 'Vì học sinh và người dân' là lựa chọn của những người thầy giữa cơn cuồng nộ của trời đất khi bão Yagi ập đến.
-- Một bà lão tóc bạc trắng, lưng khòm, tay chân run run cứ gần tan trường đều đứng đợi cô cháu gái mù đang là sinh viên để nắm tay đưa cháu về khu trọ.
-- Trước khi bị hủy văn bằng cử nhân văn học, bà Đào Thị Bích Thủy từng được phó chủ tịch hội đồng trường Trường đại học Kinh Bắc ký quyết định tiếp nhận và bổ nhiệm giữ chức vụ phó hiệu trưởng, kiêm chánh văn phòng của trường.
-- Thủ tướng lưu ý hoàn thiện cơ chế chính sách tuyển dụng, đãi ngộ để giáo viên được thụ hưởng mức lương tương xứng với công sức của mình.
-- Đại sứ New Zealand tại Việt Nam Caroline Beresford ví von giáo dục như một 'viên ngọc trên chiếc vương miện' của mối quan hệ hợp tác giữa hai nước.
-- Trường đại học Công Thương TP.HCM vừa công bố định hướng tuyển sinh đại học chính quy năm 2025, với nhiều thay đổi bất ngờ.
-- Chính phủ vừa ban hành quyết định về việc chuyển Trường đại học Kinh tế quốc dân thành Đại học Kinh tế quốc dân.
-- Một sinh viên sáng chế sản phẩm sáng tạo gặp khó khi tìm đường đưa sản phẩm ra thị trường Việt Nam. Nhưng cũng với nghiên cứu này, sinh viên đã nhận được học bổng du học của một trường nước ngoài.
-- Bộ Giáo dục và Đào tạo khẳng định không giao Trung tâm khảo thí quốc gia và đánh giá chất lượng giáo dục xây dựng bài thi V-SAT.
-- Nhiều năm đóng góp cho hoạt động xã hội, giải thưởng khoa học… GS.TS Lê Ngọc Thạch nói nhẹ bâng: 'Tôi làm bổn phận một công dân. Tôi học thầy tôi'.
-- Phó thủ tướng Chính phủ Lê Thành Long chỉ đạo Bộ Giáo dục và Đào tạo do nhận thấy những lo lắng của phụ huynh.
-- Đây là nghiên cứu khoa học đầu tiên ở cấp độ sinh viên dùng công nghệ đo điện não để hỗ trợ tâm lý cho người có biểu hiện trầm cảm.
-- Hiện tại mô hình giảng dạy AI và mã hóa đã được thử nghiệm tại một số trường học ở thủ đô Jakarta, Indonesia.
-- 'Nhiệm vụ giáo dục ở vùng sâu, vùng xa và những trường chuyên biệt còn nhiều thử thách, thiếu thốn, bất cập, nên cần hơn hết những nhà giáo tiên phong, lĩnh xướng nhận nhiệm vụ đó', Thứ trưởng Nguyễn Thị Kim Chi chia sẻ với các nhà giáo.
-- Cuộc thi Vô địch quốc gia STEM, AI và Robotics 2024 (Vietnam STEM AI Robotics - VSAR) dành cho học sinh phổ thông với chủ đề "Nông nghiệp xanh - Phát triển bền vững" khai mạc chiều 14-11, do báo Tiền Phong tổ chức.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Ông Thích Minh Tuệ thông báo sẽ tạm dừng khất thực do thời gian qua có nhiều người tìm đến, tụ tập đông người gây mất an ninh trật tự.
-- Ông Trương Tuấn Anh vừa được bổ nhiệm làm tổng giám đốc Công ty Đầu tư tài chính nhà nước TP.HCM (HFIC).
-- Để tránh nguy cơ lừa đảo, người lao động cần tìm hiểu thông tin doanh nghiệp đã được cấp phép hay chưa.
-- Dự báo trong hai ngày tới, bão số 9 (Man-yi) sẽ tiếp tục suy yếu do tương tác với không khí lạnh nên có thể tan trên biển và ít có khả năng bão đổ bộ vào đất liền Việt Nam.
-- Lãnh đạo Việt Nam và Brazil đã nâng cấp quan hệ lên Đối tác chiến lược, mở ra giai đoạn phát triển mới trong quan hệ hai nước.
-- Một số tin tức đáng chú ý: Lý do vốn FDI vào Việt Nam tăng trưởng chậm dần; 'Cơn mưa' tiền mặt cổ tức tuần này; HUD có chủ tịch mới; Chủ tịch Digiworld bán bớt vốn ở Viettel Construction...
-- Hôm nay 18-11, không khí lạnh sẽ ảnh hưởng tới Bắc Bộ, Trung Bộ thời tiết có mưa, Nam Bộ ngày nắng.
-- Để khắc phục khó khăn là khoảng cách địa lý hai nước, Thủ tướng Phạm Minh Chính cho biết Việt Nam đang phát triển mạnh đội tàu biển, xây dựng các cảng trung chuyển lớn để giảm chi phí vận tải, logistics.
-- Thủ tướng Phạm Minh Chính và Phu nhân cùng các đại biểu Việt Nam, Brazil đã vỗ tay, hòa theo lời của bài hát 'Như có Bác Hồ trong ngày vui đại thắng' tại lễ khánh thành biển kỷ niệm 112 năm ngày Người đến Rio de Janeiro.
-- Tối 17-11, sau khi đổ bộ vào đảo Luzon (Philippines), siêu bão Man-yi đã suy yếu xuống cấp 13 (134-149km/h), giật cấp 16 và đi vào Biển Đông, trở thành cơn bão số 9 trong năm nay.
-- 'Việc xây dựng khối đại đoàn kết phải đi lên từ những việc nhỏ nhất mà sát với điều kiện cuộc sống của người dân'.
-- Nhân dịp kỷ niệm 42 năm Ngày Nhà giáo Việt Nam, nhiều siêu thị, điểm mua sắm, gian hàng sách... tung ra chương trình giảm giá, sự kiện tri ân, tôn vinh các thầy cô giáo.
-- Phó thủ tướng Trần Hồng Hà gọi tai nạn giao thông là kẻ thù. Đồng thời ông yêu cầu cần có các chế tài đủ mạnh để xử lý nghiêm, không khoan nhượng, kể cả áp dụng các biện pháp hình sự để răn đe các hành vi vi phạm.
-- Bí thư Thành ủy TP.HCM Nguyễn Văn Nên cho rằng hành động treo cờ của các nhân vật rất đáng trân trọng, bởi không vì quyền lợi cá nhân mà vì công lý, vì ủng hộ cho cuộc đấu tranh của nhân dân Việt Nam.
-- Công an tỉnh Quảng Bình đã quyết định khởi tố, bắt tạm giam hàng loạt cán bộ lãnh đạo ở các huyện thị, thành phố để điều tra những liên quan đến đại án cây xanh.
-- Để không vỡ mộng, bị lừa đảo khi có nguyện vọng đi xuất khẩu lao động, cần phải kiểm tra thật kỹ thông tin doanh nghiệp trước khi đóng tiền. Trong trường hợp phát hiện bị lừa đảo thì báo ngay cơ quan chức năng.
-- Cầu Vàm Cái Sứt nằm trên hương lộ 2 được thi công hơn 4 năm qua, nhưng đến nay đường vẫn chưa xong để kết nối vào cao tốc.
-- 100 cán bộ, chiến sĩ công an chia thành 12 tổ đồng loạt khám xét, bắt giữ 12 nghi phạm trong đường dây cá độ bóng đá quy mô hơn 2.000 tỉ đồng.
-- TP.HCM sẽ quyết tâm dồn sức để thực hiện những chỉ tiêu, nhiệm vụ của TP đề ra cho năm 2024. Trong đó xử lý nghiêm các tồn đọng để tăng tốc bước vào kỷ nguyên mới.
-- Ngán ngẩm với tài xế ô tô dừng xe tại điểm khẩn cấp cao tốc Vĩnh Hảo - Phan Thiết, đoạn qua huyện Hàm Thuận Nam, tỉnh Bình Thuận để gia đình… ăn tối.
-- Trong chiều đến tối nay 17-11, siêu bão Man-yi đổ bộ vào đảo Luzon (Philippines) với gió mạnh cấp 16 (184-201km/h), giật trên cấp 17 (trên 220km/h).
-- Các trò chơi dân gian được tái hiện ở thành phố tạo nên trận cười nắc nẻ cho người tham gia "Ngày hội Đại đoàn kết toàn dân tộc".
-- Trong khi lấy mẫu giám định ADN ở Nghĩa trang liệt sĩ Quốc gia Đường 9, lực lượng làm nhiệm vụ phát hiện cây viết khắc chữ "XUÂN ĐÀI" hoặc "XUÂN LÀI" và hình cây dừa, đôi chim bồ câu…
-- Tổng Bí thư Tô Lâm cùng các thành viên trong đoàn công tác Trung ương và lãnh đạo tỉnh đến dự Ngày hội Đại đoàn kết toàn dân tộc tại xã Đất Mũi, huyện Ngọc Hiển, Cà Mau.
-- Từ 1-7-2025, nhiều quy định mới về điều kiện hưởng lương hưu, thời gian đóng bảo hiểm xã hội... có hiệu lực.
-- Bãi xe bệnh viện thu phí cao hơn quy định; Đề xuất đóng nút giao thông Nguyễn Văn Linh - Phạm Hùng để giảm kẹt xe... là thông tin bạn đọc phản ánh tuần qua.
-- Dự ngày hội đoàn kết dân tộc và tổng kết đề án trao 1.200 căn nhà cho người nghèo, Bộ trưởng Bộ Công an Lương Tam Quang nói về sự đoàn kết, tương thân tương ái để không ai bị bỏ lại phía sau.
-- Từ 1-1-2025, tỉnh Thừa Thiên Huế sẽ không còn miễn phí vé tham quan di tích thuộc Quần thể di tích cố đô Huế vào 3 ngày Tết Nguyên đán như thường niên.
-- Sáng 17-11, Ban An toàn giao thông TP.HCM phối hợp các đơn vị tổ chức lễ tưởng niệm các nạn nhân tử vong do tai nạn giao thông.
-- Tuần này miền Bắc sẽ đón đợt không khí lạnh, miền Trung mưa rào đến mưa to, miền Nam ngày nắng, có lúc mưa rào.
+- TP.HCM có khoảng 1.123 cây cầu. Trong đó 17 cây cầu sắt đã tồn tại hơn 50 năm, đang và đã được rà soát, thay thế để đảm bảo an toàn giao thông và phát triển hạ tầng đô thị.
+- Vụ án đau lòng này xảy ra bảy tháng trước từng được dư luận rất quan tâm, hôm nay tòa án đưa bị cáo mới 16 tuổi ra xét xử vì đánh nam sinh lớp 8 chấn thương sọ não dẫn đến tử vong.
+- Dự báo bão số 9 (Man-yi) sẽ tiếp tục suy yếu nhanh, có thể tan trên vùng biển ngoài khơi các tỉnh miền Trung nên ít có khả năng bão đổ bộ vào đất liền Việt Nam.
+- Một số tin tức đáng chú ý: Nhiều tài xế ở TP.HCM phạm luật vì 'không thấy cảnh sát giao thông'; Người dân bắt được cá sấu 100kg; Nguyên nhân bệnh sởi tăng 'nóng' ở Đồng Nai...
+- Khu nhà kho xưởng ở Định Công, quận Hoàng Mai (Hà Nội) bốc cháy vào khuya 18-11. Nhân chứng cho hay ngọn lửa bùng lên trên diện tích rộng hàng trăm mét vuông, cột khói đen bốc lên ngùn ngụt.
+- Hôm nay 19-11, thời tiết Bắc Bộ và Nam Bộ nắng gián đoạn, Bắc Bộ lạnh đến rét, Trung Bộ mưa do nhiễu động gió kết hợp không khí lạnh.
+- Công an Đà Nẵng đã bắt ông Nguyễn Quang Hoàng (36 tuổi), tổng giám đốc Công ty GFDI, để điều tra hành vi lừa đảo chiếm đoạt tài sản.
+- Chủ tịch Quốc hội Trần Thanh Mẫn làm trưởng Ban Chỉ đạo tổng kết thực hiện nghị quyết 18 về sắp xếp bộ máy tinh gọn, hiệu quả các cơ quan Quốc hội.
+- Phó trưởng Đoàn đại biểu Quốc hội tỉnh Hưng Yên Nguyễn Đại Thắng được bổ nhiệm giữ chức phó trưởng Ban Công tác đại biểu thuộc Ủy ban Thường vụ Quốc hội.
+- Theo Tổng Bí thư Tô Lâm, mục tiêu cao nhất công tác dân vận trong giai đoạn mới là vì dân, giải quyết nhu cầu, nguyện vọng chính đáng của nhân dân.
+- Trước tình trạng nhiều xe ben chở đất, đá chạy giờ cấm, đường cấm vùng ven TP.HCM mà Tuổi Trẻ Online phản ánh, nhiều bạn đọc cho rằng những xe này quá lộng hành.
+- Đây là chuyến thăm chính thức Malaysia đầu tiên của Tổng Bí thư Tô Lâm và Phu nhân, không lâu sau khi hai nước kỷ niệm 9 năm thiết lập Đối tác chiến lược.
+- Thủ tướng Chính phủ Phạm Minh Chính vừa ký quyết định bổ nhiệm lại ông Đỗ Xuân Tuyên giữ chức thứ trưởng Bộ Y tế.
+- Phó bí thư Thường trực Thành ủy TP.HCM Nguyễn Hồ Hải đã đến thăm, chúc mừng gia đình cố GS.TS Nguyễn Thiện Thành nhân Ngày Nhà giáo Việt Nam 20-11.
+- Công an tỉnh Bình Thuận cho biết đã bắt được nghi can trong vụ giết người tại đường Hàn Thuyên, phường Lạc Đạo, TP Phan Thiết.
+- Đến 19h tối nay, lực lượng chức năng đã tìm được 1 thi thể nữ sinh trong số 5 em học sinh lớp 8 bị mất tích.
+- Việc lập thêm ban quản lý dự án là một trong những giải pháp đẩy nhanh tiến độ thi công và giải ngân vốn đầu tư công.
+- Khi tận mắt chứng kiến hậu quả chiến tranh vẫn còn hiện hữu tại Việt Nam, nhóm người treo cờ Việt Nam tại nhà thờ Đức Bà Paris năm 1969 ấy quyết tâm tiếp tục hành trình vì công lý.
+- Chủ tịch tỉnh Hà Giang Nguyễn Văn Sơn bị kỷ luật hình thức cảnh cáo do có những vi phạm, khuyết điểm trong công tác và đã bị thi hành kỷ luật Đảng.
+- 260 cán bộ quy hoạch chức danh diện Ban Thường vụ Tỉnh ủy quản lý và tham gia quản lý sẽ được bồi dưỡng, cập nhật kiến thức mới tại lớp bồi dưỡng do Tỉnh ủy Quảng Ngãi phối hợp Đại học Quốc gia Hà Nội tổ chức.
+- UBND tỉnh Thanh Hóa đã xử phạt vi phạm hành chính Công ty TNHH thương mại Song Dương ở huyện Như Xuân, vì để xảy ra vi phạm về môi trường tại trang trại chăn nuôi heo của công ty.
+- Chiều 18-11, tại kỳ họp thứ 24, Hội đồng nhân dân tỉnh Nghệ An đã bầu ông Hoàng Nghĩa Hiếu - phó bí thư thường trực Tỉnh ủy - giữ chức chủ tịch Hội đồng nhân dân tỉnh.
+- Ủy ban Kiểm tra Trung ương đề nghị kỷ luật nguyên bí thư Tỉnh ủy Vĩnh Phúc Phạm Văn Vọng và một số nguyên lãnh đạo tỉnh này do liên quan vụ Phúc Sơn.
+- Hiện nay giáo viên đang chịu nhiều áp lực về tài chính, các hoạt động chuyên môn, nhưng áp lực lớn nhất đến từ phụ huynh học sinh.
+- Nhiều phụ huynh Trường THCS Nguyễn Chánh (Quảng Ngãi) phản ảnh 960 học sinh khám trong 450 phút (chưa đến 30 giây/học sinh)!
+- Ngày 18-11, Bệnh viện Chợ Rẫy nhận ít nhất 5 phụ huynh đến bệnh viện tìm con vì nhận cuộc gọi của người lừa đảo yêu cầu chuyển tiền gấp.
+- Ban chỉ đạo cải cách hành chính, chuyển đổi số và đề án 06 TP.HCM sẽ do chủ tịch UBND TP.HCM làm trưởng ban chỉ đạo.
+- Hạn chế xe máy là cần thiết, nhưng cũng cần phải chia theo từng khu vực và theo lộ trình.
+- Quán nhậu trên đường Chương Dương - ven sông Hàn (Đà Nẵng) mở nhạc chói tai khiến người dân địa phương nhiều lần bức xúc, phản ánh.
+- Ông Lê Văn Thuận đã thực hiện hành vi “làm giả con dấu, tài liệu của cơ quan, tổ chức” sau đó bỏ trốn.
 ![New](News.png)
 ## Nhịp sống số 
 - Loại kính mới có thể chỉ cho shipper chính xác nơi cần đến trong tòa nhà, chẳng hạn như các hướng rẽ, và chụp ảnh các gói hàng sau khi giao xong.
