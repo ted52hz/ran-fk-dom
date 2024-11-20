@@ -1,6 +1,23 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Bối cảnh mới đòi hỏi phải định nghĩa lại người thầy, hay nói cách khác là minh định lại vai trò là sứ mệnh của nghề giáo.
+- Họ đến với nghề giáo từ nhiều ngả đường khác nhau. Dù với con đường nào thì đích đến của họ là nghề trồng người, tuy nhiều gian lao nhưng vô cùng ý nghĩa.
+- Duy nhất cái tên Lê Công Sự là thầy giáo trong cả trăm "cô nuôi dạy trẻ" được Thành Đoàn TP.HCM trao giải thưởng "Nhà giáo trẻ tiêu biểu" TP.HCM 2024 dịp 20-11 năm nay.
+- Theo chương trình, sáng nay 20-11, trong ngày làm việc đầu tiên của đợt 2 và cũng nhằm Ngày Nhà giáo Việt Nam, Quốc hội thảo luận tại hội trường về dự thảo Luật Nhà giáo.
+- 'Ở Nhật Bản, những việc tôi không làm có thể nhiều người khác làm được. Những việc mình có thể làm được cho sinh viên ở Việt Nam có lẽ là sẽ có ý nghĩa hơn'.
+- Đội DongRy Corporation của Đại học (ĐH) Duy Tân vô địch chung kết SAP ERPsim Student Competition 2024 (SAP ERPsim), giành 'vé' tham dự SAP ERPsim vòng châu Á - Thái Bình Dương.
+- Một bài hát học 5 năm mới thuộc, có học sinh gần 30 tuổi đã học hơn 17 năm mới lên lớp 3, có em cắn vào tay, đấm vào bụng cô giáo đau đến chảy nước mắt… Để duy trì lớp học, cô chủ nhiệm của lớp từng bị nói là người “bao đồng, dở hơi"...
+- Một phụ huynh học sinh tại TP Đà Nẵng vừa bị lừa 55 triệu đồng, khi đăng ký cho con tham gia cuộc thi viết chữ đẹp trên mạng.
+- Ngày lễ kỷ niệm 90 năm thành lập trường, nhiều thế hệ học sinh, giáo viên đã đến 'Niệm sư từ' thắp nhang. Ngôi miếu nhỏ nằm ngay góc bên phải phía sau cổng Trường THPT Hùng Vương, quận 5, TP.HCM.
+- Chiều 19-11, Ủy viên Bộ Chính trị, Bí thư Trung ương Đảng, Trưởng Ban Tuyên giáo Trung ương Nguyễn Trọng Nghĩa đã đến thăm và chúc mừng Trường đại học VinUni, nhân kỷ niệm 42 năm Ngày Nhà giáo Việt Nam.
+- Chiều 19-11, UBND TP.HCM tổ chức lễ trao Giải thưởng Trần Đại Nghĩa cho nhà giáo, cán bộ quản lý có thành tích xuất sắc trong lĩnh vực giáo dục nghề nghiệp.
+- Sáng 19-11, đoàn đại biểu Thành ủy, HĐND, UBND, Ủy ban MTTQ Việt Nam TP.HCM do Phó bí thư thường trực Thành ủy TP.HCM Nguyễn Hồ Hải dẫn đầu đã đến thăm và tri ân các nhà giáo tiêu biểu.
+- Sau khi Tuổi Trẻ đăng bài viết về Nguyễn Đỗ Như Hằng - tân sinh viên ngành kế toán doanh nghiệp, Đại học Kinh tế TP.HCM, đã có nhiều cánh tay dang ra giúp đỡ, tặng học bổng cho nữ sinh nghèo kiện tướng quốc gia karate này.
+- Ngày 19-11, lễ trao giải báo chí ‘Viết về giáo dục TP.HCM’ lần 2 diễn ra với 56 cá nhân đoạt giải. Trong đó, báo Tuổi Trẻ đoạt giải nhất và giải ba.
+- Nhân dịp 20-11, thầy Huỳnh Tấn Châu - hiệu trưởng Trường THPT chuyên Lương Văn Chánh (Phú Yên) - quyết định tặng hơn 200 đầu sách cho học sinh của trường.
+- Mỗi ngày khi đứng trên bục giảng, nhìn vào đôi mắt trong veo cùng ý nghĩ 'không biết hôm nay chúng lại định giở trò gì nữa đây' của các em, chúng tôi lại mỉm cười…
+- Phụ huynh và học sinh lớp 11 C tin, Trường THPT chuyên Lê Hồng Phong, TP.HCM đã có cách chúc mừng 20-11 đặc biệt khiến các thầy cô giáo bất ngờ.
 - 'Từ năm học lớp 4, đến giờ 17 tuổi, con vẫn mắc màn cho tôi mỗi tối. Tôi biết ơn thầy Huy vì con tôi đã được gieo vào tâm hồn những điều tốt đẹp'.
 - Tối 18-11, Thành Đoàn TP.HCM đã tuyên dương 457 nhà giáo trẻ đạt giải thưởng "Nhà giáo trẻ tiêu biểu" TP.HCM năm 2024.
 - Phó bí thư Thường trực Thành ủy TP.HCM Nguyễn Hồ Hải đã đến thăm, chúc mừng gia đình cố GS.TS Nguyễn Thiện Thành nhân Ngày Nhà giáo Việt Nam 20-11.
@@ -31,10 +48,1026 @@
 - Dự án 'Khát vọng thống nhất' thu hút 8.600 học sinh từ 8 trường THPT thuộc cụm chuyên môn 1 tại TP.HCM tham gia với hơn 1.000 sản phẩm độc đáo, mang đậm dấu ấn lịch sử.
 - AI, ChatGPT mở ra nhiều cơ hội và thách thức mới trong lĩnh vực nghiên cứu và giáo dục, đặc biệt là trong giảng dạy ngôn ngữ.
 - Trong 30 năm qua, Đại học Đà Nẵng đã đào tạo cho đất nước hàng vạn nhân lực có trình độ cao ở nhiều lĩnh vực, góp phần quan trọng vào sự nghiệp xây dựng, phát triển đất nước.
+- 'Vì học sinh và người dân' là lựa chọn của những người thầy giữa cơn cuồng nộ của trời đất khi bão Yagi ập đến.
+- Một bà lão tóc bạc trắng, lưng khòm, tay chân run run cứ gần tan trường đều đứng đợi cô cháu gái mù đang là sinh viên để nắm tay đưa cháu về khu trọ.
+- Trước khi bị hủy văn bằng cử nhân văn học, bà Đào Thị Bích Thủy từng được phó chủ tịch hội đồng trường Trường đại học Kinh Bắc ký quyết định tiếp nhận và bổ nhiệm giữ chức vụ phó hiệu trưởng, kiêm chánh văn phòng của trường.
+- Thủ tướng lưu ý hoàn thiện cơ chế chính sách tuyển dụng, đãi ngộ để giáo viên được thụ hưởng mức lương tương xứng với công sức của mình.
+- Đại sứ New Zealand tại Việt Nam Caroline Beresford ví von giáo dục như một 'viên ngọc trên chiếc vương miện' của mối quan hệ hợp tác giữa hai nước.
+- Trường đại học Công Thương TP.HCM vừa công bố định hướng tuyển sinh đại học chính quy năm 2025, với nhiều thay đổi bất ngờ.
+- Chính phủ vừa ban hành quyết định về việc chuyển Trường đại học Kinh tế quốc dân thành Đại học Kinh tế quốc dân.
+- Một sinh viên sáng chế sản phẩm sáng tạo gặp khó khi tìm đường đưa sản phẩm ra thị trường Việt Nam. Nhưng cũng với nghiên cứu này, sinh viên đã nhận được học bổng du học của một trường nước ngoài.
+- Bộ Giáo dục và Đào tạo khẳng định không giao Trung tâm khảo thí quốc gia và đánh giá chất lượng giáo dục xây dựng bài thi V-SAT.
+- Nhiều năm đóng góp cho hoạt động xã hội, giải thưởng khoa học… GS.TS Lê Ngọc Thạch nói nhẹ bâng: 'Tôi làm bổn phận một công dân. Tôi học thầy tôi'.
+- Phó thủ tướng Chính phủ Lê Thành Long chỉ đạo Bộ Giáo dục và Đào tạo do nhận thấy những lo lắng của phụ huynh.
+- Đây là nghiên cứu khoa học đầu tiên ở cấp độ sinh viên dùng công nghệ đo điện não để hỗ trợ tâm lý cho người có biểu hiện trầm cảm.
+- Hiện tại mô hình giảng dạy AI và mã hóa đã được thử nghiệm tại một số trường học ở thủ đô Jakarta, Indonesia.
+- 'Nhiệm vụ giáo dục ở vùng sâu, vùng xa và những trường chuyên biệt còn nhiều thử thách, thiếu thốn, bất cập, nên cần hơn hết những nhà giáo tiên phong, lĩnh xướng nhận nhiệm vụ đó', Thứ trưởng Nguyễn Thị Kim Chi chia sẻ với các nhà giáo.
+- Cuộc thi Vô địch quốc gia STEM, AI và Robotics 2024 (Vietnam STEM AI Robotics - VSAR) dành cho học sinh phổ thông với chủ đề "Nông nghiệp xanh - Phát triển bền vững" khai mạc chiều 14-11, do báo Tiền Phong tổ chức.
+- Năm 2024 đánh dấu chương trình học bổng Acecook Happy Scholarship lần thứ 9 với quy mô và thông điệp mới mẻ hơn, tiếp nối thành công của 8 mùa trước.
+- Đó là những điều 'gan ruột' mà ông Đống Lương Sơn, nguyên tổng giám đốc khách sạn Yasaka-Saigon-Nhatrang, nói với học sinh Trường THPT chuyên Lê Hồng Phong, TP.HCM tại buổi định hướng nghề nghiệp giữa tháng 11-2024.
+- UBND TP.HCM vừa có văn bản về việc rà soát chứng chỉ ngoại ngữ, liên quan đến chứng chỉ mang tên 'Cambridge International'.
+- Suốt 20 năm qua, thiếu tá Nguyễn Văn Tưởng (Đồn biên phòng Cầu Bóng, thuộc Bộ chỉ huy Bộ đội biên phòng tỉnh Khánh Hòa) vẫn đều đặn gieo chữ cho học trò nghèo ở Nha Trang.
+- Chiều 13-11, gần 50 học sinh Trường THPT Võ Văn Kiệt (quận 8, TP.HCM) đến tham quan và học tập thực tế tại Nhà máy mì Acecook Việt Nam.
+- Sáng 14-11, báo Người Lao Động đã tổ chức lễ tổng kết và trao giải cuộc thi 'Người thầy kính yêu' lần 3.
+- Tặng hay cho làm sao để mọi người đồng cảm, để người cho và người nhận không bị phiền, điều đó liên quan đến lối sống.
+- Một học sinh học tại một trung tâm giáo dục ở Hội An trong lúc vui chơi đã gặp tai nạn. Chỉ khi phụ huynh phát hiện và yêu cầu làm rõ thì chủ trường mới đứng ra nhận lỗi.
+- LTS: Nhiều nhà giáo, bên cạnh công việc chuyên môn, quản lý, luôn đau đáu với xã hội và âm thầm, bền bỉ có nhiều nỗ lực, đóng góp để giải quyết các vấn đề xã hội.
+- Nhà trường đã tạm đình chỉ công tác cô giáo dùng thước đánh học sinh lớp 6 bầm tím hai chân.
+- Trường phổ thông Năng khiếu, Đại học Quốc gia TP.HCM yêu cầu học sinh không sử dụng điện thoại trong lớp học.
+- Nhiều bạn đọc tranh luận về đề xuất cấm giáo viên nhận tiền người học dưới mọi hình thức.
+- Hằng tháng, các thầy cô huyện đảo Cần Giờ, TP.HCM cùng nhiều bà con mỗi người đóng góp 100.000 đồng để hỗ trợ học sinh, người khó khăn trên địa bàn.
+- Dạy các môn toán, lý, hóa... bằng tiếng Anh không phải chuyện dễ dàng với hầu hết thầy cô Việt Nam.
+- Chỉ thống thông thạo tiếng Anh EPI của Việt Nam năm 2024 giảm so với năm 2023, dẫn đến sự tuột bậc trên bảng xếp hạng.
+- Nhiều học sinh, phụ huynh lo lắng trước thông tin kỳ thi đánh giá năng lực Đại học Quốc gia TP.HCM năm 2025 chỉ dành cho học sinh lớp 12. Thực hư việc này ra sao?
+- Hiệu trưởng Trường tiểu học Phan Văn Trị, quận 1, TP.HCM viết thư ngỏ xin không nhận hoa, quà ngày 20-11, mà đổi thành tập, sữa… cho học sinh.
+- Cấu trúc bài thi đánh giá năng lực Đại học Quốc gia TP.HCM từ năm 2025 được điều chỉnh phù hợp với Chương trình giáo dục phổ thông 2018.
+- Ngày 12-11, ông Trần Đề - hiệu trưởng Trường TH & THCS Thuận Lộc, thị xã Hồng Lĩnh, tỉnh Hà Tĩnh - cho biết nhà trường đã nhận thêm 580 quyển sách quý do báo Tuổi Trẻ chuyển đến từ TP.HCM giúp xây thư viện cho các em học sinh.
+- Đây là nội dung vừa được thống nhất trong buổi làm việc giữa Đại học Quốc gia Hà Nội và Bộ Công an về việc hợp tác đào tạo, bồi dưỡng nguồn nhân lực y tế cho lực lượng Công an nhân dân.
+- Theo Bộ trưởng Nguyễn Kim Sơn, giáo dục thủ đô cần hướng tới mục tiêu cao hơn yêu cầu chung cả nước, tạo nên những công dân có kỹ năng khoa học công nghệ, văn minh thanh lịch thời đại số, tốt chuyên môn, giỏi ngoại ngữ.
+- Với kinh nghiệm lâu năm và chiến lược giáo dục không ngừng đổi mới, Đài Loan đã xây dựng một cơ chế đào tạo nhân lực ngành bán dẫn hiệu quả.
+- Do mâu thuẫn từ trước trong trường học, 2 nam sinh đâm 2 nữ sinh trọng thương phải nhập viện cấp cứu.
+- Sinh viên sư phạm Trường đại học Sài Gòn phản ánh học đến năm 4 vẫn chưa nhận được hỗ trợ sinh hoạt phí. Có sinh viên phải tạm thời nghỉ học.
+- Cơ quan Giáo dục New Zealand (ENZ) vừa công bố học bổng Chính phủ New Zealand bậc đại học (NZUA) dành riêng cho học sinh, sinh viên Việt Nam.
+- Trong kỷ nguyên chuyển đổi số, các hình thức thi đánh giá năng lực ngoại ngữ đã bắt kịp xu thế mới và thi trên máy vi tính đang được thí sinh toàn cầu ưa chuộng.
+- Trong 17 năm qua, quỹ học bổng của gia đình giáo sư Lê Viết Ly đã tài trợ cho tỉnh Thanh Hóa để xây dựng trường học, hỗ trợ thiết bị giáo dục, trao học bổng, trao thưởng với tổng số tiền hơn 75 tỉ đồng.
+- Bộ tem 'Những dấu ấn lịch sử của Chủ tịch Hồ Chí Minh' được tác giả trưng bày tại Trường THPT chuyên Lê Hồng Phong (TP.HCM) từ nay đến hết ngày 15-11.
+- Chuỗi tọa đàm trực tuyến InnovaTalk do Quỹ VinFuture tổ chức trở thành cầu nối vững chắc cho cộng đồng khoa học Việt Nam vươn tới thế giới.
+- Hội nghị khoa học lần 14 năm 2024 với chủ đề "Khoa học và công nghệ hướng tới tương lai xanh và thông minh".
+- Sở Giáo dục và Đào tạo Đà Nẵng đã yêu cầu các đơn vị liên quan xác minh, xử lý 2 cơ sở dạy trẻ tự kỷ sau phản ánh của báo Tuổi Trẻ.
+- Sở Giáo dục và Đào tạo đã tổ chức gặp gỡ những nhà giáo đi B, nhà giáo nội đô nhân kỷ niệm 42 năm Ngày Nhà giáo Việt Nam 20-11.
+- 568 em học sinh tại huyện Mỏ Cày Nam và Mỏ Cày Bắc, tỉnh Bến Tre đón nhận những phần học bổng từ Tập đoàn TTC.
+- Quốc hội vừa thảo luận về những điều cấm giáo viên không được làm, đặc biệt là cấm giáo viên nhận tiền của người học.
+- Quá nhiều app, có app gần như không tác dụng, cả năm dùng đôi ba lần, trẻ học mầm non, phụ huynh cũng phải tốn tiền tải app sổ liên lạc điện tử.
+- Nếu một quốc gia có một nền giáo dục tốt, có chất lượng cao thì sự phát triển về mặt kinh tế, văn hóa, xã hội cũng nhanh hơn và ngược lại.
+- Nhiều sinh viên đã chủ động xây dựng và phát triển hồ sơ cá nhân, tích cực cọ xát công việc thực tế từ khi còn đi học.
+- Con tôi giờ đã học THPT, nhưng mỗi khi nhắc về trường THCS, nó lại nói: 'Ước gì thầy Khoa, cô Thủy, thầy Hào chuyển lên trường cấp III dạy con'.
+- Trung tâm Khảo thí quốc gia và Đánh giá chất lượng giáo dục (Bộ Giáo dục và Đào tạo) vừa công bố đề minh họa 8 bài thi đánh giá đầu vào đại học trên máy tính (V-SAT) năm 2025.
+- Trường đại học Duy Tân trở thành trường đại học tư thục đầu tiên của Việt Nam chuyển qua mô hình đại học.
+- Sáng 10-11, tại phố đi bộ hồ Hoàn Kiếm, gần 3.000 học sinh, giáo viên, đại diện các đơn vị, trường học đã tham gia chương trình "Hành khúc học sinh thủ đô" và thưởng thức những màn diễu hành ấn tượng.
+- Giải thưởng Trần Đại Nghĩa lần 2 năm 2024 được TP.HCM tổ chức như một sự ghi nhận và tôn vinh những giáo viên, nhà quản lý xuất sắc tại các cơ sở giáo dục nghề nghiệp.
+- Hôm qua 9-11, Quốc hội đã thảo luận tổ về dự thảo Luật Nhà giáo với nhiều ý kiến quan tâm các chính sách đột phá cho nhà giáo như: tiền lương, phụ cấp, chế độ ưu đãi...
+- Cả năm học phụ huynh chỉ nhận được một chục tin nhắn qua sổ liên lạc điện tử, tính ra phụ huynh phải trả 7.000 - 10.000 đồng/tin nhắn.
+- 139 học sinh, sinh viên xuất sắc tiêu biểu năm 2024 của thành phố Hải Phòng được tặng bằng khen và phần thưởng 10 triệu đồng/em.
+- Giữa áp lực thời gian và nỗi lo an toàn, nhiều phụ huynh đứng trước lựa chọn khó khăn: giao xe máy cho con đi học hay tiếp tục vất vả đưa đón?
+- Ngày 9-11, ứng dụng học tập trực tuyến Studify được một nhóm bạn trẻ ra mắt tại TP.HCM.
+- Năm nay có những nghiên cứu mới trong lĩnh vực trí tuệ nhân tạo, và số lượng bài báo công bố quốc tế tăng. Đặc biệt, trình bày tiếng Anh trong nghiên cứu khoa học tốt hơn những năm trước.
+- Theo đại biểu Hoàng Văn Cường, không nên quy định cấm nhà giáo bắt ép người học phải nộp tiền, bởi có khi không ép họ vẫn nộp bằng những cách 'rất khéo, tế nhị'.
+- Nhiều thí sinh lo lắng sau khi Trường đại học Kinh tế - Luật (Đại học Quốc gia TP.HCM) công bố phương án tuyển sinh năm 2025, trong đó có việc cắt giảm 2 tổ hợp môn xét tuyển.
+- Tổng Bí thư cho rằng Luật Nhà giáo khi ban hành phải tạo cho nhà giáo sự phấn khởi, được tôn vinh, tạo điều kiện thuận lợi cho công tác giảng dạy.
+- Trong 4 ứng viên đạt chuẩn phó giáo sư thuộc thế hệ 9X, người trẻ nhất năm nay 33 tuổi, từng học đại học của Mỹ, học thạc sĩ tại Anh và hiện tại đang tích cực hỗ trợ sinh viên Việt Nam tại Học viện Ngân hàng.
+- Lớp học giản dị bên hiên nhà với vài bộ bàn ghế, nhưng đối với các em học sinh, nơi đây là cả bầu trời tri thức, là nơi các em lần đầu biết đến con chữ và được vui chơi thỏa thích với tình yêu của người giáo viên đặc biệt.
+- Bộ trưởng Nguyễn Kim Sơn nêu rõ so với quy định hiện hành, dự Luật Nhà giáo có nhiều chính sách mới về tuyển dụng, tiền lương, tuổi nghỉ hưu với nhà giáo.
+- Nhiều giảng viên đại học cho biết rất sợ mỗi khi trường vào đợt kiểm định vì họ mất rất nhiều thời gian, công sức cho việc này.
+- Bữa ăn của trẻ vượt quá tiêu chuẩn cho phép không chỉ gây hại cho sức khỏe trẻ như béo phì, sâu răng, tăng huyết áp mà còn hình thành thói quen ăn uống không lành mạnh ngay từ nhỏ qua bữa ăn bán trú.
+- Tối 8-11, Trường đại học Kinh tế - Luật (Đại học Quốc gia TP.HCM) công bố phương án tuyển sinh đại học chính quy năm 2025 với 3 phương thức xét tuyển.
+- Kết quả một nghiên cứu vừa được công bố cho thấy mức độ cô đơn của sinh viên năm tư có xu hướng tập trung cao nhất trong tất cả sinh viên các năm.
+- Học sinh bị bạn làm gãy tay, phụ huynh muốn nhà trường chuyển lớp cho bạn gây tai nạn vì sợ học chung không an toàn. Nhà trường nói gì?
+- Một số hiệu trưởng trường tiểu học, THCS ở TP.HCM nhận được tin nhắn yêu cầu theo dõi, bắt và lập biên bản các giáo viên dạy thêm.
+- Nhiều phụ huynh có con học tiểu học tại xã DLiê Yang (Đắk Lắk) tố bị "ăn chặn" tiền bảo hiểm y tế nhưng ngành giáo dục khẳng định đó là hiểu lầm.
+- Ngày 8-11, tại TP Pleiku, ấn phẩm Mực Tím - báo Tuổi Trẻ tổ chức chương trình trao học bổng "Vì tương lai Việt Nam" cho học sinh tỉnh Gia Lai.
+- Hàng loạt trường đại học công bố sẽ không sử dụng phương thức xét tuyển học bạ THPT từ năm 2025.
+- Phụ huynh than thở bị 'bội thực' với app, nào là Enetviet, Vietschool, K12Online, LMS... Có những app tốn phí, ít dùng tới nhưng buộc phải cài.
+- TS Ray Nguyễn - giám đốc Mảng thiết kế mạch điện tương tự và hỗn hợp ở Marvell Technology, công ty tại Thung lũng Silicon (Mỹ) - vừa có buổi nói chuyện tại Trường ĐH Fulbright Việt Nam.
+- Trường Đại học Kinh Bắc khẳng định 160 bằng tốt nghiệp do ông Phạm Ngọc Trúc ký, cấp phát cho sinh viên đợt 2 năm 2024 là không đúng quy định pháp luật.
+- Sinh viên Đại học Quốc gia TP.HCM có cơ hội giao lưu và học hỏi kinh nghiệm từ những người đã và đang thành công trên nhiều lĩnh vực.
+- Từ năm 2025, học sinh có giấy chứng nhận nghề sẽ không được cộng 1 - 2 điểm khuyến khích khi xét tốt nghiệp THPT như những năm trước đây.
+- Hội đồng kỷ luật của huyện Minh Hóa đã đưa ra hình thức kỷ luật khiển trách với bà Đinh Thị Bùi Chung, hiệu trưởng Trường mầm non số 1 thị trấn Quy Đạt vì nhiều sai phạm về tài chính cũng như hành vi giật micro, chỉ mặt hội trưởng phụ huynh.
+- Quy định mới trong dự thảo thông tư tuyển sinh đại học 2025 sẽ giúp các trường đỡ sợ tuyển vượt chỉ tiêu.
+- Sinh viên của Trường đại học Mở TP.HCM đã đến UBND phường Cô Giang (quận 1, TP.HCM) học tập thực tế về quản lý công.
+- Trường phổ thông Thực hành Sư phạm thuộc Đại học Đồng Nai đang thiếu tiền trả lương cho giáo viên. Hoạt động giảng dạy của trường cầm chừng vì thiếu kinh phí.
+- Đó là khẳng định của ông Nguyễn Văn Hiếu, giám đốc Sở Giáo dục và Đào tạo TP.HCM, khi trao đổi với Tuổi Trẻ về định hướng phát triển mô hình trường tiên tiến, hội nhập quốc tế (sau đây gọi tắt là trường tiên tiến).
+- Những năm qua Hà Nội triển khai nhiều giải pháp nâng cao chất lượng nguồn nhân lực, trong đó có quyết tâm thực hiện ‘dạy thật, học thật, thi thật, nhân tài thật’.
+- Chiều 5-11, UBND huyện Tam Đường, tỉnh Lai Châu tổ chức họp báo đột xuất cung cấp thông tin về vụ việc trẻ nhập viện nghi ngộ độc do ăn nhầm thuốc diệt chuột tại Trường mầm non xã Giang Ma.
+- Hơn 300 phụ huynh ở Đồng Nai bị xử phạt hành chính do giao xe cho học sinh chưa đủ tuổi điều khiển.
+- Bắc Ninh thí điểm tổ chức dạy học 5 ngày trong tuần và nghỉ ngày thứ bảy, chủ nhật tại 4 trường trong tỉnh.
+- Xét về số lượng giáo sư, phó giáo sư được xét năm 2024, Trường đại học Cần Thơ đứng đầu cơ sở giáo dục, Hà Nội dẫn đầu theo tỉnh thành.
+- Phụ huynh nên cân nhắc khi giao xe máy cho con vì đó là sự an toàn, là tính mạng của con em mình.
+- Công an huyện Bố Trạch (Quảng Bình) đã vào cuộc xác minh những thông tin liên quan đến vụ hiệu trưởng kê khai giá bạt chống nắng cao gấp 3 giá khảo sát của phụ huynh tại Trường tiểu học Lý Trạch.
+- Sáng 5-11, trước tình hình mưa lớn gây ngập nhiều tuyến đường, nhiều trường ở Đà Nẵng thông báo cho học sinh nghỉ học. Một số bếp ăn bán trú của trường không kịp trở tay.
+- Hầu hết các trường tiên tiến, hội nhập quốc tế (gọi tắt là trường tiên tiến) đã và đang là những trường "hot" ở TP.HCM.
+- Chính phủ Công đảng Anh vừa công bố quyết định tăng học phí đại học tại Anh lần đầu tiên sau 8 năm, trong bối cảnh các trường đại học đang đối mặt với tình trạng thâm hụt tài chính nghiêm trọng.
+- Sáng 5-11, phụ huynh quận Hải Châu, Liên Chiểu chuẩn bị đưa con đến trường thì nhận được thông báo nghỉ học.
+- Ngày 4-11, Sở Giáo dục và Đào tạo TP.HCM công bố danh sách 50 giáo viên, cán bộ quản lý nhận Giải thưởng Võ Trường Toản lần thứ 27 năm 2024.
+- Hội đồng Giáo sư nhà nước vừa công bố danh sách 615 ứng viên được công nhận đạt tiêu chuẩn chức danh giáo sư, phó giáo sư năm 2024.
+- Một nghiên cứu ở 38 quốc gia cho thấy 1/3 nhà nghiên cứu bỏ khoa học trong vòng 5 năm sau khi công bố bài báo đầu tiên.
+- Trường tiểu học Tân Sơn Nhì và Trường tiểu học Lê Đức Thọ là hai trường ở vùng ven nhưng cơ sở vật chất không thua gì trường quốc tế.
+- Sư Sikruadong Phra Phalek tiếp tục chinh phục chương trình cử nhân và chuẩn bị hoàn thành chương trình cao học.
+- Tổ chức đại học Pháp ngữ và Trường đại học Y khoa Phạm Ngọc Thạch ký kết hợp tác phát triển Không gian hợp tác đại học Pháp ngữ tại TP.HCM.
+- Ngôi sao nhạc kịch người Úc Philip Quast cho biết ông yêu cầu các bạn trẻ khi tham gia các buổi huấn luyện về nghệ thuật do ông giảng dạy tại Việt Nam không sử dụng điện thoại.
+- Bảo đảm ngân sách nhà nước chi cho giáo dục, đào tạo tối thiểu 20% tổng chi ngân sách, từng bước đưa tiếng Anh trở thành ngôn ngữ thứ hai và đào tạo ngoại ngữ khác theo nhu cầu.
+- Ban tổ chức ngày hội STEM quận Tân Phú, TP.HCM đã bất ngờ với những sản phẩm sáng tạo từ AI của học sinh trong nội dung 'sáng tác truyện tranh bằng AI'.
+- Chương trình đào tạo về 'Cấy ghép Implant Nha khoa All-on-X & GBR' do Công ty Dentium kết hợp cùng Đại học (ĐH) Harvard và ĐH Duy Tân đã được tổ chức từ ngày 19 - 20-10.
+- Vấn nạn 'tiến sĩ dỏm' là câu chuyện nhức nhối, đang thu hút sự quan tâm mạnh mẽ của dư luận.
+- Trong năm 2025, kỳ thi đánh giá tư duy của Đại học Bách khoa Hà Nội (TSA) dự kiến tổ chức trong 3 đợt thi vào các ngày cuối tuần.
+- Nhiều người có tên trong danh sách giảng viên cơ hữu toàn thời gian của các trường đại học tại Việt Nam nhưng đang sinh sống và làm việc ở nước ngoài nhiều năm qua.
+- Giám đốc dự án khu vực châu Á - Thái Bình Dương - Trung Đông Google for Education khẳng định như vậy tại buổi làm việc với Phó chủ tịch UBND TP.HCM.
+- HĐND tỉnh Bắc Ninh dự kiến kinh phí hơn 215 tỉ đồng để hỗ trợ hợp đồng lao động giáo viên, nhân viên nấu ăn… năm học 2024 - 2025.
+- Giám đốc Đại học Huế đã đưa ra khẳng định như trên. Việc thu học phí rẻ khiến câu chuyện tái đầu tư cho cơ sở hạ tầng để đạt tiêu chí đại học quốc gia gặp khó khăn.
+- Theo PGS.TS Bùi Anh Tuấn, hiệu trưởng Trường đại học Ngoại thương, các chi nhánh quốc tế (IBCs) đóng vai trò là cầu nối quan trọng, giúp sinh viên được tiếp cận với nền giáo dục quốc tế chất lượng cao mà không cần phải rời khỏi quê hương của mình.
+- Năm 2025, Trường đại học Sư phạm TP.HCM vừa công bố thay đổi hàng loạt nội dung quan trọng trong đề án tuyển sinh đại học năm 2025.
+- Rà soát lại hoạt động của ban đại diện cha mẹ học sinh; xử lý hiệu trưởng nếu thu chi không đúng quy định…
+- Trường quốc tế AISVN bất ngờ thông báo đến phụ huynh dự kiến khai giảng trở lại vào tháng 1-2025. Sở Giáo dục và Đào tạo TP.HCM nói gì về việc này?
+- Thầy hiệu trưởng trong clip '1.400 học sinh chia tay trước ngày nghỉ hưu' nói muốn được yêu mến, thầy giáo trước tiên phải trải lòng với học trò. Thầy là cha mẹ, nhưng cũng là bạn để các em tâm sự những nỗi niềm tuổi mới lớn.
+- Future Frame Celebration Week - Tuần phim công nghệ do khoa truyền thông và thiết kế Trường đại học Công nghệ TP.HCM (HUTECH).
+- Mới đây nhiều trường đại học lớn tại Úc đã thông báo kế hoạch tăng học phí cho sinh viên quốc tế bắt đầu ngay từ năm 2025.
+- Ngày 1-11, một lãnh đạo Công an TP Pleiku cho biết hiện cơ quan điều tra đang thụ lý vụ nữ sinh bị đánh tập thể rồi lột đồ quay clip.
+- TP.HCM đang xây dựng mạng lưới thành phố học tập toàn cầu theo bộ tiêu chí của UNESCO.
+- Nhiều bạn đọc bày tỏ ý kiến trái chiều về việc Trường mầm non 14 (quận Tân Bình, TP.HCM) mua thực phẩm giá cao hơn siêu thị.
+- Bộ Giáo dục và Đào tạo sẽ ban hành trong quy chế tuyển sinh quy định cụ thể về mặt quản lý nhà nước để bảo đảm kiểm tra, giám sát được chất lượng các kỳ thi đánh giá năng lực, đánh giá tư duy.
+- Theo đuổi chiến lược Home of Talents, hằng năm, VPBank đều triển khai chương trình học bổng ý nghĩa nhằm chắp cánh tài năng trẻ phát huy được năng lực trở thành nhà lãnh đạo tài ba, đóng góp vào sự phát triển và tăng trưởng bền vững của ngân hàng.
+- Biết tin thầy hiệu trưởng nghỉ hưu, 1.400 học sinh Trường THPT Phan Chu Trinh (xã Ea Ral, Ea Hleo, tỉnh Đắk Lắk) tổ chức lễ chia tay ngay tại sân trường.
+- Trường đại học Sư phạm TP.HCM dự kiến bỏ phương thức xét tuyển điểm học bạ, trong khi Trường đại học Công Thương TP.HCM giảm chỉ tiêu cho phương thức này.
+- Trường đại học Fulbright Việt Nam cho biết đã nhận giấy phép xây dựng cho giai đoạn 1 tại Khu công nghệ cao TP.HCM vào ngày 28-10-2024.
+- Có hai luồng ý kiến trước thời gian nghỉ Tết 9 ngày năm nay của học sinh TP.HCM, trong khi năm ngoái là 16 ngày.
+- Công ty TNHH rau quả thực phẩm Phú Hưng, đơn vị cung cấp thực phẩm cho Trường mầm non 14 (Tân Bình), giải thích về giá thực phẩm cung cấp cho trường.
+- Hình ảnh học sinh lớp 11/10, Trường THPT Trần Phú, Đà Nẵng “giao nộp” điện thoại lên kệ vào đầu giờ học khiến cộng đồng mạng rần rần cổ vũ.
+- Trường THPT Tô Hiến Thành phải tổ chức xin lỗi phụ huynh học sinh về những sai phạm trong việc tuyển sinh 174 học sinh lớp 10 khi chưa được sự cho phép của Sở Giáo dục và Đào tạo Hà Nội.
+- Mẹ của cháu bé tự kỷ bị bảo mẫu trung tâm Cầu Vồng (TP Đà Nẵng) bạo hành không đồng tình với kết luận điều tra của Công an quận Sơn Trà.
+- Đề thi môn văn vốn thường bị dư luận than phiền là lối mòn, cũ kỹ, rập khuôn. Việc ra đề thi bắt trend là hướng đi mới, nhưng cần cẩn trọng.
+- Bộ Giáo dục và Đào tạo vừa công bố thông tin về các kỳ thi tốt nghiệp THPT giai đoạn 2020 -2024 cho thấy tỉ lệ tốt nghiệp liên tục tăng trong nhiều năm qua với con số gần tuyệt đối.
+- Kết quả giám sát của phụ huynh tại Trường mầm non 14 (quận Tân Bình, TP.HCM) cho thấy tất cả các loại thực phẩm nhà trường mua đều cao hơn giá siêu thị 3-4 lần.
+- Ne'Kiya Jackson và Calcea Johnson, đều 17 tuổi, hai học sinh trung học từ New Orleans (Mỹ), đã làm nên 'lịch sử' khi tìm ra những bằng chứng mới cho định lý Pitago tồn tại hơn 2.000 năm.
+- TP.HCM đang đẩy mạnh các hoạt động thúc đẩy học tập ở nhiều cấp độ như công dân học tập, đơn vị học tập, cộng đồng học tập…
+- Học sinh các cấp ở TP.HCM sẽ nghỉ Tết Nguyên đán 2025 tổng cộng là 9 ngày, ít hơn năm trước 7 ngày.
+- So với số liệu một năm trước (2022), số thí sinh thi SAT tại Việt Nam trong năm 2023 gấp 174%.
+- Bộ Giáo dục và Đào tạo vừa có công văn về việc tổ chức, hoạt động của Trường đại học Kinh Bắc (Bắc Ninh) sau những lùm xùm liên quan hoạt động của nhà trường.
+- Trưa 30-10, Trường THPT Mạc Đĩnh Chi, quận 6, TP.HCM đã có phản hồi về đề thi văn có nội dung về lối sống 'phông bạt'.
+- Bên cạnh những lời khen dành cho đề thi văn sáng tạo, nhiều bạn đọc cho rằng không phải ai cũng hiểu 'phông bạt' là gì.
+- Câu chuyện dùng bằng 'dỏm' nhưng vẫn được đề bạt, học lên cao, thậm chí cả thạc sĩ tiến sĩ, luôn gây bức xúc cho dư luận dù tình trạng này kéo dài nhiều năm qua.
+- Thực tế có nhiều rào cản cho quá trình hình thành, xây dựng các trung tâm nuôi dạy trẻ tự kỷ ở Việt Nam.
+- Đề thi văn giữa học kỳ 1 của Trường THPT Mạc Đĩnh Chi, TP.HCM yêu cầu học sinh viết về 'lối sống phông bạt' của giới trẻ.
+- Với mong muốn bảo vệ môi trường từ những việc nhỏ nhất, học sinh ở TP Đà Nẵng đã tích cực tham gia mô hình 'Chuyến xe kế hoạch nhỏ', thu gom, phân loại rác thải, gây quỹ giúp bạn.
+- Lần đầu tiên Hội nghị các thành phố học tập tại khu vực Đông Nam Á đã được tổ chức tại Bangkok, Thái Lan.
+- Thời gian làm bài được rút ngắn, cấu trúc câu hỏi được điều chỉnh tiếp cận thực tế… Đó là một số thay đổi chính của bài thi TOEFL iBT trong năm nay.
+- Bộ Giáo dục và Đào tạo dự kiến các trường đại học sẽ không được tăng chỉ tiêu tuyển sinh khi năm trước đó tỉ lệ sinh viên thôi học năm đầu cao hơn 15% hoặc tỉ lệ người tốt nghiệp có việc làm thấp hơn 70%.
+- 2025 là năm đầu tiên tổ chức kỳ thi tốt nghiệp THPT, tuyển sinh theo Chương trình giáo dục phổ thông 2018.
+- Công cuộc tìm trường cho con ban đầu tưởng đơn giản, vì chỉ cần đặt lệnh tìm kiếm "trường dành cho trẻ tự kỷ" là ngay lập tức nhận được hàng ngàn kết quả.
+- Từ đầu năm học 2024-2025 đến nay, tại TP Thanh Hóa có hàng chục học sinh THPT xin chuyển trường một cách “bất thường”. Đó là học sinh thi vào trường có điểm đầu vào thấp, sau đó xin chuyển đến học tại trường có điểm đầu vào cao.
+- Biết việc giao xe cho con ở tầm tuổi này là sai trái, bà Thúy vẫn đặt niềm tin vì lời hứa "con chỉ đi học và quanh trong làng".
+- Nhóm sinh viên Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) đã chế tạo robot y tá có khả năng nhận diện khuôn mặt, nhằm hỗ trợ tình trạng quá tải ở các bệnh viện.
+- Trong vai cha mẹ cần tìm trường cho con bị tự kỷ, phóng viên Tuổi Trẻ ở cả ba miền Bắc, Trung, Nam đã dành nhiều tháng tìm kiếm, thâm nhập.
+- Bành Khánh Dung, cựu sinh viên khóa 13 ngành Ngôn ngữ Anh, Trường Đại học Quốc tế Sài Gòn (SIU), đã trở thành tiếp viên hàng không của Emirates Airlines.
+- Nhóm sinh viên RED - ISB Dance Club vừa ra mắt dự án "Xích Linh", tái hiện tác phẩm văn hóa kinh dị đậm chất Việt Nam qua ngôn ngữ vũ đạo.
+- Nhóm 'Liêm Chính Khoa Học' trên Facebook với gần 100.000 thành viên đã hoạt động trở lại sau 4 ngày bất ngờ biến mất.
+- Phụ huynh đóng góp xã hội hóa, hiệu trưởng dùng hơn 122 triệu đồng làm bạt che nắng nhưng không công khai thu chi với phụ huynh.
+- Ngày 27-10, tại Hội trường Thành ủy TP.HCM diễn ra lễ trao Học bổng khuyến tài (học bổng 1&1) cho 318 sinh viên vượt khó học tập.
+- Giao lại điện thoại cho học sinh sau giờ học, cô giáo thấy hơn 100 thông báo, tin nhắn từ các hội, nhóm mạng xã hội khác nhau.
+- Nhóm 'Liêm Chính Khoa Học' trên Facebook với gần 100.000 thành viên vừa bất ngờ biến mất. Hiện tại, liên kết đến nhóm hiển thị thông báo 'Bạn hiện không xem được nội dung này'.
+- Trường Đại học Kinh tế - Tài chính TP.HCM (UEF) đã tổ chức lễ Khai giảng năm học 2024 - 2025 cho các chương trình cử nhân quốc tế.
+- Hiệu trưởng Trường THPT Tô Hiến Thành khẳng định thời điểm tuyển sinh lớp 10 'không phải trường không được giao chỉ tiêu tuyển sinh, mà là chưa được giao chỉ tiêu'.
+- Băng lửa, vượt khói, xịt hơi, phun nước… hàng trăm sinh viên bỗng chốc 'hóa thân' thành những chiến sĩ chữa cháy, cứu nạn cứu hộ.
+- Đó là khẳng định của Bộ trưởng Bộ Giáo dục và Đào tạo tại hội nghị ngày 25-10 tổng kết công tác xã hội hóa về kiên cố hóa trường, lớp học.
+- Trong khi Úc và Canada đang siết chặt số lượng sinh viên quốc tế, nhiều nước khác như Mỹ, New Zealand dự kiến vẫn giữ những quy định dễ thở với du học sinh.
+- Kết quả xác minh ban đầu của công an huyện Bình Chánh cho thấy không có camera quay lén trong nhà vệ sinh Trường THPT Tân Túc (huyện Bình Chánh, TP.HCM) như thông tin lan truyền trước đó.
+- Trước việc học sinh mua ốc mượn hồn bán quanh trường đem vào lớp chơi rồi bị thương ở tay, nhà trường và phòng giáo dục ở Đà Nẵng yêu cầu nắm thông tin, cảnh báo không chơi.
+- Nhiều trường đại học tại TP.HCM công bố lịch nghỉ Tết Ất Tỵ 3 - 4 tuần, có trường cho sinh viên học online một tuần trước và sau Tết.
+- Về 15 học sinh tiểu học xuất hiện triệu chứng giống ngộ độc, ngành y tế cho rằng không đủ cơ sở xác định vụ ngộ độc mà do hiệu ứng đám đông.
+- Công an đã mời hai thiếu niên ép một nam sinh ở huyện Nam Đàn, Nghệ An ăn đất trong đêm đến trụ sở để làm rõ vụ việc.
+- Chủ doanh nghiệp lắp bạt chống nắng cho Trường tiểu học Lý Trạch lý giải về việc hiệu trưởng kê khai giá bạt cao gấp 3 lần giá phụ huynh khảo sát.
+- Dư luận cho rằng quy định này không thực tế vì người hoạt động cách mạng trước 1945 không thể có con ở tuổi 15 để tuyển sinh vào lớp 10.
+- Giang Văn Tân - học sinh bị bại não bẩm sinh - vừa chính thức bước vào giảng đường Đại học RMIT.
+- Tại Đà Nẵng, nhiều năm qua các trường học đã công khai bữa ăn bán trú bằng nhiều cách khác nhau.
+- Trường đại học Luật TP.HCM nhận tài trợ 1 tỉ đồng do Agribank tài trợ phục vụ cho đào tạo, khoa học công nghệ, hỗ trợ sinh viên.
+- Năm học 2023-2024 có khoảng 22.000 du học sinh nước ngoài đang học tập tại các đại học của Việt Nam.
+- Vừa qua, nhiều bạn học sinh đã tham quan trang trại Green Farm (Tây Ninh) và nhà máy sữa lớn nhất tại Việt Nam của Vinamilk (Bình Dương). Đây là một hoạt động dành cho các tài năng nhí về lập trình robot đến từ nhiều tỉnh thành trên cả nước.
+- TP.HCM mong muốn giữ ổn định kỳ thi tuyển sinh lớp 10 như các năm học trước. Bên cạnh đó, Sở Giáo dục và Đào tạo TP.HCM cũng đề xuất được chọn môn thi thứ ba.
+- Hiệu trưởng dùng tiền xã hội hóa do phụ huynh đóng góp lắp bạt chống nắng cho các phòng học. Nhưng sau đó phụ huynh phát hiện nhiều dấu hiệu bất thường về giá lắp công trình bạt che nắng này.
+- Xin hãy gỡ từng nút thắt, cởi trói áp lực vô hình đang bủa vây nhà giáo.
+- Thời gian qua, hội đồng trường của một số trường đại học hoạt động khá hiệu quả, nhưng ở nhiều trường hội đồng trường vẫn tồn tại một cách hình thức.
+- Trong giờ ra chơi, ba nam sinh lớp 10 tại Bến Tre xúm lại đánh hội đồng một bạn nam cùng lớp khiến nạn nhân phải nhập viện sau đó.
+- Với khả năng theo dõi hành vi của côn trùng ở tốc độ cao, hệ thống này giúp nghiên cứu về sự suy giảm quần thể côn trùng, đa dạng sinh học hoặc phát triển robot lấy cảm hứng từ côn trùng.
+- Một nam sinh lớp 9 ở Nghệ An bị bạn cùng trường ép ăn đất, hút thuốc lá trong đêm rồi quay clip tung lên mạng xã hội.
+- Trường đại học Đông Á đã có quyết định về việc thôi giữ chức vụ phó hiệu trưởng đối với PGS.TS Hoàng Anh Tuấn.
+- Bộ Giáo dục và Đào tạo đang lấy ý kiến về 5 đối tượng được tuyển thẳng vào lớp 10.
+- Ông Trần Ngọc Hà, cựu hiệu trưởng Trường phổ thông dân tộc bán trú tiểu học Hoàng Thu Phố 1 (huyện Bắc Hà, Lào Cai), bị khởi tố, bắt tạm giam sau vụ cắt xén bữa ăn bán trú.
+- Sở Nội vụ Quảng Bình rà soát và phát hiện có 3 viên chức của tỉnh này sử dụng chứng chỉ ngoại ngữ giả do tổ chức Cambridge International cấp.
+- Chỉ cần một máy tính có kết nối mạng là một người đã có thể mở lớp dạy IELTS online, nhiều trung tâm truyền thống gặp phải không ít khó khăn.
+- Sở Giáo dục và Đào tạo TP.HCM vừa có văn bản yêu cầu xử lý sai phạm về thu chi của ban đại diện cha mẹ học sinh ở một số trường.
+- Một số tin tức đáng chú ý: Phê duyệt 36 trạm dừng nghỉ trên cao tốc Bắc - Nam; TP.HCM kiểm tra, chấn chỉnh lạm thu quỹ phụ huynh; Phạt phòng khám quảng cáo 'nổ'...
+- Ông Bùi Văn Huân, hiệu trưởng Trường phổ thông dân tộc nội trú THCS và THPT thị xã Sa Pa (Lào Cai), bị tạm đình chỉ để kiểm tra, xác minh làm rõ phản ánh về tồn tại, hạn chế trong công tác quản lý của hiệu trưởng.
+- Sau khi phát hiện vi phạm tuyển sinh, chế độ đối với học sinh trường phổ thông dân tộc nội trú ở một số huyện, Sở Giáo dục và Đào tạo Thanh Hóa đã tiến hành kiểm tra, rà soát hoạt động của tất cả trường nội trú.
+- Chủ tịch Hội đồng trường Trường đại học Thủ Dầu Một, tỉnh Bình Dương cho biết sẽ trả lại sinh viên 37 tỉ đồng học phí thu vượt mức, trước đó đã được nộp vào ngân sách.
+- Khi chọn ngành nghề, cần tư duy mở, liên kết các ngành, các lĩnh vực và chú ý các ngành dịch vụ hiện đại như điện tử, sản xuất phần mềm, trí tuệ nhân tạo...
+- Ông Vương Tấn Việt (tức thượng tọa Thích Chân Quang) đã học đại học ngành ngôn ngữ Anh của Trường đại học Ngoại ngữ Hà Nội, hệ đào tạo từ xa từ năm 1994 đến năm 2001.
+- Bộ Giáo dục và Đào tạo đã yêu cầu các trường đại học liên quan khẩn trương thu hồi văn bằng đã cấp cho ông Vương Tấn Việt, do phát hiện bằng tốt nghiệp cấp III của ông này không hợp pháp.
+- Theo thông tin về kết quả xử lý văn bằng của ông Vương Tấn Việt xác định ông đã sử dụng bằng cấp 3 bổ túc văn hóa không hợp pháp, ông Việt cũng thừa nhận việc này.
+- Hiệu trưởng Trường THCS Nguyễn An Ninh ở phường Trung Mỹ Tây (quận 12) đã tự nguyện giao một con tê tê Java cho Chi cục Kiểm lâm TP.HCM.
+- Thi vào lớp 10 kiểu xoay vòng các môn không thể giải quyết nạn học lệch, học tủ, vì nếu như môn A đã thi rồi thì năm sau chắc chắn sẽ bị 'bỏ lơ'...
+- Tại TP.HCM có những cuộc thi mà học sinh không hề căng thẳng, trái lại được chơi hết mình, được trải nghiệm nhiều điều thú vị...
+- Bên cạnh đó, cơ sở đại học này phải có chuẩn giảng viên không được thấp hơn quy định đối với cơ sở giáo dục Việt Nam.
+- Sáng 20-10, ĐH Quốc gia TP.HCM đã tổ chức lễ khai khóa năm học 2024 - 2025 với chủ đề: "Sinh viên ĐH Quốc gia TP.HCM sẵn sàng cho kỷ nguyên vươn mình của đất nước".
+- Ngày càng nhiều sinh viên Canada tham gia các chương trình trao đổi từ vài tuần đến vài tháng ở TP.HCM, Cần Thơ, Trà Vinh...
+- Trần Anh Nam - sinh viên ngành logistics Trường cao đẳng Kinh tế TP.HCM - vừa tốt nghiệp thủ khoa với điểm số GPA đến 3.88/4.
+- Thái Nguyễn Đăng Khoa - sinh viên năm 3 ngành quản lý nhà nước Học viện Cán bộ TP.HCM - là 1 trong 15 đại biểu Tàu SSEAYP 2024.
+- Những hình ảnh đời thường được các sinh viên chọn đưa vào ống kính thay vì các hình ảnh hiện đại thường thấy ở khu vực trung tâm TP.HCM.
+- Khảo sát cho thấy phần lớn sinh viên có thời gian rảnh từ 2 - 4 giờ mỗi ngày (chiếm 66,7%); 22,9% sinh viên rảnh từ 1 - 2 giờ mỗi ngày.
+- Cô giáo Trương Phương Hạnh bị xử lý kỷ luật ở mức cảnh cáo và không được đứng lớp, chuyển sang làm giáo vụ của trường.
+- Các quan chức khẳng định thực phẩm và đồ uống được cung cấp trong trường học cần phải được sản xuất bằng các nguyên liệu tự nhiên, và phải loại bỏ đồ ăn vặt.
+- Sinh viên khoa truyền thông sáng tạo của Trường đại học Nguyễn Tất Thành có một buổi thực hành tác nghiệp ảnh báo chí thú vị tại Bưu điện TP.HCM.
+- Mức điểm sàn nhận hồ sơ xét tuyển bổ sung vào các trường quân đội dao động từ 10,75 - 28,55 điểm, thang điểm 30 và đã bao gồm điểm ưu tiên.
+- Sau khi va quẹt xe máy ngã xuống đường, một nam sinh dùng mũ bảo hiểm đánh tới tấp nam sinh khác.
+- Việc trường học mời phụ huynh "mục sở thị" bữa ăn bán trú cần được lan tỏa và nhân rộng. Tại sao?
+- Thông tin được đưa ra trong Ngày hội du học New Zealand 2024, diễn ra vào sáng nay 19-10.
+- Nhiều học sinh, sinh viên và phụ huynh tại TP.HCM đến tuần lễ Giáo dục châu Âu để tìm hiểu về trường, học bổng và những chính sách du học phù hợp.
+- Trường đại học Y Dược TP.HCM đã chính thức có hiệu trưởng sau 4 năm nhà trường khuyết chức danh này.
+- Những ngày qua, mạng xã hội xôn xao đoạn tin nhắn của cô giáo đề cập chuyện tặng quà giáo viên nhân Ngày Phụ nữ Việt Nam (20-10).
+- Kỳ thi lớp 10 gồm ba môn toán, ngữ văn và một môn thi thứ ba hoặc bài thi tổ hợp do sở giáo dục và đào tạo lựa chọn và được công bố trước ngày 31-3 hằng năm.
+- Để đảm bảo tiến độ thực hiện kết luận kiểm toán, Trường đại học Thủ Dầu Một, tỉnh Bình Dương đã nộp 37 tỉ đồng học phí thu vượt vào ngân sách, nhưng nay sẽ được xem xét hoàn trả cho sinh viên.
+- Giáo viên nhận xét ra sao về đề tham khảo thi tốt nghiệp THPT từ năm 2025?
+- Theo đề xuất của Bộ Giáo dục và Đào tạo, sinh viên hệ vừa học vừa làm, hệ đào tạo từ xa sẽ được cấp học bổng như sinh viên chính quy.
+- Bộ Giáo dục và Đào tạo vừa công bố đề thi tham khảo kỳ thi tốt nghiệp THPT năm 2025 của 10 môn văn hóa và 7 môn ngoại ngữ.
+- Nhận được bức thư của nữ sinh lớp 7 ở Hà Tĩnh xin hỗ trợ cho bạn học cùng lớp, ông Hoàng Trọng Thủy vô cùng xúc động nên đã đăng tải lên mạng xã hội. Ngay sau đó có một số người liên hệ với ông Thủy đề nghị giúp đỡ.
+- Trường tiểu học Tân Sơn Nhì (quận Tân Phú, TP.HCM) mời phụ huynh tham gia tiết học mở, bữa ăn bán trú cùng học sinh.
+- Tháng 10 hằng năm, sau khi những người đoạt giải Nobel được công bố, thế giới lại được chiêm ngưỡng những bức chân dung mang tính biểu tượng.
+- Các trường đại học đang lúng túng trong việc công bố chi tiết cách xét tuyển theo điểm thi tốt nghiệp THPT 2025.
+- Bộ Giáo dục và Đào tạo cho biết sẽ tổ chức tổng kết, rút kinh nghiệm quá trình xã hội hóa việc biên soạn, phát hành, in ấn và hiệu quả sử dụng sách giáo khoa.
+- Bước vào cuối cấp, thông qua những chuyến đi thực tế học sinh dễ hình dung, nhóm lên dự định về công việc mong muốn để sớm phát triển bản thân.
+- Những quốc gia như Lào, Myanmar đang có nhiều dự án lớn tầm quốc gia ứng dụng trí tuệ nhân tạo (AI) trong giáo dục.
+- Phụ huynh có thể tra cứu thời hạn sử dụng thẻ bảo hiểm y tế bằng nhiều cách, hoặc đăng ký tài khoản VssID cho con qua tài khoản của cha mẹ để tra cứu.
+- Công ty TA. Development đã trao 2,5 tỉ đồng cho sinh viên có hoàn cảnh khó khăn của Trường đại học Đà Lạt.
+- Thương bạn cùng lớp có hoàn cảnh khó khăn, một nữ sinh lớp 7 đã viết bức thư tay gửi người thân để xin hỗ trợ cho bạn, gây xúc động cho những người đọc được lá thư này.
+- Là những bông hoa luôn sẵn sàng cho đời mật ngọt, là những vì sao luôn tỏa sáng lấp lánh, nửa thế giới ở Royal School đã cùng nhau đóng góp, nỗ lực cống hiến để tạo nên một ngôi trường ngập tràn thấu hiểu và yêu thương.
+- Chuyện thầy chuyển trường về xuôi, trong buổi chia tay thầy trò khóc như mưa, gợi lên biết bao điều. Chữ "thầy" thật thiêng liêng, cao cả.
+- Thanh tra Bộ Giáo dục và Đào tạo vừa công bố kết luận thanh tra về hoạt động tuyển sinh và đào tạo các trình độ của giáo dục đại học đối với Trường đại học Thủy lợi.
+- Liên quan thông tin trên mạng xã hội đăng tố cáo một thầy giáo dâm ô nữ sinh cấp 2, Công an TP Dĩ An, tỉnh Bình Dương đã khởi tố ông Văn Đình Lương, là giáo viên bị tố.
+- Cô Võ Thị T. - giáo viên Trường tiểu học Ba Đình, thị xã Bỉm Sơn (Thanh Hóa) - bị tố bạo hành em T.P.N., học sinh lớp 1B trường này, dẫn đến tổn thương.
+- Vào giờ tan trường, nhiều xe tải, xe container, xe hơi chạy qua khu vực có trường học trên quốc lộ 1 địa bàn tỉnh Ninh Thuận khiến học sinh và phụ huynh "thót tim". Các thầy cô giáo phải cầm cờ "xin đường" cho học sinh ra về an toàn.
+- Bộ Tư lệnh Vùng Cảnh sát biển 4 đã nhận đỡ đầu nhiều em học sinh mồ côi, có hoàn cảnh khó khăn ở xã đảo An Sơn, Thổ Châu (TP Phú Quốc, Kiên Giang).
+- Mẹ ốm đau triền miên, cha lao động vất vả nên sức khỏe ngày càng giảm sút, đứa con nỗ lực học và nay đã trở thành thủ khoa đầu vào Trường ĐH Y Dược TP.HCM.
+- Năm học 2024-2025, tất cả trường mầm non ở quận 1 đều công khai bữa ăn bán trú, trưng bày thức ăn thực tế của học sinh mỗi ngày.
+- Trước khi bước vào phòng làm bài thi, gần 100 học sinh ở quận Tân Bình, TP.HCM đã trải nghiệm các trò chơi dân gian như ném còn, chơi banh đũa, ô ăn quan…
+- Chủ tịch UBND huyện Hướng Hóa đã chỉ đạo cơ quan chuyên môn làm quy trình điều động nữ hiệu trưởng mầm non vừa được bổ nhiệm lại nhiệm kỳ 3 qua trường khác.
+- Không mới nhưng chưa bao giờ hạ nhiệt - chính là cách để miêu tả về ngành Công nghệ thông tin.
+- Ngoài việc miễn học phí 4 năm đại học, Trường đại học Mở TP.HCM cấp học bổng từ 50-200% học phí năm nhất cho các tân sinh viên là thủ khoa, á khoa đầu vào.
+- 'Cuộc đời em gắn liền với bốn lần nắm tay. Đó là lúc ba mẹ nắm tay em khi em chào đời. Hai lần khác là khi ba, mẹ nói lời tạm biệt với thế giới. Thầy cô đã nắm tay em lần nữa và nói rằng phải tiếp tục tiến về phía trước'.
+- Võ Quang Phú Đức - quán quân Đường lên đỉnh Olympia 2024 - đã có những trải lòng sau khi giành được vòng nguyệt quế và chuyện bấm chuông ở câu trả lời cuối cùng đang ồn ào trên mạng xã hội.
+- Bộ trưởng Bộ Giáo dục và Đào tạo Nguyễn Kim Sơn đã trả lời kiến nghị cử tri tỉnh An Giang gửi kỳ họp thứ 7, Quốc hội khóa XV liên quan sách giáo khoa, học phí.
+- Dự thảo Luật Nhà giáo mới nhất đã bỏ nội dung quy định về chứng chỉ hành nghề nhà giáo nhưng quan điểm của ban soạn thảo việc này sẽ vẫn tiến hành nghiên cứu, thí điểm.
+- Tiến sĩ Randall Martin - giám đốc điều hành, Hội đồng giáo dục quốc tế British Columbia (Canada) - cho biết đang ghi nhận một sự chuyển biến đáng kể trong việc lựa chọn ngành học của các sinh viên Việt Nam đến Canada.
+- Trường đại học Thủ Dầu Một đã nộp lại ngân sách 37 tỉ đồng thu sai học phí mà không hoàn trả sinh viên.
+- Theo Bộ Giáo dục và Đào tạo, việc tổ chức kỳ thi tốt nghiệp THPT để xét công nhận tốt nghiệp THPT đã được quy định trong Luật Giáo dục.
+- Huỳnh Ngọc Hiếu (19 tuổi) vừa giành học bổng toàn phần của Trường ĐH RMIT. Đáng nể hơn, Hiếu cũng đang là sinh viên của ĐH Kinh tế TP.HCM và sẽ học hai trường cùng lúc.
+- Thống kê từ IELTS cho thấy điểm thi phổ biến nhất của thí sinh Việt Nam là 6.0, trong khi đó chỉ 1% thí sinh đạt trên điểm 8.5.
+- Tính đến tháng 9-2024, cả nước có 1.886 cơ sở giáo dục nghề nghiệp, bao gồm 399 trường cao đẳng, 429 trường trung cấp và 1.058 trung tâm giáo dục nghề nghiệp.
+- GS.TS Nguyễn Hữu Tú, hiệu trưởng Trường đại học Y Hà Nội, vừa được Chính phủ Pháp trao tặng huân chương Cành cọ hàn lâm vì những đóng góp trong sự phát triển hợp tác y khoa giữa hai nước.
+- Công an tỉnh Nam Định đang phối hợp cùng các đơn vị liên quan điều tra nguyên nhân bé gái 2 tuổi tử vong tại Trường mầm non xã Nam Điền, huyện Nghĩa Hưng.
+- Ở tuổi 24, Đặng Nhật Uyên trở thành người sáng lập dự án phi lợi nhuận về môi trường Bin with Benefits tại các trường tiểu học ở TP Nha Trang (tỉnh Khánh Hòa), được cộng đồng hưởng ứng tích cực.
+- Các đối tượng khai nhận đã tổ chức thi và cấp khoảng 4.200 chứng chỉ tiếng Anh mang tên Cambridge International với giá từ 2,3 - 18 triệu đồng/chứng chỉ.
+- 200 suất học bổng nằm trong chương trình hỗ trợ đồng bào bị thiệt hại do bão lũ ở các tỉnh phía Bắc do báo Tuổi Trẻ phát động đã được Hội Nhà báo Việt Nam trao đến các em học sinh Cao Bằng.
+- Trường đại học Công nghiệp TP.HCM đã xây dựng quỹ hỗ trợ người học với tổng số tiền lên đến 70 tỉ đồng, nhằm khen thưởng sinh viên giỏi và giúp sinh viên khó khăn không bị gián đoạn việc học trong năm học này.
+- Giải thưởng Trường học sinh thái ASEAN Việt Nam năm 2024 nhằm đảm bảo cam kết quốc gia cũng như tạo động lực để thúc đẩy việc thực hiện mô hình trường học sinh thái, trường học xanh tại Việt Nam.
+- Trường đại học FPT cơ sở TP.HCM vừa phát cảnh báo về bên trung gian có dấu hiệu lừa đảo chiếm đoạt tiền thuê nhà của sinh viên.
+- Sáng 14-10, tại Trường THPT Nguyễn Thị Minh Khai, quận 3, TP.HCM đã diễn ra chương trình 'Tuyên truyền kỹ năng lái xe an toàn và phổ biến các quy định pháp luật về trật tự an toàn giao thông', thu hút sự tham gia của hơn 2.000 học sinh.
+- Từ "xin" trong các mẫu đơn đã lỗi thời nhưng thời gian qua, ở nhiều lĩnh vực, ngành nghề khác vẫn chưa mạnh dạn thay đổi.
+- Luật Nhà giáo mới ở giai đoạn chuẩn bị trình ra Quốc hội nhưng đã thu hút sự chú ý của dư luận.
+- Các thầy cô hãy luôn linh hoạt khi ứng xử ở môi trường giáo dục. Trong đó, cần nhân rộng cách làm nhân văn "đọc và suy ngẫm" thay vì kỷ luật.
+- Vừa nhắn vào group gia đình một thông tin nhỏ, cậu nhóc lớp 10 đang giờ học tại trường trả lời tức thì. Cả nhà nhao lên sao con đang học mà xài điện thoại?
+- Ủy ban Thường vụ Quốc hội yêu cầu tiếp tục rà soát, hoàn thiện các chính sách đối với nhà giáo theo hướng thận trọng, nhất quán, khả thi, có sự đột phá.
+- Nói về Võ Quang Phú Đức - nhà vô địch mới chương trình Đường lên đỉnh Olympia 2024, thầy cô, bạn bè đều nhắc về một điểm chung nhất, là nụ cười luôn rạng rỡ.
+- Sáng 13-10, hàng ngàn học sinh các trường cấp 2, cấp 3 tại TP Pleiku, Gia Lai, đã chuẩn bị sẵn sàng để tiếp lửa cho nhà leo núi Nguyễn Quốc Nhật Minh.
+- Thầy Trần Quốc Nhuận (68 tuổi, nhà giáo ưu tú, giáo viên cơ hữu môn địa lý Trường phổ thông Duy Tân, TP Tuy Hòa, Phú Yên) vừa bảo vệ thành công luận án tiến sĩ tại Trường ĐH Sư phạm TP.HCM.
+- Nam sinh bị đánh đập bởi hai người cùng trường ngay trong lớp đến mức phải nhập viện. Hiện lực lượng chức năng đã vào cuộc điều tra vụ việc.
+- UBND TP Hải Phòng yêu cầu không được dùng bất cứ hình thức nào để ép buộc gia đình học sinh và học sinh tham gia học thêm, học liên kết giáo dục.
+- Theo báo cáo của UBND quận 3, hiện tại sức khỏe 6 học sinh nghi ngộ độc thực phẩm đã ổn định, tất cả các em đã được xuất viện về nhà.
+- Hàng trăm sinh viên hào hứng với các sản phẩm công nghệ thiết thực và nhân văn được triển lãm tại Festival sáng tạo trẻ Đà Nẵng.
+- Có đến 78% bạn đọc đồng ý thi tuyển sinh lớp 10 gồm ba môn văn, toán và tiếng Anh thay vì bốc thăm môn thứ ba may rủi.
+- Bộ Giáo dục và Đào tạo đã đề xuất đưa giáo viên mầm non vào ngành nghề nặng nhọc, độc hại và có thể nghỉ hưu trước 55 tuổi, không bị trừ tỉ lệ lương hưu.
+- Biết tin thầy chuyển về TP Quảng Ngãi dạy học, học sinh Trường phổ thông dân tộc bán trú tiểu học và THCS Sơn Liên khóc như mưa.
+- Bộ Giáo dục và Đào tạo đang lấy ý kiến các sở về việc bốc thăm để chọn môn thi thứ ba tuyển sinh vào lớp 10, bên cạnh văn và toán.
+- Địa điểm tổ chức được dời từ quảng trường Tháp Nghinh Phong sang nhà thi đấu Lê Trung Kiên, TP Tuy Hòa.
+- Năm 2024, Việt Nam có 7 đoàn học sinh tham dự các kỳ thi Olympic khu vực và quốc tế, với 38 lượt học sinh tham gia.
+- Ngày 11-10, Sở Giáo dục và Đào tạo TP.HCM phối hợp với Tập đoàn giáo dục EMG Education tổ chức hội thảo 'Một số giải pháp đưa tiếng Anh trở thành ngôn ngữ thứ hai trong trường học ở Việt Nam'.
+- Tai nạn giao thông cướp đi hàng ngàn sinh mạng trẻ em (từ 6 tuổi đến dưới 18) mỗi năm khiến ai cũng xót xa. Các chuyên gia giao thông đặt vấn đề cần tăng liều lượng dạy về an toàn giao thông trên ghế nhà trường giúp trẻ ý thức sớm.
+- Công an huyện Nông Cống đang điều tra, làm rõ vụ việc một nữ sinh trên địa bàn huyện bị đánh hội đồng, phải nhập viện điều trị 1 tuần nay.
+- Tổng Bí thư, Chủ tịch nước nhấn mạnh, tự chủ đại học không có nghĩa là Nhà nước không đầu tư, mà là đầu tư theo các 'kết quả đầu ra'.
+- Sáng 12-10, Trường đại học Luật TP.HCM đã tổ chức lễ khai giảng năm học 2024 - 2025, chào đón các tân sinh viên khóa 49.
+- Phòng tránh bạo lực học đường cần dạy cho trẻ không có nhu cầu ăn hiếp ai cả, nhưng cũng không dễ dàng để cho người khác ăn hiếp mình.
+- Ban đại diện cha mẹ học sinh không thể thiếu trong nhà trường mầm non và phổ thông hiện nay. Tuy nhiên, làm sao để họ làm tốt, làm đúng với chức trách của mình?
+- Thông tin trên mạng xã hội tố cáo một thầy giáo dâm ô nữ sinh tại TP Dĩ An, tỉnh Bình Dương được lực lượng chức năng làm rõ.
+- Sở GD-ĐT Hà Nội vừa yêu cầu các nhà trường chấn chỉnh tình trạng học sinh sử dụng điện thoại trong lớp không phục vụ cho việc học tập.
+- Nhà vô địch chương trình Đường lên đỉnh Olympia 2009 Hồ Ngọc Hân đã gửi lời khuyên đến 4 bạn trẻ sẽ tham dự trận chung kết cuộc thi Đường lên đỉnh Olympia 2024.
+- Cục trưởng Cục Nhà giáo và Cán bộ quản lý giáo dục đã chia sẻ về những điểm mới đặt ra ở dự thảo Luật Nhà giáo, trong đó có nội dung đang gây tranh cãi.
+- Theo chính sách thu hút giáo viên mầm non, tại TP.HCM giáo viên mầm non trình độ cao đẳng, đại học, thạc sĩ sẽ nhận thêm tương ứng 550.000 đồng, 900.000 đồng, 1,5 triệu đồng/tháng trong 9 tháng của mỗi năm học.
+- Trường THPT chuyên Quốc Học Huế đang là ngôi trường nắm giữ kỷ lục của chương trình Đường lên đỉnh Olympia, khi đến 7 lần có học sinh góp mặt tại trận chung kết.
+- Thông tin từ gia đình cho biết học sinh lớp 11 tại TP.HCM mất liên lạc với gia đình đã được đưa về nhà vào sáng nay 11-10.
+- Trường đại học Tài chính - Marketing ra thông báo yêu cầu sinh viên đăng ký tham quan trải nghiệm thực tế các cơ sở của trường.
+- Thay vì kỷ luật học sinh, Trường THCS Bình Khánh làm phòng ‘Đọc và suy ngẫm’ để những em vi phạm có thời gian nhìn nhận cái sai của mình.
+- Ông Vũ Minh Đức - cục trưởng Cục Nhà giáo và cán bộ quản lý giáo dục - chia sẻ với Tuổi Trẻ Online về đề xuất miễn học phí cho con nhà giáo.
+- Nhiều phụ huynh, sinh viên sư phạm Trường đại học Sài Gòn phản ánh việc chưa nhận được hỗ trợ sinh hoạt phí, dù đã học năm thứ 2.
+- Khóa 2 hợp tác đào tạo giữa Trường đại học Nguyễn Tất Thành và báo Tuổi Trẻ với gần 400 sinh viên đại học chính quy khai giảng sáng 11-10.
+- Huyện Minh Hóa lập hội đồng xét kỷ luật bà Đinh Thị Bùi Chung, hiệu trưởng Trường mầm non số 1 thị trấn Quy Đạt sau khi có kết luận thanh tra.
+- Dự Luật Nhà giáo mới nhất đề xuất giáo viên tuyển dụng, xếp lương lần đầu được xếp tăng 1 bậc lương.
+- Nhiều quốc gia có những hội phụ huynh với mức độ tham gia và vai trò khác nhau của phụ huynh trong các hoạt động trường học.
+- Trường THPT Lê Quý Đôn (quận 3, TP.HCM) đã ghi nhận 6 học sinh có triệu chứng đau bụng, trong đó 2 trường hợp có biểu hiện nôn ói, sau bữa ăn bán trú tại trường.
+- Phòng Giáo dục và Đào tạo TP Thủ Đức yêu cầu Trường tiểu học Lương Thế Vinh trả lại tiền thu hoạt động giáo dục của chương trình nhà trường từ ngày 4 đến 20-9.
+- Ngày 10-10, phát biểu tại lễ khai giảng Trường đại học Y Dược Cần Thơ, GS Nguyễn Trung Kiên - hiệu trưởng nhà trường - cho biết năm học này trường đón hơn 300 sinh viên nước ngoài đến học tập.
+- Nhiều dịch vụ giáo dục tăng thêm do trường cung cấp, phụ huynh, sinh viên phải trả tiền sử dụng nhưng vẫn phải 'xin' để trường cho. Vì sao?
+- Với việc hợp tác cơ sở vật chất cùng báo Tuổi Trẻ, Trường đại học Công nghiệp TP.HCM sẽ sớm đưa vào sử dụng cơ sở đào tạo mới hiện đại với các phòng học đa phương tiện.
+- Nhiều bạn đọc đòi 'dẹp' ban đại diện cha mẹ học sinh vì đã lỗi thời.
+- Câu chuyện "cơm thừa, canh cặn" đã chạm đến giới hạn tối thiểu mà người có lương tâm không nên bước qua.
+- Chính phủ vừa ban hành nghị định quy định điều kiện, thủ tục thành lập trường mầm non.
+- Dự kiến từ năm 2025, phân hiệu Trường đại học Cần Thơ tại Sóc Trăng sẽ đào tạo đại học chính quy 3 ngành: kế toán, luật, logistics và quản lý chuỗi cung ứng.
+- Họ là những người có thâm niên làm công tác ban đại diện cha mẹ học sinh (BĐDCMHS) và đã làm tốt nhiệm vụ "ăn cơm nhà, vác tù và hàng tổng". Bởi họ tuân thủ những nguyên tắc vàng.
+- Thời gian qua, hàng chục thành viên hội đồng trường của nhiều trường đại học đã bị miễn nhiệm, trong đó hầu hết là người ngoài trường do vi phạm pháp luật, thậm chí bị khởi tố bắt giam.
+- Đại biểu Quốc hội Nguyễn Thị Việt Nga cho rằng với đề xuất miễn học phí cho con giáo viên rất cần đánh giá tác động kỹ trước khi quyết định và "nói để tôn vinh nhà giáo hay nhà giáo là đối tượng yếu thế, thu nhập thấp là không đúng, không hợp lý".
+- Liên quan vụ ghi nhầm điểm thi của một thí sinh tham dự kỳ thi tuyển sinh vào lớp 10 Trường THPT Lê Hồng Phong từ thủ khoa thành trượt, một giáo viên nhận hình thức khiển trách.
+- Trong bảng xếp hạng đại học của Times Higher Education (THE) năm nay, Đại học Oxford đứng nhất, trong khi Việt Nam có 9 đại diện.
+- Phó thủ tướng Lê Thành Long giao Bộ Giáo dục và Đào tạo chủ trì khẩn trương chỉ đạo kiểm tra, xử lý nghiêm các sai phạm liên quan thông tin báo chí nêu sinh viên phản ánh phải ăn cơm canh thừa, có 'dị vật'.
+- Ông Lê Hồng Sơn - thành ủy viên, phó trưởng Ban thường trực Ban Tuyên giáo Thành ủy TP.HCM - đã nhấn mạnh như vậy tại tọa đàm ngày 9-10.
+- Gia đình không liên lạc được với học sinh này từ ngày 4-10, đến nay là 5 ngày.
+- Hội đồng Giáo sư nhà nước vừa công bố danh sách 582 ứng viên được hội đồng giáo sư ngành, liên ngành đề nghị xét công nhận đạt tiêu chuẩn chức danh giáo sư, phó giáo sư năm 2024.
+- Trần Trung Kiên, học sinh Trường THPT Lê Hồng Phong Phú Yên, chia sẻ việc chuẩn bị cho chặng đua cuối Đường lên đỉnh Olympia năm 2024.
+- Sau trận mưa lớn, tường rào trường học ở Bình Phước đổ sập. Hàng loạt xe chết máy, hư hỏng do nước ngập.
+- Chủ tịch hội đồng chấm thi vào lớp 10 Trường Lê Hồng Phong nhận trách nhiệm, xin lỗi phụ huynh và thí sinh vì để xảy ra vụ việc ghi nhầm điểm.
+- Chuyện không thu quỹ trường, quỹ lớp lẽ ra là chuyện bình thường lại trở thành "độc, lạ" những ngày gần đây. Vì sao?
+- Giấy báo thu và thanh toán tháng 9-2024 của một học sinh Trường tiểu học Lương Thế Vinh, TP Thủ Đức, TP.HCM có tới 15 khoản thu.
+- Lâu nay ban đại diện cha mẹ học sinh đã bị nhiều phụ huynh đặt cho biệt danh là 'ban thu tiền'.
+- Chiều 8-10, học sinh các khối của Trường THCS Kim Đồng (quận 5, TP.HCM) tham quan trải nghiệm thực tế tại Nhà máy mì Acecook Việt Nam.
+- Bộ Giáo dục và Đào tạo đề xuất miễn học phí cho con giáo viên, từ mầm non đến đại học, chi phí dự kiến khoảng 9.200 tỉ đồng mỗi năm.
+- Thêm một sự cố liên quan kỳ thi vào lớp 10 vừa được thanh tra phát hiện: một thí sinh không đủ điểm đậu nhưng được công bố đỗ thủ khoa.
+- Theo đuổi chương trình giáo dục song ngữ theo tiêu chuẩn quốc tế, Royal School chú trọng lộ trình học tập phù hợp nhất với năng lực, thế mạnh của từng học sinh.
+- Sáu em học sinh mầm non 5 tuổi ở Nghệ An bị nhiều vết thương trên cơ thể, nghi do bị bạn đánh trong lớp học.
+- Bạn đọc kiến nghị trường nào để ban đại diện cha mẹ học sinh, hội phụ huynh thu quỹ lớp và các quỹ khác sai thì hiệu trưởng phải chịu trách nhiệm.
+- Giáo viên chủ nhiệm lớp 12A1 Trường THPT Nguyễn Văn Linh, quận 8, TP.HCM nhắn tin như ép học sinh đi học thêm.
+- Dự thảo Luật Nhà giáo đề xuất miễn học phí cho con đẻ và con nuôi hợp pháp của nhà giáo đang trong thời gian công tác.
+- Trong quá trình học tập, sinh hoạt, T.H.M. và T.T.T. nói xấu nhau dẫn đến mâu thuẫn. Sau đó M. dùng dao đâm bạn trọng thương ngay giữa lớp học.
+- Trưa 8-10, Trường tiểu học Nguyễn Đức Cảnh, Tp Buôn Ma Thuột (Đắk Lắk) bị mùi lạ tấn công khiến 2 giáo viên ngất xỉu.
+- Ngày 8-10, nhà ăn A15 của Đại học Bách khoa Hà Nội đã tạm dừng hoạt động sau phản ánh sinh viên phải ăn cơm canh thừa, có "dị vật".
+- Dù đã có điều lệ và các thông tư hướng dẫn về hoạt động của ban đại diện cha mẹ học sinh nhưng ở mỗi trường, mỗi lớp hoạt động của ban này lại khác nhau.
+- PGS.TS Vũ Thị Hiền sinh năm 1976. Trước khi giữ cương vị phó hiệu trưởng, bà là trưởng phòng quản lý đào tạo, Trường đại học Ngoại thương.
+- ĐH Quốc gia TP.HCM thống nhất chủ trương thực hiện 3 phương thức tuyển sinh đại học từ năm 2025. Các trường cho rằng việc cắt giảm phương thức xét tuyển sẽ công bằng hơn và giúp thí sinh đỡ rối.
+- Sinh viên hệ kỹ sư ngành công nghệ thực phẩm Trường đại học Công thương TP.HCM bức xúc nói đã bị khoa công nghệ thực phẩm "xù" học bổng đã bảo lưu trước đó.
+- Bộ GD-ĐT đang lấy ý kiến để xây dựng dự thảo thông tư sửa đổi, bổ sung quy chế tuyển sinh THCS và tuyển sinh THPT.
+- Với những dự án liên quan đến năng lượng tái tạo và phát triển bền vững, nữ sinh từ các tỉnh, thành trong nước và quốc tế đã đưa ra những sáng kiến mới lạ và thiết thực tại cuộc thi “STEAM For Girls - STEAM Xanh cho nữ sinh 2024”.
+- Đêm 7-10, Đại học Bách khoa Hà Nội đã có phản hồi liên quan phóng sự của VTV24 về việc nhiều tân sinh viên phản ánh phải ăn cơm canh thừa, có nhiều 'dị vật' bất thường.
+- Các tấm gương thanh niên khuyết tật tiêu biểu được tuyên dương đều là những thanh niên không cam chịu hoàn cảnh, nỗ lực vượt qua rào cản, khiếm khuyết để khẳng định giá trị bản thân và đóng góp cho xã hội.
+- Thủ tướng Chính phủ vừa ban hành quyết định chuyển Trường đại học Duy Tân thành Đại học Duy Tân.
+- Theo Thứ trưởng Phạm Ngọc Thưởng, việc cố định môn thi lớp 10 có thể gây ra tình trạng học tủ, học lệch nên bộ có tính đến phương án bốc thăm môn thi thứ ba.
+- Thủ tướng Chính phủ vừa ban hành chỉ thị về tăng cường công tác chỉ đạo, phối hợp, tổ chức kỳ thi tốt nghiệp trung học phổ thông và tuyển sinh đại học, giáo dục nghề nghiệp năm 2025.
+- Nhiều phụ huynh cho rằng lương cơ sở tăng nên tiền đóng bảo hiểm y tế tăng, cơ quan chức năng có thể nghiên cứu giảm mức đóng. Đại diện Vụ Bảo hiểm y tế (Bộ Y tế) nói gì?
+- Ba học sinh một trường THPT ở Huế đã nhập viện kiểm tra sức khỏe sau khi hút thuốc lá điện tử ở trường.
+- Ông Trần Bình Thuận, chủ tịch UBND huyện Hướng Hóa, cho rằng mình không sai khi ký quyết định bổ nhiệm nhiệm kỳ 3 cho hiệu trưởng Trường mầm non Xy.
+- Nhân rộng tinh thần "không thu quỹ lớp" chắc chắn là một giải pháp hiệu quả để giải quyết vấn đề lạm thu trong trường học.
+- Ban đại diện cha mẹ học sinh lớp 2/2 ở Trường tiểu học Cam Nghĩa 2 (TP Cam Ranh, tỉnh Khánh Hòa) quy định thu quỹ lớp 300.000 đồng, nhưng khi có phụ huynh ý kiến thì giảm xuống còn 150.000 đồng.
+- Sở Y tế sẽ triển khai chuyển đổi số dữ liệu sức khỏe học sinh kể từ năm 2024 - 2025 và tầm nhìn đến 2030. Dữ liệu sức khỏe sẽ giúp ngành y tế nhận diện được mô hình bệnh, tật học đường của học sinh trên địa bàn TP.HCM.
+- Câu chuyện trường học không có quỹ lớp tạo hiệu ứng tốt, đa phần ý kiến cho rằng cần nhân rộng mô hình này ra các ngôi trường khác trong cả nước.
+- Sáng nay 7-10, Trường phổ thông đặc biệt Nguyễn Đình Chiểu (quận 10, TP.HCM) tổ chức chia sẻ chuyên đề về phòng ngừa xâm hại tình dục cho học sinh khiếm thị.
+- Cục Quản lý chất lượng - Bộ Giáo dục và Đào tạo cho biết việc công nhận văn bằng chương trình liên kết đào tạo nước ngoài đang gặp nhiều khó khăn.
+- UBND TP.HCM vừa ban hành bộ tiêu chuẩn công nhận trường học số.
+- Trong bốn năm trở lại đây, Đại học Quốc gia TP.HCM chưa khởi công thêm công trình nào và đã phải hoàn trả ngân sách nhà nước gần 2.000 tỉ đồng.
+- Bộ chứng chỉ PEIC là chuẩn năng lực tiếng Anh quốc tế bao gồm 4 kỹ năng (Nghe - Nói - Đọc - Viết) dành cho học sinh, sinh viên và người đi làm.
+- Nhiều người chán họp phụ huynh. Một phần vì chuyện tiền bạc, phần vì ban đại diện đại diện cha mẹ học sinh dường như không phải là đại diện cho phụ huynh lớp!
+- Đại học Quốc gia TP.HCM sẽ giảm bớt các phương thức tuyển sinh đại học năm 2025 xuống còn 3. Đồng thời khuyến khích các trường xây dựng phương thức xét tuyển kết hợp.
+- Kỷ nguyên trí tuệ mang lại nhiều cơ hội cho Việt Nam nhưng cũng cần phải thừa nhận những thách thức mà thời đại này đặt ra đối với xã hội.
+- Huyện ủy Hướng Hóa (Quảng Trị) nói không được bổ nhiệm lại nhiệm kỳ 3 vì sai quy định, nhưng ủy ban huyện vẫn ký bổ nhiệm lại.
+- Dự thảo thông tư sửa đổi, bổ sung quy chế tuyển sinh THCS và tuyển sinh THPT của Bộ GD-ĐT đang khiến dư luận xôn xao.
+- Hiệu trưởng Trường tiểu học Sơn Thành bị phụ huynh tố cáo, được chuyển công tác đến trường khác và tiếp tục làm hiệu trưởng. Những vấn đề phụ huynh tố cáo, thanh tra huyện Sơn Hà sẽ tiếp tục làm rõ.
+- Cứ vào giờ cao điểm, trước cổng một số trường học tại Đà Nẵng xảy ra tình trạng kẹt xe, giao thông lộn xộn. Nhiều phụ huynh, học sinh phải len lỏi giữa dòng xe đông đúc, tiềm ẩn nguy cơ tai nạn giao thông.
+- Dự án HCMUS Future Leaders của Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) vừa chính thức khởi động với sự tham gia 70 cựu sinh viên, chuyên gia xây dựng môn học về kỹ năng mềm cho sinh viên.
+- Tổng giá trị học bổng hơn 392 triệu đồng, trích từ nguồn quỹ Đồng hành sinh viên của trường.
+- Số lượng thí sinh đăng ký xét tuyển vào Trường đại học Y Dược TP.HCM tăng trong 3 năm liên tiếp, dù học phí của trường luôn tăng.
+- Không thể có trường học hạnh phúc, học trò ngoan nếu gia đình nhà trường bỏ ngỏ, thiếu chăm lo những giá trị đạo đức, văn hóa.
+- Sáng nay 5-10, báo Tuổi Trẻ và Trường đại học Hoa Sen đã ký kết hợp tác đào tạo. Việc ký kết thỏa thuận hợp tác đào tạo diễn ra tại lễ khai giảng năm học 2024 - 2025 của Trường đại học Hoa Sen.
+- Tận dụng nguồn nguyên liệu dồi dào trong tự nhiên, nhóm sinh viên Trường đại học Trà Vinh đã nghiên cứu làm ra băng gạc sinh học từ lục bình.
+- Khai giảng năm học 2024-2025, Trường đại học Cửu Long nhận bằng khen của Thủ tướng, dành hơn 9 tỉ đồng cấp học bổng toàn phần, khen thưởng cho tân sinh viên.
+- Ngày 4-10, diễn đàn “Giáo dục về năng lượng tái tạo và biến đổi khí hậu” diễn ra tại Trường Victoria School, nhằm mang đến nhiều góc nhìn trong việc giáo dục thế hệ trẻ các vấn đề khí hậu, môi trường.
+- Với đề thi tham khảo tuyển sinh lớp 10 mà Sở Giáo dục và Đào tạo TP.HCM vừa công bố, nhiều chuyên gia khẳng định giáo viên và học sinh phải thay đổi cách dạy và học.
+- Nhiều bạn đọc đề nghị nhân rộng mô hình trường học không có quỹ lớp ở tại Bình Dương.
+- Ngày 3-10, hãng Bloomberg News đưa tin một số trường học của Mỹ đang cung cấp chương trình đào tạo chuyên ngành sau đại học, nhưng trên thực tế là vỏ bọc giúp sinh viên nước ngoài được cấp thị thực lao động có thời hạn 2 năm.
+- Theo một khảo sát, có đến 90% phụ nữ trẻ cho biết họ sử dụng bộ lọc hoặc chỉnh sửa ảnh trước khi đăng tải lên mạng xã hội vì tự ti ngoại hình; có bạn trẻ nghiện mạng xã hội đã dùng tới khi ngất đi, nhưng tỉnh dậy dùng tiếp!
+- Chuyên gia cho rằng nếu muốn thử đầu tư chứng khoán, sinh viên chỉ nên dành tiền nhàn rỗi thay vì dùng các khoản tiền học tập, sinh hoạt.
+- Bộ Giáo dục và Đào tạo dự kiến quy định có 3 môn thi vào lớp 10 gồm toán, ngữ văn và một môn do sở giáo dục và đào tạo tổ chức bốc thăm ngẫu nhiên.
+- Sáng 4-10, 70 học sinh khiếm thị của Trường Phổ thông đặc biệt Nguyễn Đình Chiểu (Q.10, TP.HCM) đã có buổi xem phim thật đặc biệt.
+- Chiều 3-10, báo Tuổi Trẻ đưa 40 học sinh lớp 8 Trường THCS Đồng Khởi (quận 1, TP.HCM) tham quan tại nhà máy sản xuất mì ăn liền Acecook Việt Nam.
+- Với nhiều dự án sáng tạo kêu gọi bảo vệ môi trường, các nữ sinh cả trong và ngoài nước đã tự tin chinh phục cuộc thi.
+- Trường THPT Phan Huy Chú (Đống Đa, Hà Nội) là trường công có mức thu học phí cao nhất thủ đô, với 6,1 triệu đồng/tháng.
+- Với tính năng "like - thích", khi bài viết đăng tải lên mạng xã hội nhận sự từ chối hoặc ít người bấm "like" có thể dẫn tới các triệu chứng trầm cảm cho người dùng.
+- Thầy cô thân mật, hòa đồng với học trò là tốt. Nhưng sự dễ dãi, tùy tiện, kiểu "cá mè một lứa" là không thể chấp nhận.
+- Công an TP Tam Kỳ, Quảng Nam đã ra quyết định xử phạt vi phạm hành chính với phụ huynh xông vào lớp đánh học sinh lớp 8.
+- Yếu tố giáo viên, học sinh, phụ huynh và chương trình giảng dạy giúp đưa tiếng Anh thành ngôn ngữ thứ hai trong trường học thành công.
+- Thường trực Ủy ban Văn hóa, Giáo dục của Quốc hội đã trả lời ý kiến cử tri Tiền Giang đề nghị cần giám sát tối cao chất lượng đào tạo đại học.
+- "Trường tiểu học Hòa Phú không phải đóng tiền gì hết. Thầy hiệu trưởng dẹp luôn quỹ lớp nên phụ huynh không phải bàn tán gì hết, rất khỏe".
+- Honda Việt Nam (HVN) phối hợp cùng Ủy ban An toàn giao thông quốc gia và Bộ Giáo dục & Đào tạo tổ chức chương trình Trao tặng mũ bảo hiểm cho học sinh lớp 1 trên toàn quốc.
+- Đây là một trong nhiều thông tin về du học được đại diện Tổng lãnh sự quán Mỹ tại TP.HCM đưa ra tại Triển lãm giáo dục Mỹ (EducationUSA 2024) diễn ra chiều 3-10.
+- Liên quan tới vụ nam sinh thân mật với giáo viên ngay trên bục giảng, ông Nguyễn Quang Tuấn - phó giám đốc Sở Giáo dục và Đào tạo Hà Nội - cho biết cô giáo là người hòa đồng, thân mật với học sinh nhưng 'thiếu nghiệp vụ sư phạm'.
+- Gần 700 học sinh giỏi trong vụ ký nhận tiền nhưng chỉ nhận vở ở Đà Nẵng đã được nhận lại 200.000 đồng tiền thưởng .
+- Mạng xã hội đang xôn xao chuyện 'một trường đại học ở TP.HCM công bố xét tuyển bắt buộc có môn toán' từ năm 2025.
+- Bà Trần Thị Diệu Thúy - phó chủ tịch UBND TP.HCM - yêu cầu Sở Giáo dục và Đào tạo TP.HCM đổi mới cách tổ chức và hoạt động thư viện trường học, nhằm tạo môi trường cho học sinh tiếp cận thường xuyên với sách.
+- Để lo cho hoạt động của lớp, các thầy cô càng phải giữ kẽ, giữ quy chế, giữ lòng tự trọng của nghề giáo.
+- Hội đồng trường Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) cho hay sẽ triệu tập cuộc họp để xem xét miễn nhiệm tư cách thành viên hội đồng trường.
+- Chủ trương đưa tiếng Anh thành ngôn ngữ thứ hai trong nhà trường là đúng đắn, hợp với nhu cầu phát triển kinh tế - xã hội nhưng cần thêm các giải pháp để đi vào đời sống hiệu quả và thiết thực.
+- Trường Phổ thông Năng khiếu (Đại học Quốc gia TP.HCM) vừa công bố phương án tuyển sinh lớp 10 năm học 2025-2026.
+- Giọng nghẹn ngào, em Nguyễn Hà Mi (học sinh lớp 9 Trường THCS Chuế Lưu, huyện Hạ Hòa, tỉnh Phú Thọ) kể về trận lũ đã cuốn trôi căn nhà của gia đình em.
+- Chiều ngày 2-10, tại Văn Miếu - Quốc Tử Giám, Thành Đoàn Hà Nội tổ chức lễ ghi danh sổ vàng thủ khoa xuất sắc thủ đô Hà Nội năm 2024.
+- Các khách mời của tọa đàm 'Đưa tiếng Anh trở thành ngôn ngữ thứ 2 trong trường học: Làm gì để vượt thách thức?' đã dành thời gian phân tích về thuận lợi, khó khăn, thách thức và tìm ra các giải pháp để thực hiện chủ trương này.
+- Ngày 2-10, ông Đào Đức Tuấn - giám đốc Sở Giáo dục và Đào tạo tỉnh Bình Định - cho biết sở đã chấn chỉnh việc 2 trường học vận động thu tiền sai nguyên tắc.
+- Liên quan vụ 'nam sinh thân mật với cô giáo trên bục giảng', hiện cô giáo này đã bị nhà trường tạm đình chỉ công tác trong thời gian giải quyết sự việc.
+- Sở Giáo dục và Đào tạo TP.HCM vừa công bố đề tham khảo thi tuyển sinh lớp 10 năm 2025.
+- Sau một ngày ra quân cao điểm xử lý học sinh vi phạm, cảnh sát giao thông toàn TP.HCM đã xử phạt 296 em vi phạm.
+- Mạng xã hội lan truyền bài viết, kèm hình ảnh một nam sinh có hành động thân mật với một cô gái tại bàn giáo viên và cho rằng cô gái trong clip là giáo viên.
+- Ngoài khu đô thị Đại học Quốc gia TP.HCM đã hoạt động, TP.HCM còn có ba dự án khu đô thị đại học và giáo dục tập trung.
+- Liên quan vụ việc phụ huynh xông vào trường đánh học sinh lớp 8, nhà trường đã kỷ luật 3 học sinh tham gia đánh nhau.
+- Kết quả điều tra gian lận khoa học về một giáo sư y khoa nổi tiếng của Đại học California tại San Diego (UCSD, Mỹ) đang gây rúng động giới y khoa toàn cầu.
+- Chủ trương đưa tiếng Anh thành ngôn ngữ thứ hai trong trường học là chủ trương đúng đắn, phù hợp với điều kiện Việt Nam trong bối cảnh toàn cầu hóa. Nhưng chủ trương này sẽ gặp không ít thách thức cần được hóa giải.
+- Vụ cô giáo 'xin' phụ huynh hỗ trợ mua laptop để giảng dạy nhanh chóng trở thành tâm điểm dư luận và dấy lên nhiều tranh luận.
+- Phiên chất vấn giả định "Quốc hội trẻ em" đặt ra vấn đề có thật, không dễ chấm dứt trong học đường.
+- Một phụ huynh lái ô tô vào sân Trường THCS-THPT Chu Văn An (TP Móng Cái, Quảng Ninh) rồi tông trúng một học sinh đi xe đạp điện.
+- Hàng chục trường hợp học sinh lái xe khi chưa đủ tuổi, không đội mũ bảo hiểm... bị cảnh sát xử lý trong chiều 1-10 tại quận Long Biên (Hà Nội).
+- Tối 1-10, Sở Giáo dục và Đào tạo TP.HCM đã công bố cấu trúc đề thi tuyển sinh lớp 10 theo chương trình mới.
+- Ngày 1-10, ông Nguyễn Quang Thạch - sáng lập phong trào Sách hóa nông thôn Việt Nam - bắt đầu hành trình đi bộ vận động Sách về nông thôn Ấn Độ lần thứ 2.
+- Sau sự việc, Phòng Giáo dục và Đào tạo huyện Thanh Oai yêu cầu học sinh không nhận đồ ăn, thức uống từ người lạ.
+- Trong khuôn khổ chuyến thăm cấp Nhà nước tới Mông Cổ, sáng 1-10, Tổng Bí thư, Chủ tịch nước Tô Lâm cùng Đoàn đại biểu cấp cao Việt Nam đã đến thăm Trường liên cấp số 14 mang tên Chủ tịch Hồ Chí Minh tại thủ đô Ulan Bator.
+- Sáng 1-10, ông Võ Cao Long - trưởng Phòng Giáo dục và Đào tạo quận 1, TP.HCM - chính thức cung cấp thông tin cho báo chí liên quan đến vụ việc cô giáo 'xin hỗ trợ mua laptop' xảy ra tại Trường tiểu học Chương Dương.
+- Tại huyện miền núi Tương Dương, Nghệ An xảy ra một trận lũ ống trong đêm làm cô lập 4 bản và bùn đất gây ngập một trường học.
+- Tại Việt Nam, việc trường trung cấp đón sinh viên quốc tế đến học tập, trao đổi khá hiếm, nhất là sinh viên đại học.
+- Để nâng cao chuỗi giá trị các ngành công nghiệp, công nghệ, cần nguồn nhân lực có trình độ đại học, kỹ năng chuyên sâu và bằng cấp về STEM.
+- Giảng viên tại nhiều trường đại học Mỹ 'sốc' khi nhận ra sinh viên ngày càng lười đọc. Nhưng rồi họ cũng nhanh chóng 'thích nghi'.
+- Ngày 30-9, tại Trường Victoria Shool - Nam Sài Gòn diễn ra lễ khai mạc vòng chung kết STEAM For Girls - STEAM Xanh cho nữ sinh 2024.
+- Tỉnh Yên Bái quyết định miễn 100% học phí năm học 2024-2025 cho trẻ em mầm non, học sinh, học viên trên địa bàn tỉnh.
+- Làm sao để không còn "hội chứng" sợ đi họp phụ huynh vì tình trạng lạm thu quỹ trường, quỹ lớp?
+- Bộ Giáo dục và Đào tạo nhất trí với dự thảo trình Thủ tướng về lịch nghỉ Tết âm lịch, Quốc khánh 2025.
+- Sáng 30-9, cô H., giáo viên tại Trường tiểu học Chương Dương, quận 1, TP.HCM - người xin phụ huynh hỗ trợ laptop, đã gặp gỡ báo chí để trần tình về sự việc.
+- Nhà bị nước lũ cuốn trôi hoàn toàn, bố mất, mong muốn của Bàn Văn Trường là anh em tiếp tục được đến trường, góp phần nhỏ giúp mẹ mua đồ đạc trong gia đình, sách vở, đồ dùng học tập.
+- Nhờ hai bài kiểm tra đặc biệt, phụ huynh hiểu con mình hơn, cảm thông nhiều hơn với lứa tuổi ẩm ương để sau đó tự điều chỉnh cách ứng xử với con.
+- Học viện Ngoại giao đoạt á quân. Đồng giải ba cuộc thi thuộc về một đội thi khác của Học viện Ngoại giao và Trường đại học Luật TP.HCM.
+- Cô học trò mồ côi sau bão Chanchu Vương Thị Linh Kiều vừa được Trường đại học Duy Tân ở Đà Nẵng trao học bổng toàn phần trị giá hơn 132 triệu đồng.
+- Lòng tự trọng, danh dự và sự tôn nghiêm của người thầy là tài sản quý giá nhất mà bất kỳ ai đứng trên bục giảng cũng cần gìn giữ.
+- Xuất khẩu lao động giúp có thu nhập sớm, được mở mang kiến thức và trải nghiệm xã hội. Nhưng có nên chọn mà bỏ học đại học?
+- Tại lễ khai giảng năm 2024 - 2025, HUFLIT đã nhận chứng nhận kiểm định chất lượng giáo dục ngành Đông phương học, nâng tổng số chương trình đào tạo đạt chuẩn kiểm định lên 7 ngành.
+- Sau vụ cô giáo xin phụ huynh hỗ trợ mua laptop, rất nhiều bạn đọc lên tiếng đề nghị ngành giáo dục phải nghiêm cấm giáo viên, nhà trường mượn danh nghĩa hội phụ huynh để thu tiền phụ huynh...
+- Bộ trưởng Bộ Giáo dục và Đào tạo Nguyễn Kim Sơn khẳng định tại phiên họp giả định "Quốc hội trẻ em" được tổ chức ngày 29-9.
+- Công an phường đã mời phụ huynh xông vào lớp đánh học sinh lớp 8 làm việc và đang củng cố hồ sơ tham mưu Công an Tam Kỳ xử lý.
+- Nhiều tạp chí quốc tế gỡ bỏ bài báo khoa học của tác giả Việt Nam, từ các nhà nghiên cứu danh tiếng đến các ứng viên giáo sư, phó giáo sư.
+- Những ngày cuối tháng 9, tại điểm trường mầm non Pác Rà, máy xúc đang múc liên tục những khối đất đá lên các xe tải cỡ lớn. Phía trong điểm trường, đất đá ngổn ngang, gương kính vỡ nát...
+- Nhìn người lớn hút thuốc lá điện tử, trẻ em nghĩ không có hại, hoặc hút thuốc để chứng minh mình đã lớn.
+- Nhiều ý kiến giải quyết bạo lực học đường được chính các đại biểu nhí nêu ra trong phiên họp giả định Quốc hội trẻ em.
+- Cô giáo H. (Trường tiểu học Chương Dương, quận 1, TP.HCM), người xin phụ huynh hỗ trợ mua laptop, đã bị tạm đình chỉ đứng lớp theo yêu cầu của Phòng Giáo dục và Đào tạo quận.
+- Thích nghi với toàn cầu hóa, nhiều chương trình học các cấp đã đưa hoạt động giáo dục STEAM vào trong nhà trường và đạt được nhiều hiệu quả tích cực.
+- Thức dậy, cắp sách tới trường là việc làm thường ngày của mỗi học sinh nhưng lại là ước mơ cháy bỏng của cô bé Đặng Khánh Linh...
+- Mục tiêu giai đoạn 2025 - 2030, tỉ lệ người theo học các ngành STEM đạt 35% ở mỗi trình độ đào tạo.
+- Hơn 35 triệu đồng là tấm lòng thầy trò và phụ huynh của Trường THCS-THPT Thái Bình gửi đến đồng bào miền Bắc bị ảnh hưởng bởi bão lũ.
+- Hai nữ sinh Trường THPT Nguyễn Thị Minh Khai (quận 3, TP.HCM) đã làm hai hộp thư tại trường, để những bạn gặp vướng mắc tâm lý có thể gửi thư chia sẻ.
+- Cô bạn thân của tôi đi họp phụ huynh cho con về và “khoe” vừa rời cuộc họp về đến nhà là được đưa vào 3 nhóm Zalo khác nhau.
+- Vì sao rất nhiều trường THPT tại TP.HCM chọn phương án thuê máy lạnh bằng phương thức xã hội hóa thay vì vận động phụ huynh góp tiền để mua?
+- "Chiếc xe đạp cũ mà hai chị em hằng ngày đi học bị mái tôn rơi vào làm hư hỏng, không còn đi được nữa. Em mong có chiếc xe đạp mới để hai chị em đèo nhau đi học".
+- Liên quan đến những thông tin học sinh tại điểm trường Màng Mủ ăn cơm gừng chấm muối, huyện Mù Cang Chải (Yên Bái) vừa có báo cáo sự việc lên UBND tỉnh Yên Bái.
+- Ông Nguyễn Viết Hiển, giám đốc Sở Giáo dục và Đào tạo Thái Bình, bị cách chức vì liên quan đến sai phạm trong công tác tổ chức thi tuyển sinh vào lớp 10 THPT năm học 2024 - 2025.
+- Ông Lê Hoài Nam, phó giám đốc Sở Giáo dục và Đào tạo TP.HCM, nhận xét như vậy về một số mặt còn tồn tại của không ít trung tâm ngoại ngữ, tin học tại TP.HCM hiện nay.
+- Cô giáo Bùi Thị Châm - giáo viên Trường Phổ thông dân tộc bán trú THCS Trung Lý, huyện Mường Lát - vừa được giám đốc Sở Giáo dục và Đào tạo Thanh Hóa khen thưởng vì giúp học sinh tránh sạt lở đất.
+- Năm học 2024 - 2025 mới bắt đầu, hàng loạt giáo viên tại Đắk Lắk bỗng thành "con nợ" do cấp trên chi sai phụ cấp ưu đãi.
+- Một trường tiểu học cấp giấy khen cho học sinh đóng góp ủng hộ vùng ảnh hưởng bão lũ từ 100.000 đồng trở lên gây xôn xao dư luận.
+- Thực tế cho thấy thời gian qua nhiều trường tiểu học và trung học ở TP.HCM và nhiều địa phương đã có những đổi mới trong dự giờ.
+- Mới đây một phụ huynh ở Hà Nội lên mạng xã hội bày tỏ bức xúc vì phải đến trường của con để trực nhật sau 17h.
+- Phu nhân Ngô Phương Ly như hòa cùng các em học sinh của Trường tiểu học Võ Thị Thắng ở Cuba. Có giây phút bà như nghẹn ngào, ôm chầm một em học sinh và dặn dò cố gắng học tập.
+- Báo Tuổi Trẻ phối hợp với Tỉnh đoàn Lạng Sơn trao 150 suất học bổng 'Ngăn dòng bỏ học'  cho học sinh bị ảnh hưởng bởi bão số 3 tại huyện Tràng Định và Văn Lãng.
+- 4 trường quốc tế ở TP.HCM và Long An đã phát động và thực hiện 'Tuần lễ sẻ chia', hướng về người dân bị ảnh hưởng bởi bão lũ.
+- Một số phụ huynh tại TP Thủ Đức phản ánh nhà trường kêu gọi ủng hộ để chi trả phụ cấp tháng 8 cho bảo mẫu.
+- Tỉnh Quảng Nam dự kiến sẽ dùng ngân sách khoảng 158 tỉ đồng hỗ trợ học phí cho trẻ mầm non, học sinh phổ thông đang học tại các cơ sở giáo dục mầm non, cơ sở giáo dục phổ thông công lập và tư thục trong hai năm học.
+- "Với các em học sinh ủng hộ đồng bào miền Bắc bị thiệt hại do bão lũ thì bao nhiêu cũng quý, một đồng cũng quý, vì đó là tấm lòng!".
+- Trả lời phỏng vấn Tuổi Trẻ, GS AARON VOON-YEW THEAN - hiệu trưởng ĐH Quốc gia Singapore - nhận định nhiều trường đại học Việt Nam đang đổi mới chương trình khá tốt theo phương châm hướng về sinh viên.
+- Nhiều chuyên gia tư vấn cần xác định mục tiêu ngay từ đầu năm nhất để tránh phải trả giá bằng việc thôi học giữa chừng hoặc chuyển đổi ngành học hoặc… học đại để ra trường.
+- Theo Bộ trưởng Nguyễn Kim Sơn, để thực hiện được nhiệm vụ đưa tiếng Anh trở thành ngôn ngữ thứ hai trong trường học thì nâng cao chất lượng giáo viên tiếng Anh là hết sức quan trọng.
+- Nhận suất học bổng Ngăn dòng bỏ học từ báo Tuổi Trẻ, nhiều học sinh vùng lũ ở Cao Bằng cho biết sẽ dành số tiền 3 triệu đồng để mua sách vở và đưa bố mẹ để có thêm tiền dựng nhà cửa.
+- Liên quan vụ việc nam phụ huynh xông vào lớp đánh học sinh lớp 8, chiều 25-9, lãnh đạo Phòng Giáo dục và Đào tạo TP Tam Kỳ, Quảng Nam cho biết đã nhận được báo cáo của Trường THCS Nguyễn Du, nơi xảy ra vụ việc.
+- Cuộc thi “STEAM for Girls - STEAM xanh cho nữ sinh 2024” sẽ chính thức khai mạc vào ngày 30-9, tại Victoria School - Nam Sài Gòn (TP.HCM) và kéo dài đến ngày 4-10-2024.
+- Áp lực từ hồ sơ sổ sách, các cuộc thi đến cả trực đêm ở trường khiến giáo viên không còn thời gian để đầu tư cho việc giảng dạy, theo chuyên gia.
+- Sau khi ăn thức ăn mua ở căng tin trường, 23 em học sinh phải nhập viện, nghi bị ngộ độc thực phẩm.
+- Úc đã quyết định giảm thiểu số lượng du học sinh trong năm 2025 xuống đáng kể, khiến không ít sinh viên Việt Nam lo lắng.
+- Sinh viên khó khăn được mượn tiền đóng học phí, không tính lãi, trả gốc sau 2 năm tốt nghiệp.
+- Sau khi nhà trường mời đến làm việc, phụ huynh đánh học sinh lớp 8 ở Quảng Nam cho hay rất hối hận và nhận lỗi.
+- Sau khi Tuổi Trẻ Online đăng bài viết về Nguyễn Tuấn Kiệt (lớp 12A1 Trường THPT Phú Mỹ, tỉnh Bà Rịa - Vũng Tàu), nhiều tấm lòng vàng đã giúp nam sinh này được nhập học.
+- Dự thảo Luật Nhà giáo quy định lương giáo viên được xếp cao nhất trong hệ thống thang bậc lương, được hưởng các phụ cấp và giáo viên mầm non được nghỉ hưu sớm.
+- Ban quản lý ký túc xá Đại học Quốc gia TP.HCM nói phơi đồ ở ban công gây mất mỹ quan, nhưng theo sinh viên, ban công mới có đủ nắng, gió để đồ khô.
+- So với năm 2022, doanh thu năm 2023 của Đại học Bách khoa Hà Nội và Trường đại học FPT tăng khoảng 1.000 tỉ đồng.
+- Ngoài Michael Tirant, trong danh sách tác giả siêu năng suất ghi địa chỉ các trường đại học Việt Nam còn có bốn cái tên người nước ngoài khác. Họ là ai?
+- Để khắc phục hậu quả của bão số 3, Quảng Ninh miễn 100% học phí cho học sinh từ mầm non đến lớp 12 năm học này.
+- Bài học rút ra là phải làm gì đó để ngăn những vụ việc gây bức xúc như ở Nhà xuất bản Giáo Dục Việt Nam.
+- Một phụ huynh ở Quảng Nam đã vào tận lớp đánh học sinh lớp 8 trước sự bất ngờ của giáo viên và cả lớp.
+- Những 'chiến binh' Robot AI của Đại học (ĐH) Duy Tân đã giành giải thưởng cao nhất tại chung kết cuộc thi 'ROBOG 2024'' toàn quốc diễn ra vào ngày 22-9 ở TP.HCM.
+- Trường tiểu học Lê Quý Đôn (quận Gò Vấp, TP.HCM) khen học sinh ủng hộ đồng bào miền Bắc từ 100.000 đồng trở lên bằng giấy khen do hiệu trưởng ký, và dưới mức đó chỉ được thư khen do giáo viên chủ nhiệm ký.
+- Con càng lớn, các bậc cha mẹ phải đương đầu, thậm chí căng thẳng vì con muốn sắm điện thoại bằng bạn bằng bè.
+- Dự thảo Luật Việc làm sửa đổi mới nhất trình Ủy ban Thường vụ Quốc hội đã bỏ quy định về giới hạn số giờ làm thêm của học sinh, sinh viên.
+- Cơ quan công an đã triệu tập thiếu niên 15 tuổi để điều tra về việc đánh học sinh lớp 11 gãy 4 chiếc răng, thương tích nặng.
+- Hà Nội có số lượng ứng viên đề nghị công nhận giáo sư, phó giáo sư nhiều nhất xét theo quê quán, Đại học Quốc gia TP.HCM dẫn đầu xét theo nơi làm việc.
+- Cơ quan cảnh sát điều tra cho rằng việc mua giấy in với giá cao sẽ làm tăng giá sách, từ đó kiến nghị Bộ Giáo dục và Đào tạo cần quy định cụ thể việc giám sát, kiểm soát hoạt động mua sắm thường xuyên của Nhà xuất bản Giáo Dục Việt Nam.
+- 11h, tiếng trống tan trường vừa cất lên, Đặng Thị Hà Vân (học sinh lớp 2 Trường tiểu học Yên Lạc, xã Yên Lạc, huyện Nguyên Bình, Cao Bằng) cùng các bạn ùa ra cổng trường, tíu tít về nhà. Sau trận lũ quét kinh hoàng, Vân đã mất cha và anh trai.
+- Tạp chí Scientometrics thuộc Nhà xuất bản Springer Nature, mới đây đăng tải nghiên cứu về danh sách các tác giả siêu năng suất (công bố hơn 60 bài/năm).
+- Không thể cứ hô hào khẩu hiệu nâng cao văn hóa ứng xử trên không gian mạng một cách lý thuyết suông.
+- Trong đau thương mất mát với học trò và người dân các tỉnh miền núi phía Bắc, thầy cô giáo trở thành điểm tựa.
+- Tính đến ngày 23-9, đã có hơn 6.000 lượt bạn đọc là cá nhân, tổ chức đóng góp số tiền gần 22 tỉ đồng chia sẻ với đồng bào vùng bão lũ các tỉnh phía Bắc thông qua báo Tuổi Trẻ.
+- Để giúp doanh nghiệp "quen" trúng các gói thầu, cựu chủ tịch Nhà xuất bản Giáo Dục Việt Nam chỉ đạo  thực hiện lựa chọn mua sắm giấy in theo phương thức chào hàng cạnh tranh rút gọn trái quy định.
+- Ngày 23-9, Tổ chức QS công bố VinUni đã đạt chứng nhận QS 5 sao toàn diện.
+- Dưới ánh nắng chói chang cùng những cơn gió đông bắc đầu mùa, những cô cậu trò nhỏ ngồi sát nhau trong 3 lớp học tạm bằng bạt...
+- Bệnh viện quận 6 (TP.HCM) tiếp nhận bé trai K., 2 tuổi, nhập viện trong tình trạng tím tái, hôn mê, ngưng tim, ngưng thở và tử vong sau đó.
+- Cựu chủ tịch Nhà xuất bản Giáo Dục Việt Nam Nguyễn Đức Thái bị cáo buộc nhận hối lộ định kỳ hằng năm ngay tại phòng làm việc, với tổng số 24,9 tỉ đồng.
+- Sau khi sạt lở đất nghiêm trọng vào trường học, đe dọa tính mạng giáo viên, học sinh, ngày 22-9, UBND tỉnh Thanh Hóa đã công bố tình huống khẩn cấp sạt lở đồi đất tại Trường THCS Lâm Phú, huyện Lang Chánh và Trường THCS-THPT Như Xuân.
+- 18 trường đại học công lập sẽ được ưu tiên xem xét đầu tư phòng thí nghiệm bán dẫn để đào tạo, phát triển nhân lực ngành bán dẫn.
+- Mạng xã hội mấy hôm nay xôn xao chuyện một giáo sư nổi tiếng lên tiếng về hiện tượng một số nhà khoa học 'kiếm thêm' từ việc đứng tên trường khác trong các bài báo quốc tế.
+- Trước tình hình mưa lớn kéo dài gây nguy cơ ngập cục bộ một số tuyến đường các huyện miền núi ở Hà Tĩnh, các cơ sở giáo dục tại đây đã cho hơn 9.000 học sinh nghỉ học để đảm bảo an toàn.
+- 'Bạn không học được, cần bằng đã có người thi hộ. Người thật, thi thật, nói không với chứng chỉ giả. Bảo hành kết quả trọn đời, không đạt hoàn 200% phí'. Đó là một trong những kiểu mời chào hấp dẫn có trên mạng xã hội.
+- Thấy nguy cơ sạt lở đất đá vào ký túc xá rất cao, cô giáo Bùi Thị Châm buông đũa bữa cơm trưa chạy lên ký túc xá gọi học sinh đi sơ tán. 10 phút sau, đất đá đổ xuống ầm ầm, 3 phòng bị phá nát.
+- Do mưa lũ kéo dài nhiều ngày qua làm sạt lở đất đá vào khu ký túc xá, chiều 22-9, chính quyền xã Trung Lý, huyện Mường Lát và nhà trường đã di dời khẩn cấp 214 học sinh đến nơi an toàn.
+- Quả đồi sau Trường tiểu học Quang Trung (huyện Đạ Tẻh, tỉnh Lâm Đồng) đã lở lói, đất đá tràn tứ tung, nguy cơ sạt lở, uy hiếp sự an toàn gần 600 học sinh.
+- Kình ngư Hán Quang Thoại (35 tuổi, vận động viên Para Games) dành thời gian dạy bơi và lịch sử miễn phí cho trẻ mồ côi ở mái ấm.
+- Việc phải làm sao có môi trường nói tiếng Anh ngay trong nhà trường, rồi ở mức cao hơn là ở ngoài xã hội là vấn đề còn bỏ ngỏ.
+- Việc tổ chức quá nhiều cuộc thi học thuật, kỹ năng, đã và đang trở thành vấn đề gây tranh cãi.
+- Sách giáo khoa cũng là thứ được nhiều cá nhân, các nhóm thiện nguyện tính đến trong danh mục hàng cứu trợ gửi đến các địa phương vùng bị bão lũ.
+- Sau giờ học, nam sinh lớp 11 Trường THPT Bù Đăng ra khỏi trường thì bị một học sinh cùng trường và bạn đánh gây chấn thương, gãy 4 chiếc răng.
+- Chủ tịch hội đồng trường và hiệu trưởng Trường đại học Kinh Bắc (Bắc Ninh) phát hiện con dấu pháp nhân của trường không còn ở nơi lưu trữ.
+- Ngày 21-9, Chủ tịch UBND huyện Châu Đức (tỉnh Bà Rịa - Vũng Tàu) cho biết huyện đã có quyết định thanh tra toàn diện Trường mầm non Ánh Dương.
+- Nhiều phụ huynh và học sinh Trường THPT Thủ Đức, TP.HCM nhận được tin nhắn, điện thoại mạo danh nhà trường yêu cầu đi khám sức khỏe.
+- Những trận mưa xối xả sau bão số 3 khiến đất đá sạt xuống khắp nơi ở xã biên giới Nậm Chạc, huyện Bát Xát (Lào Cai).
+- Ngành giáo dục An Giang yêu cầu các trường chấn chỉnh việc tiếp nhận các dự án tài trợ, viện trợ và khắc phục ngay hoạt động game show ‘biệt đội GenZ’.
+- Mưa lũ gây sạt lở công trình hai tầng 8 phòng học Trường THCS Lâm Phú, buộc hơn 260 học sinh phải sơ tán.
+- Chiều 20-9, nhiều tài khoản trên mạng xã hội đồng loạt chia sẻ hình ảnh trước cổng Trường tiểu học - THCS Đào Thịnh (Yên Bái) có hàng nghìn cuốn sách giáo khoa của học sinh được thầy cô đem phơi hai bên đường và trước cổng trường sau mưa lũ.
+- Tại lễ khai giảng năm học mới của Trường đại học Nam Cần Thơ, tiến sĩ Nguyễn Văn Quang, hiệu trưởng, công bố thêm 8 chương trình đào tạo.
+- Trường đại học Khoa học Xã hội và Nhân văn Hà Nội hủy lễ khai giảng năm học mới, dành kinh phí ủng hộ đồng bào bị ảnh hưởng bởi bão Yagi.
+- Năm học 2024 - 2025, sinh viên Đại học Bách khoa Hà Nội đi xe buýt sẽ được nhà trường cấp minh chứng làm căn cứ để cộng điểm rèn luyện.
+- Một số phụ huynh đưa đón con đi học bằng xe máy vẫn vô tư để con đầu trần, trong khi mình đội nón bảo hiểm.
+- Đã hơn 10 ngày trôi qua nhưng vẫn còn những trường và điểm trường ở miền Bắc chưa thể mở lại sau ảnh hưởng của bão Yagi, học sinh vẫn nghỉ học.
+- "Các em bé ở Làng Nủ đã có cơm nóng, thịt tươi, rau xanh", những tấm ảnh chụp bữa ăn ấm áp ở nhà bán trú tại Lào Cai làm ấm lòng tất cả.
+- Mưa lớn đã làm mực nước trên các sông Ngàn Sâu và Ngàn Phố gần lên mức báo động 2, sông La ở mức báo động 1.
+- Nhiều thầy cô giáo tâm sự họ phải quay cuồng với các cuộc thi, thậm chí có những cuộc thi không liên quan gì tới việc giảng dạy.
+- Thông tin một phụ huynh lùi xe trong sân trường làm học sinh lớp 2 tử vong khiến nhiều người đau xót nghẹn ngào.
+- Đó là chia sẻ của ông Luke Turner, giám đốc điều hành Trường song ngữ quốc tế Emasi Nam Long, TP.HCM, về việc tổ chức "Tuần lễ sẻ chia" hướng về vùng bão lũ cho học sinh.
+- Những học sinh vùng lũ ở Trấn Yên (Yên Bái) đón nhận niềm vui trẻ thơ, sau nhiều ngày cùng gia đình vượt qua đợt mưa lũ lịch sử.
+- Huân chương Cành cọ hàn lâm ghi nhận nỗ lực không ngừng nghỉ của TS Phan Thị San Hà trong việc xây dựng và phát triển Trung tâm CARE cũng như bồi đắp mối quan hệ giữa Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) và các đối tác Pháp.
+- Chiều 19-9, báo Tuổi Trẻ và Trường đại học Nguyễn Tất Thành tổng kết khóa 1 dự án hợp tác đào tạo sinh viên giữa hai bên.
+- Trước những thiệt hại do bão số 3, Bộ Giáo dục và Đào tạo yêu cầu các trường thực hiện các giải pháp dạy học linh hoạt, không gây áp lực, quá tải cho giáo viên và học sinh.
+- Năm học mới, Hải Phòng miễn toàn bộ học phí từ mầm non đến THPT; Quảng Ninh sẽ xem xét hỗ trợ 100% học phí cho học sinh vì bão số 3; Vĩnh Phúc giảm 50% học phí so với năm ngoái.
+- Số lượng sinh viên đại học bỏ học ở Hàn Quốc tăng đột biến trong 5 năm qua, khi có tới 90.000 sinh viên bỏ học từ năm 2019-2023.
+- Khóa học do các chuyên gia trong lĩnh vực bán dẫn từ Đại học Quốc gia Singapore (NUS), Trung tâm Nghiên cứu khoa học quốc gia Pháp (CNRS)... hướng dẫn.
+- Sáng 19-9, TP.HCM tổ chức sơ kết 1 năm triển khai chương trình phối hợp giữa Sở Giáo dục và Đào tạo và Sở Lao động - Thương binh và Xã hội về định hướng phân luồng và giáo dục nghề nghiệp với học sinh THCS và THPT giai đoạn 2023-2025.
+- Nhiều trường học tại TP.HCM đã dành ngày làm việc tốt "gửi nắng yêu thương" hướng về đồng bào vùng bão lũ.
+- Năm học 2024-2025, Trường đại học Cần Thơ triển khai đề án nâng cấp trường thành trung tâm đào tạo nguồn nhân lực chất lượng cao, nghiên cứu, ứng dụng khoa học của TP Cần Thơ và vùng Đồng bằng sông Cửu Long.
+- Để chủ động và linh hoạt trong ứng phó bão số 4, đảm bảo an toàn cho thầy và trò, Bộ Giáo dục và Đào tạo lưu ý 17 tỉnh, thành cân nhắc cho học sinh nghỉ học khi cần.
+- "Tham gia nhiều giải đấu nhưng bạn vẫn cân bằng được việc học, rồi còn rất tích cực trong các hoạt động của trường, thiện nguyện. Tiếp xúc với bạn, tôi thấy có nhiều động lực để phát triển bản thân hơn".
+- Tỉnh Thừa Thiên Huế đã phát thông báo cho học sinh toàn tỉnh nghỉ học để ứng phó với cơn bão số 4 có khả năng đổ bộ trực tiếp tỉnh này.
+- Ngày 18-9, Sở Giáo dục và Đào tạo Thanh Hóa cho biết dự kiến năm học 2025-2026, Trường THPT chuyên Lam Sơn sẽ tuyển sinh một lớp chuyên tiếng Trung Quốc.
+- Ngày 18-9, Nhà xuất bản Giáo Dục Việt Nam cho biết sẽ cung ứng bổ sung 18 triệu bản sách giáo khoa cho vùng bị bão lũ.
+- Do ảnh hưởng của áp thấp nhiệt đới khả năng mạnh lên thành bão, ngày mai 19-9, học sinh toàn tỉnh Quảng Nam được nghỉ học để đảm bảo an toàn.
+- Ngày 18-9, tiệm chè và trà sữa Cô Ba Sài Gòn đã đóng cửa, tạm dừng hoạt động sau khi có nghi vấn trà sữa tại đây gây ngộ độc cho hàng chục học sinh.
+- Bữa ăn có thịt và nhiều rau xanh. Hơn 100 em học sinh Làng Nủ ở bán trú ăn ngon lành sau những ngày mưa lũ, thiếu thực phẩm.
+- Học sinh Trường THCS Nam Phương Tiến A có thể phải nghỉ học đến hết tháng 9 vì ảnh hưởng của mưa lũ.
+- Tại Ngày hội STEM sáng 18-9, các em học sinh giới thiệu hơn 600 sản phẩm tự làm từ những thứ tưởng chừng bỏ đi như vỏ chai nhựa, túi ni lông, hộp giấy...
+- Sở Giáo dục và Đào tạo chỉ tổ chức một số cuộc thi gắn liền với hoạt động dạy và học chương trình giáo dục phổ thông.
+- Ngày 18-9, tin từ UBND huyện Hàm Thuận Bắc, tỉnh Bình Thuận cho biết đã chỉ đạo công an xác minh, điều tra vụ việc cháu bé nghi bị bạo hành tại nhóm trẻ tư thục.
+- Sở Giáo dục và Đào tạo TP Đà Nẵng thông báo cho học sinh nghỉ học do áp thấp nhiệt đới khả năng mạnh lên thành bão, gây mưa lớn.
+- Trên sân khấu lễ khai giảng năm học mới của Trường đại học Ngoại thương có một 'lẵng hoa' đặc biệt in mã QR...
+- Vai trò quản lý nhà nước của bộ trong việc giám sát, chuẩn hóa và đảm bảo chất lượng thông tin tuyển sinh là vô cùng quan trọng để bảo vệ quyền lợi của người học và phụ huynh.
+- Ngành giáo dục tỉnh Lào Cai bị thiệt hại gần 502 tỉ đồng do bão lũ, chiếm hơn 1/3 tổng thiệt hại của 18 tỉnh khu vực phía Bắc.
+- Sáng sớm vào Làng Nủ, tối muộn mới về. Nhà ngập ngổn ngang nhưng đành cứ để đấy... Nhiều thầy cô giáo đã và đang dốc sức để học trò có thể sớm đi học trở lại.
+- Nhiều nước đã thành công trong việc giảng dạy tiếng Anh như ngôn ngữ thứ hai trong trường học. Tuy nhiên không phải không có thử thách.
+- Để tránh những trường hợp đáng tiếc, nhà trường nên cấm phụ huynh lái ô tô vào trong sân trường đưa đón học sinh.
+- Hàng trăm học sinh ở Trường tiểu học Quang Kim, Bát Xát, Lào Cai mất sách vở vì không kịp chạy lũ. Những ngày đầu tiên đi học trở lại, nhiều chiếc ba lô nhẹ bâng vì thiếu sách vở.
+- Nhiều thí sinh đạt điểm cao trong kỳ thi Tốt nghiệp THPT năm 2024 đã đến với Đại học (ĐH) Duy Tân để tìm hiểu trong năm 2024 này.
+- Nhà giáo Nguyễn Xuân Khang, chủ tịch hội đồng Trường phổ thông liên cấp Marie Curie (Hà Nội), quyết định trường sẽ nhận nuôi những trẻ em từ 15 tuổi trở xuống ở thôn Làng Nủ.
+- Để luyện áp lực thời gian, căng thẳng như thi thật, thí sinh thi Kỹ năng nghề thế giới (WorldSkills) tìm đối thủ thi đấu online hoặc sang Áo, Hàn Quốc để nâng cao tay nghề.
+- Bộ Giáo dục và Đào tạo đề nghị các trường ưu tiên miễn, giảm học phí và có hỗ trợ phù hợp với hoàn cảnh của từng sinh viên.
+- Sở Giáo dục và Đào tạo TP.HCM quyết định thí điểm đưa tiếng Anh thành ngôn ngữ dạy học thứ hai trong nhà trường.
+- Sau những ngày nỗ lực khắc phục hậu quả của bão lũ số 3, học sinh nhiều địa phương miền Bắc đã dần trở lại trường lớp trong nỗ lực của địa phương và các thầy cô giáo.
+- Nhiếp ảnh gia Hồ Trung Lâm là người đoạt giải cao nhất tại cuộc thi The ASEAN SX Photo Contest 2024 với chủ đề ASEAN Biodiversity (Đa dạng sinh học ASEAN), do Hiệp hội Nhiếp ảnh Hoàng gia Thái Lan tổ chức.
+- Với không gian xanh mát và bền vững, Victoria School - Nam Sài Gòn đã giành Giải thưởng Kiến trúc Quốc tế.
+- Hải Phòng cấm vận động phụ huynh tài trợ sau bão số 3, cũng như lợi dụng danh nghĩa Ban đại diện cha mẹ học sinh để thu các khoản thu ngoài quy định.
+- Công an huyện Krông Búk, tỉnh Đắk Lắk đã triệu tập, ra quyết định tạm giữ hình sự phụ huynh lùi xe bán tải khiến một học sinh lớp 2 tử vong.
+- Chiều 16-9, đại diện Công ty Dai-ichi Life Việt Nam đã đến báo Tuổi Trẻ trao 500 triệu đồng cho chương trình Tiếp sức đến trường 2024.
+- Gần 100 học sinh khu vực thôn Làng Nủ đã có mặt tại Trường tiểu học và trung học cơ sở Phúc Khánh (Bảo Yên, Lào Cai) tập trung và học tập trở lại.
+- Đến chiều 16-9, tổng số tiền mà hệ thống Trường Ngô Thời Nhiệm quyên góp ủng hộ đồng bào miền Bắc được là 1.221.880.000 đồng.
+- Đã ghi nhận 52 học sinh, trẻ em bị tử vong, 3 học sinh bị mất tích, 3 giáo viên tử vong, 1 giáo viên mất tích, do bão số 3 và hoàn lưu bão.
+- Tại hội nghị tổng kết năm học 2023-2024, Sở Giáo dục và Đào tạo TP.HCM quyết định thí điểm đưa tiếng Anh thành ngôn ngữ dạy học thứ hai trong nhà trường.
+- Trường đại học Công nghiệp TP.HCM vừa tuyển chọn và ký hợp đồng đưa 39 sinh viên thực tập hưởng lương tại Nhật Bản trong vòng 1 năm.
+- Đoàn Việt Nam còn giành thêm 3 chứng chỉ nghề xuất sắc trong kỳ thi Kỹ năng nghề thế giới (WorldSkills) năm nay.
+- Để tránh những hệ lụy đau lòng xuất phát từ việc sử dụng mạng xã hội thiếu ý thức và yếu kỹ năng, gia đình - nhà trường - xã hội phải quyết liệt vào cuộc.
+- Từ hơn 300 thí sinh, cuộc thi học thuật cấp thành 'Hướng dẫn viên du lịch tiềm năng' đã tìm ra quán quân.
+- Không chỉ kêu gọi cán bộ, giảng viên ủng hộ ít nhất một ngày lương, trích tiền quỹ ra ủng hộ đồng bào vùng lũ, nhiều trường còn rà soát tổng số sinh viên trong trường bị ảnh hưởng bởi lũ lụt để lên phương án hỗ trợ.
+- Đây là một trong những mục tiêu trong mục tiêu hợp tác của Trường đại học Luật TP.HCM và UBND tỉnh Khánh Hòa.
+- Hiện có quá nhiều thông tin tư vấn, cách tổ chức khá giống nhau khiến cho học sinh 'ngộp'. Do vậy rất cần chương trình tư vấn tuyển sinh chất lượng.
+- Tổ chức giáo dục Ormiston Academies Trust sẽ tiên phong trong việc cấm học sinh sử dụng điện thoại thông minh (smartphone) trong trường học.
+- 'Bão lũ đang gây hậu quả vô cùng nghiêm trọng cho đồng bào các tỉnh phía Bắc. Nhìn thấy những hình ảnh đau xót, chúng tôi không thể đứng ngoài cuộc”, TS Phan Hồng Hải, hiệu trưởng Trường đại học Công nghiệp TP.HCM, chia sẻ.
+- GS.TS Đào Văn Đông được bổ nhiệm làm hiệu trưởng Trường đại học Thái Bình Dương kể từ năm học 2024-2025.
+- Giải thưởng khoa học và công nghệ dành cho giảng viên trẻ trong các cơ sở giáo dục đại học định kỳ tổ chức 3 năm một lần.
+- Bài báo "'Cấm học sinh sử dụng điện thoại trong trường' (Tuổi Trẻ ngày 13-9) thu hút sự quan tâm của dư luận.
+- Hàng loạt trường đại học sau các đợt xét tuyển bổ sung đến nay vẫn còn thiếu cả ngàn chỉ tiêu. Nhiều trường quyết định khép lại mùa tuyển sinh 2024 do cạn nguồn tuyển.
+- Đại học Kinh tế TP.HCM đã triển khai nhiều chương trình hỗ trợ sinh viên các tỉnh phía Bắc bị ảnh hưởng bão lũ đang theo học tại nhà trường.
+- Mạng xã hội lan truyền tin giả trưởng Phòng Giáo dục và Đào tạo TP Quảng Ngãi nhận 30 triệu đồng/suất để 'chạy' vào Trường THCS Nguyễn Nghiêm. Qua kiểm tra, không có học sinh nào tuyển trái tuyến.
+- Trưởng ban Văn hóa Xã Hội, Hội đồng Nhân dân TP.HCM - cho biết hàng trăm trẻ có nhân khẩu đặc biệt tại TP.HCM đã được rà soát và cấp các giấy tờ tùy thân.
+- HĐND tỉnh Khánh Hòa vừa thông qua nghị quyết hỗ trợ 100% học phí cho các cấp học phổ thông công lập.
+- Ngày 13-9, UBND tỉnh Kiên Giang tổ chức hội nghị công bố thành lập Quỹ Khuyến học tỉnh Kiên Giang nhằm giúp các bạn sinh viên nghèo ở địa phương viết tiếp giấc mơ đến trường.
+- 92 sinh viên là anh, chị em sinh đôi cùng học chung một trường đại học ở TP.HCM được trường giảm 50% học phí.
+- Cứu trợ đồng bào bị bão lũ mà xếp hàng chờ tới lượt. Đó là tư liệu phong phú để trang giáo án của tôi tới đây thêm những bài học về tình người.
+- Trường đại học Khoa học xã hội và Nhân văn (Đại học Quốc gia TP.HCM) quyết định không tổ chức lễ khai giảng năm học mới để lấy kinh phí ủng hộ đồng bào vùng lũ.
+- Nhiều sinh viên đang chật vật với chứng chỉ tiếng Anh để đủ điều kiện ra trường theo quy định của trường.
+- Trường THPT Trường Chinh (quận 12, TP.HCM) không cho học sinh sử dụng điện thoại thông minh trong khuôn viên trường.
+- Đây là một trong những lời chúc được học sinh Trường tiểu học Hà Nội viết và dán lên những lọ muối vừng do chính tay các em làm để gửi tới vùng lũ.
+- Mạng xã hội xuất hiện thông tin hướng dẫn mua bộ đề ôn thi viên chức ngành giáo dục năm 2024 tại Quảng Ngãi với giá từ 300.000-400.000 đồng, đây là hình thức lừa đảo, mọi người cần cảnh giác.
+- Cô Nự và các giáo viên mầm non thôn Làng Nủ không thể ngờ chỉ vài ngày sau khai giảng, những đồ vật được các con yêu thích đã trở thành những kỷ vật cuối cùng.
+- Trong danh sách ứng viên được hội đồng giáo sư cơ sở đề nghị xét công nhận đạt tiêu chuẩn chức danh giáo sư, phó giáo sư năm 2024, có nhiều lãnh đạo các trường đại học.
+- Gần 22 năm nay, lớp học tình thương chùa Long Cát tại huyện Thuận Bắc (Ninh Thuận) luôn ê a tiếng đánh vần vào các buổi chiều tối. Nhờ đó, nhiều em học sinh là người đồng bào Raglai đã biết đọc, biết viết.
+- Ngày 23-8, Tổ chức xếp hạng đại học QS (Quacquarelli Symonds - Anh) công bố Trường đại học Kinh tế - Tài chính TP.HCM (UEF) tiếp tục đạt chứng nhận quốc tế QS Stars 4 Sao, chu kỳ 2.
+- Nếu vi phạm lệnh cấm dùng điện thoại di động trong trường, học sinh có thể bị đình chỉ từ 1 đến 3 ngày.
+- "Em mong là sẽ không ai bị mất người thân trong cơn lũ. Em xem hình ảnh nhà cửa bị cuốn đi, thấy thương".
+- Sáng nay 12-9, hàng loạt trường đại học tại TP.HCM phát động viên chức, người lao động đóng góp tối thiểu một ngày lương hỗ trợ đồng bào miền Bắc bị bão lũ.
+- Nhà giáo Huỳnh Duy Thủy được Chủ tịch nước Tô Lâm ký quyết định ngày 27-6-2024 về việc phong tặng danh hiệu Nhà giáo nhân dân.
+- Trước diễn biến phức tạp của mưa lũ, nhiều trường học tại Hà Nội và các địa phương đã chuyển sang dạy trực tuyến, trò học online.
+- Sau bốn mùa thành công, Speak Up 2024 tiếp tục trở thành “ngôi nhà chung” hội tụ hàng ngàn tài năng nhí với nhiều bất ngờ mới.
+- Nhiều giáo viên sau khi hết giờ dạy đã xung phong ở lại trường để cùng đồng nghiệp nấu cơm dành tặng bà con đến trường sơ tán tránh mưa lũ.
+- Sau khi sáp nhập, đại học mới trở thành một trong những trường lớn nhất tại Úc và nằm trong nhóm 8 đại học Úc hàng đầu về nghiên cứu (G8).
+- Dưới hang Câu - địa điểm du lịch nổi tiếng ở đảo Lý Sơn, những học trò cùng nhau sáng tác tranh theo các chủ đề được Cảnh sát biển gợi ý. Bức tranh vẽ cầu Long Biên trong lũ cuồn cuộn rất thời sự được trao giải nhất.
+- Chiều tối 9-9, tại Trường quốc tế Tesla (phường 13, quận Tân Bình, TP.HCM) đã xảy ra vụ việc một bảo vệ của trường này đánh bảo mẫu chảy máu mũi, miệng, gãy mũi.
+- 15 năm qua, tiến sĩ - dược sĩ Phạm Đức Hùng đã hỗ trợ hàng trăm sinh viên, học viên người Việt nhận được các học bổng khủng của đại học nước ngoài.
+- TS Phan Hồng Hải - hiệu trưởng Trường đại học Công nghiệp TP.HCM quyết định dành tặng chiếc xe máy là phần thưởng ông vừa đoạt giải hội thi triển lãm sinh vật cảnh, cho sinh viên có hoàn cảnh khó khăn của trường.
+- Sau khi cháu bé 13 tháng tuổi bị gãy chân, chủ cơ sở mầm non đã không thông tin, báo cáo các cấp quản lý.
+- Ngày 10-9, học sinh ở nhiều địa phương phía Bắc vẫn phải nghỉ học vì trường học chưa đảm bảo an toàn, nhiều nơi đường đến trường bị chia cắt vì lũ.
+- Trước thực trạng lũ lụt chưa từng có ở miền Bắc gây ra nhiều thiệt hại về người và tài sản, để đảm bảo an toàn cho cán bộ, giảng viên, sinh viên, có thêm nhiều trường đại học tiếp tục cho sinh viên nghỉ học hoặc chuyển sang học trực tuyến.
+- Ngày 10-9, Bộ trưởng Bộ Giáo dục và Đào tạo tiếp tục có công điện gửi giám đốc các sở giáo dục và đào tạo về việc hỗ trợ giáo viên, học sinh và khắc phục thiệt hại do bão lũ.
+- Thủ tướng Úc hé lộ lộ trình thông qua quy định về độ tuổi tối thiểu được tham gia mạng xã hội, khả năng cao trong khoảng 14 - 16 tuổi.
+- Trong nỗi bức xúc, một phụ huynh nói nếu giải quyết không ổn thỏa, sẽ trả lại giấy khen học sinh xuất sắc của con cho trường.
+- Dù thông báo đấu giá nhiều lần nhưng hai khu đất làm trường học không được doanh nghiệp quan tâm, nên phải điều chỉnh quy hoạch.
+- Sở Giáo dục và Đào tạo TP.HCM vừa có văn bản về tăng cường công tác quản lý các khoản thu trong lĩnh vực giáo dục, đào tạo; vận động tài trợ cho giáo dục và kinh phí hoạt động cha mẹ học sinh năm học 2024-2025.
+- Phó giáo sư Shannon Gramse (Đại học Alaska, Anchorage, Mỹ) vừa kết thúc gần ba tháng hè tại Việt Nam. Ông rong ruổi từ thành thị đến nông thôn chia sẻ nhiều kiến thức thú vị cho học sinh Việt Nam.
+- Sau khi bão Yagi (bão số 3) gây thiệt hại ở nhiều địa phương, mưa lũ lại tiếp tục ở một số tỉnh miền núi phía Bắc. Nhiều trường học vẫn chưa thể cho học sinh quay lại trường.
+- Ngay sau khi nghe tin cầu Phong Châu sập, hai nhà xe đã hợp sức huy động 3 xe chở hàng trăm học sinh đi đường vòng 50km đến trường...
+- Trường tiểu học Ninh Phụng (thị xã Ninh Hòa, tỉnh Khánh Hòa) chưa lấy ý kiến của người dân nhưng đã dồn học sinh của điểm trường này sang điểm trường khác, khiến phụ huynh bức xúc.
+- Các nhà nghiên cứu đã tiến gần hơn đến việc hiểu lý do tại sao trẻ em khó tập trung vào các nhiệm vụ đang làm.
+- Bí thư Hà Nội Bùi Thị Minh Hoài giao Ban Cán sự đảng UBND TP chỉ đạo bảo đảm lưu thông an toàn qua các cầu, các cầu yếu không bảo đảm an toàn phải dừng lưu thông.
+- Chỉ trong 10 ngày (từ 28-8 đến 6-9), số vụ liên quan đến deepfake ở Hàn Quốc đã lên tới 238 vụ. Tổng cộng 588 học sinh và 27 giáo viên bị ảnh hưởng.
+- Bộ Giáo dục và Đào tạo đang kêu gọi chung tay hỗ trợ sách giáo khoa, đồ dùng học tập cho học sinh chịu thiệt hại do bão số 3.
+- Do khác biệt văn hóa Đông - Tây nên một số giáo viên bản ngữ dạy tiếng Anh ở Việt Nam gặp không ít rắc rối.
+- Phó bí thư Thành ủy, Chủ tịch Ủy ban MTTQ Việt Nam TP.HCM Nguyễn Phước Lộc đến thăm Trường tiểu học Lý Nhơn sau sự cố tốc mái.
+- Khảo sát cho thấy 86% giáo viên ở độ tuổi 20-30 muốn bỏ nghề vì không hài lòng với mức lương, cũng như áp lực từ cha mẹ học sinh.
+- Không còn bó hẹp trong không gian một lớp học mà rộng mở hơn, trẻ em vùng cao nhờ đó lần đầu được biết đến nhiều điều mới mẻ ở Hà Nội, ở mũi Cà Mau hay ở một đất nước khác qua các lớp học "kết nối".
+- Cấm học sinh sử dụng điện thoại trong lớp là rất cần thiết, nhưng thực tế nhiều học sinh luôn tìm cách "lách luật".
+- Các trường đại học đều xét và cấp học bổng sau mỗi học kỳ, năm học. Chinh phục những học bổng này có khó?
+- Đại học Bách khoa Hà Nội, Trường đại học Nông - Lâm Bắc Giang cùng nhiều trường đại học vừa thông báo điều chỉnh kế hoạch học tập, cho sinh viên tiếp tục nghỉ học hoặc học trực tuyến sau bão số 3.
+- Bắc Ninh, Hải Phòng, Cao Bằng và nhiều tỉnh/thành phố vừa tiếp tục thông báo cho học sinh nghỉ học thứ hai, ngày 9-9 để khắc phục hậu quả sau bão số 3.
+- Trường Phổ thông dân tộc bán trú THCS Trung Lý (Thanh Hóa) không cho học sinh về nhà cuối tuần, nấu cơm cho 460 học sinh ăn ngày mưa bão.
+- "Lần đầu đi biệt phái ngay trước khai giảng năm học mới, tôi đã khóc suốt trên đường vì nhớ nhà, nhớ con, bỡ ngỡ với nơi mình sắp gắn bó một năm. Nhưng không ngờ đó lại là khởi đầu cho một kỷ niệm đáng nhớ trong đời dạy học".
+- Bộ trưởng Bộ Giáo dục và Đào tạo yêu cầu các sở giáo dục và đào tạo căn cứ tình hình thực tế ở địa phương cho học sinh các cấp nghỉ học để tránh bão số 3.
+- Với những thành viên của Royal School, sự gắn kết tạo nên sức mạnh, giúp “hạt mầm” hạnh phúc vươn mình.
+- Hội đồng Giáo sư nhà nước vừa công bố danh sách 673 ứng viên được hội đồng giáo sư cơ sở đề nghị xét công nhận giáo sư, phó giáo sư năm 2024.
+- Chủ tịch UBND xã Hành Đức, huyện Nghĩa Hành, Quảng Ngãi đứng ra bảo lãnh để 'cháu bé 6 tuổi vẫn chưa có giấy khai sinh' được trường tiếp nhận vào học lớp 1 như bạn bè.
+- Chưa năm học nào ghi nhận làn sóng cấm học sinh dùng điện thoại trong giờ học lại bùng nổ mạnh mẽ như năm học 2024-2025.
+- Cục Đào tạo, Bộ Công an vừa công bố điểm chuẩn trúng tuyển vào hệ trung cấp Công an nhân dân năm 2024.
+- Mang bệnh tim trong người, đôi lúc nói chuyện bị hụt hơi nhưng với niềm yêu nghề giáo, chàng trai trẻ Tấn Phát vẫn sắp xếp đến lớp dạy cho các em.
+- Trường tiểu học Trần Hưng Đạo (quận 1, TP.HCM) đã tổ chức buổi lễ khai giảng gọn nhẹ, ấm tình thầy trò nhưng đầy niềm vui cho trẻ thơ ngày đầu đến trường.
+- Dẹp hàng rong trước cổng trường vừa tránh ngộ độc thực phẩm, vừa hạn chế học sinh ganh đua xài tiền, ăn vặt không cần thiết.
+- Sở Giáo dục và Đào tạo các tỉnh Bắc Ninh, Lạng Sơn, Thái Nguyên cho học sinh nghỉ học ngày 7-9 để tránh bão Yagi (bão số 3).
+- Một buổi lễ khai giảng đặc biệt đã được Vinamilk tổ chức cho các học sinh tại huyện Ba Tri, tỉnh Bến Tre như một món quà ý nghĩa đón các em đến trường đầu năm học mới.
+- Chào mừng năm học mới, Agribank triển khai chương trình ‘Thêm con chữ, bớt đói nghèo’, nhằm trao tặng tủ sách, thiết bị học tập, mang niềm vui tới thầy cô giáo và các em học sinh.
+- Nhiều học sinh ở thôn Bình Lập (xã Cam Lập, TP Cam Ranh, tỉnh Khánh Hòa) không thể đi học vào ngày khai giảng và ngày hôm nay, vì phụ huynh không đồng ý chuyển trường.
+- Ở lớp học tình thương tại quận Tân Phú, TP.HCM có một lễ khai giảng đặc biệt không kém gì hoàn cảnh của học sinh ở đây.
+- Thông tin cá nhân của khoảng 80.000 sinh viên đã tốt nghiệp của Đại học Nữ sinh Ewha bị rò rỉ sau khi trang web trường bị tấn công mạng.
+- Phụ huynh tố cáo bữa ăn của con em tại lớp mầm non ở Hà Nội bị cắt xén, suất cháo chim bồ câu mà như cháo trắng, suất bún thì nước trong như nước lọc... Trong lúc nhà trường chưa trả lời báo chí, UBND phường đã vào cuộc kiểm tra.
+- Chào mừng năm học mới 2024-2025, UBND tỉnh Long An cùng VPBank đã tổ chức lễ khánh thành và khai giảng năm học mới tại Trường THPT Võ Văn Tần (Long An). Công trình do VPBank tài trợ 100 tỉ đồng.
+- Sở Giáo dục và Đào tạo chỉ đạo các nhà trường cho học sinh nghỉ học ngày 7-9, bao gồm cả giờ học chính khóa và hoạt động ngoài giờ để tránh bão.
+- Thay vì bó hẹp vào một chuyên môn, sinh viên có thể mở rộng thêm nhiều kiến thức, kỹ năng ở các lĩnh vực có liên quan.
+- Những nụ cười rạng rỡ, những chia sẻ đầy tự hào, đầy yêu thương, cảm xúc phấn khởi đã đánh dấu thời khắc đặc biệt tại Royal School.
+- Sau sáp nhập, Trường cao đẳng Cơ điện Hà Nội có 7 cơ sở đào tạo, quy mô đào tạo lên tới 10.000 học sinh, sinh viên.
+- 4 học sinh dự Olympic Tin học quốc tế (IOI) năm 2024 đều có giải với 2 huy chương vàng, 1 huy chương bạc, 1 huy chương đồng.
+- Sử dụng điện thoại để tìm kiếm thông tin phục vụ học tập là tốt, nhưng đừng để điện thoại biến học sinh thành "tù binh" của mạng xã hội và game.
+- Trong lễ khai giảng 5-9, nhiều trường học đã gửi đến học trò và cả giáo viên của mình những thông điệp ý nghĩa, cảm xúc cho năm học mới.
+- Ở cao nguyên đá Đồng Văn (Hà Giang), từ tờ mờ sáng trong sương sớm, người mẹ đưa con đến trường.
+- Hiệu trưởng Trường đại học Công nghệ thông tin (Đại học Quốc gia TP.HCM) nhắn nhủ tân sinh viên ‘đừng chìm đắm trong mạng xã hội, TikTok’.
+- Sở Giáo dục và Đào tạo tỉnh Bắc Giang cho học sinh nghỉ học ngày 7-9 để tránh siêu bão Yagi (bão số 3). TP Hải Phòng và tỉnh Quảng Ninh cũng có chỉ đạo cho học sinh nghỉ học để tránh bão.
+- Diễn viên Chi Bảo - người sáng lập quỹ Hiểu về trái tim - cho biết toàn bộ chi phí từ học phí, đồng phục, dụng cụ học tập, bảo hiểm y tế… đều được nhà trường tài trợ 100%.
+- Sở Giáo dục và Đào tạo TP.HCM vừa ban hành quy định mới về thi học sinh giỏi cấp thành phố lớp 9, lớp 12.
+- Em N.N.N. sau một năm thất học đã bắt đầu năm học mới 2024-2025 tại Trường THCS Nguyễn Thị Thập (quận 7, TP.HCM).
+- Bộ Giáo dục và Đào tạo vừa cho phép thành lập phân hiệu Trường đại học Sư phạm TP.HCM tại Gia Lai, trên cơ sở tiếp nhận Trường cao đẳng Sư phạm Gia Lai.
+- Chúng ta nghĩ rằng chỉ cần cho con ngôi trường tốt thì con sẽ vững bước vào năm học mới. Nhưng còn một điều mà bố mẹ quên mất...
+- Mạng xã hội xuất hiện thông tin phụ huynh phải đưa cho trưởng Phòng Giáo dục và Đào tạo TP Quảng Ngãi 30 triệu mới vào được Trường THCS Nguyễn Nghiêm. Bước đầu cơ quan chức năng xác định tin gốc do một tài khoản ở nước ngoài đăng tải.
+- Không có tên trong danh sách học sinh, cháu vẫn được mẹ đưa đến trường dự lễ khai giảng. Nhưng ngày mai, khi tất cả học sinh đi học thì đứa trẻ ấy vẫn chưa thể bước vào lớp 1 vì không có giấy khai sinh.
+- Tại lễ khai giảng sáng 5-9, Trường đại học Công nghệ thông tin (Đại học Quốc gia TP.HCM) vinh danh các học sinh giỏi quốc gia vừa trúng tuyển vào trường.
+- Lễ khai giảng của cô trò ở điểm trường Tả Lủng, xã Sảng Tủng, huyện Đồng Văn, Hà Giang không hoa, không bài phát biểu, nhưng ấm áp tình thầy trò.
+- Nhiều trẻ mồ côi đã được Công an tỉnh Đắk Nông hỗ trợ xây nhà, cấp học bổng nhân dịp lễ khai giảng để các cháu tự tin bước vào năm học mới.
+- Ngay tại thủ đô, ngày ngày, nhiều giáo viên phải vượt sông ra đảo dạy học. Ngược lại, do đảo chưa có trường THPT nên nhiều học sinh cũng phải vượt sông vào đất liền tìm con chữ.
+- 'Đừng bao giờ để đến ngày mai những việc bạn có thể làm hôm nay' là lời nhắn nhủ đến học sinh Trường phổ thông liên cấp Marie Curie Hà Nội, nhân ngày khai giảng năm học mới.
+- Thủ tướng yêu cầu các cơ sở giáo dục năm học qua việc gì làm chưa tốt thì năm nay phải khắc phục, làm tốt hơn, việc gì đã làm tốt rồi phải quyết tâm cao hơn, hành động thiết thực hơn để năm sau đạt kết quả tốt hơn năm học trước.
+- Ngày khai giảng năm học mới lẽ ra là ngày vui tưng bừng, nhưng thầy và trò một ngôi trường ở Bình Phước đón năm học mới trong lặng lẽ.
+- Ngày khai giảng năm học mới 2024-2025 thật ấm áp, có nhiều quà, học bổng tại ngôi trường biên giới có trên 96% học sinh là con em đồng bào dân tộc Khmer.
+- Năm học 2024-2025, giáo dục cả nước có hơn 25 triệu học sinh, sinh viên. Số trường mầm non ngoài công lập nhiều hơn công lập.
+- Trước thềm khai giảng năm học mới, cô học trò lớp 9 mồ côi cả cha lẫn mẹ nhận được món quà đầy bất ngờ từ chàng YouTuber 'một chân' ở xứ Quảng: Chiếc xe đạp điện để đến trường.
+- Chủ tịch Quốc hội nhấn mạnh thầy cô phải thực sự là người truyền lửa, khơi dậy cảm hứng, động lực để các em say mê học tập khi dự lễ khai giảng tại Vĩnh Long.
+- Thủ tướng Chính phủ vừa ban hành chỉ thị số 31/CT-TTg ngày 4-9-2024 về việc tăng cường các điều kiện bảo đảm thực hiện hiệu quả nhiệm vụ năm học 2024 - 2025.
+- Sáng nay 5-9, các nhà trường cấp mầm non, phổ thông trên cả nước tổ chức khai giảng năm học mới theo tinh thần gọn nhẹ nhưng trang trọng và tươi vui.
+- Ngày 5-9, nhân dịp khai giảng năm học mới 2024-2025, Tổng Bí thư, Chủ tịch nước Tô Lâm đã có thư gửi ngành giáo dục ghi nhận những nỗ lực của thầy, trò cả nước.
+- Quy định cấm điện thoại di động không chỉ áp dụng trong giờ học mà còn mở rộng đến các hoạt động ngoại khóa và các chuyến đi dã ngoại.
+- Trưởng Ban Tuyên giáo Trung ương Nguyễn Trọng Nghĩa trao 50 suất học bổng cho học sinh có hoàn cảnh khó khăn tại Trường tiểu học Nguyễn Thị Tốt, Tiền Giang.
+- Trước ngày khai giảng, Thủ tướng ra chỉ thị tăng cường các điều kiện bảo đảm thực hiện hiệu quả nhiệm vụ năm học 2024-2025, nhấn mạnh việc nâng cao chất lượng giáo dục, chất lượng giáo viên.
+- Trong không khí vui tươi trước năm học mới, các em nhỏ ở Làng trẻ em SOS Nha Trang tất bật chuẩn bị hành trang đầy đủ trước ngày khai giảng.
+- Tỉnh Đắk Nông vừa bố trí 11 tỉ đồng để khắc phục sạt lở, hư hỏng tại hai trường học do thiên tai gây ra vào cuối năm 2023.
+- Ngày 4-9, Sở Giáo dục và Đào tạo TP.HCM ra văn bản về việc xây dựng các phương án đảm bảo an toàn trong lễ khai giảng năm học 2024-2025.
+- Trước ngày khai giảng năm học mới, thầy và trò nơi tâm chấn động đất Kon Plông (tỉnh Kon Tum) hối hả với công việc chuẩn bị cho buổi khai giảng đông vui, tươm tất.
+- Sáng nay, 4-9, Bệnh viện Ung bướu TP.HCM tổ chức lễ khai giảng năm học mới 2024-2025 cho các bệnh nhi ung thư đang điều trị tại đây.
+- Bộ trưởng Bộ Giáo dục và Đào tạo yêu cầu các tỉnh, thành phía Bắc từ Nghệ An trở ra tuyệt đối không tổ chức khai giảng tại những nơi mưa lớn, có nguy cơ sạt lở, ngập úng.
+- Trong lễ khai giảng năm học mới, Trường THCS Vạn Phúc, huyện Thanh Trì, Hà Nội đã được gắn biển công trình chào mừng kỷ niệm 70 năm giải phóng thủ đô và đón bằng công nhận trường đạt chuẩn quốc gia mức độ 2.
+- 8 thí sinh đang theo học tại trường đại học ở miền Tây đại diện cho đoàn Việt Nam tham dự cuộc thi kỹ năng nghề thế giới lần thứ 47 tại Lyon, Pháp.
+- Năm 2025 sẽ là năm đầu tiên Trường đại học Sư phạm Hà Nội 2 tổ chức kỳ thi tuyển sinh riêng và sử dụng kết quả kỳ thi này để xét tuyển đại học.
+- Theo kế hoạch, lãnh đạo tỉnh Quảng Ngãi sẽ đến dự khai giảng năm học mới 2024-2025 tại các trường nhưng không phát biểu, đánh trống. Những việc này sẽ do giáo viên, học sinh các trường thực hiện.
+- Theo giám đốc Sở Lao động - Thương binh và Xã hội TP.HCM, ưu tiên trước hết là lo cho các cháu đang được nuôi dưỡng tại mái ấm Hoa Hồng.
+- 'Bố ơi, năm nay con ngoan rồi, bố yên tâm nhé!', cậu học trò vùng cao nói với thầy giáo trong ngày tựu trường. Ở đó, mùa cạn bọn trẻ lội qua suối, mùa mưa nước dâng cao thì đi bè mảng đến trường...
+- Chiều 3-9, Trường phổ thông cao đẳng FPT Polytechnic xác nhận giảng viên L.V.M.D. sẽ tiếp tục tham gia giảng dạy tại trường.
+- Lãnh đạo Tổng cục Giáo dục nghề nghiệp cho biết Vụ Nhà giáo thuộc Tổng cục đang kiểm tra vụ giảng viên Trường Phổ thông cao đẳng FPT bị cho thôi việc.
+- Trong ngày tựu trường 2-9, hơn 18 triệu trẻ em Nga và hàng triệu trẻ em Ukraine chính thức bước vào năm học mới, trong đó có nhiều trẻ em Ukraine đang tị nạn ở nước ngoài.
+- Là gen Z với những thế mạnh, năng lực riêng nhưng Trần Hương Lan, Lâm Nguyễn Thanh Thảo và Ngô An Hà Trang có chung niềm đam mê với môn STEM.
+- Theo Chính phủ Hà Lan, điện thoại di động và các thiết bị thông minh khác làm học sinh 'xao nhãng', làm giảm hiệu suất học tập và tương tác xã hội.
+- Không sử dụng bóng bay trong lễ khai giảng nhằm đảm bảo an toàn và góp phần bảo vệ môi trường. Đó là một trong những nội dung của công văn về chuẩn bị năm học mới do UBND quận 10, TP.HCM phát hành.
+- Bộ Giáo dục và Đào tạo vừa ban hành quy chế thi tốt nghiệp THPT năm 2025 với nhiều thay đổi. Đây là năm đầu tiên tổ chức thi theo chương trình giáo dục phổ thông 2018.
+- Đoạn clip ghi lại cảnh giảng viên một trường đại học ở TP.HCM đọc điểm của sinh viên bằng biệt danh đang gây sốt trên mạng xã hội, thu hút hàng triệu người xem một cách thích thú.
+- Lớp học 'không giáo viên' đầu tiên sẽ khai giảng ở Anh tháng này. Tuy nhiên, ý tưởng giao phó việc giáo dục trẻ em cho AI lại gây tranh cãi.
+- Thăm học sinh Trường Hy Vọng tại Đà Nẵng, Thủ tướng Phạm Minh Chính mong các em được định hướng học những ngành như AI, chip bán dẫn.
+- Nhóm sinh viên tại TP.HCM đã chế tạo ra bọt rửa mặt chiết xuất từ lá đu đủ, được doanh nghiệp đầu tư 300 triệu đồng phát triển dự án.
+- Nhiều ngành có điểm chuẩn đợt 1 trên 27 điểm vẫn xét tuyển bổ sung. Trong khi đó có ngành điểm chuẩn đợt 2 tăng 8-10 điểm.
+- Từ nay đến năm 2030, Việt Nam sẽ đầu tư khoảng 26.000 tỉ đồng để đào tạo 50.000 kỹ sư bán dẫn. Và các trường đại học năm nay đồng loạt mở ngành thiết kế vi mạch, bán dẫn.
+- Những năm qua tại Đà Nẵng đã có hàng loạt ngôi trường mới có thiết kế đẹp ra đời. Những ngôi trường mang tính thẩm mỹ có tác dụng kích thích năng khiếu sáng tạo và cảm hứng học tập cho học sinh.
+- Ông Cao Thanh Bình, trưởng Ban Văn hóa xã hội (Hội đồng nhân dân TP.HCM), cho biết cơ quan này đã kết nối với cơ quan đồng cấp tại Hà Nội để phối hợp yêu cầu các cơ quan chức năng giải quyết cho bé N. đi học trở lại sau thời gian dài bé nghỉ học.
+- Các doanh nghiệp lĩnh vực vi mạch, bán dẫn trong khu vực đang có nhu cầu nhân lực rất lớn, nếu TP Đà Nẵng không có những chính sách thu hút nhân lực thì sẽ dễ chảy máu chất xám.
+- Nhiều cha mẹ hiện nay tư vấn chọn nghề cho con theo tiêu chí nghề nào giàu hơn, nghề nào tốt hơn. Theo GS Phan Văn Trường, đó là một sai lầm của cha mẹ khiến tương lai con cái nhiều bất ổn.
+- N.N.N. (ngụ quận 7, TP.HCM) năm nay gần 12 tuổi, đáng lẽ sẽ bước vào lớp 7 như hầu hết các bạn cùng trang lứa khác. Nhưng trước thềm năm học mới 2024-2025, N. tiếp tục có nguy cơ bị thất học vì… cha mẹ tranh chấp quyền nuôi con, 'giam' học bạ.
+- Một giảng viên Phổ thông Cao đẳng FPT Polytechnic, TP.HCM vừa bị buộc thôi việc vì 'có những lời nói không phù hợp với sinh viên'.
+- 'Công ty chúng tôi đang thu hút nhân lực ngành bán dẫn ở nước ngoài, trong đó có Việt Nam đến làm việc', bà Lý Huệ Linh - phó tổng giám đốc phụ trách nhân sự Công ty Tekcore (Nam Đầu, Đài Loan), khẳng định.
+- Nước lũ vừa rút khỏi sân trường, các thầy cô nhanh chóng vào các vùng bị cô lập bằng bè mảng tự chế để dọn trường lớp, bếp ăn bán trú khi khai giảng sắp cận kề.
+- Tuyến đường ven biển Độc Lập, TP Tuy Hòa vừa được tỉnh Phú Yên quy hoạch với nhiều công trình điểm nhấn, không gian công cộng.
+- 'Nghe tin nước lũ dâng cao tới sân trường, cả đêm tôi không ngủ được. Hôm sau tới trường đã thấy nước lên cao gần nửa phòng học, tôi quyết định bơi vào trường kiểm tra từng phòng học xem có thể vớt vát gì không', thầy Việt kể lại.
+- Từ tháng 5 đến nay, trường THCS Tạ Khoa (huyện Bắc Yên, tỉnh Sơn La) chịu bốn trận lũ lớn. Đây là năm thứ bảy trường này bị lũ tràn vào.
+- Bên cạnh tạm đình chỉ công tác hiệu trưởng Nguyễn Thanh Phong, huyện Vĩnh Thuận cũng chỉ đạo khẩn trương thanh tra trách nhiệm đối với ông.
+- Tự tư duy đề tài, sinh viên ra chợ, ra đường, đến các khu dân cư, trại trẻ mồ côi, các con kênh ô nhiễm để chụp ảnh đăng báo, trình bày sản phẩm truyền thông.
+- Cử tri Quảng Trị cho rằng giáo viên mầm non là nghề nặng nhọc, đi sớm về trễ, đòi hỏi phản xạ nhanh, sức khỏe tốt… nên đề nghị giảm tuổi hưu xuống 5 năm.
+- Mong muốn bảo toàn hương vị cà phê, nhóm sinh viên Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) đã tìm ra phương pháp thủy nướng, giữ nguyên bản vị gốc và hàm lượng dinh dưỡng cao.
+- Đài truyền hình Việt Nam cùng Herbalife Việt Nam tiếp tục đồng hành cùng tổ chức mùa thứ hai chương trình truyền hình thực tế "Sinh viên thế hệ mới 2024"
+- Vinamilk trao giải thưởng đặc biệt cho các tài năng robot trong Robotacon WRO 2024.
+- Hai đơn vị ký kết hợp tác trên nhiều lĩnh vực, trong đó có các hoạt động phục vụ cộng đồng.
+- Phụ huynh ở nhiều nước châu Âu đang đối diện nhiều áp lực khi chi phí mua đồng phục và đồ dùng học tập cho con tăng cao trước thềm bắt đầu năm học mới 2024 - 2025.
+- Các trường mầm non, tiểu học trên địa bàn TP.HCM đã phát hiện 21 học sinh bị bệnh sởi trong tháng 8-2024.
+- Ngày 29-8, tại Trường đại học Đại Diệp (Chương Hóa, Đài Loan), một số trường cao đẳng, trung cấp từ TP.HCM đã có những ký kết hợp tác đào tạo nhân lực ngành bán dẫn với đại học này.
+- 270.000 là con số được chú ý nhất những ngày qua tại Úc. Đây là 'mức trần' tổng số du học sinh Chính phủ Úc cho phép các đại học, trường nghề tiếp nhận trong năm 2025.
+- Một số trường ở Đắk Nông bị sạt lở, sụt lún không an toàn để dạy học, cạnh đó là thiếu đến 2.100 giáo viên các cấp.
+- Kỳ thi Olympic thiên văn và vật lý thiên văn quốc tế 2024, Việt Nam có 5 học sinh dự thi và đều đoạt giải.
+- Đến nay có thêm hàng loạt trường đại học phía Nam công bố xét tuyển bổ sung đại học chính quy, với hàng ngàn chỉ tiêu nhiều ngành.
+- Sở Giáo dục và Đào tạo TP.HCM vừa có văn bản hướng dẫn về việc thực hiện chương trình nhà trường ngoài giờ chính khóa năm học 2024 - 2025.
+- Sở Giáo dục và Đào tạo Hà Nội công bố đề minh họa các môn thi vào lớp 10 năm học 2025-2026. Đây là kỳ thi tuyển sinh lớp 10 đầu tiên theo chương trình mới.
+- Ngày 29-8, ông Huỳnh Ngọc Nguyên - phó chủ tịch UBND huyện Vĩnh Thuận, tỉnh Kiên Giang - ký văn bản gửi Phòng Giáo dục và Đào tạo huyện về việc “khai giảng năm học mới và tổ chức giảng dạy, học tập của Trường THCS Thị Trấn”.
+- Dạy thêm, học thêm một khi trở thành nhu cầu thực tế thì mọi việc cấm đoán hay nới lỏng đều có thể mang lại những hệ quả tiêu cực.
+- TS Nguyễn Bá Cường - giám đốc Nhà xuất bản Đại học Sư phạm - đề xuất chính sách miễn học phí cho sinh viên ngành xuất bản, phát hành, thậm chí có phụ cấp như sinh viên sư phạm.
+- Đến tối 27-8, vẫn còn hơn 360 học sinh Trường Quốc tế Mỹ chưa chuyển trường trong số khoảng hơn 1.000 học sinh của trường này.
+- Lần đầu tiên, 400 sinh viên Trường đại học Văn Lang sẽ học thẩm định tin tức, nhiếp ảnh tại Tòa soạn báo Tuổi Trẻ.
+- Nhiều học sinh khối 10 Trường THPT chuyên Trần Đại Nghĩa đã "bất ngờ" với màn chào đón ấm áp, đầy trải nghiệm mà các học sinh khóa trên dành cho mình trong ngày đầu tựu trường.
+- Chương trình cử nhân ngành khoa học máy tính của Trường Đại học Quốc tế Sài Gòn (SIU) được Ủy ban kiểm định các chương trình máy tính (CAC) của ABET công nhận đạt kiểm định quốc tế.
+- Theo thống kê mới nhất, 20.000 trường mầm non ở nước này đã phải đóng cửa vì không có học sinh, khiến giới chức Trung Quốc đang “sốt vó” tìm kiếm giải pháp cấp bách khi lực lượng lao động giảm do tỉ lệ sinh giảm.
+- Nhiều ý kiến cho rằng học thêm là nhu cầu có thật của học sinh, nhưng không ít ý kiến nói khó kiểm soát tiêu cực khi ‘mở cửa’ dạy thêm.
+- Hiện toàn tỉnh Đồng Tháp còn thiếu hơn 1.300 giáo viên, thiếu nhiều nhất là giáo viên mầm non và tiểu học. Năm học này dự kiến miễn học phí cho học sinh mầm non, giảm 50% học phí cấp trung học cơ sở.
+- Để tạo điều kiện cho thí sinh chưa thực hiện việc xác nhận nhập học đại học năm 2024, Bộ Giáo dục và Đào tạo gia hạn xác nhận nhập học trực tuyến thêm 4 ngày.
+- Phòng Giáo dục và Đào tạo TP Buôn Ma Thuột (Đắk Lắk) cho biết đã xét công nhận tốt nghiệp cho một học sinh lớp 9 không có hồ sơ, học bạ.
+- Dự kiến từ năm 2025, kỳ thi tốt nghiệp THPT sẽ bổ sung thêm môn tin học, công nghệ (công nghiệp, nông nghiệp).
+- Chi cục Thuế khu vực quận 7, huyện Nhà Bè đề nghị UBND TP.HCM thu hồi giấy phép thành lập Trường Quốc tế Mỹ.
+- Giữa 'ma trận' thông tin trên mạng, Chương trình tư vấn tuyển sinh - hướng nghiệp của báo Tuổi Trẻ như 'bộ lọc' uy tín, giúp học sinh chọn ngành, trường phù hợp.
+- Ngoài kỹ năng học tập, trau dồi ngoại ngữ, tham gia các hoạt động ngoại khóa, tân sinh viên còn cần thêm những gì khi bước vào giảng đường đại học?
+- Theo Vụ Giáo dục đại học - Bộ Giáo dục và Đào tạo, tỉ lệ thí sinh nhập học chiếm 81,87% số thí sinh trúng tuyển đại học đợt 1 năm 2024.
+- Chiều mai, 28-8, Sở Giáo dục và Đào tạo TP.HCM sẽ hướng dẫn chi tiết các thủ tục cho học sinh Trường quốc tế Mỹ chuyển trường theo nguyện vọng tại hai địa chỉ ở huyện Nhà Bè.
+- Các trường công lập tại TP.HCM không biết làm sao khi Luật Đấu thầu yêu cầu phải... đấu thầu cả nguồn cung cấp thực phẩm cho bếp ăn trường tự nấu.
+- Lãnh đạo Đại học RMIT Việt Nam khẳng định vẫn được cấp phép hoạt động ở tất cả các cơ sở tại Việt Nam. Nhưng nhà trường đang tạm dừng tuyển sinh khóa mới tại cơ sở Hà Nội.
+- PGS.TS Phạm Quang Huy sẽ thôi chức phó trưởng ban đào tạo Đại học Kinh tế TP.HCM từ ngày 1-9 để chuyển sang công tác giảng dạy và nghiên cứu khoa học.
+- Huyện vùng cao, biên giới Quan Sơn (Thanh Hóa) vừa ra mắt Quỹ khuyến học - khuyến tài Hoa Ban, với tổng số tiền huy động được cho quỹ là hơn 1,7 tỉ đồng.
+- Tại buổi đối thoại với đại học Việt Nam, các tập đoàn công nghệ đưa ra nhiều giải pháp nâng cao chất lượng đào tạo, hỗ trợ sinh viên...
+- Toàn bộ 523 đơn đăng ký vào Trường tiểu học Tây Mỗ 3 của phụ huynh gửi Phòng Giáo dục và Đào tạo quận Nam Từ Liêm hôm 21-8 đều không được giải quyết.
+- Tất cả 180 trường tiểu học ở Singapore đều có lớp học năng khiếu dành cho các học sinh xuất sắc và giáo viên riêng để giảng dạy các lớp này.
+- Có những ông bố, bà mẹ nghĩ con mình là vàng, con thiên hạ là "rơm rác" nên luôn bênh con mình và cư xử thô bạo với con người khác.
+- Việt Nam đề nghị Úc tạo điều kiện, không để các chính sách mới ảnh hưởng tiến độ cấp visa cho du học sinh Việt Nam.
+- Trước dự báo có nhiều thay đổi về tuyển sinh năm học tới, ngày 27-8, Tuổi Trẻ tổ chức tọa đàm đổi mới chương trình tư vấn tuyển sinh - hướng nghiệp.
+- Ngay từ xa xưa, người ta đã quan niệm giáo dục có nghĩa là khơi ra, chứ không phải là nhồi vào như ta hằng tưởng.
+- Hiệu trưởng một trường THCS ở TP.HCM tư vấn như vậy trong cuộc gặp gỡ phụ huynh của trường nhân năm học mới 2024-2025.
+- Nhằm tạo thêm cơ hội cho các thí sinh, Trường Đại học Quốc tế Sài Gòn (SIU) xét tuyển bổ sung 300 chỉ tiêu.
+- Dạy thêm, học thêm là nhu cầu chính đáng của người học và người dạy, cần quy định rõ ràng hơn để tránh dạy thêm biến tướng.
+- Giữa trưa, vượt gần 20km từ trung tâm xã Ea R'bin, cô giáo Phạm Thị Hồng vào buôn Plao Siêng thì gặp hai em nhỏ.
+- Học viện Hàng không Việt Nam yêu cầu thí sinh đã trúng tuyển trường khác hủy xác nhận nhập học trường đó để nhập học bằng xét tuyển bổ sung vào học viện.
+- Dư luận Đà Nẵng đang xôn xao vụ một giáo viên tố nhóm trẻ dùng bún thiu khiến nhiều em đau bụng.
+- Ngày 26-8, Trường THPT Ernst Thälmann (quận 1, TP.HCM) tổ chức gian hàng sách 0 đồng cho học sinh đến trao đổi sách giáo khoa và dụng cụ học tập.
+- Để ở lại dọn dẹp vệ sinh và đón con em về làng vào cuối ngày, phụ huynh Ca Dong ở điểm trường mầm non Măng Dí (xã Trà Nam, Nam Trà My, Quảng Nam) cùng nhau dựng lán trại thô sơ nằm đối diện với trường học.
+- Sở Giáo dục và Đào tạo TP.HCM vừa có văn bản hướng dẫn về các khoản thu đầu năm học 2024-2025.
+- Sáng 26-8, 465 học bổng Vallet đã được trao đến các bạn học sinh, sinh viên, học viên cao học tài năng ở các tỉnh phía Nam.
+- 'Chúng tôi không dạy học sinh giải đề, mà dạy những điều không bao giờ xuất hiện trong các đề thi Olympic Toán quốc tế', Giáo sư Po Shen Loh chia sẻ.
+- Nhiều nghiên cứu cho thấy trẻ dùng smartphone đối mặt nhiều nguy cơ, đặc biệt là chức năng thần kinh bị ảnh hưởng, bị 'đầu độc' và bắt nạt trực tuyến...
+- Hàng loạt trường đại học đã liên hệ ủng hộ tân sinh viên gần 100 suất học bổng Tiếp sức đến trường 2024 với hơn 1,2 tỉ đồng.
+- Sáng nay 26-8, học sinh các cấp học ở TP.HCM trở lại trường sau gần 3 tháng nghỉ hè. Gặp lại thầy cô, bạn bè, các cô cậu học trò nói cười rôm rả.
+- Xuất sắc vượt qua 13 đội tuyển, đội Hong Kong (Trung Quốc) đoạt chức vô địch Robocon châu Á - Thái Bình Dương 2024. Đội Việt Nam 1 về nhì. ​
+- Ban Thường vụ Tỉnh ủy Khánh Hòa vừa kết luận thống nhất báo cáo đánh giá hoạt động và định hướng tiếp tục phát triển Trường đại học Khánh Hòa.
+- Phòng Giáo dục và Đào tạo quận Nam Từ Liêm vừa có thông báo về việc tiếp nhận đơn xin chuyển trường vào Trường tiểu học Tây Mỗ 3.
+- Trường đề nghị công an điều tra, xử lý người làm và lan truyền tin nhắn có nội dung mang tính chất lừa đảo nhập học.
+- Học sinh giỏi Trường THPT Thái Phiên (Đà Nẵng) ký nhận tiền 200.000 đồng để nhận 20 cuốn vở nhưng giá thị trường mỗi cuốn chỉ 6.000 đồng.
+- Dự thảo thông tư quy định về dạy thêm, học thêm vừa được Bộ GD-ĐT công bố có nhiều điểm thay đổi so với quy định hiện hành.
+- Trường đại học Công Thương TP.HCM vừa phát cảnh báo gấp về việc một số thí sinh nhận được tin nhắn thông báo nhập học giả mạo của trường.
+- Triển lãm 'Văn Miếu Quốc Tử Giám, ươm mầm khát vọng hiền tài' tạo ra không gian trải nghiệm văn hóa - nghệ thuật, ứng dụng công nghệ số giới thiệu nhiều tư liệu về Văn Miếu Quốc Tử Giám cho các em học sinh tại TP.HCM.
+- Lạm thu tiền trường là vấn đề trở đi trở lại vào mỗi dịp đầu năm học mới. Và thường sau các cuộc họp cha mẹ học sinh đầu năm, nhiều tâm tư, băn khoăn và cả bức xúc của phụ huynh lại được chia sẻ. Nơi chia sẻ đầu tiên lại là trên mạng xã hội.
+- Bộ Giáo dục và Đào tạo yêu cầu các cơ sở giáo dục phải hoàn thiện, công bố kịp thời các phương thức tuyển sinh từ năm 2025 trở đi.
+- Về bí quyết học tập, thủ khoa Phạm Minh Tiến 'bật mí' phải biết cách hệ thống những gì mình tiếp thu từ thầy cô nhưng cũng phải sáng tạo khi ứng dụng.
+- Học bổng dành cho con em hội viên phụ nữ, nữ công nhân có hoàn cảnh khó khăn và nữ sinh viên mồ côi do dịch COVID-19 tại các quận huyện và TP Thủ Đức, TP.HCM.
+- Trong 50 thủ khoa Trường ĐH Kinh tế quốc dân, có bốn thủ khoa cùng đạt điểm GPA tuyệt đối 4.0.
+- Nữ sinh Trường THPT chuyên Lê Hồng Phong đậu học bổng 9 trường đại học trên thế giới bằng bài luận về sự vận hành của xã hội từ kiến thức hóa - sinh.
+- Lãnh đạo Sở Giáo dục và Đào tạo TP Đà Nẵng khẳng định sẽ xử lý nhanh chóng những sai phạm liên quan vụ việc.
+- Sáng nay 24-8, Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) tổ chức lễ khai giảng, chào đón hơn 5.000 tân sinh viên khóa 2024.
+- Trên mạng xã hội tiếp tục xôn xao khi một phụ huynh tại Thái Bình đăng điểm thi lớp 10 của con sau thanh tra tiếp tục 'nhảy múa', cách nhau 5 điểm môn toán.
+- Trong năm học mới này, những ngôi trường "đẹp như mơ" trở thành điểm nhấn cảnh quan của thành phố Đà Nẵng, đồng thời kích thích thẩm mỹ, khiếu sáng tạo và cảm hứng học tập cho học sinh.
+- Lãnh đạo UBND huyện Vĩnh Thuận, tỉnh Kiên Giang khẳng định hiệu trưởng đã tự ý chuyển cơ sở vật chất trường cũ sang trường mới khi chưa có văn bản chính thức của huyện là có.
+- Sau lùm xùm 'trường chưa thông báo tuyển sinh đã hết chỉ tiêu', lãnh đạo UBND quận Nam Từ Liêm trực tiếp đối thoại với phụ huynh.
+- Trong cuộc thi ROBOTACON WRO 2024 với chủ đề “Đồng minh Trái đất”, bên cạnh các nhiệm vụ chính thức, còn có thêm những thử thách bất ngờ, giúp các em hiểu hơn về phát triển bền vững.
+- Chuyên gia cảnh báo việc thí sinh đang 'đứng núi này trông núi nọ', tính đến việc bỏ nhập học sau khi trúng tuyển để xét tuyển lại sẽ gặp nhiều rủi ro.
+- Hơn năm năm qua, ba nhà giáo ở Quảng Ngãi may áo dài cho sinh nghèo. Họ chung tấm lòng thiện nguyện thảo thơm, sẻ chia khó nhọc, tiếp thêm động lực cho những phận đời vươn lên giữa gian khó.
+- Lãnh đạo Sở Giáo dục và Đào tạo Đà Nẵng cho biết đã có kết luận trả lời phản ánh của các giáo viên Trường THPT Thái Phiên về dấu hiệu sai phạm của Hiệu trưởng Nguyễn Bá Hảo.
+- TP.HCM đã ấn định mức trần các khoản thu dịch vụ trong trường công lập tại TP.HCM năm học 2024-2025.
+- Nhiều phụ huynh, thí sinh phản ánh Trường đại học Quốc tế (Đại học Quốc gia TP.HCM) buộc thí sinh phải nộp hồ sơ nhập học trực tiếp và hoàn thành các khoản thu trước 16h ngày 24-8.
+- Liên quan đến vụ việc tuyển sinh sai đối tượng tại Trường phổ thông Dân tộc nội trú THCS Mường Lát, Ủy ban Kiểm tra Tỉnh ủy Thanh Hóa vừa công bố quyết định kỷ luật một loạt cán bộ, lãnh đạo huyện này.
+- UBND tỉnh Bắc Ninh khen thưởng học sinh, cán bộ quản lý, giáo viên bồi dưỡng đội tuyển học sinh giỏi đoạt giải trong các kỳ thi quốc gia, khu vực và quốc tế gần 5,2 tỉ đồng.
+- Phần thưởng của 654 học sinh giỏi biến thành nỗi ấm ức khi các em phải mang vở đi đổi mà không được.
+- Năm 2025, Đại học Quốc gia Hà Nội tổ chức 6 đợt thi đánh giá năng lực, đợt 1 dự kiến vào giữa tháng 3-2025.
+- Ngày 22-8, Đại học Đà Nẵng đã có báo cáo sơ bộ những thông tin liên quan cuốn sách “Kỹ thuật lập trình CNC” do giảng viên Nguyễn Thị Hải Vân, Trường đại học Sư phạm Kỹ thuật, chủ biên.
+- Trường đại học Quốc tế Mỹ (IAU) giới thiệu cơ sở vệ tinh quốc tế tại Trường đại học Hùng Vương TP.HCM. Tuy nhiên, Trường đại học Hùng Vương TP.HCM phủ nhận.
+- Khoảng 150 trường 'ma' ở Úc đã bị đóng cửa, trong khi 140 trường bị cảnh cáo và được yêu cầu phải cung cấp các dịch vụ giáo dục chất lượng trước cuối năm nay.
+- Sự ra đi của GS.TS Võ Tòng Xuân để lại niềm tiếc thương vô hạn cho các thế hệ học trò. Tất cả đều có chung nhận định nhờ có thầy Xuân mà họ tiến bộ.
+- Tiến sĩ Jeff Dean - giám đốc khoa học, người đứng sau nhiều ứng dụng phổ biến toàn cầu của Google - đã có cuộc trao đổi cởi mở với Tuổi Trẻ.
+- Đến 21h đêm, hàng trăm phụ huynh vẫn tập trung tại Trường tiểu học Tây Mỗ 3, quận Nam Từ Liêm để chất vấn ban lãnh đạo trường, phòng giáo dục về việc "trường chưa tuyển sinh đã hết chỉ tiêu".
+- Từ sáng sớm 21-8, hàng trăm phụ huynh đã có mặt tại Trường tiểu học Tây Mỗ 3 để chờ đợi chất vấn ban giám hiệu nhà trường "vì sao trường chưa thông báo tuyển sinh đã hết chỉ tiêu", đến 17h, ban lãnh đạo trường đã có những thông tin đầu tiên.
+- Chương trình học bổng Future VPBanker với tổng giá trị 1 tỉ đồng sẽ xét trao tặng cho sinh viên tài năng trên toàn quốc, được diễn ra từ tháng 8 đến tháng 12-2024.
+- Hà Nội vừa ban hành khung thời gian năm học, theo đó thời gian học sinh tựu trường sớm nhất là trước lễ khai giảng 1 tuần.
+- Chào đón năm học mới, thầy cô và học sinh Trường Song ngữ Quốc tế Hoàng Gia (Royal School) đã chia sẻ những cảm xúc đặc biệt.
+- Hàng trăm phụ huynh đã ngồi chờ từ sáng sớm đến xuyên trưa tại Trường tiểu học Tây Mỗ 3 nhưng vẫn chưa tìm được câu trả lời thích đáng từ nhà trường về việc tuyển sinh.
+- Từ năm học 2024-2025, hàng chục trường mầm non, tiểu học ở tỉnh Bà Rịa - Vũng Tàu tham gia thu gom, tái chế vỏ hộp sữa. Đây là chương trình do Liên minh tái chế bao bì Việt Nam phối hợp với Sở Giáo dục và Đào tạo tỉnh này thực hiện.
+- Trường đại học Văn Lang thừa nhận cho phép một học viên không đủ điều kiện trúng tuyển đầu vào được đăng ký học trước chương trình đào tạo thạc sĩ tại trường này.
+- UBND tỉnh Thái Bình quyết định gia hạn tạm đình chỉ công tác thêm 15 ngày đối với ông Nguyễn Viết Hiển, giám đốc Sở Giáo dục và Đào tạo tỉnh, để phục vụ công tác thanh tra việc tổ chức kỳ thi vào lớp 10.
+- Nói về việc thí sinh đạt 9 điểm mỗi môn vẫn rớt nguyện vọng 1 vào trường, ông Nguyễn Đức Sơn - hiệu trưởng Trường đại học Sư phạm Hà Nội - cho rằng đó là điều bình thường.
+- GS.TS Võ Tòng Xuân, "cây đại thụ" của nền nông nghiệp Việt Nam, chuyên gia uyên bác trong mắt bạn bè quốc tế, thầy Xuân của nhiều thế hệ học trò, anh Ba Xuân của bà con nông dân miền Tây, vĩnh viễn trở về nằm lại ở quê nhà Ba Chúc, Tri Tôn, An Giang.
+- Kỳ thi vào lớp 10 THPT công lập tỉnh Thái Bình diễn ra từ ngày 6 đến 8-6, thế nhưng sau hơn 70 ngày trong tâm trạng hồi hộp, lo lắng, có cả buồn tủi, đến sáng 20-8 nhiều thí sinh mới chính thức biết điểm thi thật của mình.
+- Nhiều giảng viên Trường ĐH Sư phạm kỹ thuật Đà Nẵng 'té ngửa' vì sau hơn 5 năm sử dụng mới biết cuốn sách chưa hề được xuất bản.
+- Niềm vui của học sinh này lại là nỗi buồn của học sinh khác, đó là thực tế đang diễn ra tại Thái Bình khi sau kết luận thanh tra kỳ thi vào lớp 10 tại tỉnh này, có hơn 500 thí sinh từ trượt sang đỗ, từ đỗ sang trượt.
+- Văn phòng Sở Giáo dục và Đào tạo TP.HCM vừa công bố kết luận của phó giám đốc Sở Giáo dục và Đào tạo tại buổi làm việc với Trường quốc tế AISVN.
+- Chiều 20-8, Cục Đào tạo, Bộ Công an công bố điểm chuẩn trúng tuyển vào các học viện, trường đại học Công an nhân dân năm 2024.
+- Mỗi học sinh Nghệ An đạt điểm cao trong kỳ thi tốt nghiệp THPT năm 2024 sẽ được nhận thưởng gần 19 triệu đồng.
+- Điểm chuẩn Học viện Cảnh sát nhân dân với thí sinh nam dao động 20,67 - 21,52, cao nhất là đối tượng vùng 1 mã bài CA2.
+- Qua thanh tra cho thấy ban thư ký đã phát hiện sai sót nhưng không lập biên bản, trưởng ban chỉ đạo kỳ thi cũng không có biện pháp khắc phục.
+- Từ ngày 19-8 đến ngày 27-8, Trường Đại học Công nghệ TP.HCM (HUTECH) đón thí sinh trúng tuyển đến trường làm thủ tục nhập học.
+- Theo cơ quan thường trực giải thưởng Quả cầu vàng, việc gỡ bài báo xuất bản vào năm 2022 của TS Nguyễn Hoàng Chinh không phải là căn cứ để xem xét đề xuất tước bỏ danh hiệu giải thưởng.
+- Sở Giáo dục và Đào tạo TP.HCM vừa có văn bản hướng dẫn về việc dạy học chương trình tiếng Anh tích hợp năm học 2024-2025.
+- Làm việc với lãnh đạo TP.HCM mới đây, Tổng Bí thư, Chủ tịch nước Tô Lâm gợi mở chính quyền TP tính toán về chính sách cho vay vốn hỗ trợ sinh viên đi học.
+- Nhiều trường có điểm chuẩn 14. Thí sinh đạt dưới 5 điểm mỗi môn vẫn trúng tuyển đại học.
+- Theo kết luận thanh tra của tỉnh Thái Bình, hầu hết các hội đồng thi đều có thí sinh bị lệch tổng điểm. Hàng trăm thí sinh từ trượt thành đỗ và ngược lại.
+- 9h sáng nay 20-8, UBND tỉnh Thái Bình họp báo cung cấp thông tin vụ bất thường điểm thi vào lớp 10 sau thanh tra.
+- Đoàn thanh tra tỉnh Thái Bình xác định có 2.769 bài thi tự luận bị sai điểm và 1.589 thí sinh bị sai tổng điểm xét tuyển. Nguyên nhân do ghép phách bị sai.
+- Bộ Giáo dục và Đào tạo đánh giá Research.com là 'cổng thông tin điện tử uy tín dành cho các nhà khoa học thế giới'. Trong khi đó, nhiều ý kiến lo ngại bảng xếp hạng Research.com 'phá hoại nền tảng học thuật'.
+- Vừa công bố điểm chuẩn, hàng loạt trường đại học đã thông báo xét tuyển bổ sung. Trong số này có các ngành "hot" như y khoa, răng hàm mặt, dược...
+- Số thí sinh đăng ký xét tuyển đông, trong khi chỉ tiêu xét tuyển ít là những nguyên nhân khiến thí sinh 9,7 điểm/môn vẫn trượt sư phạm.
+- Theo thông tin từ Trường cao đẳng Việt - Hàn (TP Hạ Long, Quảng Ninh), ngày 19-8 đã phát hiện thi thể của hiệu trưởng nhà trường tại khuôn viên trường.
+- Chuyện lương giáo viên cao hay thấp đang thu hút nhiều ý kiến bạn đọc tham gia tranh luận.
+- Bạn đọc có nhiều ý kiến trái chiều về chuyện điểm chuẩn đại học 2024 khi thí sinh đạt 9,6 điểm mỗi môn vẫn rớt nguyện vọng đăng ký.
+- Nguyên lãnh đạo UBND tỉnh An Giang khẳng định giáo sư Võ Tòng Xuân có công lớn đối với An Giang là đưa lúa thần nông chuyển từ 1 vụ lúa mùa sáng 2, 3 vụ.
+- Một trong những sáng kiến được thúc đẩy từ khoản tài trợ 1,5 triệu USD này là nhằm hỗ trợ các nghiên cứu liên quan đến AI của giảng viên và sinh viên.
+- Để thực hiện đồ án, nhóm đã dành khoảng thời gian 6 tháng phác thảo ý tưởng, nghiên cứu tài liệu và hoàn thiện mô hình.
+- Bên cạnh kết quả đạt được, Thủ tướng chỉ rõ những tồn tại, hạn chế, khó khăn, thách thức như việc đổi mới chương trình, sách giáo khoa giáo dục phổ thông vẫn còn bất cập.
+- Trường Phổ thông Năng khiếu cho biết ngay sau khi nhà trường có buổi giới thiệu về chương trình thí điểm dạy một số tín chỉ ở bậc đại học, đã có 600 học sinh từ khối 10 - 12 đăng ký học.
+- Sáng nay 19-8, hàng chục ngàn học sinh lớp 1 tại TP.HCM nô nức tựu trường, làm quen trường lớp, bậc học mới.
+- Tang lễ của Anh hùng lao động, GS.TS Võ Tòng Xuân dự kiến được tổ chức tại Nhà tang lễ thành phố Cần Thơ.
+- Nhiều tân sinh viên cùng phụ huynh đã có mặt tại Trường đại học Công nghiệp TP.HCM từ hơn 2h sáng nay để chờ nhập học.
+- Điểm chuẩn Học viện Công nghệ bưu chính viễn thông dao động 22,5 - 26,4, cao nhất là công nghệ thông tin.
+- Phó chủ tịch UBND TP.HCM cho rằng với mặt bằng thu nhập ở thành phố hiện nay, mức lương chi trả cho giáo viên tiếng Anh, tin học, mỹ thuật, âm nhạc quá thấp.
+- Trường đại học Sài Gòn vừa công bố điểm chuẩn phương thức xét điểm thi tốt nghiệp và kỳ thi đánh giá đầu vào đại học trên máy tính.
+- GS Võ Tòng Xuân - hiệu trưởng danh dự của Trường đại học Nam Cần Thơ - vừa qua đời lúc 7h sáng nay 19-8 tại TP.HCM sau một thời gian lâm trọng bệnh.
+- Điểm chuẩn  đại học năm nay có nhiều biến động, đặc biệt các ngành tuyển tổ hợp văn - sử - địa điểm chuẩn cao chót vót.
+- Singapore đang chuẩn bị công bố các biện pháp nhằm hạn chế sử dụng thiết bị điện thoại ở trường học nhằm tăng cường sự tập trung, khơi lại sự tương tác xã hội của học sinh.
+- Đã có ít nhất ba lần vấn đề lương nhà giáo được đề xuất đưa vào luật. Đây cũng là mục tiêu đặt ra qua nhiều đời bộ trưởng Bộ Giáo dục và Đào tạo.
+- Trường đại học Công nghệ thông tin (Đại học Quốc gia TP.HCM) công bố điểm chuẩn trúng tuyển theo phương thức xét điểm thi tốt nghiệp THPT năm 2024.
+- Ngày 18-8, Trường đại học Y Hà Nội công bố điểm chuẩn xét tuyển năm 2024. Ngành y khoa có điểm chuẩn từ 26,55 đến 28,27.
+- Trường đại học Sư phạm TP.HCM vừa công bố điểm chuẩn xét điểm thi tốt nghiệp THPT năm 2024, hầu hết các ngành đều tăng so với năm ngoái.
+- Trong 32 thí sinh được trao thưởng cấp quốc gia, có hai thí sinh tiểu học đạt 900/900 đánh giá bài thi TOEFL Junior.
+- Có thêm ba trường đại học tại TP.HCM vừa công bố điểm chuẩn xét tuyển các ngành đại học chính quy theo kết quả thi tốt nghiệp THPT năm 2024.
+- Trong số 2.141 sinh viên đại học chính quy nhận bằng tốt nghiệp đợt 2 năm 2024, có khoảng 23,3% sinh viên tốt nghiệp xuất sắc, 49,9% tốt nghiệp loại giỏi, tỉ lệ xuất sắc và giỏi chiếm gần 73,2%.
+- Trường đại học Kiến trúc TP.HCM và Trường đại học Nông Lâm TP.HCM vừa công bố điểm chuẩn xét điểm thi tốt nghiệp THPT năm 2024.
+- Nhiều giáo viên mầm non từng làm việc tại Igarten cho biết chưa nhận được lộ trình xác nhận công nợ dù đại diện công ty này hứa  phản hồi trong tháng 7-2024.
+- Điểm chuẩn Trường đại học Khoa học sức khỏe (Khoa y Đại học Quốc gia TP.HCM trước đây) năm nay tăng so với năm 2023.
+- Hội đồng tuyển sinh Trường đại học Y Dược TP.HCM vừa công bố điểm chuẩn trúng tuyển đại học hệ chính quy năm 2024.
+- Điểm chuẩn các ngành tuyển tổ hợp văn - sử - địa cao chót vót, bỏ xa các ngành xét tuyển toán - lý - hóa.
+- Xét tuyển khối C, thí sinh phải đạt hơn 9,76 điểm/môn mới đỗ sư phạm lịch sử, ngữ văn; hơn 9,66 điểm/môn mới đỗ ngành quan hệ công chúng, báo chí...
+- Trước thềm năm học mới, tỉnh Gia Lai yêu cầu cơ quan chức năng kiểm tra, đảm bảo an toàn giao thông đối với các phương tiện tham gia đưa đón học sinh.
+- Điểm chuẩn phương thức xét điểm thi tốt nghiệp THPT của Trường đại học Khoa học xã hội và Nhân văn (Đại học Quốc gia TP.HCM) dao động từ 22 đến 28,88 điểm.
+- Đến sáng nay 18-8, đã có hơn 100 trường đại học trên cả nước công bố điểm chuẩn với nhiều biến động bất ngờ so với dự đoán.
+- Nhiều học viên ngành kế toán - khóa 11 Trường đại học Văn Lang phản ánh việc một thủ khoa thạc sĩ của trường chỉ học trong thời gian 10 tháng.
+- Ngày 18-8, thêm nhiều trường đại học công bố điểm chuẩn, trong đó có những trường 'hot', với mức điểm chuẩn cao bất ngờ.
+- Thí sinh trúng tuyển vào sư phạm ngữ văn và sư phạm lịch sử của Trường đại học Sư phạm Hà Nội phải có điểm trung bình từ 9,76 điểm/môn trở lên.
+- Tối 17-8, Trường đại học Quốc tế, Học viện Hàng không Việt Nam và Trường đại học Văn Lang công bố điểm chuẩn trúng tuyển theo phương thức xét điểm thi tốt nghiệp THPT 2024.
+- Học viện Ngoại giao vừa công bố điểm chuẩn xét tuyển năm 2024, trong đó ngành Trung Quốc học cao nhất với 29,2 điểm tổ hợp C00.
+- Tính đến tối 17-8, đã có 11 trường đại học thành viên trực thuộc Đại học Quốc gia Hà Nội công bố điểm chuẩn trúng tuyển theo phương thức xét điểm thi tốt nghiệp THPT.
+- Đại học Kinh tế TP.HCM vừa công bố điểm chuẩn các phương thức xét tuyển đại học chính quy 2024, với mức điểm tăng mạnh ở cả hai cơ sở đào tạo.
+- Ngành truyền thông đa phương tiện lấy điểm chuẩn 28,25/30, cao nhất Học viện Báo chí và Tuyên truyền ở phương thức xét điểm thi tốt nghiệp THPT.
+- Thêm hai trường đại học ở TP.HCM vừa công bố điểm chuẩn là Trường đại học Công Thương TP.HCM và Trường đại học Tài chính - Marketing.
+- Ngành lấy điểm chuẩn cao nhất Trường đại học Luật Hà Nội là luật kinh tế khối C, thí sinh phải đạt trung bình 9,6 điểm/môn mới đậu.
+- Trường đại học Dược Hà Nội và Trường đại học Y Dược (Đại học Quốc gia Hà Nội) vừa công bố điểm chuẩn trúng tuyển phương thức xét điểm thi tốt nghiệp THPT.
+- Tối 17-8, Trường đại học Công nghiệp TP.HCM công bố điểm chuẩn bậc đại học chính quy bằng phương thức xét tuyển sử dụng kết quả thi tốt nghiệp THPT năm 2024.
+- Ban tuyển sinh quân sự (Bộ Quốc phòng) công bố điểm chuẩn trường quân đội năm 2024, dao động từ trên 20 điểm đến trên 28 điểm.
+- Năm 2024, điểm chuẩn hầu hết các ngành của Trường đại học Ngân hàng TP.HCM tăng so với năm 2023. Tuy nhiên có ngành giảm 1 điểm.
+- Điểm chuẩn vào Trường đại học Công nghệ (Đại học Quốc gia Hà Nội) năm nay dao động từ 22,5 đến 27,8 điểm.
+- Trường đại học Khoa học xã hội và Nhân văn Hà Nội lấy điểm chuẩn vào ngành quan hệ công chúng, báo chí ở mức trên 29 điểm, tổ hợp C00.
+- Điểm chuẩn ngành kỹ thuật hạt nhân năm nay tăng 6,6 điểm; ngành khoa học vật liệu tăng 5,3 điểm; ngành quản lý tài nguyên và môi trường tăng 3,5 điểm...
+- Ngành thương mại điện tử của Trường đại học Kinh tế quốc dân lấy điểm chuẩn ở mức cao như năm 2023 là 28,02 điểm.
+- Ngày 17-8, Trường đại học Ngoại thương (FTU) công bố điểm chuẩn theo phương thức xét điểm thi tốt nghiệp. Có 95% chỉ tiêu có ngưỡng điểm 27.
+- Chiều 17-8, Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) công bố điểm chuẩn theo phương thức xét tuyển tổng hợp năm 2024.
+- Hai ngành lấy điểm chuẩn cao nhất Trường đại học Thương mại là thương mại điện tử (quản trị thương mại điện tử), marketing (marketing thương mại), thí sinh phải được 9 điểm/môn.
+- Ngành có điểm chuẩn tăng nhiều nhất Trường đại học Y Dược Cần Thơ là y học cổ truyền. Riêng ngành y tế công cộng giảm gần 1 điểm.
+- Giải Lê Quý Đôn trên ấn phẩm Nhi Đồng - Khăn Quàng Đỏ của báo Tuổi Trẻ bước vào mùa giải thứ 30 và đón nhận bằng khen của UBND TP.HCM.
+- Trường đại học Kinh tế - Luật (Đại học Quốc gia TP.HCM) vừa công bố điểm chuẩn trúng tuyển đại học chính quy theo phương thức xét điểm thi tốt nghiệp THPT năm 2024.
+- Chiều 17-8, Đại học Bách khoa Hà Nội công bố điểm chuẩn trúng tuyển đại học chính quy năm 2024 theo phương thức xét điểm thi tốt nghiệp THPT và điểm thi đánh giá tư duy.
+- Ngành luật kinh tế của Học viện Ngân hàng có điểm chuẩn cao nhất 28,13 điểm, tương đương hơn 9,3 điểm/môn thí sinh mới trúng tuyển.
+- Chiều và tối nay 17-8, nhiều trường đại học đã công bố điểm chuẩn phương thức xét điểm thi tốt nghiệp THPT. Tuổi Trẻ Online liên tục cập nhật.
+- Dự thảo thông tư về kiểm định chất lượng chương trình đào tạo do Bộ Giáo dục và Đào tạo đưa ra lấy ý kiến có nhiều thay đổi so với trước đây.
+- Trường đại học Y Dược TP.HCM vừa công bố nghị quyết bổ nhiệm phó hiệu trưởng phụ trách chuyên môn của nhà trường.
+- Năm học 2024 - 2025, TP.HCM sẽ lựa chọn các trường phổ thông công lập để thí điểm dùng tiếng Anh làm ngôn ngữ thứ 2 dạy học. Đây là bước đột phá của giáo dục TP.HCM trong năm học mới.
+- Các trường học cho rằng nếu học sinh được tự do dùng điện thoại, các em có thể xem nội dung có hại hoặc chơi trò chơi, dẫn tới không tập trung học.
+- Bộ Giáo dục và Đào tạo vừa có thông báo khẩn gửi các trường đại học trên cả nước yêu cầu thực hiện tốt công tác xét tuyển và lọc ảo trong ngày cuối.
+- Năm học 2024 - 2025, Giải Lê Quý Đôn trên ấn phẩm Nhi đồng TP.HCM bước vào mùa giải thứ 30 và Giải Lê Quý Đôn trên ấn phẩm Khăn Quàng Đỏ bước sang năm thứ 26.
+- Nhiều trường đại học sẽ công bố điểm chuẩn vào chiều tối nay 17-8, Tuổi Trẻ Online liên tục cập nhật, mời bạn đọc đón xem.
+- Ngày 16-8, Nhà xuất bản Đại học Sư phạm TP.HCM đã ra mắt bộ sách "Học tiếng Anh với người nước ngoài" (Global Gateway) cho học sinh từ lớp 1 đến lớp 12, nhằm tăng cường khả năng nghe, nói tiếng Anh cho học sinh theo chương trình phổ thông 2018.
+- Bộ Giáo dục và Đào tạo sẽ ban hành quy chế tuyển sinh lớp 10 theo chương trình mới thống nhất trên toàn quốc.
+- Ban giám hiệu nhà trường nhận thấy việc ra quyết định "dừng đào tạo" học sinh là chưa hợp lý, quan tâm đến từng học sinh nhưng chưa đúng phương pháp.
+- Trường cao đẳng Việt Nam liệu có đủ sức tham gia vào 'cuộc chơi' đào tạo lao động cho các ngành về công nghệ bán dẫn?
+- Trường cao đẳng Sư phạm Đắk Lắk mắc nhiều sai phạm và bị đánh giá là chậm khắc phục, trong đó có việc 100 sinh viên tuyển vượt chỉ tiêu, chưa được cấp bằng.
+- Thứ trưởng Bộ Giáo dục và Đào tạo Phạm Ngọc Thưởng đã yêu cầu TP.HCM sớm có trường phổ thông dùng tiếng Anh là ngôn ngữ thứ 2.
+- Phát hiện hai em nhỏ bị rơi xuống sông đuối nước, ba học sinh lớp 8 đã lao tới cứu các em, đưa lên bờ an toàn.
+- Các bài học về kỹ năng sống phải được thiết kế thiết thực hơn. Sự trải nghiệm quan trọng nhất là trải nghiệm thực tế cuộc sống.
+- Phải có đủ sách giáo khoa đến tay học sinh trước năm học mới 2024-2025 là yêu cầu của Bộ GD-ĐT được nhắc lại khi sắp tới ngày khai trường.
+- Chính quyền Jakarta lên kế hoạch sắp xếp cho học sinh nghèo được học miễn phí tại 1.000 trường tư thục trong năm học tới.
+- Trong năm học mới, các trường phát triển hệ thống ngân hàng câu hỏi trực tuyến cho các môn học; đẩy mạnh đánh giá thường xuyên bằng hình thức trực tuyến...
+- Liên quan vụ tố không xác nhận cư trú cho trẻ đi học, người cha cho biết đã chuyển chỗ ở từ Vĩnh Long sang Bến Tre để con kịp nhập học.
+- Theo dự thảo sửa đổi, bổ sung thông tư số 50/2021, Bộ Công an sẽ sửa đối tượng dự tuyển trình độ thạc sĩ và bổ sung đối tượng được phép đăng ký dự tuyển trình độ đại học vừa làm vừa học.
+- Số điện thoại tiếp nhận thông tin trong giờ hành chính của Bộ Giáo dục và Đào tạo: 024.38621002, email: duongdaynongct10.2019@moet.gov.vn.
+- Trường đại học Sư phạm TP.HCM vừa công bố đề thi đánh giá năng lực chuyên biệt theo cấu trúc mới từ năm 2025.
+- Liên quan đến việc Trường THPT Ngô Quyền - Đông Anh, Hà Nội, ra quyết định "dừng đào tạo" với một học sinh lớp 12A5, Sở Giáo dục và Đào tạo Hà Nội vừa có chỉ đạo.
+- Trường trung cấp Y - Dược Tôn Thất Tùng bị thanh tra kết luận có dấu hiệu làm giả giấy chứng nhận đăng ký hoạt động để cung cấp cho bảo hiểm xã hội quận.
+- Ông Nguyễn Văn Hiếu - giám đốc Sở Giáo dục và Đào tạo TP.HCM - yêu cầu các trường trung học coi dạy tiếng Anh là mở cánh cửa vào đời cho học sinh và yêu cầu cán bộ sở này nghiên cứu trình dự thảo về phổ cập tiếng Anh cho học sinh TP.
+- Sinh viên ngành công nghệ thông tin Trường đại học Công nghệ TP.HCM (HUTECH) trải nghiệm cách học lưu động mà ở đó các bạn được vạch đường từ những chuyên gia công nghệ.
+- Nhiều trường phổ thông tư thục tại TP.HCM đã bắt đầu đón học sinh tựu trường năm học mới từ tuần này.
+- Sở Giáo dục và Đào tạo TP.HCM vừa yêu cầu Trường quốc tế AISVN nghiêm túc chấp hành quyết định đình chỉ hoạt động, đồng thời tạo mọi điều kiện thuận lợi nhất cho cha mẹ học sinh làm thủ tục chuyển trường.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Họ đến với nghề giáo từ nhiều ngả đường khác nhau. Dù với con đường nào thì đích đến của họ là nghề trồng người, tuy nhiều gian lao nhưng vô cùng ý nghĩa.
+- Nguyễn Văn Giỏi - phó giám đốc Công ty Nam Hào Kiệt - bị bắt với cáo buộc nghiệm thu khối lượng công trình xử lý sạt lở bờ sông Hậu gây thiệt hại cho Nhà nước.
+- Bộ trưởng Bộ Giáo dục và Đào tạo Nguyễn Kim Sơn đã giải trình ý kiến đại biểu liên quan chính sách tiền lương, phụ cấp của giáo viên tại dự Luật Nhà giáo.
+- Hai xe tải đang chạy trên đường ở xã Bình Chánh (huyện Bình Chánh) có biểu hiện lấn ép nhau, sau đó hai người trên xe đã xuống ẩu đả, đập bể kính xe của nhau.
+- Có diện tích rộng gần 600km², đảo Phú Quốc (nay là TP Phú Quốc, Kiên Giang) sở hữu địa hình, địa thế với cảnh núi non hùng vĩ, cây rừng và sông ngòi uốn lượn độc đáo cho riêng mình.
+- Theo chương trình, sáng nay 20-11, trong ngày làm việc đầu tiên của đợt 2 và cũng nhằm Ngày Nhà giáo Việt Nam, Quốc hội thảo luận tại hội trường về dự thảo Luật Nhà giáo.
+- Hôm nay (20-11), Tòa án nhân dân TP.HCM xét xử vụ án xảy ra tại Công ty TNHH thương mại vận tải, du lịch Xuyên Việt Oil và một số cơ quan, tổ chức liên quan. Phiên tòa dự kiến kéo dài đến ngày 5-12.
+- Tin tức đáng chú ý: Hôm nay Quốc hội họp đợt 2, thảo luận Luật Nhà giáo và đường sắt tốc độ cao Bắc - Nam; Hơn 700 bác sĩ đăng ký thực hành tại bệnh viện gắn liền với trạm y tế ở TP.HCM...
+- "Hộp mù" Baby Three không chỉ gây sốt trên các kênh bán hàng trực tuyến, gần đây trào lưu này đã tràn ngập trên các vỉa hè, thậm chí xuất hiện những xe máy, ô tô chất đầy "hộp mù" dừng bán ngay trên đường ở Đà Nẵng và TP.HCM.
+- Trong khi đang chơi đùa cùng nhóm bạn, một học sinh ở Huế bị cát vùi tử vong.
+- Hôm nay 20-11, bão số 9 suy yếu nhanh thành áp thấp nhiệt đới rồi tan trên biển. Trên đất liền, thời tiết hai miền Nam - Bắc ngày nắng, miền Trung mưa rào.
+- Chiều 19-11 (giờ Brazil), Thủ tướng Phạm Minh Chính và Phu nhân rời Rio de Janeiro (Brazil) để đến thủ đô Santo Domingo của Cộng hòa Dominica.
+- Thủ tướng Phạm Minh Chính khẳng định Việt Nam cam kết thực hiện phát thải ròng bằng 0 vào năm 2050, đồng thời đưa ra ba đề xuất với các nước G20 vì thế hệ tương lai.
+- Xe giường nằm 45 chỗ đang chạy thì bất ngờ phanh gấp dừng, đón khách giữa quốc lộ 26 rất nguy hiểm gây bức xúc.
+- Hai người bạn Thụy Sĩ, từng treo cờ Mặt trận Dân tộc giải phóng miền Nam Việt Nam trên chóp tháp nhà thờ Đức Bà Paris năm 1969, đã kết thúc chuyến thăm TP.HCM với nhiều cảm xúc sâu sắc.
+- Đóng hàng chục triệu đồng học lái xe tại một văn phòng đăng ký trên địa bàn quận 12, TP.HCM, sau hai năm trời nhiều người mới biết bị lừa.
+- Triều cường rằm tháng mười âm lịch dâng rất cao khiến đường đến trường của học sinh ở Bạc Liêu rất khó khăn. Nước cũng tràn qua nhiều ao tôm khiến bà con mất trắng.
+- Thủ tướng yêu cầu các lực lượng chức năng nỗ lực tìm kiếm các em học sinh còn mất tích ở bãi sông Hồng, chủ tịch các tỉnh, thành phố tăng cường công tác phòng, chống đuối nước đối với trẻ em, học sinh.
+- Ông Lại Văn Loan, viện trưởng Viện KSND tỉnh và đại tá Đặng Cao Đạt, chỉ huy trưởng BĐBP tỉnh, được Ban Bí thư chỉ định tham gia Ban chấp hành Đảng bộ tỉnh Bà Rịa - Vũng Tàu.
+- Tổng Bí thư Tô Lâm nêu rõ việc tinh gọn bộ máy cần phải có sự đoàn kết, quyết tâm cao, dũng cảm và cả sự hy sinh lợi ích cá nhân vì lợi ích chung của từng đảng viên, cán bộ.
+- Thanh tra Chính phủ kiến nghị Bộ Tài chính chỉ đạo, tổ chức kiểm điểm, xử lý trách nhiệm đối với các tổ chức, cá nhân có liên quan đến những tồn tại, thiếu sót, khuyết điểm trong giải quyết thủ tục hành chính, cung cấp dịch vụ công cho người dân.
+- Nhằm thay đổi nhận thức người lãnh lương hưu quen nhận tiền mặt, cán bộ bảo hiểm xã hội vừa tới tận nhà chia sẻ vừa đều đặn livestream tư vấn, trả lời câu hỏi.
+- Hoa hậu H'Hen Niê đã về quê nhà ở huyện Cư M'gar (Đắk Lắk) phối hợp với Tỉnh Đoàn Đắk Lắk trao thẻ bảo hiểm, khu vui chơi cho trẻ em.
+- Việc nâng cấp, mở rộng quốc lộ 1 và đường Hồ Chí Minh từ TP Cà Mau đến Đất Mũi cần thu xếp nguồn vốn gần 12.728 tỉ đồng để thực hiện.
+- Giá nước sinh hoạt tại tỉnh Tiền Giang sẽ tăng thêm 1.200 đồng mỗi khối trong kỳ hóa đơn tháng 11-2024, việc điều chỉnh giá nước mới sẽ áp dụng trực tiếp cho khoảng 270.000 khách hàng trên địa bàn tỉnh Tiền Giang.
+- Nhiều thầy cô và học sinh của một số điểm trường trên địa bàn tỉnh Cà Mau phải dạy và học trong tình trạng nước ngập, do triều cường dâng cao.
+- Chiều 19-11, lực lượng chức năng TP Hội An đã đưa thi thể nam thanh niên nghi là người nước ngoài nổi lên trên sông Hoài về nhà tang lễ.
+- Bệnh sởi đang có dấu hiệu gia tăng tại Bình Thuận khi số ca mắc liên tục tăng thời gian gần đây.
+- Công an TP Đà Lạt xác định nguyên nhân tài xế xịt hơi cay vào du khách tại Đà Lạt là do mâu thuẫn tiền cước taxi.
+- Liên quan thông tin phản ánh xe ben tung hoành vùng ven TP.HCM, lãnh đạo công an một số địa phương cho rằng có tình trạng bố trí người canh chừng lực lượng cảnh sát giao thông để xe ben chạy đường cấm, giờ cấm.
+- Hội đồng nhân dân TP Hà Nội vừa quyết nghị sẽ cắt điện, nước với 8 loại công trình vi phạm từ ngày 1-1-2025. Quyết nghị chỉ rõ các yếu tố vi phạm từng loại hình.
+- Theo lãnh đạo Viện Quy hoạch thủy lợi Việt Nam, dự kiến năm 2025 sẽ nghiên cứu khả thi để đưa vào đầu tư xây dựng hai đập dâng Xuân Quan và Long Tử trên lưu vực sông Hồng đoạn qua Hà Nội.
+- Hãng xe Đức thành lập công ty mới về phân phối Mercedes-Benz Việt Nam (MBDV) nhưng chưa đi vào hoạt động. Hãng cũng không bình luận thêm việc có chuyển đổi kế hoạch từ bỏ lắp ráp tại Việt Nam sang hoàn toàn nhập khẩu.
+- Sở Tài nguyên và Môi trường TP.HCM vừa có văn bản trả lời Đoàn đại biểu Quốc hội TP.HCM về kiến nghị của Công ty TNHH Xử lý chất thải Việt Nam (VWS) về dự án đốt rác phát điện của đơn vị này.
+- Xung đột từ mùi hôi của các trang trại nuôi heo, gà đến hoạt động đầu tư cụm công nghiệp tại xã Đông Hà, huyện Đức Linh, Bình Thuận lại nóng lên thời gian qua.
+- Tại phiên phúc thẩm, Quân 'Idol' không nhận tội vận chuyển 10kg ma túy nhưng không được chấp nhận, tòa tuyên y án tử hình. Kết thúc vụ án, 4 bị cáo nhận án tử hình về tội vận chuyển trái phép chất ma túy.
+- Lực lượng chức năng Bộ tư lệnh Vùng Cảnh sát biển 4 tiếp tục phát hiện, bắt giữ tàu cá vận chuyển khoảng 60.000 lít dầu DO không rõ nguồn gốc trên vùng biển Tây Nam.
+- Trong khuôn khổ Hội nghị Thượng đỉnh G20 ở Brazil, Thủ tướng Phạm Minh Chính đã gặp hơn 20 lãnh đạo các nước và tổ chức quốc tế đến tham dự.
+- Người đàn ông say xỉn lái ô tô trên đường Kinh Dương Vương, quận 6 (TP.HCM), sau đó chửi bới người đi đường. Vụ việc được người dân quay clip, đăng tải mạng xã hội.
+- Thủ tướng Phạm Minh Chính mong muốn Tổng thống Mỹ Joe Biden dù trên cương vị nào cũng sẽ tiếp tục ủng hộ quan hệ song phương. Cùng ngày, ông gặp lãnh đạo Trung Quốc và nhiều nước, tổ chức quốc tế khác.
+- Ngoài kiến thức từ sách vở, các bạn đoàn viên, thanh niên tại Phú Yên đã có cơ hội xem những hình ảnh, tư liệu trực quan về những chuyến tàu không số làm nên Đường Hồ Chí Minh trên biển và gặp những nhân chứng sống đầy ý nghĩa.
+- Bằng việc tổ chức chơi biêu (chơi hụi) online, Phan Thị Lệ Thủy đã chiếm đoạt tiền biêu của hơn 40 bị hại với tổng số tiền hơn 3,5 tỉ đồng.
+- Tỉnh Thừa Thiên Huế đề nghị dừng dự án trồng, phục hồi san hô trên địa bàn vì chưa thể xây dựng định mức kinh tế kỹ thuật cho dự án đặc thù này.
+- Sáng 19-11, đoàn đại biểu Thành ủy, HĐND, UBND, Ủy ban MTTQ Việt Nam TP.HCM do Phó bí thư thường trực Thành ủy TP.HCM Nguyễn Hồ Hải dẫn đầu đã đến thăm và tri ân các nhà giáo tiêu biểu.
+- 14,1ha rừng tự nhiên trong diện tích giải phóng mặt bằng đấu giá không thành công khiến dự án nối đường Hồ Chí Minh nhánh đông với nhánh tây kéo dài, chờ đấu giá lại.
+- Để phòng chống bệnh sởi, thời gian qua 18 tỉnh thành có nguy cơ đã triển khai chiến dịch chích ngừa vắc xin cho trẻ từ 1-5 tuổi. Chiến dịch diễn ra khá thành công khi tỉ lệ trẻ được chích ngừa rất cao.
+- Trong quá trình góp ý về báo cáo nghiên cứu khả thi dự án 5 cửa ngõ, các chuyên gia và nhà đầu tư đã đề xuất những giải pháp để đảm bảo tính khả thi và đẩy nhanh tiến độ dự án, trong đó có câu chuyện giải phóng mặt bằng và vốn đầu tư.
+- Hà Nội sẽ trao tặng danh hiệu Công dân danh dự thủ đô cho cá nhân người nước ngoài tuân thủ pháp luật Việt Nam và có đóng góp đặc biệt trong xây dựng, phát triển, quản lý và bảo vệ thủ đô.
+- Tết quân - dân năm 2025 mừng Chôl Chnăm Thmây tại xã Bàn Thạch, huyện Giồng Riềng (Kiên Giang), địa phương hỗ trợ xây dựng 58 căn nhà, xây cầu và trao 10 suất học bổng cho học sinh nghèo dân tộc Khmer.
+- Nhiều địa phương tại Đồng bằng sông Cửu Long đã dành quỹ đất rất lớn để xây dựng nhà ở xã hội nhưng nhiều dự án vẫn nằm trên giấy, vì sao?
+- TP Hà Nội đang tổ chức thẩm định chủ trương đầu tư phục vụ đấu thầu lựa chọn nhà đầu tư đối với 4 khu nhà ở xã hội tập trung trên địa bàn huyện Đông Anh, Gia Lâm.
+- UBND tỉnh Cà Mau đã khởi công dự án di tích lịch sử chiến thắng Đầm Dơi, Cái Nước, Chà Là.
+- Triển lãm Quốc phòng quốc tế Việt Nam 2024 sẽ là cơ hội để quảng bá năng lực, tiềm lực công nghệ, vũ khí trang bị do công nghiệp quốc phòng Việt Nam sản xuất đến bạn bè quốc tế và nhân dân trong nước, tìm kiếm cơ hội xuất khẩu...
+- Nội dung trên trong công văn của UBND TP Hà Nội gửi các đơn vị liên quan về việc triển khai thực hiện đồng bộ, hiệu quả các giải pháp giải quyết việc ô nhiễm không khí tại thủ đô do Phó chủ tịch UBND TP Hà Nội Nguyễn Trọng Đông ký.
+- Tổ quân y của tàu cảnh sát biển 8021 vừa khâu 11 vết thương cho một ngư dân Kiên Giang khi gặp tai nạn lúc đánh cá. Hiện tình trạng sức khỏe của ngư dân đã ổn định và đang được đưa về bờ để tiếp tục chữa trị.
+- Hà Nội sẽ chi 460 tỉ để sửa chữa, nâng cấp, cải tạo gần 17km đê sông Bùi (đoạn qua huyện Chương Mỹ). Dự án được kỳ vọng sẽ chống ngập lụt cho hàng nghìn hộ dân sống trong "rốn lũ" của thủ đô.
+- Theo quy định mới, các cơ sở y tế được sử dụng toàn bộ các thuốc trong danh mục bảo hiểm y tế phù hợp với phạm vi hoạt động chuyên môn, điều trị mà không phân biệt hạng bệnh viện hay cấp chuyên môn kỹ thuật.
+- Cây dó bầu (hay còn gọi là cây trầm hương) là cây quý hiếm, tạo trầm kỳ nam. Tinh dầu của cây có giá trị kinh tế cao. Vườn quốc gia Phú Quốc hiện trồng bảo tồn nguồn gene cây này với tuổi đời hàng chục năm.
+- Sáng 19-11, Thường trực Tỉnh ủy Phú Yên tổ chức hội nghị công bố các quyết định của Ban Thường vụ Tỉnh ủy và chủ tịch UBND tỉnh về công tác cán bộ.
+- Dự thảo Luật Quản lý thuế sửa đổi bổ sung trách nhiệm khấu trừ, kê khai, nộp thuế thay cho người bán của sàn thương mại điện tử, kể cả sàn nước ngoài.
+- Cả 5 cửa ngõ tại TP.HCM đang đứng trước cơ hội được khơi thông với các dự án BOT có tổng vốn 60.000 tỉ đồng.
+- Tỉnh Phú Thọ huy động gần 100 người cùng 20 phương tiện, xuyên đêm tổ chức tìm kiếm 4 học sinh còn mất tích ở bãi sông Hồng, đoạn qua xã Hiền Quan, huyện Tam Nông.
+- Nhiều người thuê trọ đang phải trả tiền điện từ 3.800-5.000 đồng/kWh. Mức giá này được cho là 'giá thị trường'.
 - TP.HCM có khoảng 1.123 cây cầu. Trong đó 17 cây cầu sắt đã tồn tại hơn 50 năm, đang và đã được rà soát, thay thế để đảm bảo an toàn giao thông và phát triển hạ tầng đô thị.
-- Vụ án đau lòng này xảy ra bảy tháng trước từng được dư luận rất quan tâm, hôm nay tòa án đưa bị cáo mới 16 tuổi ra xét xử vì đánh nam sinh lớp 8 chấn thương sọ não dẫn đến tử vong.
+- Cán bộ hỗ trợ tư pháp thông báo trước phiên xét xử bị cáo Trương Văn Minh trong vụ án đánh nam sinh lớp 8, bị  sốt phát ban không đủ điều kiện để trích xuất tới tòa.
 - Dự báo bão số 9 (Man-yi) sẽ tiếp tục suy yếu nhanh, có thể tan trên vùng biển ngoài khơi các tỉnh miền Trung nên ít có khả năng bão đổ bộ vào đất liền Việt Nam.
 - Một số tin tức đáng chú ý: Nhiều tài xế ở TP.HCM phạm luật vì 'không thấy cảnh sát giao thông'; Người dân bắt được cá sấu 100kg; Nguyên nhân bệnh sởi tăng 'nóng' ở Đồng Nai...
 - Khu nhà kho xưởng ở Định Công, quận Hoàng Mai (Hà Nội) bốc cháy vào khuya 18-11. Nhân chứng cho hay ngọn lửa bùng lên trên diện tích rộng hàng trăm mét vuông, cột khói đen bốc lên ngùn ngụt.
@@ -63,8 +1096,917 @@
 - Hạn chế xe máy là cần thiết, nhưng cũng cần phải chia theo từng khu vực và theo lộ trình.
 - Quán nhậu trên đường Chương Dương - ven sông Hàn (Đà Nẵng) mở nhạc chói tai khiến người dân địa phương nhiều lần bức xúc, phản ánh.
 - Ông Lê Văn Thuận đã thực hiện hành vi “làm giả con dấu, tài liệu của cơ quan, tổ chức” sau đó bỏ trốn.
+- Ông Huỳnh Văn Anh - người nhân lên hàng trăm ngàn cây con giống và phân phối cho người dân - nói 'rất áy náy và chân thành xin lỗi bà con'.
+- Lực lượng chức năng TP Thủ Đức (TP.HCM) đã kiểm tra nhiều nơi bán xe phân khối lớn không giấy tờ và tạm giữ hàng chục xe.
+- Dự Luật Bảo hiểm y tế sửa đổi đã quy định cơ chế để quỹ bảo hiểm y tế thanh toán cho các trường hợp bệnh viện thiếu thuốc, thiếu thiết bị y tế.
+- 5 thành viên trong gia đình gồm vợ chồng, con và cháu ruột ở An Giang bị bắt vì dùng phương tiện, ‘bom xăng’ chống lại đoàn cưỡng chế thu hồi đất.
+- Không khí lạnh tràn xuống chậm hơn một ngày so với dự báo, nên khả năng từ đêm nay thời tiết miền Bắc chuyển lạnh, sau đó rét về đêm và sáng.
+- Đại học Đà Nẵng sẽ có thêm trường đại học quốc tế trên cơ sở phát triển từ Viện Nghiên cứu và Đào tạo Việt - Anh.
+- Mặc dù đường cấm, giờ cấm, nhưng nhiều xe ben chở đất, đá ở vùng ven TP.HCM vẫn mặc sức tung hoành bất kể ngày đêm.
+- Từ tháng 12-2024, Bảo hiểm xã hội Hà Nội sẽ chi trả lương hưu, trợ cấp bảo hiểm xã hội qua tài khoản ngân hàng sớm hơn.
+- Cơ sở kinh doanh của hai doanh nghiệp du lịch ở Bãi Sau, Vũng Tàu đã bị cưỡng chế theo kế hoạch đã định.
+- 5.000m² đất là ước mơ của nhiều người trong quãng đời mưu sinh. Nhưng 'tấc đất - tấc vàng' đã được ông Lê Trí Huệ hiến để mở rộng hẻm.
+- Tổng Bí thư Tô Lâm chỉ rõ một số hạn chế của giáo dục, đào tạo kéo dài nhiều năm chưa giải quyết dứt điểm.
+- Để mở rộng cao tốc TP.HCM - Trung Lương - Mỹ Thuận lên 6 - 8 làn xe theo hợp đồng BOT cần kinh phí gần 38.700 tỉ đồng.
+- Ngày đầu tuần nhiều khu vực ở Hà Nội như quận Cầu Giấy, Nam Từ Liêm, Bắc Từ Liêm, Long Biên, Hà Đông, huyện Hoài Đức… bầu trời mờ đục.
+- Hai người Thụy Sĩ treo cờ Mặt trận Dân tộc Giải phóng miền Nam trên đỉnh nhà thờ Đức Bà Paris hôm nay đến thăm Làng Hòa bình TP.HCM.
+- Có vành đai 4 TP.HCM, xe cộ khi đến địa bàn tỉnh Bình Dương sẽ chạy một mạch xuống sân bay Long Thành nhanh hơn.
+- Đến giữa tháng 11-2024 (rằm tháng 10 âm lịch) các nhà vườn tại Đà Lạt đã hoàn tất xuống giống vụ hoa Tết.
+- Dự án BOT nối từ đường Võ Văn Kiệt đến cao tốc TP.HCM - Trung Lương dài 2,7km có tổng mức đầu tư 1.557 tỉ đồng.
+- Ngày Việt Nam tại Brazil đã nhận được sự quan tâm không chỉ của Thủ tướng Phạm Minh Chính mà còn của nhiều người dân địa phương.
+- Phó chủ tịch UBND TP Thủ Đức Nguyễn Kỳ Phùng được bổ nhiệm làm trưởng Ban Quản lý Khu công nghệ cao TP.HCM.
+- Ông Minh Tuệ thông báo sẽ tạm dừng khất thực do thời gian qua có nhiều người tìm đến, tụ tập đông người gây mất an ninh trật tự.
+- Ông Trương Tuấn Anh vừa được bổ nhiệm làm tổng giám đốc Công ty Đầu tư tài chính nhà nước TP.HCM (HFIC).
+- Để tránh nguy cơ lừa đảo, người lao động cần tìm hiểu thông tin doanh nghiệp đã được cấp phép hay chưa.
+- Tuổi Trẻ Online ngày 7-11-2024 có tin "Cần Thơ chi sai hơn 4,7 tỉ đồng tiền trợ cấp thất nghiệp". Thông tin trên chưa chính xác.
+- Dự báo trong hai ngày tới, bão số 9 (Man-yi) sẽ tiếp tục suy yếu do tương tác với không khí lạnh nên có thể tan trên biển và ít có khả năng bão đổ bộ vào đất liền Việt Nam.
+- Lãnh đạo Việt Nam và Brazil đã nâng cấp quan hệ lên Đối tác chiến lược, mở ra giai đoạn phát triển mới trong quan hệ hai nước.
+- Một số tin tức đáng chú ý: Lý do vốn FDI vào Việt Nam tăng trưởng chậm dần; 'Cơn mưa' tiền mặt cổ tức tuần này; HUD có chủ tịch mới; Chủ tịch Digiworld bán bớt vốn ở Viettel Construction...
+- Hôm nay 18-11, không khí lạnh sẽ ảnh hưởng tới Bắc Bộ, Trung Bộ thời tiết có mưa, Nam Bộ ngày nắng.
+- Để khắc phục khó khăn là khoảng cách địa lý hai nước, Thủ tướng Phạm Minh Chính cho biết Việt Nam đang phát triển mạnh đội tàu biển, xây dựng các cảng trung chuyển lớn để giảm chi phí vận tải, logistics.
+- Thủ tướng Phạm Minh Chính và Phu nhân cùng các đại biểu Việt Nam, Brazil đã vỗ tay, hòa theo lời của bài hát 'Như có Bác Hồ trong ngày vui đại thắng' tại lễ khánh thành biển kỷ niệm 112 năm ngày Người đến Rio de Janeiro.
+- Tối 17-11, sau khi đổ bộ vào đảo Luzon (Philippines), siêu bão Man-yi đã suy yếu xuống cấp 13 (134-149km/h), giật cấp 16 và đi vào Biển Đông, trở thành cơn bão số 9 trong năm nay.
+- 'Việc xây dựng khối đại đoàn kết phải đi lên từ những việc nhỏ nhất mà sát với điều kiện cuộc sống của người dân'.
+- Nhân dịp kỷ niệm 42 năm Ngày Nhà giáo Việt Nam, nhiều siêu thị, điểm mua sắm, gian hàng sách... tung ra chương trình giảm giá, sự kiện tri ân, tôn vinh các thầy cô giáo.
+- Phó thủ tướng Trần Hồng Hà gọi tai nạn giao thông là kẻ thù. Đồng thời ông yêu cầu cần có các chế tài đủ mạnh để xử lý nghiêm, không khoan nhượng, kể cả áp dụng các biện pháp hình sự để răn đe các hành vi vi phạm.
+- Bí thư Thành ủy TP.HCM Nguyễn Văn Nên cho rằng hành động treo cờ của các nhân vật rất đáng trân trọng, bởi không vì quyền lợi cá nhân mà vì công lý, vì ủng hộ cho cuộc đấu tranh của nhân dân Việt Nam.
+- Công an tỉnh Quảng Bình đã quyết định khởi tố, bắt tạm giam hàng loạt cán bộ lãnh đạo ở các huyện thị, thành phố để điều tra những liên quan đến đại án cây xanh.
+- Để không vỡ mộng, bị lừa đảo khi có nguyện vọng đi xuất khẩu lao động, cần phải kiểm tra thật kỹ thông tin doanh nghiệp trước khi đóng tiền. Trong trường hợp phát hiện bị lừa đảo thì báo ngay cơ quan chức năng.
+- Cầu Vàm Cái Sứt nằm trên hương lộ 2 được thi công hơn 4 năm qua, nhưng đến nay đường vẫn chưa xong để kết nối vào cao tốc.
+- 100 cán bộ, chiến sĩ công an chia thành 12 tổ đồng loạt khám xét, bắt giữ 12 nghi phạm trong đường dây cá độ bóng đá quy mô hơn 2.000 tỉ đồng.
+- TP.HCM sẽ quyết tâm dồn sức để thực hiện những chỉ tiêu, nhiệm vụ của TP đề ra cho năm 2024. Trong đó xử lý nghiêm các tồn đọng để tăng tốc bước vào kỷ nguyên mới.
+- Ngán ngẩm với tài xế ô tô dừng xe tại điểm khẩn cấp cao tốc Vĩnh Hảo - Phan Thiết, đoạn qua huyện Hàm Thuận Nam, tỉnh Bình Thuận để gia đình… ăn tối.
+- Trong chiều đến tối nay 17-11, siêu bão Man-yi đổ bộ vào đảo Luzon (Philippines) với gió mạnh cấp 16 (184-201km/h), giật trên cấp 17 (trên 220km/h).
+- Các trò chơi dân gian được tái hiện ở thành phố tạo nên trận cười nắc nẻ cho người tham gia "Ngày hội Đại đoàn kết toàn dân tộc".
+- Trong khi lấy mẫu giám định ADN ở Nghĩa trang liệt sĩ Quốc gia Đường 9, lực lượng làm nhiệm vụ phát hiện cây viết khắc chữ "XUÂN ĐÀI" hoặc "XUÂN LÀI" và hình cây dừa, đôi chim bồ câu…
+- Tổng Bí thư Tô Lâm cùng các thành viên trong đoàn công tác Trung ương và lãnh đạo tỉnh đến dự Ngày hội Đại đoàn kết toàn dân tộc tại xã Đất Mũi, huyện Ngọc Hiển, Cà Mau.
+- Từ 1-7-2025, nhiều quy định mới về điều kiện hưởng lương hưu, thời gian đóng bảo hiểm xã hội... có hiệu lực.
+- Bãi xe bệnh viện thu phí cao hơn quy định; Đề xuất đóng nút giao thông Nguyễn Văn Linh - Phạm Hùng để giảm kẹt xe... là thông tin bạn đọc phản ánh tuần qua.
+- Dự ngày hội đoàn kết dân tộc và tổng kết đề án trao 1.200 căn nhà cho người nghèo, Bộ trưởng Bộ Công an Lương Tam Quang nói về sự đoàn kết, tương thân tương ái để không ai bị bỏ lại phía sau.
+- Từ 1-1-2025, tỉnh Thừa Thiên Huế sẽ không còn miễn phí vé tham quan di tích thuộc Quần thể di tích cố đô Huế vào 3 ngày Tết Nguyên đán như thường niên.
+- Sáng 17-11, Ban An toàn giao thông TP.HCM phối hợp các đơn vị tổ chức lễ tưởng niệm các nạn nhân tử vong do tai nạn giao thông.
+- Tuần này miền Bắc sẽ đón đợt không khí lạnh, miền Trung mưa rào đến mưa to, miền Nam ngày nắng, có lúc mưa rào.
+- Anh Nguyễn Văn Trường (28 tuổi, ở xã Dương Tơ, TP Phú Quốc, Kiên Giang) làm lồng lưới hình trụ, dài hơn 1m rồi treo dây trên bè cá để thả nuôi con trai ngọc nữ. Cách làm mới này anh thu lợi nhuận khi bán với giá 30.000 đồng/con.
+- Việc Hà Nội và các đô thị khác đang có những bước chuẩn bị để hạn chế, cấm xe máy vào nội đô thu hút sự tranh luận của nhiều bạn đọc.
+- Trong lúc sửa chữa hỏng hóc trên tàu câu mực, một ngư dân ở Quảng Ngãi đã bị bỏng do lửa bình gas, tổng diện tích bị bỏng 22%.
+- Theo Bộ trưởng Phạm Thị Thanh Trà đến nay 50/51 tỉnh, thành phố có đơn vị cấp huyện, xã thuộc diện phải sáp nhập được Ủy ban Thường vụ Quốc hội thông qua các đề án sáp nhập.
+- Phó thủ tướng, Bộ trưởng Ngoại giao Bùi Thanh Sơn nhận định chuyến thăm Chile, Peru và dự Tuần lễ cấp cao APEC 2024 của Chủ tịch nước Lương Cường đã đạt được nhiều kết quả nổi bật.
+- Gặp đại diện cộng đồng người Việt và cán bộ, nhân viên đại sứ quán tại Brazil, Thủ tướng Phạm Minh Chính dặn dò bà con tiếp tục đoàn kết, phát huy sức mình vì sự phát triển của đất nước.
+- Vai trò của báo chí chính thống trong cuộc chiến ngăn chặn tin giả, đảm bảo thông tin minh bạch cho xã hội là vô cùng quan trọng, tuy nhiên những chính sách, hỗ trợ báo chí chính thống chưa đủ mạnh.
+- Sau gần 17 tháng khởi công, dự án cao tốc Châu Đốc - Cần Thơ - Sóc Trăng đã từng bước thành hình trong sự nỗ lực của các tỉnh thành ĐBSCL. Tuy nhiên khả năng chậm tiến độ vẫn hiển hiện.
+- Dự báo trong 24 giờ tới, siêu bão Man-yi đi vào Biển Đông, nhiều khả năng đây là cơn bão số 9 trong năm 2024.
+- Vì tin vào lời "mật ngọt", nhiều người dân đã đóng tiền để đi xuất khẩu lao động ở Singapore làm đầu bếp, giúp việc…
+- Tin tức đáng chú ý: Một số tỉ phú thế giới đến trải nghiệm du lịch cao cấp vịnh Hạ Long dịp đầu năm 2025; Cứ 10 trẻ sơ sinh có 1 bé sinh non tháng, nhẹ cân; Cẩn trọng khi được mời đầu tư gói bảo hiểm linh hoạt...
+- Chiều 16-11 (giờ Brazil, rạng sáng 17-11 giờ Việt Nam), Thủ tướng Phạm Minh Chính và Phu nhân cùng đoàn đại biểu cấp cao Việt Nam đã đến Rio de Janeiro, bắt đầu các hoạt động của chuyến công tác dự thượng đỉnh G20.
+- Hôm nay 17-11, thời tiết các tỉnh Bắc Bộ chịu ảnh hưởng của không khí lạnh. Trung Bộ mưa rào, Nam Bộ sáng và tối triều cường.
+- Ban Chỉ đạo sẽ có nhiệm vụ tổng kết việc thực hiện nghị quyết số 18, từ đó có giải pháp về đổi mới, sắp xếp mô hình tổ chức bộ máy của Chính phủ, các bộ, cơ quan ngang bộ.
+- Sở Giao dịch chứng khoán TP.HCM thống kê số lượng công ty vi phạm công bố thông tin trên sàn HOSE giảm trong năm 2024.
+- Công an TP Đà Lạt đang truy tìm tài xế xe taxi mang biển số tỉnh Bình Dương bị tố xịt hơi cay vào 2 hành khách tại Đà Lạt.
+- Chiều 16-11, Chủ tịch UBND TP.HCM Phan Văn Mãi đã đến dự và phát biểu chúc mừng Ngày hội đại đoàn kết toàn dân tộc tại ấp Long Thạnh 2, xã Long Hòa, huyện Cần Giờ.
+- Hàng chục trụ điện chằng chịt dây nhợ trên đường Tân Kỳ - Tân Quý (TP.HCM) đã được các đơn vị liên quan thu hồi, đường trở nên thông thoáng.
+- Quận 6 kiến nghị UBND TP.HCM điều chỉnh ranh dự án, tách dự án kênh Hàng Bàng và đường Phan Văn Khỏe thành hai dự án riêng.
+- Vĩnh Long tổ chức lễ hội ‘Gạch gốm đỏ - Kinh tế xanh’ lần thứ nhất và công bố đồ án quy hoạch chung xây dựng khu lò gạch, gốm huyện Mang Thít đến năm 2045.
+- Triều cường tại TP.HCM đạt đỉnh tháng 10 âm lịch, một số khu vực ven sông rạch nước tràn lên bờ, người dân vất vả ứng phó.
+- Tại ngày hội đại đoàn kết dân tộc được tổ chức tại xã Nam Xuân (huyện Krông Nô, Đắk Nông), thượng tướng Trần Quang Phương - phó chủ tịch Quốc hội - nói người dân cần cùng nhau đánh thức "nàng tiên xanh" đang ngủ.
+- Tài xế xe bán tải vừa bị lập biên bản vi phạm hành chính với mức phạt 5 triệu đồng, tước bằng lái 2 tháng vì vượt ẩu không đúng quy định khi qua cầu phao Phong Châu, Phú Thọ.
+- Sáng 16-11, đoàn đại biểu TP.HCM đã về đến cảng Lữ đoàn 125 hải quân (TP Thủ Đức, TP.HCM), khép lại hành trình hướng về biển đảo phía tây nam của Tổ quốc.
+- Thủ tướng Phạm Minh Chính vừa ký quyết định điều động, bổ nhiệm ông Võ Văn Hưng - chủ tịch UBND tỉnh Quảng Trị - giữ chức thứ trưởng Bộ Nông nghiệp và Phát triển nông thôn.
+- Chiều 16-11, hai xe va chạm trên cầu Long Thành khiến dòng xe trên cao tốc hướng TP.HCM đi Đồng Nai, Vũng Tàu... ùn ứ kéo dài.
+- Đề xuất đóng nút giao thông Nguyễn Văn Linh - Phạm Hùng (TP.HCM) để giảm kẹt xe tạo ra nhiều tranh luận từ bạn đọc.
+- Kiểm tra việc thi công ở dự án cao tốc Hòa Liên - Túy Loan, thứ trưởng Bộ Giao thông vận tải nhận xét: "Cắm biển cho hoành tráng, thi công vắng tanh như chùa Bà Đanh".
+- Với gió mạnh lên tới gần 200km/h, giật trên 220km/h, dự báo siêu bão Man-yi sẽ quét qua một số đảo của Philippines trước khi đổ bộ đảo Luzon vào ngày 17-11.
+- UBND TP.HCM vừa có văn bản chỉ đạo giải quyết các khó khăn, vướng mắc trong sửa chữa căn hộ và phần sở hữu chung tại các chung cư do Trung tâm Quản lý nhà và giám định xây dựng quản lý.
+- Trong chặng đường 100 năm đạo Cao Đài - Tòa thánh Tây Ninh hình thành, nhiều giá trị tôn giáo tốt đẹp đã được lan tỏa từ nhắc nhở việc tu thân, sống tốt đời đẹp đạo cho đến hỗ trợ những người có hoàn cảnh khó khăn.
+- Củ Chi đất thép thành đồng là điểm đến đầu tiên của hai nhân vật người Thụy Sĩ trong hành trình thăm TP.HCM.
+- Đội cảnh sát giao thông số 6 cho biết việc cả nhà dừng ô tô, ngồi ăn uống tại điểm khẩn cấp trên cao tốc Vĩnh Hảo - Phan Thiết  là vô cùng nguy hiểm.
+- 12 quận nội thành và quận Hoàn Kiếm của Hà Nội được chọn là nơi thí điểm hạn chế xe máy vào năm 2025.
+- Sáng 16-11, một nhánh cây phượng lớn bất ngờ gãy đổ, đè trúng ô tô đang đậu trên đường Nguyễn Chí Thanh (quận Hải Châu, TP Đà Nẵng) khiến chiếc xe bị hư hỏng nặng.
+- Trong 30 năm qua, Đại học Đà Nẵng đã đào tạo cho đất nước hàng vạn nhân lực có trình độ cao ở nhiều lĩnh vực, góp phần quan trọng vào sự nghiệp xây dựng, phát triển đất nước.
+- Đại tá Hoàng Quốc Hoàn - chủ nhiệm chính trị Bộ Tham mưu Hải quân - được bổ nhiệm giữ chức phó chính ủy Bộ Tư lệnh Vùng 5 Hải quân.
+- Việc TP.HCM là nơi tiên phong thí điểm máy bay, xe không người lái tại các khu công nghệ cao được kỳ vọng sẽ là bước đột phá trong ứng dụng công nghệ cao.
+- Dự án bãi tắm công cộng và bệnh viện quốc tế không chỉ góp sức đưa đảo Phú Quốc phát triển, mà còn phục vụ đời sống cho người dân và du khách.
+- Sáng 16-11, Tỉnh ủy Nghệ An tổ chức hội nghị công bố quyết định của Bộ Chính trị chuẩn y bí thư Tỉnh ủy Nghệ An nhiệm kỳ 2020-2025.
+- Hai bé trai sơ sinh sinh đôi bị bỏ rơi trong thùng xốp trước nhà dân ở xã Bà Điểm, huyện Hóc Môn (TP.HCM).
+- Tòa phúc thẩm không chấp nhận kháng cáo của cựu thủ quỹ, cựu trưởng phòng Trường đại học Bách khoa Đà Nẵng.
+- Tỉnh Gia Lai thông tin chi tiết về quá trình đầu tư xây dựng, chuyển nhượng cổ phần, gia hạn dự án và các tồn tại, vi phạm của 5 dự án điện gió.
+- Nhóm thiếu niên 16-18 tuổi chạy xe máy độ chế, không đội mũ bảo hiểm, lạng lách đánh võng gây náo loạn đường phố Biên Hòa.
+- Depot Long Bình không chỉ là nơi tập kết các đoàn tàu tuyến metro số 1 mà còn là trung tâm bảo dưỡng, đảm bảo an toàn cho việc vận hành metro.
+- Việc giảm thuế cho báo chí là cần thiết, thậm chí Nhà nước cần đầu tư nhiều hơn cho báo chí chính thống bởi báo chí phát triển, cả xã hội được hưởng lợi.
+- Sáng 16-11, bão Man-yi mạnh lên thành siêu bão với gió mạnh 184-201km/h, giật trên cấp 17.
+- Bão Man-yi mạnh cấp 15 (167-183km/h), giật trên cấp 17 đang hướng về đảo Luzon của Philippines và khả năng đi vào Biển Đông sáng 18-11.
+- Người Việt tiêu thụ tới 6,67 tỉ lít đồ uống có đường; Thêm ca tử vong ở Bình Định do cúm A/H1 pdm, bệnh nhân 59 tuổi.
+- Hôm nay 16-11, thời tiết cả nước tiếp tục chuỗi ngày ổn định, ba miền ngày nắng. Bắc Bộ sáng sớm có sương mù, Nam Bộ nhiều mây.
+- Rạng sáng 16-11, Thủ tướng Phạm Minh Chính và Phu nhân lên chuyên cơ rời Hà Nội, hướng đến điểm dừng chân đầu tiên trong chuyến công du là Brazil.
+- Vụ nổ lớn xảy ra trong căn nhà hai tầng ở thôn 1, xã Du Lễ, huyện Kiến Thụy, TP Hải Phòng làm một người bị thương nặng.
+- Tối 15-11, tại Hà Nội, Ban Tuyên giáo Trung ương chủ trì, phối hợp với Đài Truyền hình Việt Nam tổ chức chương trình 'Hồ Chí Minh - Hành trình khát vọng 2024'.
+- Buổi gặp gỡ không chỉ là cầu nối giữa quá khứ và hiện tại, mà còn thắp lên trong lòng thế hệ thanh niên TP niềm tự hào dân tộc.
+- Các tổ chức, doanh nghiệp, ngân hàng, cá nhân đã đóng góp gần 69 tỉ đồng ủng hộ quỹ Vì người nghèo năm 2024 và hưởng ứng phong trào thi đua xóa nhà tạm, nhà dột nát tại tỉnh Khánh Hòa.
+- Chủ tịch UBND TP.HCM Phan Văn Mãi chủ trì buổi tiếp và chiêu đãi đoàn đại biểu tỉnh Savannakhet (Lào).
+- Doanh nghiệp thuê khu đất 419 Lê Hồng Phong (quận 10, TP.HCM) đang khẩn trương tháo dỡ nhà xưởng, để trả khu đất cho Nhà nước trước ngày 31-12-2024.
+- Tài xế trong vụ cháy xe trên tỉnh lộ 725 đã được tìm thấy dưới vực đèo Con Ó (huyện Đạ Tẻh, Lâm Đồng).
+- Thủ tướng lưu ý hoàn thiện cơ chế chính sách tuyển dụng, đãi ngộ để giáo viên được thụ hưởng mức lương tương xứng với công sức của mình.
+- Đại Cung Môn - cánh cửa mở lối vào Tử Cấm Thành bên trong hoàng cung triều Nguyễn - sắp được phục dựng nguyên trạng.
+- Từ nay đến cuối năm, Chủ tịch UBND TP.HCM Phan Văn Mãi yêu cầu các cấp các ngành tập trung thi đua hoàn thành các chỉ tiêu, nhiệm vụ năm 2024 về đầu tư công, tăng trưởng, giải quyết tồn đọng, chuyển đổi số và nghị quyết 98.
+- Bộ Chính trị kỷ luật cảnh cáo Ban Thường vụ Tỉnh ủy Quảng Ninh, Ban Thường vụ Tỉnh ủy Đắk Lắk và các ông Nguyễn Xuân Ký, Bùi Văn Cường.
+- Người dân trong lúc đi tập thể dục ở đầu cồn Tân Long, TP Mỹ Tho bất ngờ phát hiện một thi thể nam giới trôi dạt vướng vào cầu ra bè nuôi cá, nên trình báo công an.
+- Sau khi tìm và đưa máy bay Yak-130 về, Trường Sĩ quan Không quân đã đến cảm ơn lực lượng tìm kiếm ở Đắk Lắk.
+- Tỉnh Cà Mau vừa tổ chức hội thảo khoa học 200 ngày tập kết ra Bắc tại Cà Mau - tầm nhìn chiến lược và giá trị lịch sử. Đây là một trong nhiều hoạt động kỷ niệm 70 năm tập kết ra Bắc (1954 - 2024).
+- Do vướng mặt bằng, dự án mở rộng xa lộ Hà Nội đến nay vẫn chưa hoàn thiện. Theo ghi nhận của phóng viên, hiện đoạn hầm dạ cầu vượt Trạm 2 thuộc dự án này còn ngổn ngang, chưa thể thông suốt.
+- Dự kiến từ ngày 2-12, Viện Nghiên cứu phát triển TP.HCM sẽ điều tra xã hội học hơn 48.000 nhà trên và ven kênh rạch để xây dựng đề án di dời toàn bộ số nhà này.
+- Ngân hàng SCB xin Lâm Đồng dừng thu hồi đất, dừng chấm dứt hoạt động dự án Đà Lạt Plaza do có liên quan vụ án bà Trương Mỹ Lan.
+- 4 phó thủ tướng được phân công trực tiếp theo dõi, chỉ đạo nhiều kiến nghị của tỉnh Quảng Trị sau chuyến công tác của Tổng Bí thư Tô Lâm.
+- Ông Trần Văn Mẫn - giám đốc Sở Xây dựng Quảng Ngãi - được điều động, bổ nhiệm làm trưởng Ban quản lý Khu kinh tế Dung Quất và các khu công nghiệp tỉnh Quảng Ngãi.
+- UBND xã Xuân Tô, nay là phường Tịnh Biên, thị xã Tịnh Biên, tỉnh An Giang bán vượt thẩm quyền 1,5ha đất công, nhưng 20 năm nay chưa giải quyết xong.
+- Bộ Công an cam kết cùng các bộ, ngành, Liên Hiệp Quốc hưởng ứng Tháng hành động vì bình đẳng giới và phòng ngừa, ứng phó với bạo lực trên cơ sở giới năm 2024 bằng nhiều hành động cụ thể.
+- Sáng 15-11, tại Hà Nội, Hội đồng khoa học các cơ quan Đảng Trung ương chủ trì, phối hợp với bộ biên tập tạp chí Cộng sản tổ chức Hội thảo khoa học quốc gia “Kỷ nguyên mới, kỷ nguyên vươn mình của dân tộc Việt Nam - Những vấn đề lý luận và thực tiễn”.
+- 5 ngày qua, tuyến metro số 1 đã vận hành thử nghiệm 100% công suất. Đây là một bước quan trọng cuối cùng trước khi chính thức chạy thương mại, đánh dấu một cột mốc quan trọng để phát triển giao thông công cộng của TP.HCM.
+- Để bước vào kỷ nguyên mới, PGS Lê Minh Thông cho hay cơ quan, công chức nhà nước tư duy kiểu 'mình có quyền' là không ổn mà phải tư duy 'mình có nghĩa vụ phục vụ'.
+- Sau hơn 50 năm treo lá cờ của Mặt trận Dân tộc Giải phóng miền Nam Việt Nam trên chóp tháp nhà thờ Đức Bà Paris (Pháp), 2 công dân người Thụy Sĩ lần đầu đặt chân đến Việt Nam.
+- Một sinh viên sáng chế sản phẩm sáng tạo gặp khó khi tìm đường đưa sản phẩm ra thị trường Việt Nam. Nhưng cũng với nghiên cứu này, sinh viên đã nhận được học bổng du học của một trường nước ngoài.
+- Theo Công an TP.HCM, người cao tuổi là đối tượng mà lừa đảo qua mạng đang nhắm đến, bởi điều kiện tiếp cận thông tin của nhóm này còn hạn chế.
+- Chiếc xe cứu thương vừa tới sảnh phòng cấp cứu của bệnh viện thì có một tiếng nổ lớn, rồi xe bốc cháy.
+- Công an quận Hải Châu (Đà Nẵng) đang thụ lý điều tra vụ án hình sự dâm ô đối với người dưới 16 tuổi xảy ra trên địa bàn.
+- Đại diện Công ty Công viên cây xanh Hà Nội cho biết sẽ cắt bỏ phần lồng sắt chà siết vào thân những cây sưa đỏ trên đường Nguyễn Văn Huyên (Cầu Giấy, Hà Nội) sau phản ánh của báo Tuổi Trẻ.
+- Việc lập thêm hai ban quản lý dự án nhằm đáp ứng khối lượng các dự án tại TP.HCM sẽ triển khai thời gian tới.
+- Một con voọc đã lao ra đường tấn công người dân ngay trung tâm thị trấn Phong Nha (tỉnh Quảng Bình). Chính quyền địa phương đang lên phương án bắn gây mê.
+- Trong quá trình đi tuần tra, lực lượng Đội quản lý và bảo vệ rừng Vườn quốc gia Phú Quốc (Kiên Giang) đã phát hiện 2 người dân đang cầm súng săn bắn động vật rừng.
+- Giải trình chất vấn trước Quốc hội hôm 12-11, Thủ tướng nhấn mạnh để phát triển hiệu quả, Việt Nam cần chuyển đổi từ tăng trưởng bình bình sang đột phá mạnh mẽ
+- Sáng 15-11, tại Hà Nội, Hội đồng Khoa học các cơ quan Đảng Trung ương chủ trì, phối hợp với Bộ Biên tập Tạp chí Cộng Sản tổ chức Hội thảo khoa học quốc gia “Kỷ nguyên mới, kỷ nguyên vươn mình của dân tộc Việt Nam - Những vấn đề lý luận và thực tiễn”.
+- Lễ kỷ niệm 80 năm Ngày thành lập Quân đội nhân dân Việt Nam và 35 năm Ngày hội Quốc phòng toàn dân sẽ được tổ chức trang trọng vào sáng 20-12 tại Trung tâm Hội nghị Quốc gia, dự kiến có sự tham dự của lãnh đạo Đảng, Nhà nước.
+- Sở Y tế TP.HCM vừa thông tin về sự việc người phụ nữ lên TP.HCM điều trị ung thư tử vong sau khi làm tiểu phẫu.
+- Triển lãm quốc phòng quốc tế Việt Nam 2024 sẽ mở cửa miễn phí và không giới hạn độ tuổi người dân tham quan.
+- Tổng Bí thư Tô Lâm thăm, kiểm tra tàu tuần tra do Cảnh sát biển Hàn Quốc viện trợ cho Bộ Công an. Con tàu này hiện được định biên vào đội tàu của Cục Cảnh sát giao thông.
+- Trưởng Ban Nội chính Thành ủy Hà Nội, ông Nguyễn Quang Đức, được Ban Bí thư điều động, bổ nhiệm làm phó Ban Dân vận Trung ương.
+- Nam bệnh nhân chi 20 triệu đồng hút mỡ bụng tại Phòng khám thẩm mỹ Rita (quận 10, TP.HCM), phải nhập viện vì nhiễm trùng vùng bụng và dương vật.
+- Dự Luật Bảo hiểm y tế sửa đổi quy định về mức hưởng bảo hiểm y tế được thiết kế trên cơ sở xóa bỏ địa giới hành chính trong khám bệnh, chữa bệnh.
+- Ngày 15-11, tỉnh Kiên Giang tổ chức lễ khai mạc Ngày hội Văn hóa, Thể thao và Du lịch đồng bào Khmer tỉnh Kiên Giang lần thứ XVI năm 2024.
+- Xây dựng được bộ máy tổ chức tinh gọn là một trong các vấn đề được Phó trưởng Ban Tuyên giáo Trung ương Lại Xuân Môn nêu tại hội thảo quốc gia đầu tiên về kỷ nguyên mới, kỷ nguyên vươn mình của dân tộc Việt Nam.
+- Ngành y tế TP.HCM đang triển khai đợt cao điểm 55 ngày đêm nỗ lực sử dụng sổ sức khỏe điện tử trên ứng dụng VNelD khi đi khám bệnh.
+- Cơ quan chức năng nói gì về giải pháp giảm kẹt xe ở ngã tư Nguyễn Văn Linh - Phạm Hùng (huyện Bình Chánh, TP.HCM) do bạn đọc đề xuất?
+- Tài xế lái ô tô biển số vàng (kinh doanh dịch vụ) tông liên hoàn làm nhiều xe hư hỏng, 1 người chết tại Bình Dương có nồng độ cồn.
+- 12 người có hành vi môi giới mại dâm, mua bán và tổ chức sử dụng ma túy đã bị Công an quận Ngô Quyền (TP Hải Phòng) bắt giữ.
+- Ban giám đốc Công an TP.HCM đã chỉ đạo triển khai thực hiện kế hoạch tăng cường công tác phòng ngừa, quản lý, đấu tranh xử lý các hành vi vi phạm pháp luật liên quan kinh doanh hóa chất nguy hiểm, độc hại, trong đó có xyanua.
+- Dự báo ngày 15-11, bão Usagi có khả năng đi vào đông bắc của Bắc Biển Đông, có thể trở thành cơn bão số 9, nhưng ít có khả năng ảnh hưởng tới đất liền nước ta.
+- TP.HCM lập hội đồng thu hút người tài trong lĩnh vực văn hóa, nghệ thuật, thể thao; Khách của ngân hàng chưa xác thực sinh trắc học sẽ gặp khó.
+- Về khái niệm người Hà Nội gốc gây tranh cãi và "bất hòa" nhiều năm nay, nhà nghiên cứu, phê bình văn học Phạm Xuân Thạch nói: 'Tốt nhất là nên quên nó đi'.
+- Hôm nay 15-11, thời tiết cả nước ổn định, ba miền ngày nắng. Trên biển bão số 8 suy yếu nhanh rồi tan.
+- Trong các ưu tiên trao đổi của thượng đỉnh G20 năm nay tại Brazil, có các lĩnh vực Việt Nam đã đạt được thành tựu to lớn.
+- Bí thư Thành ủy TP.HCM Nguyễn Văn Nên đã tiếp Đại sứ Mông Cổ tại Việt Nam Jigjee Sereejav đến chào từ biệt nhân dịp kết thúc nhiệm kỳ tại Việt Nam.
+- Thủ tướng yêu cầu các bên nỗ lực nối đường cao tốc từ Cao Bằng - Lạng Sơn tới Hà Nội và thông tuyến cao tốc từ Bắc vào Nam, tới tận mũi Cà Mau, mục tiêu hoàn thành trong năm 2025.
+- Biết người từng giúp mình nhập khẩu chiếc Mercedes-Benz là phó chánh văn phòng Ban chỉ đạo 389, chủ một công ty bất động sản đe dọa tống tiền 10 tỉ nếu không sẽ cho 'bay chức'. Chủ doanh nghiệp này bị tòa tuyên án phạt 12 năm tù.
+- Về vụ tiền đất tăng đột biến ở Khánh Hòa, từ năm 2023 tỉnh đã báo cáo Bộ Tài chính có tới 86 đơn vị bị ảnh hưởng, do điều chỉnh đơn giá đất “không tương ứng” và tỉnh chậm ban hành quyết định liên quan nhưng đến nay chưa “sửa sai”.
+- Thủ tướng Chính phủ ký quyết định bổ nhiệm ông Lê Tiến Đạt giữ chức phó tổng Thanh tra Chính phủ. Trước đó ông giữ chức vụ cục trưởng ở cơ quan này.
+- Chủ tịch UBND huyện Tri Tôn, tỉnh An Giang cho hay cơ quan công an đang xem xét, củng cố hồ sơ khởi tố vụ án và bị can là tài xế lái ô tô tải làm sập cầu.
+- Khảo sát đầu tư tại tỉnh Quảng Trị, Tập đoàn Công nghiệp than - khoáng sản Việt Nam (TKV) mong muốn đầu tư dự án để nhập khẩu 5 triệu tấn than đá từ Lào qua tỉnh này, dự án chế biến than từ 8 - 10 triệu tấn/năm.
+- Tổng Bí thư Tô Lâm nhấn mạnh nhiệm vụ xây dựng TP Hải Phòng phát triển ngang tầm với các thành phố tiêu biểu châu Á.
+- Phó bí thư thường trực Thành ủy TP.HCM Nguyễn Hồ Hải lưu ý việc tự kiểm tra giám sát, ngăn ngừa được những sai phạm lớn là điều quan trọng.
+- Người phụ nữ từ Trà Vinh lên thuê trọ tại TP Thủ Đức để trị bệnh ung thư. Sau khi làm tiểu phẫu tại phòng trọ, bà bị mệt, được đưa đến bệnh viện nhưng đã tử vong.
+- HĐND tỉnh Ninh Thuận ra nghị quyết điều chỉnh giảm mức đầu tư đường nối từ cao tốc Bắc - Nam đến cảng Cà Ná so với trước đây hơn 200 tỉ đồng, giảm bề rộng mặt đường để kéo dài toàn tuyến thêm 8,2km.
+- Theo giáo sư Nguyễn Ngọc Trân, kênh Vĩnh Tế mà cha ông đã tốn bao công sức, kể cả sinh mạng để tạo nên là một tài sản vô cùng quý giá của quốc gia.
+- Thủ tướng Phạm Minh Chính sẽ dự Hội nghị Thượng đỉnh G20 tại Rio de Janeiro, và thăm Cộng hòa Dominica sau đó từ ngày 16 đến 21-11.
+- Tại dự Luật Đầu tư công sửa đổi mới nhất, tiếp tục quy định phân cấp cho UBND các cấp quyết định chủ trương đầu tư nhóm B, nhóm C do địa phương quản lý.
+- Thanh tra Bộ Tài nguyên và Môi trường quyết định thanh tra công tác cấp giấy chứng nhận tại TP.HCM và đang triển khai đoàn thanh tra.
+- UBND TP.HCM vừa có văn bản gửi các sở ban ngành, quận huyện yêu cầu tập trung giải quyết dứt điểm các dự án tồn đọng.
+- Ngày 14-11, tại trụ sở Thành ủy Hà Nội, Ban Chỉ đạo Thành ủy về phòng, chống tham nhũng, tiêu cực đã tổ chức họp cho ý kiến về tình hình, kết quả hoạt động thời gian qua, nhiệm vụ trọng tâm những tháng cuối năm 2024.
+- TP Cần Thơ sắp mở đường bay tới tỉnh Vân Nam và thành phố Trùng Khánh của Trung Quốc để giao thương và khai thác hiệu quả sân bay quốc tế Cần Thơ.
+- Theo kế hoạch, dự án đường nối Trần Quốc Hoàn sẽ hoàn thành trong năm 2024, nhưng hiện còn 68 mặt bằng chưa bàn giao.
+- Nhiều bệnh viện tại TP.HCM siết chặt quản lý công tác thu phí gửi xe tại bệnh viện, thu phí gửi xe đúng giá, đúng quy định.
+- Trong 5 dự án BOT cửa ngõ TP.HCM theo nghị quyết 98, các đơn vị tư vấn đề xuất 3 dự án đi trên cao, 2 dự án còn lại đi thấp.
+- Hàng loạt cây xanh được trồng dọc quốc lộ 15B bị trụi lá, chết khô. Được biết tình trạng này từng xảy ra sau khi hoàn thành dự án, và đơn vị cung cấp cây xanh buộc phải trồng cây thay thế.
+- Sau khi quận Phú Nhuận triển khai sửa chữa, cải tạo cơ sở hạ tầng phố ẩm thực Phan Xích Long, doanh thu của các cửa hàng tăng từ 20-30%, giờ cao điểm một số điểm phải đặt chỗ trước.
+- Việc phà Bình Quới dừng hoạt động thời gian qua làm đứt quãng giao thông quận Bình Thạnh và TP Thủ Đức (TP.HCM), dư luận đã đặt ra câu hỏi trách nhiệm thuộc về chủ bến hay UBND quận Bình Thạnh?
+- Ứng dụng Công dân số TP.HCM là kênh giao tiếp hai chiều giữa chính quyền thành phố và người dân bằng tương tác ‘một chạm’ dễ dàng, thuận tiện.
+- Chiều 14-11, ông Rah Lan Chung - chủ tịch UBND tỉnh Gia Lai - trực tiếp đến hiện trường chỉ đạo khắc phục vụ thủng đập thủy lợi Ia Ring, nơi có hồ chứa 10 triệu m³ nước.
+- Chiều 14-11, UBND quận 1 tổ chức lễ công bố quyết định thành lập Trung tâm Quản lý phố đi bộ và công viên trên địa bàn quận 1.
+- UBND TP.HCM vừa có văn bản về việc rà soát chứng chỉ ngoại ngữ, liên quan đến chứng chỉ mang tên 'Cambridge International'.
+- Trẻ mồ côi dưới 16 tuổi có cha mẹ là đoàn viên, người lao động (có giao kết hợp đồng lao động) tử vong do bão Yagi sẽ được công đoàn trao tặng sổ tiết kiệm.
+- Cơ quan cảnh sát điều tra Công an tỉnh Bà Rịa - Vũng Tàu phát đi văn bản tìm bị hại liên quan hành vi lừa đảo, sử dụng tài liệu giả của cựu trưởng phòng Sở Giao thông vận tải tỉnh Bà Rịa - Vũng Tàu Nguyễn Kim Hoàn.
+- Dự án khu đô thị Dầu Giây (Đồng Nai) được kỳ vọng tạo ra bộ mặt đô thị cho trung tâm huyện Thống Nhất nhưng xảy ra lùm xùm vì tính pháp lý của dự án.
+- Quy hoạch khoáng sản trói hoạt động khai thác bô xít, sản xuất alumin tại Tổ hợp bô xít - nhôm Tân Rai (huyện Bảo Lâm, tỉnh Lâm Đồng).
+- Làm việc với cán bộ, quân và dân trên đảo Bạch Long Vĩ, Tổng Bí thư Tô Lâm nhấn mạnh nhiệm vụ xây dựng huyện đảo trở thành pháo đài bảo vệ vùng biển, vùng trời trên vịnh Bắc Bộ.
+- Từ 15h chiều 14 -11, liên bộ Công Thương - Tài chính đã công bố điều chỉnh giá xăng dầu.
+- Chuyện nhà vườn tại Bến Tre nhổ bỏ hàng ngàn giỏ hoa cúc mâm xôi được trồng phục vụ Tết 2025 khiến nhiều bạn đọc xót xa.
+- Ngày 14-11, UBND TP.HCM đã gửi văn bản khẩn đến các tỉnh Đồng Nai, Bà Rịa - Vũng Tàu, Bình Dương và Long An về việc hoàn thiện hồ sơ Báo cáo nghiên cứu tiền khả thi cho dự án đầu tư xây dựng đường vành đai 4 TP.HCM.
+- Tiến sĩ Cao Đức Phát - nguyên bộ trưởng Bộ Nông nghiệp và Phát triển nông thôn - nói như vậy tại hội thảo khoa học Triển khai Luật Thủ đô do tạp chí Cộng sản phối hợp với TP Hà Nội tổ chức sáng 14-11.
+- Fanpage Facebook 'Thông tin Chính phủ' hiện đang có hơn 5,4 triệu người theo dõi thường xuyên, số lượng người truy cập hằng ngày từ 15-20 triệu lượt, có ngày cao điểm lên đến 30 triệu lượt.
+- Chính quyền TP Phú Quốc (Kiên Giang) đã tiến hành cưỡng chế, thu hồi gần 2.000m² đất của người dân ở ấp Rạch Tràm (xã Bãi Thơm) để làm dự án khu du lịch sinh thái và dân cư Rạch Tràm.
+- Trần Văn Tín trong lúc nhập cảnh về Việt Nam đã vận chuyển trong người 2 bánh heroin cùng 1 khẩu súng quân dụng, bị lực lượng chức năng phát hiện, bắt giữ.
+- Ngày 14-11, Thủ tướng Phạm Minh Chính đến dự, chung vui Ngày hội đại đoàn kết toàn dân tộc tại khu dân cư 8, thị trấn Na Sầm, huyện Văn Lãng, tỉnh Lạng Sơn.
+- Do đang thi công các hạng mục đường cao tốc khiến nút giao đường tránh Nam Hải Vân - Hoàng Văn Thái (TP Đà Nẵng) xảy ra tình trạng ùn tắc, các phương tiện phải nối đuôi nhau hàng cây số.
+- Phó chủ tịch Quốc hội Nguyễn Đức Hải nêu rõ về quy định mức ngưỡng doanh thu hằng năm thuộc diện không chịu thuế VAT, Ủy ban Thường vụ Quốc hội thống nhất đề nghị giao cho Chính phủ quy định.
+- Phó thủ tướng Trần Hồng Hà chủ trì buổi làm việc để nghe và giải quyết các khó khăn của doanh nghiệp ngành hóa dầu, hóa chất tại tỉnh Bà Rịa - Vũng Tàu.
+- Một đoạn đường kết nối Trần Quốc Hoàn - Cộng Hòa (TP.HCM) vừa được thông xe với kỳ vọng giảm áp lực giao thông cho vòng xoay Lăng Cha Cả. Tuy nhiên, những ngày đầu thông xe, đoạn này khá vắng vẻ, không có nhiều xe.
+- Những cảm xúc về người lính nơi tuyến đầu Tổ quốc như ùa về sau buổi lễ dâng hương của đoàn đại biểu TP.HCM tại tượng đài Nắm Đấm (Phú Quốc), trong chuyến hải trình hướng về Tây Nam.
+- Cơ quan khí tượng Việt Nam đánh giá bão Man-yi rất mạnh, di chuyển nhanh, có khả năng di chuyển vào Biển Đông khoảng ngày 18-11, nhiều khả năng đây là cơn bão số 9 trong năm 2024.
+- Đà Nẵng là địa phương đầu tiên ở nước ta được thí điểm mô hình khu thương mại tự do. Nhiều đại biểu đã gợi ý các yếu tố đầu tư then chốt vào trong mô hình khu thương mại tự do.
+- Ủy ban Thường vụ Quốc hội thống nhất sẽ thiết kế lấy phiếu xin ý kiến đại biểu Quốc hội về áp thuế VAT 5% với phân bón.
+- Ngày 14-11, lãnh đạo UBND huyện Chư Sê (Gia Lai) cho biết đang huy động các lực lượng vá lỗ thủng thân đập thủy lợi Ia Ring, xã Ia Tiêm.
+- Tổng Bí thư Tô Lâm cùng đoàn công tác trung ương đã đến thăm và làm việc tại huyện đảo Bạch Long Vĩ, TP Hải Phòng.
+- Theo Bộ Y tế, đến nay bộ đã phê duyệt giá khám chữa bệnh cho 15 bệnh viện theo mức lương cơ sở mới. Giá khám chữa bệnh chỉ điều chỉnh yếu tố tiền lương từ mức lương cơ sở từ 1,8 triệu đồng sang mức lương cơ sở 2,34 triệu đồng.
+- Trời sẽ ít mưa hơn, nắng nhiều, mùa mưa đang dần kết thúc là chuyển biến lớn nhất của thời tiết TP.HCM trong giai đoạn này.
+- Một học sinh học tại một trung tâm giáo dục ở Hội An trong lúc vui chơi đã gặp tai nạn. Chỉ khi phụ huynh phát hiện và yêu cầu làm rõ thì chủ trường mới đứng ra nhận lỗi.
+- Chủ tịch Đà Nẵng là tổ trưởng tổ công tác của thành phố triển khai kết luận Đề án 'Phương án tháo gỡ khó khăn, vướng mắc liên quan đến các dự án, đất đai trong các kết luận thanh tra, kiểm tra, bản án tại một số tỉnh, thành phố' trên địa bàn.
+- Xe tải, xe ben phóng nhanh, bóp còi inh ỏi làm ảnh hưởng cuộc sống người dân và sinh viên tại làng đại học TP.HCM.
+- Giám đốc Sở Tư pháp TP.HCM Nguyễn Thị Hồng Hạnh vừa được HĐND TP.HCM khóa X bầu làm ủy viên UBND TP.HCM.
+- Sau cuộc hội đàm thành công của Chủ tịch nước Lương Cường và Tổng thống Peru Dina Ercilia Boluarte Zegarra, hai bên ra tuyên bố chung về tăng cường quan hệ.
+- Ngày 14-11, HĐND tỉnh Kiên Giang khóa X, nhiệm kỳ 2021-2026 tổ chức kỳ họp thứ 28 (kỳ họp chuyên đề) để chấp thuận chủ trương một số dự án lớn và kéo dài thời gian thực hiện nhiều dự án đầu tư công trọng điểm.
+- Ngày 14-11, Ban Quản lý dự án và phát triển quỹ đất thành phố Sa Đéc (tỉnh Đồng Tháp) cho biết dự án tuyến đường ĐT852B giai đoạn 2 đã hoàn thành cắm mốc giải phóng mặt bằng đất làng hoa phường Tân Quy Đông, quy mô hơn 500 tỉ đồng.
+- Sáng 14-11, tại kỳ họp thứ 19, HĐND TP.HCM đã thông qua nghị quyết quy định tiêu chí, lĩnh vực, nội dung hỗ trợ thử nghiệm có kiểm soát giải pháp công nghệ mới trong khu công nghệ cao, khu công nghệ thông tin tập trung trên địa bàn TP.HCM.
+- Dự báo hôm nay (14-11), bão số 8 (Toraji) đổi hướng di chuyển theo hướng tây rồi tây nam và suy yếu thành áp thấp nhiệt đới. Bão Usagi quét qua phía bắc đảo Luzon (Philippines) trong tối nay, còn bão Man-yi đang hướng vào Biển Đông.
+- Với 100% thành viên Ủy ban Thường vụ Quốc hội có mặt tán thành đã 'chốt' phương án sáp nhập cấp huyện, xã của Hà Nội, TP.HCM và 10 tỉnh.
+- Dự án kênh Tham Lương - Bến Cát - rạch Nước Lên được điều chỉnh tổng mức đầu tư từ 8.200 tỉ lên 9.030 tỉ và thời gian thực hiện dự án từ 2021-2025 thành 2021-2026.
+- Chủ tịch nước Lương Cường bày tỏ xúc động khi nhận huân chương Mặt trời Peru, huân chương cao quý nhất dành cho người nước ngoài và lâu đời nhất châu Mỹ.
+- Thủ tướng ký quyết định về việc thi hành kỷ luật đối với ông Trần Ngọc Căng, cựu chủ tịch Ủy ban nhân dân tỉnh Quảng Ngãi, vì có những vi phạm liên quan một số gói thầu do Tập đoàn Phúc Sơn thực hiện.
+- Nói đến làm đường thì phải nghĩ ngay đến những khó khăn trong giải phóng mặt bằng. Tuy nhiên đến thời điểm này, có không ít bài học kinh nghiệm được rút ra từ dự án đường vành đai 3 TP.HCM và đường vành đai 4 vùng thủ đô.
+- Chủ tịch Quốc hội Trần Thanh Mẫn nêu rõ tinh thần đổi mới trong xây dựng pháp luật đã được đại biểu Quốc hội đồng thuận, đánh giá cao.
+- Ông Minh Tuệ nêu nguyện vọng mọi người không quay phim, chụp ảnh và đưa hình ảnh của ông lên mạng xã hội vì ảnh hưởng tới quá trình tu học.
+- Khi giấc mơ đường vành đai 3 TP.HCM sắp thành hiện thực thì các địa phương lại tiếp tục đề xuất làm dự án đường vành đai 4 TP.HCM - con đường bộ lớn nhất vùng Đông Nam Bộ từ trước đến nay.
+- Chiều 13-11 (giờ Peru, rạng sáng 14-11 giờ Việt Nam), lễ đón chính thức Chủ tịch nước Lương Cường đã diễn ra trọng thể tại Phủ Tổng thống Peru ở thủ đô Lima.
+- Sáng nay 14-11, HĐND TP.HCM khóa X chính thức khai mạc kỳ họp thứ 19 (kỳ họp chuyên đề) bàn loạt chính sách dân sinh, phát triển công nghệ cao.
+- Nhiều đại biểu Quốc hội đồng tình việc triển khai tuyến đường sắt tốc độ cao Bắc - Nam song đề nghị Chính phủ có đánh giá kỹ lưỡng về nguồn vốn, công nghệ và chuẩn bị nguồn nhân lực...
+- Vụ nổ lớn khiến ngôi nhà của người đàn ông 33 tuổi bị hư hỏng nặng, mái nhà bị thổi bay, gạch vỡ tung tóe trên nền đất.
+- Hàng cây sưa đỏ quý hiếm trên đường Nguyễn Văn Huyên (Cầu Giấy, Hà Nội) đang bị kìm hãm sự phát triển vì lồng sắt quây kín từ gốc tới thân hơn 4 năm qua.
+- Tin tức đáng chú ý: Xem xét sáp nhập cấp huyện, xã của Hà Nội, TP.HCM và 10 tỉnh; Sửa quy định về điều kiện kinh doanh dịch vụ karaoke, vũ trường; Trung tâm cấp cứu 115 TP.HCM đạt chứng nhận vàng về cấp cứu ngoại viện.
+- Hôm nay 14-11, thời tiết cả nước nhiều mây, ngày nắng. Trên Biển Đông bão số 8 bắt đầu đổi hướng và suy yếu nhanh.
+- UBND tỉnh Khánh Hòa vừa giao các cơ quan kiểm tra, khẩn trương tham mưu tỉnh xử lý vụ việc 'quên thu hồi 1,9ha đất tại Nha Trang từ công ty đại gia Lã Quang Bình' mà Tuổi Trẻ Online phản ánh.
+- Bộ Nội vụ khẩn trương đề xuất việc thành lập ban chỉ đạo, tổ giúp việc về tinh gọn bộ máy của Chính phủ, báo cáo Thủ tướng trước ngày 20-11-2024.
+- Các đối tượng mạo danh cơ quan điều tra, viện kiểm sát nhân dân để liên hệ người nhà chuyển tiền 'chạy án' cho các bị can trong vụ án hình sự.
+- Nhà trường đã tạm đình chỉ công tác cô giáo dùng thước đánh học sinh lớp 6 bầm tím hai chân.
+- Phó chánh Văn phòng Trung ương Đảng Đặng Khánh Toàn được điều động, chỉ định tham gia Ban Chấp hành, Ban Thường vụ Tỉnh ủy, giữ chức bí thư Tỉnh ủy Nam Định.
+- UBND tỉnh Quảng Nam giao Ban Quản lý dự án đầu tư xây dựng các công trình giao thông tỉnh lập đề xuất dự án chống ngập TP Tam Kỳ 4.000 tỉ đồng.
+- Do lượng khách đông, nhu cầu kết nối từ sân bay Long Thành đến TP.HCM hết sức quan trọng, cần đảm bảo tính liền mạch.
+- Báo cáo Thủ tướng và Phó thủ tướng Trần Hồng Hà, Bộ Giao thông vận tải bày tỏ ủng hộ việc giao UBND tỉnh Bình Định tổ chức thực hiện đầu tư đường băng thứ hai của sân bay Phù Cát.
+- Ủy ban Kiểm tra Trung ương đã kỷ luật nhiều cán bộ của Bộ Giao thông vận tải và đề nghị kỷ luật ông Nguyễn Văn Thể - nguyên bộ trưởng.
+- Chính quyền TP Vũng Tàu sẽ cưỡng chế cơ sở kinh doanh du lịch ở Bãi Sau để thu hồi mặt bằng cho dự án chỉnh trang đường Thùy Vân. Thời gian cưỡng chế ấn định vào ngày 18-11.
+- Tàu hỏa chở khách số hiệu SE7 khi qua Hà Tĩnh bất ngờ bị trật bánh khỏi đường ray. Hiện lực lượng chức năng đang tiếp cận hiện trường để khắc phục sự cố.
+- Chủ tịch Tập đoàn Vingroup, ông Phạm Nhật Vượng, quyết định tặng quà tri ân đặc biệt đến tất cả khách hàng sở hữu xe xăng và xe điện mua trực tiếp từ VinFast và đại lý ủy quyền trước ngày 31-12. Bộ quà Tết đặc biệt do ông Vượng lựa chọn, ký tặng.
+- Tỉnh Quảng Nam muốn Bộ Quốc phòng bàn giao trước khoảng 868ha đất khu vực phía đông đường trục chính vào sân bay Chu Lai cho tỉnh.
+- Cứ sau những đợt mưa lớn, trên tuyến đường vành đai ngàn tỉ của Đà Nẵng lại xảy ra hiện tượng sạt lở, bùn đất tràn xuống đường.
+- Đại biểu Trần Quốc Thuận đề nghị Chính phủ nghiên cứu mở thêm ga đường sắt tốc độ cao ở giữa 2 tỉnh Thanh Hóa - Nghệ An bởi khoảng cách xa, nhu cầu đi lại đông.
+- Ninh Thuận kiến nghị cần xác định lộ trình phát triển điện hạt nhân nhằm tránh lãng phí nguồn lực .
+- Ngày 13-11, với hơn 90% đại biểu tán thành, nghị quyết về phân bổ ngân sách trung ương năm 2025 được Quốc hội thông qua.
+- UBND TP.HCM sẽ chỉ đạo Sở Giao thông vận tải phối hợp đơn vị tư vấn hoàn thiện hồ sơ nghiên cứu tiền khả thi dự án tổng thể vành đai 4.
+- Đợt triều cường tháng 10 âm lịch thường là đợt triều cường lớn nhất của năm, nhiều địa phương ở miền Tây đã chủ động các giải pháp ứng phó.
+- Sau khi giám sát, Đoàn đại biểu Quốc hội tỉnh Đồng Nai đã chuyển hồ sơ cho cơ quan cảnh sát điều tra để làm rõ tính pháp lý dự án khu dân cư đô thị Dầu Giây.
+- Cát biển có độ mặn cao nhưng khi đưa vào công trường thi công cao tốc Cần Thơ - Cà Mau phải đảm bảo độ mặn nhỏ hơn độ mặn giới hạn theo quy định.
+- Lãnh đạo Thành ủy TP.HCM nhấn mạnh như thế khi phát biểu tại hội nghị chuyên đề về công tác dân vận tham gia giải phóng mặt bằng sáng 13-11.
+- Tài xế 28 tuổi lái xe tải chở 30 tấn gạch đi qua cầu có biển báo tải trọng 5 tấn ở huyện Tri Tôn, An Giang làm sập cầu.
+- Nhiều đại biểu bày tỏ lo lắng về tính khả thi của dự án đường sắt tốc độ cao khi thực hiện vận tốc 350km/h và có thể gây áp lực vốn đầu tư trong tương lai.
+- Trưởng Ban Tuyên giáo Trung ương Nguyễn Trọng Nghĩa yêu cầu tiếp tục vận động, huy động các nguồn lực xã hội chăm lo, giúp đỡ cho người nghèo, người có hoàn cảnh đặc biệt khó khăn.
+- Nội dung nằm trong dự thảo nghị quyết quy định chi thu nhập tăng thêm cho cán bộ, công chức, viên chức tại thủ đô đang được UBND TP Hà Nội xây dựng để trình HĐND TP.
+- Cuối tuần này các quận trung tâm TP.HCM sẽ bị cúp nước do Nhà máy nước Thủ Đức lắp đặt máy móc và bảo trì định kỳ.
+- Bộ trưởng Đỗ Đức Duy nêu rõ nếu được Quốc hội thông qua sẽ giải quyết được nút thắt về phương thức tiếp cận đất đai để thực hiện các dự án nhà ở thương mại.
+- Dự án đường Hàm Nghi kéo dài ở TP Hà Tĩnh theo tiến độ cuối năm nay sẽ đưa vào sử dụng. Nhưng đến nay còn hơn 1,2km mặt bằng chưa được giải phóng.
+- Ngày 13-11, ông Phạm Hoàng Nam, chủ nhiệm Ủy ban Kiểm tra Tỉnh ủy Kiên Giang, cho biết ông đã chỉ đạo Ủy ban Kiểm tra Huyện ủy Giang Thành vào cuộc kiểm tra thông tin phó chủ tịch huyện cho con gái 600 công đất mà báo chí nêu.
+- Đây là mục tiêu của TP.HCM để triển khai có hiệu quả kế hoạch của Thủ tướng về chuyển đổi số trong hoạt động chỉ đạo, điều hành.
+- Cuối năm, nhu cầu đi lại, giao thương của người dân tại Hà Nội rất lớn. Cũng thời điểm này, nhiều tuyến vỉa hè tại thủ đô bị xới tung để lát lại, gạch đá ngổn ngang.
+- Kỹ sư cầu đường Ngô Công Thức - giám đốc Sở Giao thông vận tải - được Hội đồng nhân dân bầu giữ chức phó chủ tịch UBND tỉnh An Giang nhiệm kỳ 2021-2026.
+- Căn nhà nằm trong hẻm nhỏ ở quận 3, TP.HCM bốc cháy khiến công tác dập lửa gặp khó khăn. Tuy nhiên, lực lượng tại chỗ đã phát huy  điểm chữa cháy công cộng.
+- Trong bối cảnh TP.HCM đang chuẩn bị làm thêm các siêu dự án quy mô lớn, câu chuyện giải phóng mặt bằng được đặt lên bàn hội nghị và mô hình vành đai 3 được đưa vào thảo luận.
+- UBND TP Nha Trang đem đất hợp pháp của dân phân lô bán tại cuộc bán đấu giá đất, thu đủ tiền của người mua đã hơn 22 năm vẫn không giao đất và thừa nhận “vi phạm hợp đồng bán đấu giá” nhưng không bồi thường cho nạn nhân.
+- Cơ quan cảnh sát điều tra đã có quyết định khởi tố bị can đối với ông Võ Văn Chánh, cựu phó chủ tịch UBND tỉnh Đồng Nai.
+- Nhà đầu tư được nhận chuyển nhượng đất nông nghiệp, đất phi nông nghiệp không phải đất ở để làm nhà ở thương mại.
+- Tỉnh Thừa Thiên Huế vừa ban hành chỉ thị về việc tăng cường quản lý, kiểm soát tình hình biến động giá bất động sản trên địa bàn, tránh nạn đầu cơ, “thổi” giá đất.
+- Người dân có thể kiểm tra quy hoạch bất động sản ở tỉnh Khánh Hòa bằng giọng nói thông qua một ứng dụng trên điện thoại di động.
+- Sáng 13-11, bão số 8 (Toraji) suy yếu xuống cấp 8-9 (62-88km/h), giật cấp 11. Hiện ngoài khơi Philippines đang có bão Usagi và Man-yi đang hoạt động, trong đó có một cơn bão đang hướng vào Biển Đông.
+- Trong hai ngày 11 và 12-11 tiến hành chất vấn và trả lời chất vấn tại Quốc hội, rất nhiều vấn đề nóng và vấn đề dân sinh được nêu ra.
+- Doanh nghiệp trúng đấu giá 'đất vàng' là căn nhà số 4 Hồ Tùng Mậu đã đóng đủ tiền nhưng chờ mãi vẫn chưa được giao đất.
+- Nghị quyết thống nhất chưa tăng tiền lương khu vực công, lương hưu, trợ cấp bảo hiểm xã hội, trợ cấp hằng tháng, trợ cấp ưu đãi người có công trong năm 2025.
+- Theo Bộ trưởng Nguyễn Văn Thắng, dự án đường sắt tốc độ cao Bắc - Nam là đường đôi, tốc độ thiết kế 350km/h, dự kiến tổng vốn hơn 67 tỉ USD.
+- Bên cạnh chấn chỉnh việc kiểm tra hiện trạng, Sở Tài nguyên và Môi trường kiến nghị UBND TP.HCM cho chỉnh sửa quy chế phối hợp quản lý trật tự xây dựng trên địa bàn.
+- Đại biểu Quốc hội hỏi phát triển đất nước ưu tiên cho cái gì, Thủ tướng nói ngoài thể chế, phân cấp phân quyền thì sẽ ưu tiên cho tăng trưởng.
+- Trước đó, huyện Vĩnh Linh hướng dẫn người dân kiện ra tòa và sẽ ghi tên cha theo bản án vào giấy khai sinh để công nhận con liệt sĩ.
+- Sau khi bị ô tô tông đuôi, người đàn ông đi xe máy dùng mũ bảo hiểm đập bể kính chắn gió ô tô ngay vòng xoay công viên Gia Định, quận Gò Vấp, TP.HCM.
+- Một số nhà vườn tại huyện Chợ Lách, tỉnh Bến Tre phải nhổ bỏ hàng ngàn giỏ hoa cúc mâm xôi được trồng cho mùa Tết 2025. Vì sao lại có chuyện trái khoáy này?
+- Kết thúc chuyến thăm chính thức Chile, Chủ tịch nước Lương Cường đã đến Peru chiều 12-11 (giờ địa phương), bắt đầu chuyến thăm nước này và dự Tuần lễ cấp cao APEC 2024.
+- Một số tin tức đáng chú ý: Quốc hội xem xét chủ trương đầu tư đường sắt tốc độ cao Bắc - Nam; Loạt doanh nghiệp trên sàn chứng khoán bị xử phạt về thuế; TP.HCM tước giấy phép hai phòng khám 'vẽ bệnh moi tiền'...
+- Hôm nay 13-11, thời tiết mưa to kết thúc tại miền Trung. Miền Bắc sáng có sương mù, còn miền Nam ngày nắng, chiều tối có mưa.
+- UBND TP.HCM vừa ủy quyền cho Sở Xây dựng tiếp nhận, giải quyết hồ sơ chuyển nhượng dự án bất động sản, cấp phép sàn giao dịch bất động sản...
+- Hiệu trưởng Trường tiểu học Phan Văn Trị, quận 1, TP.HCM viết thư ngỏ xin không nhận hoa, quà ngày 20-11, mà đổi thành tập, sữa… cho học sinh.
+- Trong tờ trình mới nhất gửi Quốc hội quyết định chủ trương đầu tư dự án đường sắt tốc độ cao trên trục Bắc - Nam, Chính phủ đã giải trình nhiều nội dung về ý kiến thẩm tra sơ bộ của Ủy ban kinh tế của Quốc hội.
+- Ngày 12-11, đường tạm dân sinh dưới cầu Rạch Chiếc (gần BOT xa lộ Hà Nội) bị rào chắn khiến nhiều người thắc mắc.
+- Bộ Chính trị vừa quyết định điều động, bổ nhiệm Bí thư Tỉnh ủy Nam Định Phạm Gia Túc giữ chức phó chánh Văn phòng Trung ương Đảng.
+- Sau khi vào Biển Đông, bão số 8 (Toraji) đang hướng về khu vực phía bắc của bắc Biển Đông và duy trì cường độ mạnh cấp 9-10 (75-102km/h), giật cấp 12.
+- Đó là thông tin được lãnh đạo UBND TP Thủ Đức (TP.HCM) khẳng định tại hội nghị phản biện dự thảo phương án bồi thường, hỗ trợ, tái định cư dự án đầu tư xây dựng đường vành đai 2 (đoạn 1, đoạn 2) chiều 12-11.
+- Số vụ vi phạm tải trọng đã giảm đáng kể khi TP.HCM áp dụng việc thí điểm xử phạt nguội thông qua các trạm cân.
+- Chiều 12-11, Bộ trưởng Bộ Giao thông vận tải Nguyễn Văn Thắng thừa ủy quyền của Thủ tướng trình tờ trình điều chỉnh chủ trương đầu tư dự án sân bay Long Thành.
+- Công ty TNHH Mediterranean Shipping Company (MSC) Việt Nam mong đóng góp một phần nhỏ vào sự ổn định cuộc sống của bà con vùng bão lũ.
+- Lại thêm một thanh niên leo lên nóc Bảo tàng Lịch sử quân sự Việt Nam quay clip bản thân rồi tung lên mạng kèm theo lời bình: "Trải nghiệm góc nhìn có 1 không 2. Thoát khỏi đám đông tìm kiếm sự khác biệt".
+- Theo nghị quyết được thông qua, Quốc hội quyết nghị mục tiêu năm 2025, tốc độ tăng tổng sản phẩm trong nước (GDP) khoảng 6,5 - 7% và phấn đấu 7 - 7,5%.
+- UBND xã Hòa Thắng (TP Buôn Ma Thuột, Đắk Lắk) đã 'đạt được thỏa thuận' với giám đốc ngân hàng hủy hoại đất, để ông này sẽ tự tháo dỡ công trình trái phép trong sân golf.
+- Đầu tư ban đầu để thực hiện chuyển đổi xanh, chuyển đổi số trong sản xuất rất lớn, doanh nghiệp quy mô lớn làm được nhưng hầu hết doanh nghiệp nhỏ gặp khó về tài chính.
+- Một doanh nghiệp tự ý chuyển đổi hàng ngàn mét vuông đất xây trại heo gây ô nhiễm, dù bị cấm hoạt động vẫn tiếp tục xả thải ra môi trường...
+- Thời gian dài không liên hệ được, người nhà nhờ chủ vườn đi kiếm thì phát hiện ông L. đã chết dưới chân thang sắt. Sự vụ xảy ra ở Đồng Phú, Bình Phước.
+- Ban Bí thư quyết định kỷ luật cách chức tất cả các chức vụ trong Đảng đối với ông Nguyễn Viết Hiển, cựu giám đốc Sở Giáo dục và Đào tạo Thái Bình.
+- Tòa án nhân dân tỉnh Quảng Ngãi tuyên án tử hình đối với bị cáo Phan Thanh Việt - người tham gia giết 6 người vào năm 1981, rồi trốn lệnh truy nã 43 năm.
+- Ban chỉ đạo triển khai thực hiện các công trình trọng điểm tỉnh Quảng Ngãi do ông Đặng Ngọc Huy, phó bí thư Tỉnh ủy kiêm trưởng Đoàn ĐBQH tỉnh, làm trưởng ban vừa có cuộc họp xem xét chỉ đạo tiến độ, công tác đền bù, giải phóng mặt bằng ở các dự án.
+- Dự án mở rộng xa lộ Hà Nội được khởi công từ năm 2010, dự kiến 3 năm sẽ làm xong, nhưng đã kéo dài 14 năm vẫn còn dang dở vì vướng mặt bằng.
+- Chủ tịch UBND tỉnh Quảng Trị Võ Văn Hưng đã ngay lập tức chỉ đạo Công an TP Đông Hà xử lý vụ nhóm người chặn cổng công ty gas. Nhóm này đã đưa toàn bộ xe rời đi sau đó.
+- Bộ Công an đang xử lý các đội nhóm lập trên mạng xã hội như "báo chốt 141, thông chốt kiểm soát nồng độ cồn, né bắn tốc độ".
+- Thủ tướng khẳng định cần xây dựng thể chế những vấn đề được làm và không được làm,  mở rộng không gian sáng tạo, bảo vệ quyền và lợi ích hợp pháp của mọi công dân, doanh nghiệp.
+- Bãi xe ở một số bệnh viện tại TP.HCM thu phí cao hơn giá niêm yết, khi người dân thắc mắc thì nhân viên thu phí gắt gỏng.
+- Doanh nghiệp khai thác khoáng sản (đất sét) hết hạn giấy phép rời đi thì để lại cảnh đồng hoang, đất chết, loang lổ nhiều chỗ không khác gì ‘hố bom’.
+- “Xung đột” giữa nghề phơi cá cơm truyền thống của người dân với ngành du lịch kinh tế mũi nhọn đang là câu chuyện nan giải ở vùng biển Mũi Né, TP Phan Thiết, tỉnh Bình Thuận.
+- Thượng tá Bùi Xuân Bình - trưởng Phòng cán bộ Quân chủng hải quân - được bổ nhiệm giữ chức vụ bí thư Đảng ủy, chính ủy Vùng 4 hải quân.
+- Cầu Đakrông trên đường Hồ Chí Minh nhánh tây gặp sự cố hư hỏng nên mỗi khi có xe tải chở than qua cầu, dù với tốc độ chậm nhưng cầu rung lên bần bật.
+- Ngày 12-11, lãnh đạo Chi cục Kiểm lâm tỉnh Kiên Giang cho biết Tổ công tác xử lý vi phạm phá rừng, lấn chiếm đất rừng trên địa bàn huyện Kiên Lương phát hiện 3 vụ phá rừng có dấu hiệu hình sự.
+- Một clip ngắn dài 8 giây ghi lại hình ảnh một cô gái cùng một người khác trèo lên nóc Bảo tàng Lịch sử quân sự Việt Nam để quay phim, chụp ảnh những ngày qua lại khiến cộng đồng mạng bức xúc.
+- Một quán tạp hóa tại vùng biên giới Hướng Hóa (Quảng Trị) bị đặt thuốc nổ và nổ tung trong đêm. Nhưng cơ quan điều tra không thể xử lý hình sự kẻ chủ mưu vì người này mới 14 tuổi.
+- Nhiều bạn đọc bức xúc trước cảnh 'phản cảm leo lên xe tăng, súng, pháo ở Bảo tàng Lịch sử quân sự Việt Nam chụp ảnh, cha mẹ còn cổ vũ', và đại diện bảo tàng đã lên tiếng.
+- Một người dân bị hỏng mắt phải, không nhìn thấy vẫn được phòng khám đa khoa ở Quảng Nam cấp giấy khám sức khỏe với kết luận thị lực cả hai mắt không kính là 10/10, đủ sức khỏe lái xe hạng C.
+- Đến nay trên địa bàn tỉnh Bà Rịa - Vũng Tàu không còn nhà dột nát, nhà tạm. Hiện nay chính quyền, các ngành chức năng chủ yếu tập trung sửa chữa và xây mới những căn nhà đại đoàn kết.
+- Khởi công ngày 5-1-2021, đến nay sau hơn 1.400 ngày triển khai xây dựng dự án sân bay Long Thành giai đoạn 1 đã triển khai ra sao?
+- Chấn chỉnh việc văn phòng đăng ký đất đai kiểm tra hiện trạng nhà, giảm phiền hà cho dân là kịp thời và cần thiết.
+- Nhiều ngày qua, thông tin phó chủ tịch huyện Giang Thành cho con gái 600 công đất trị giá 90 tỉ đồng trong ngày đám cưới làm xôn xao dư luận. Tuy nhiên, phó chủ tịch UBND huyện khẳng định vợ “nói nhầm”, còn Ủy ban Kiểm tra vào cuộc.
+- Trong lúc tuần tra kiểm soát trên quốc lộ 1, lực lượng cảnh sát giao thông Công an tỉnh Hà Tĩnh phát hiện một thanh niên vận chuyển hơn 1,2 tạ pháo hoa và 3.000 quả pháo bi nhãn hiệu nước ngoài.
+- Sáng 12-11, Đảng ủy khối Dân - Chính - Đảng TP.HCM tổ chức lễ trao huy hiệu Đảng đợt ngày 7-11-2024. Bí thư Thành ủy TP.HCM Nguyễn Văn Nên tham dự.
+- Cơ bản đảm bảo thuốc, vật tư, trang thiết bị y tế, song vẫn xảy ra hiện tượng thiếu hụt cục bộ tại một số cơ sở y tế công lập, nhất là thuốc đặc thù.
+- Bộ trưởng Đào Hồng Lan nêu rõ bản thân rất quan tâm và 'mấy ngày trước đây cũng đeo khẩu trang bịt mặt ra hàng thuốc gần nhà mua thuốc kê đơn'.
+- Đàn chó dữ trong sân golf của gia đình giám đốc ngân hàng rất nguy hiểm nên phải hoãn cưỡng chế chờ sự hỗ trợ của đội huấn luyện chó nghiệp vụ Công an tỉnh Đắk Lắk đến xử lý.
+- Sáng 12-11, áp thấp nhiệt đới suy yếu từ bão số 7 (bão Yinxing) đang ở ngay trên vùng biển các tỉnh Quảng Nam đến Bình Định và gây mưa các tỉnh Trung và Nam Trung Bộ.
+- Sở Xây dựng TP.HCM vừa tham mưu UBND TP xây dựng Đề án thực hiện di dời toàn bộ nhà trên và ven sông, kênh, rạch trên địa bàn TP.HCM.
+- Sáng nay 12-11, Bộ trưởng Bộ Thông tin và Truyền thông Nguyễn Mạnh Hùng là ‘tư lệnh’ ngành thứ 3 đăng đàn trả lời chất vấn.
+- Đề xuất cần phải tịch thu xe để xử lý quái xế có phù hợp?
+- Tại phiên chất vấn đối với lĩnh vực ngân hàng vào hôm 11-11, quản lý thị trường vàng và tăng trưởng tín dụng là hai nội dung được nhiều đại biểu quan tâm nhất.
+- Chỉ hơn 2 tuần sau khi đảm nhận cương vị mới, Chủ tịch nước Lương Cường đã chọn Chile là điểm đến cho chuyến thăm nước ngoài đầu tiên.
+- Sau phản ánh của Tuổi Trẻ Online về việc vỉa hè dọc hồ Tây ngang nhiên biến thành chốn ăn nhậu, trong tối 11-11, Công an quận Tây Hồ (Hà Nội) đã phối hợp với công an các phường ra quân nhắc nhở, xử lý vi phạm.
+- Vì cho rằng UBND tỉnh Khánh Hòa chưa có văn bản trả lời ý kiến của Cục Thuế tỉnh, một chi cục thuế ở tỉnh này đã dừng xử lý hồ sơ xác định nghĩa vụ tài chính về đất đai cho dân.
+- Một số tin tức đáng chú ý: Hôm nay Thủ tướng Phạm Minh Chính sẽ trả lời chất vấn trước Quốc hội; Cổ phiếu một doanh nghiệp bất động sản vào diện cảnh báo; "Cơn mưa" tiền mặt cổ tức về cuối năm, một công ty Sông Đà sắp chi hàng trăm tỉ...
+- Tổng Bí thư Tô Lâm và Tổng thống đắc cử của Mỹ Donald Trump đã trao đổi đánh giá về quan hệ song phương, cũng như phương hướng tăng cường quan hệ kinh tế, thương mại trong cuộc điện đàm tối 11-11.
+- Hôm nay 12-11, bão số 7 (Yinxing) suy yếu nhanh chóng nhưng gây mưa to cho miền Trung, bão Toraji dự báo vào Biển Đông thành bão số 8.
+- Trong khuôn khổ chuyến thăm chính thức Chile, Chủ tịch nước Lương Cường đã hội kiến Chủ tịch Thượng viện José Garcia Ruminot và Chủ tịch Hạ viện Karol Cariola ngày 11-11.
+- Hai giám đốc sở Nội vụ và Tài nguyên và Môi trường đã trúng cử chức danh ủy viên UBND thành phố Hải Phòng khóa XVI.
+- Tối 11-11, bão Toraji đi vào Biển Đông, trở thành cơn bão số 8 trong năm 2024. Trong khi đó, bão Yinxing (bão số 7) suy yếu thành áp thấp nhiệt đới.
+- Tổng thống Gabriel Boric Font chủ trì lễ đón chính thức Chủ tịch nước Lương Cường tại Quảng trường Hiến Pháp trưa 11-11.
+- 90 tác phẩm đã được trao giải báo chí ‘Vì sự nghiệp đại đoàn kết toàn dân tộc’ lần thứ 16.
+- Tổng Bí thư Tô Lâm nêu rõ cần khẩn trương thực hiện nghị quyết 18 về tinh gọn tổ chức bộ máy với quyết tâm chính trị cao, hành động quyết liệt, thống nhất về tư tưởng của cả hệ thống chính trị.
+- Ngoài điện chúc mừng Thủ tướng Nhật Bản Ishiba Shigeru của Thủ tướng Phạm Minh Chính, Chủ tịch Quốc hội Trần Thanh Mẫn cũng có thư mừng Chủ tịch Hạ viện và Chủ tịch Thượng viện Nhật Bản.
+- Ban Giao thông vừa có báo cáo về tình hình thi công các dự án trọng điểm như nút giao An Phú, hầm chui Nguyễn Hữu Thọ, đường nối ở sân bay Tân Sơn Nhất...
+- Ngày 11-11, Tỉnh ủy Bình Thuận tổ chức hội nghị công bố quyết định của Ban thường vụ về công tác cán bộ tại huyện đảo Phú Quý.
+- Dự kiến lễ khai mạc triển lãm sẽ có màn trình diễn bay của lực lượng không quân và khoảng 2.200 cán bộ, chiến sĩ đặc công biểu diễn võ thuật.
+- Công an TP.HCM đang tạm giữ bà Nguyễn Thị Linh và Lý Thị Ngọc Bích do liên quan vụ mang trái phép 716 viên kim cương qua sân bay Tân Sơn Nhất.
+- Người đàn ông bị còng tay rồi bị một thanh niên dùng chân đá vào người ở khu vực ngã tư An Sương, quận 12, TP.HCM.
+- Đó là khẳng định của Bộ trưởng Bộ Công Thương Nguyễn Hồng Diên khi giải trình thêm về việc quản lý thuốc lá điện tử, thuốc lá nung nóng tại phiên chất vấn và trả lời chất vấn chiều 11-11.
+- Sở Lao động, Thương binh và Xã hội TP Cần Thơ nói không chi sai 4,7 tỉ đồng tiền trợ cấp thất nghiệp, mà do người lao động gian lận, hưởng sai.
+- UBND TP Tuy Hòa (Phú Yên) thông báo cưỡng chế tháo dỡ 2 tầng xây vượt của khách sạn Bạch Dương Aries, 17 đường Điện Biên Phủ, TP Tuy Hòa.
+- HĐND tỉnh Cà Mau khóa X, nhiệm kỳ 2021-2026 tổ chức kỳ họp thứ 16 (chuyên đề) và thống nhất bầu ông Phạm Thành Ngại - phó bí thư thường trực Tỉnh ủy - giữ chức chủ tịch UBND tỉnh Cà Mau.
+- Ông Nguyễn Đức Trung - phó bí thư Tỉnh ủy, chủ tịch UBND tỉnh Nghệ An - được bầu giữ chức bí thư Tỉnh ủy nhiệm kỳ 2020-2025.
+- Đó là vấn đề được rất nhiều chuyên gia quan tâm, kỳ vọng tại Hội nghị vận tải logistics toàn cầu ở TP.HCM ngày 11-11.
+- Một công ty chuyên kinh doanh gas tại Khu công nghiệp Nam Đông Hà (Quảng Trị) liên tục gửi đơn đến các cơ quan chính quyền kêu cứu.
+- Để giảm kẹt xe ở phía Nam TP.HCM, nhiều bạn đọc cho rằng cần mở rộng các đường dưới dạ cầu, đặc biệt là đoạn đường dạ cầu Khánh Hội.
+- Sở Giáo dục và Đào tạo Đà Nẵng đã yêu cầu các đơn vị liên quan xác minh, xử lý 2 cơ sở dạy trẻ tự kỷ sau phản ánh của báo Tuổi Trẻ.
+- Sau khởi động không thành công tại mùa giải 2024-2025, huấn luyện viên trưởng Phạm Anh Tuấn - CLB bóng đá Sông Lam Nghệ An - quyết định từ chức.
+- Chắc chắn quy mô kinh tế chúng ta sẽ đạt vài ngàn tỉ đô la trong thời gian không xa, chứ không nằm trong quy mô gần 500 tỉ đô như hiện nay.
+- Nghị định về bảo hiểm tai nạn lao động tự nguyện hướng tới người từ 15 tuổi trở lên, không làm theo hợp đồng, không đóng bảo hiểm xã hội bắt buộc.
+- Nhiều bạn đọc Tuổi Trẻ Online đã hiến kế giúp thành phố này vừa giữ được cây xanh, vừa phát triển được hạ tầng giao thông.
+- Những ngày gần đây xảy ra tình trạng dồn ứ rác ở trạm trung chuyển rác trên đường Kha Vạn Cân (phường Hiệp Bình Chánh, TP Thủ Đức, TP.HCM).
+- Bộ trưởng Đào Hồng Lan là 'tư lệnh' ngành thứ 2 đăng đàn trả lời chất vấn tại Quốc hội các nội dung như đảm bảo thuốc, vật tư y tế.
+- Vỉa hè dọc hồ Tây (quận Tây Hồ, Hà Nội) suốt ngày đêm có những hàng quán trải chiếu, bày bàn ghế để làm nơi ăn, chốn nhậu cho khách hàng.
+- Đây là một trong những ý kiến của TP.HCM về hồ sơ dự án đầu tư xây dựng mở rộng đường cao tốc TP.HCM - Trung Lương - Mỹ Thuận.
+- Sở Giáo dục và Đào tạo Đồng Nai kết luận Trường phổ thông Thực hành sư phạm Đồng Nai thu nhiều khoản sai quy định, phải khắc phục.
+- Các đại biểu Quốc hội cho rằng để Hà Nội có thể sớm thực hiện các dự án đường sắt đô thị, cần có các cơ chế đột phá.
+- Dự báo bão Yinxing suy yếu thành áp thấp nhiệt đới rồi vùng áp thấp trên đất liền Quảng Ngãi - Bình Định.
+- Từ ngày 11 đến 17-11, dự án metro số 1 vận hành thử nghiệm 100% công suất thiết kế với 14 đoàn tàu (thêm 3 đoàn tàu dự phòng).
+- "Vua thép" Trần Đình Long vừa tuyên bố mạnh mẽ về năng lực cung cấp thép cho dự án quan trọng này.
+- Hà Nội bầu trời trắng đục, chất lượng không khí rất kém ở ngưỡng cảnh báo tím - gây ảnh hưởng đến sức khỏe.
+- Yêu cầu là các địa phương phải kiểm soát để việc làm nhà tạm không bị biến tướng khi đất đai ở TP.HCM luôn có "sức nóng" riêng.
+- Một người đàn ông bất ngờ nhảy từ cầu Sài Gòn (TP.HCM) xuống sông trong trạng thái mất bình tĩnh. Các nhân viên buýt sông đã cứu kịp thời.
+- Chủ tịch nước gặp bà Patricia Abarzua, người đã dành thời thanh niên xuống đường ủng hộ cuộc đấu tranh chính nghĩa của Việt Nam.
+- Thống đốc Nguyễn Thị Hồng là vị "tư lệnh" ngành đầu tiên đăng đàn trả lời chất vấn tại Quốc hội với nhiều nội dung quan trọng.
+- Từ số vốn điều lệ ban đầu 80 tỉ đồng năm 2018, đến khi vỡ nợ Công ty GFDI ở Đà Nẵng đã vay của khách hàng lên tới hơn 3.700 tỉ đồng.
+- Hàng chục quái xế trong lứa tuổi thanh, thiếu niên điều khiển xe máy gây náo loạn đường phố đã bị lực lượng tuần tra hóa trang kết hợp công khai tại Hưng Yên phát hiện, xử lý.
+- Đêm qua và rạng sáng 11-11, bão Toraji tiếp tục mạnh lên cấp 12 (118-133km/h), giật cấp 15. Dự báo trong tối nay bão đi vào Biển Đông, trở thành cơn bão số 8 trong năm nay.
+- Tin tức đáng chú ý: Quốc hội chất vấn 'tư lệnh' ngành ngân hàng, y tế; Theo dõi chặt bão Toraji để chủ động ứng phó; FLC Faros có sếp mới 9X.
+- Hôm nay 11-11, bão Yinxing đổi hướng thẳng về phía Hoàng Sa rồi dần suy yếu, thời tiết đất liền ổn định hết ngày nay, sau đó miền Trung có đợt mưa to.
+- Thống đốc Nguyễn Thị Hồng, Bộ trưởng Y tế Đào Hồng Lan, Bộ trưởng Thông tin và Truyền thông Nguyễn Mạnh Hùng sẽ đăng đàn trả lời chất vấn tại Quốc hội.
+- Cùng tham dự với Chủ tịch nước Lương Cường có nguyên Tổng thống Chile Michelle Bachellet, Chủ tịch Đảng Cộng sản Chile Lautaro Carmona và đông đảo người dân.
+- Ngày 10-11, lãnh đạo UBND TP.HCM, lãnh đạo các ban Đảng TP đã tham dự Ngày hội Đại đoàn kết toàn dân tộc năm 2024 tại các địa phương.
+- Trời mưa to, sóng cao gần nửa mét nhưng đoàn đại biểu TP.HCM vẫn vượt sóng vượt gió trao tận tay những phần quà nghĩa tình đến các chiến sĩ đảo Hòn Khoai, Cà Mau.
+- Theo đại diện Cục Kiểm soát ô nhiễm môi trường (Bộ Tài nguyên và Môi trường), có nhiều nguồn thải dẫn đến ô nhiễm không khí ở Hà Nội.
+- Cũng trong tối 10-11, gala trao giải Tái tạo xanh và Tuổi Trẻ Start-up Award 2024 đã diễn ra trong khuôn khổ bế mạc 2 ngày hội Việt Nam Xanh.
+- Vụ cháy khiến khói bao trùm các hành lang, xộc thẳng vào phòng, nhiều người chỉ kịp quơ vội vài vật dụng chạy lên tầng thượng. Nhưng đã có người không thoát kịp, tử vong.
+- Dự báo sau khi bão Yinxing (bão số 7) suy yếu, Biển Đông có thể đón liên tiếp cơn bão số 8 (bão Toraji) và bão số 9.
+- UBND xã Hòa Thắng (TP Buôn Ma Thuột, tỉnh Đắk Lắk) đã có quyết định cưỡng chế đối với công trình xây dựng trái phép trên sân golf của vợ chồng giám đốc một chi nhánh ngân hàng.
+- Ngày cuối tuần, nhiều gia đình đã hào hứng tham gia Ngày hội Việt Nam Xanh mang theo đủ loại rác thải - từ chai nhựa, lọ thủy tinh đến túi ni lông để đổi lấy những phần quà thú vị từ INSEE Việt Nam.
+- Trong dòng người đến Việt Nam Xanh vào ngày 10-11, có một vị khách đặc biệt lặng lẽ đi từng không gian xanh, nhìn ngắm những sản phẩm tái chế và nán lại sẻ chia về cảm nhận của mình.
+- Ban chỉ đạo thống nhất nâng mức hỗ trợ lên 60 triệu đồng/căn nhà xây mới, hỗ trợ 30 triệu đồng/căn nhà sửa chữa.
+- Trước thềm phiên chất đối với 3 'tư lệnh' ngành vào sáng mai (11-11), đã có nhiều câu hỏi 'nóng' được đại biểu Quốc hội chia sẻ mong muốn nhận lời giải đáp.
+- Lực lượng chức năng đã kết thúc khám nghiệm hiện trường và đưa máy bay Yak-130 rơi ở Vườn quốc gia Yok Đôn về đơn vị thuộc Trường Sĩ quan Không quân.
+- Ngày 10-11, lực lượng chức năng TP Thủ Đức (TP.HCM) đưa 4 người đàn ông dùng tay đánh rồi cầm dao, kéo đe dọa tài xế taxi ở Bệnh viện TP Thủ Đức để thực nghiệm hiện trường, củng cố hồ sơ xử lý.
+- Cây xanh không chỉ èo uột trên đường vành đai phía tây Đà Nẵng, mà tuyến đường vành đai phía nam trăm tỉ (đoạn Hòa Phước - Hòa Khương) cũng có hàng loạt cây xanh chết trụi.
+- Phòng gym lắp camera trong khu thay đồ nữ; Tranh chấp phí quản lý bị cắt nước sinh hoạt... là những thông tin bạn đọc phản ánh đến Tuổi Trẻ trong tuần qua.
+- Cử tri cho rằng TP.HCM có số lượng án dân sự phải thi hành cao nhất cả nước, nhưng tỉ lệ thi hành án xong chỉ đạt khoảng 70% hằng năm.
+- Người dân TP.HCM vừa thở phào với động thái chấn chỉnh việc kiểm tra hiện trạng nhà ở đối với hệ thống Văn phòng đăng ký đất đai từ Sở Tài nguyên và Môi trường.
+- Theo chuyên gia thời tiết, khi bão Toraji gần vào Biển Đông thì tương tác bão đôi xuất hiện, bão Toraji sẽ làm cho bão Yinxing lệch nhiều hơn xuống phía nam.
+- Ngày 10-11, tại quận 3, TP.HCM, hàng ngàn người dân đến bờ kênh Nhiêu Lộc - Thị Nghè để cổ vũ cho Lễ hội đua ghe ngo, một trong những hoạt động thể thao truyền thống nổi bật của cộng đồng người Khmer.
+- Một vụ cháy nhà trong hẻm đường Bà Hạt, quận 10, TP.HCM làm nhiều người mắc kẹt, lực lượng chức năng đến ứng cứu. Tuy nhiên, vụ cháy đã làm một cụ bà khoảng 77 tuổi tử vong.
+- Hai xe máy đi cùng chiều trên đường Ỷ Lan (Gia Lâm, Hà Nội) xảy ra va chạm với một xe máy khác lưu thông hướng ngược lại. Vụ tai nạn làm 2 người chết và 2 người bị thương.
+- Mỗi ngày, hàng trăm ngàn người dân TP.HCM phải chống chọi với cảnh đi lại chật vật ở nhiều tuyến đường dẫn từ cửa ngõ vào trung tâm.
+- Yêu cầu là nữ công dân từ đủ 18 đến 25 tuổi, cao lấy từ 1,60m trở lên, ngoại hình cân đối, quân dung tươi tỉnh, chưa lập gia đình, chưa có con.
+- Vụ tai nạn liên hoàn tại vị trí Km68+050 cao tốc Hà Nội - Hải Phòng khiến 3 ô tô hư hỏng nặng.
+- Tranh thủ thời tiết nắng ráo, các đơn vị thi công đã tập trung nhân lực, máy móc để thảm lại những điểm bong tróc, hư hỏng, ổ gà trên quốc lộ 1 qua tỉnh Hà Tĩnh sau bài viết phản ánh đăng trên báo Tuổi Trẻ.
+- Hôm qua 9-11, Quốc hội đã thảo luận tổ về dự thảo Luật Nhà giáo với nhiều ý kiến quan tâm các chính sách đột phá cho nhà giáo như: tiền lương, phụ cấp, chế độ ưu đãi...
+- Thời gian qua nhiều người dân có nhu cầu làm thủ tục thừa kế, tặng cho, mua bán nhà đã có giấy chứng nhận đều gặp khó với việc kiểm tra hiện trạng từ phía Văn phòng đăng ký đất đai.
+- Dự báo sau khi bão Yinxing (bão số 7) suy yếu thì bão Toraji đi vào Biển Đông, trở thành cơn bão số 8 trong năm 2024.
+- Hiện tại ‘chuỗi bão’ gồm ba cơn nối nhau một quãng đường dài hàng ngàn km từ Thái Bình Dương vào tận Biển Đông.
+- Mới đầu buổi sáng nay 10-11, Bảo tàng Lịch sử quân sự Việt Nam đã quá tải do du khách tới tham quan. Bảo tàng khuyến cáo người dân chủ động sắp xếp thời gian hợp lý để buổi tham quan diễn ra thuận lợi, tránh tình trạng chen lấn, xô đẩy.
+- Đại biểu Quốc hội và đại diện cơ quan chức năng nói như vậy về tình trạng cha mẹ, người thân, chủ phương tiện giao xe cho người không đủ điều kiện sử dụng và gây tai nạn giao thông.
+- 139 học sinh, sinh viên xuất sắc tiêu biểu năm 2024 của thành phố Hải Phòng được tặng bằng khen và phần thưởng 10 triệu đồng/em.
+- Hiện nhiều địa phương ở miền Bắc có chất lượng không khí ở ngưỡng xấu, có nơi rất kém cả ngày lẫn đêm.
+- Đêm qua và rạng sáng 10-11, bão Yinxing (bão số 7) có xu hướng đi chậm lại, dần đổi hướng đi về vùng biển các tỉnh Trung Trung Bộ và cường độ bắt đầu suy yếu.
+- Một số tin tức đáng chú ý: Lãi suất liên ngân hàng lên cao nhất 20 tháng;  Lào Cai miễn học phí các cấp năm học 2024-2025; Cứ 3 giây có một người bị đột quỵ...
+- Hôm nay dự báo thời tiết tất cả các địa phương trên cả nước tương đối ổn định, ngày nắng, trái ngược lại trên Biển Đông lại dông gió dữ dội.
+- Bệnh viện dã chiến cấp 2 số 6 của Việt Nam tại Nam Sudan đã vận chuyển bay liên hoàn một thai phụ  mang thai đôi trong tình trạng nguy kịch.
+- Hòn đá trên núi Cù Hin có nguy cơ mất an toàn đã bị “xóa sổ”, chấm dứt việc “xà quần” xử lý hơn 1 tháng rưỡi.
+- Chiều tối 9-11, bão Yinxing (bão số 7) mạnh lên cấp 14-15 (150-183km/h), giật trên cấp 17. Dự báo từ ngày mai bão sẽ suy yếu dần do tương tác với không khí lạnh.
+- Hai phiên tòa sơ thẩm và phúc thẩm tuyên Công ty Trung Nam bị mất số tiền đặt cọc 93 tỉ nhưng quyết định giám đốc thẩm đã hủy cả hai bản án.
+- Gian hàng VinFast nổi bật giữa sự kiện với 6 mẫu xe máy điện, khách tham dự từ người trẻ đến trung niên nhộn nhịp đăng ký, háo hức chờ lái thử. Chuỗi hoạt động VinFast khiến khách thích mê trong tiếng cười, quà tặng ngập tràn.
+- Cập nhật chất lượng không khí theo từng giờ cho thấy nhiều nơi ở Hà Nội, Thái Nguyên, Hải Dương, Hưng Yên, Thái Bình có chất lượng không khí ở ngưỡng xấu, rất kém.
+- Chiều 9-11, một trận động đất mạnh 3,3 độ xảy ra tại khu vực huyện Thanh Thủy, Phú Thọ, khu vực giáp ranh huyện Ba Vì, Hà Nội.
+- Lao động trở về từ Hàn Quốc, Nhật Bản đang được doanh nghiệp săn đón do có ngoại ngữ, kỹ năng nghề, tác phong công nghiệp.
+- Theo Cơ quan khí tượng Nhật Bản, ở tây bắc Thái Bình Dương vừa hình thành bão Toraji và bão Man-yi, trong đó bão Toraji có khả năng đi vào Biển Đông, trở thành cơn bão số 8 trong năm 2024.
+- Theo Bộ trưởng Chủ nhiệm Văn phòng Chính phủ, trong sáng 9-11, Thủ tướng đã có chỉ đạo trong 6 tháng tới Bộ Y tế cùng các đơn vị liên quan phải hoàn thiện và đưa vào bàn giao dự án cơ sở 2 Bệnh viện Bạch Mai và Việt Đức.
+- Ông Đoàn Quốc Việt, nhà sáng lập Tập đoàn BIM, đã qua đời vào ngày 7-11 ở tuổi 70, lễ viếng ông sẽ diễn ra tại Hà Nội vào ngày 10-11.
+- Theo thiếu tướng Hoàng Anh Tuyên, cơ quan điều tra đã khởi tố vụ án xảy ra tại Công ty Vàng bạc đá quý Sài Gòn (SJC), đồng thời khởi tố 6 người để điều tra về hai tội danh.
+- Xử lý tồn đọng, kéo dài, gồm khẩn trương trình phương án chuyển giao bắt buộc các ngân hàng kiểm soát đặc biệt còn lại.
+- Trưởng Phòng Tài nguyên và Môi trường TP Vũng Tàu Trần Phú Vinh vừa bị khởi tố, bắt tạm giam để điều tra về hành vi môi giới hối lộ.
+- Theo đại biểu Hoàng Văn Cường, không nên quy định cấm nhà giáo bắt ép người học phải nộp tiền, bởi có khi không ép họ vẫn nộp bằng những cách 'rất khéo, tế nhị'.
+- Quảng Ngãi vừa chọn 10 sản phẩm OCOP đạt tiêu chí của Bộ Nông nghiệp và Phát triển nông thôn để đăng ký tham gia quảng bá, giới thiệu ở một số hệ thống phân phối tại thị trường Mỹ.
+- Trong hai năm qua, có ít nhất 282 bé gái tuổi vị thành niên ở Quảng Ngãi mang thai. Có trường hợp chưa đến 13 tuổi.
+- Tổng Bí thư cho rằng Luật Nhà giáo khi ban hành phải tạo cho nhà giáo sự phấn khởi, được tôn vinh, tạo điều kiện thuận lợi cho công tác giảng dạy.
+- Công an TP Hà Nội xác định trang web Fmovies đang có gần 50.000 phim lậu xâm phạm quyền tác giả, quyền liên quan, trong đó có rất nhiều phim của Hiệp hội Điện ảnh Hoa Kỳ đang được bảo hộ.
+- Đại sứ Pháp Olivier Brochet chia sẻ Pháp đang theo dõi sát sao quyết định của Quốc hội Việt Nam về chủ trương đầu tư đường sắt tốc độ cao Bắc - Nam, trước khi có phương án tham gia.
+- Hiện nay nhiều vựa thu mua sầu riêng tại tỉnh Tiền Giang đang phát giá 195.000 đồng/kg sầu riêng Monthong (Thái) và 140.000 đồng/kg sầu riêng ri 6, nhưng không có hàng để mua.
+- Ông Olivier Brochet - đại sứ đặc mệnh toàn quyền Cộng hòa Pháp tại Việt Nam - khẳng định như vậy tại lễ vận hành đoạn trên cao tuyến metro Nhổn - ga Hà Nội diễn ra sáng 9-11, tại ga S8 - ga Cầu Giấy.
+- Tài sản là máy móc, trang thiết bị trong vụ án tại Bệnh viện Bạch Mai 'không có tội' nhưng khi xảy ra vụ án, hệ thống máy để đấy, không hoạt động rất lãng phí.
+- Sở Giao thông vận tải TP.HCM vừa có văn bản gửi các đơn vị về tăng cường phổ biến cho tài xế (xe buýt, xe taxi...) tuân thủ và chấp hành nghiêm các quy định về an toàn giao thông.
+- Không khí lạnh, độ ẩm thấp và nhiệt độ mặt nước biển không cao khiến bão số 7 (Yinxing) có nhiều khả năng suy yếu nhanh khi đi vào gần đất liền Việt Nam.
+- Xác chiếc máy bay Yak-130 được tìm thấy sau 2 ngày gặp nạn nhờ các nguồn tin báo và sự vào cuộc của các cơ quan chức năng Đắk Lắk.
+- Sáng 9-11, tàu kiểm ngư KN-290 xuất phát từ cảng Cát Lái (TP.HCM) chở 160 đại biểu TP.HCM cùng đại biểu thuộc Quân chủng Hải quân khởi hành hướng về biển đảo phía tây nam của Tổ quốc.
+- Chủ tịch UBND tỉnh Gia Lai Rah Lan Chung vừa ký quyết định điều động, bổ nhiệm một số chức danh lãnh đạo địa phương, sở, ngành.
+- Dự Luật Việc làm sửa đổi đề xuất bổ sung trường hợp không được hưởng bảo hiểm thất nghiệp là lao động bị sa thải theo pháp luật lao động, hoặc bị buộc thôi việc theo pháp luật viên chức.
+- Vỉa hè làm xong đến cấp nước đào lên, sau đó đến thoát nước...Sao không có giải pháp đồng bộ?
+- Tuần này, từ ngày 10 đến 16-11, thời tiết Bắc Bộ tương đối tốt. Nam Bộ ngày nắng, chiều mưa, còn Trung Bộ khả năng đón đợt mưa to.
+- Mạng xã hội đang lan truyền nhiều đoạn clip ghi cảnh 4 người đàn ông cầm dao, kéo vây quanh, hành hung tài xế taxi ở Bệnh viện Thủ Đức, TP.HCM.
+- Tương lai của các nước Mekong sẽ gắn với năng lực đổi mới sáng tạo, cách mạng công nghiệp 4.0, tiến bộ khoa học - công nghệ.
+- Dự án mở rộng cao tốc Cao Bồ - Mai Sơn có nguy cơ ảnh hưởng tiến độ, vì Bộ Tài chính cho rằng có sự chưa phù hợp trong việc các bộ chuyên ngành giao các sở giao thông vận tải làm chủ đầu tư dự án.
+- Cần chủ động, tích cực, phản ứng chính sách kịp thời, có các kịch bản điều hành với mọi tình huống, Thủ tướng nhấn mạnh các nhiệm vụ, giải pháp để hoàn thành tất cả các mục tiêu của năm 2024.
+- Ông K. ở Hà Tĩnh thấy vợ mình là bà H. có biểu hiện lạ, thường xuyên ra chỗ vắng người hoặc vào phòng kín nghe điện thoại, tâm lý bất ổn, hoang mang nhưng không nói nguyên nhân.
+- UBND tỉnh Ninh Thuận đã có văn bản hủy bỏ các thông báo thu hồi đất thực hiện dự án xây dựng nhà máy điện hạt nhân 1 và 2 vào tháng 7-2023 sau 14 năm "sống treo".
+- Chủ trương đầu tư nhà máy điện hạt nhân trong thời gian tới được các chuyên gia đánh giá phù hợp với xu hướng phát triển khi công nghệ sản xuất điện hạt nhân ngày càng an toàn và không phát thải.
+- Lực lượng chức năng vừa phát hiện nhóm 5 người đang chặt cây tại tiểu khu 69 phân khu phục hồi sinh thái rừng đặc dụng (xã Cửa Dương, TP Phú Quốc, Kiên Giang).
+- Bộ trưởng Nguyễn Kim Sơn nêu rõ so với quy định hiện hành, dự Luật Nhà giáo có nhiều chính sách mới về tuyển dụng, tiền lương, tuổi nghỉ hưu với nhà giáo.
+- Việc làm thủ tục hoạt động phà Bình Quới (quận Bình Thạnh, TP.HCM) phức tạp, nên đến nay phà chưa thể chạy lại, gây khó khăn cho việc đi lại của người dân.
+- Dự báo bão số 7 (Yinxing) duy trì cường độ mạnh cấp 14, giật cấp 17 trong khoảng 24 giờ tới, sau đó suy yếu. Trong khi đó, ở ngoài khơi Philippines vừa hình thành áp thấp nhiệt đới có khả năng mạnh lên thành bão và đi vào Biển Đông.
+- Một số tin tức đáng chú ý: Quốc hội xem xét thí điểm cho mua bán vật chứng, tài sản ở các vụ án; Không đơn hàng 18 tháng, doanh nghiệp may trầy trật bán lô đất trăm tỉ; 'Nhập nhằng' về nhân sự, một công ty quản lý quỹ bị phạt...
+- Hôm nay 9-11, thời tiết đất liền tương đối ổn định, vài nơi mưa rào. Biển Đông dông gió dữ dội khi bão số 7 (Yinxing) áp sát quần đảo Hoàng Sa.
+- Tối 8-11, Chủ tịch nước Lương Cường rời Hà Nội, bắt đầu chuyến công tác nước ngoài đầu tiên với hai điểm đến là Chile và Peru.
+- Lúc 17h ngày 8-11, tại Km1194+850 đường sắt Thống Nhất qua phường 9 (TP Tuy Hòa, Phú Yên), tàu hàng đi hướng Nam - Bắc tông phải một bé trai 7 tuổi.
+- Đoàn kiểm tra liên ngành tỉnh Bắc Ninh do lãnh đạo Công an tỉnh Bắc Ninh bắt đầu kiểm tra toàn diện cụm công nghiệp làng nghề Mẫn Xá.
+- Theo Trung tâm Dự báo khí tượng thủy văn quốc gia lúc 19h tối nay 8-11, tâm bão số 7 (bão Yinxing) đang cách quần đảo Hoàng Sa hơn 600km về phía đông, sức gió mạnh nhất vùng gần tâm bão mạnh cấp 14 (150-166km/h), giật cấp 17.
+- Ông Nguyễn Văn Phong - phó bí thư Thành ủy Hà Nội - được bí thư Hà Nội phân công làm phó bí thư thường trực Thành ủy Hà Nội khóa XVII, nhiệm kỳ 2020-2025.
+- Cô gái bị Công an TP Rạch Giá mời về làm việc sau khi đăng tải tin sai sự thật, chửi lãnh đạo Công an TP dù không chứng kiến vụ việc để câu like.
+- Lực lượng vũ trang Đắk Lắk phối hợp với các đơn vị không quân tăng cường công tác bảo vệ hiện trường máy bay Yak-130 rơi, chờ lên phương án xử lý.
+- Bí thư Tỉnh ủy Khánh Hòa Nghiêm Xuân Thành đã đến hiện trường xem xét, giao UBND TP Nha Trang chủ trì phối hợp, xử lý đưa khối đá nguy cơ sạt lở xuống đại lộ Nguyễn Tất Thành khỏi núi Cù Hin trong vòng 24 giờ.
+- Cục Quản lý khám, chữa bệnh có văn bản khẩn gửi Bệnh viện Giao thông vận tải và Bệnh viện Đại học Quốc gia Hà Nội sau phản ảnh tình trạng bát nháo trong khám sức khỏe để đi nước ngoài.
+- Thu nhập quá thấp, công việc áp lực và không có cơ hội thăng tiến là những nguyên nhân khiến công chức nghĩ đến việc bỏ việc. Hơn 75% công chức tại TP.HCM đánh giá khối lượng công việc ở mức nhiều hoặc rất nhiều.
+- Người đàn ông cầm cây gỗ bất ngờ lao vào tấn công cán bộ công an ở phường 10, quận Tân Bình (TP.HCM). Người này sau đó bị khống chế, đưa về công an phường xử lý.
+- Đại biểu Trần Quốc Tuấn đề nghị Luật Quảng cáo sửa đổi cần có các quy định chặt chẽ hơn về việc kiểm tra và xử lý nghiêm các hành vi quảng cáo sai sự thật.
+- Phó cục trưởng Cục Phổ biến, giáo dục pháp luật - Bộ Tư pháp cho rằng vụ việc nhóm quái xế tông tử vong cô gái chờ đèn đỏ là hồi chuông đáng báo động.
+- Công an TP Đà Nẵng bước đầu xác định Công ty GFDI nợ 7.500 khách hàng, với số tiền nợ gốc hơn 3.700 tỉ đồng.
+- Công ty lữ hành quốc tế Việt Nam Winner ở Phú Quốc phản ánh thanh tra viên Sở Du lịch Kiên Giang có dấu hiệu vòi vĩnh xin điện thoại di động.
+- Các lực lượng gìn giữ hòa bình Việt Nam và Úc đã có buổi trao đổi kinh nghiệm về chủ đề phụ nữ, hòa bình và an ninh trong hoạt động gìn giữ hòa bình Liên Hiệp Quốc.
+- Để ứng phó với bão số 7, các đơn vị thuộc Bộ Quốc phòng đã sẵn sàng 270.000 cán bộ, chiến sĩ, dân quân tự vệ, hơn 5.000 phương tiện các loại, trong đó có máy bay trực thăng.
+- Không ở đâu mua hóa chất dễ dàng như ở Việt Nam và đọc báo các vụ án về xyanua giật mình thom thóp.
+- Rủ bạn đi câu cá rồi nam thanh niên mượn xe máy của bạn, điện thoại của mẹ bạn và trốn đến tận Campuchia.
+- Thừa nhận có việc lợi dụng người nổi tiếng để quảng cáo sản phẩm nhưng theo đại biểu Quốc hội, quy định bắt người nổi tiếng phải dùng rồi mới được quảng cáo hơi khó.
+- Huyện ủy Hướng Hóa chỉ đạo xã Thanh rà soát lại đất sản xuất của các hộ dân lấn chiếm, tiếp tục vận động trả đất trong vụ việc người dân lấn chiếm 30ha rẫy sắn.
+- Sau một thời gian phục kích trong đêm, lực lượng Hạt kiểm lâm TP Phú Quốc đã bắt được hai người lén vào tiểu khu 60 rừng đặc dụng ở xã Gành Dầu.
+- Người đi xe máy va quẹt với người chạy xe đạp trên đường Nguyễn Thái Sơn (quận Gò Vấp) rồi ngã xuống đường, bị xe buýt chạy cùng chiều cán tử vong chiều 8-11.
+- Sau khi đi vào Biển Đông, bão số 7 (bão Yinxing) đang có dấu hiệu mạnh trở lại.
+- Bộ trưởng Nguyễn Mạnh Hùng cho biết quảng cáo của một số nhãn hàng, doanh nghiệp Việt bị gắn vào nội dung xấu độc, phản động.
+- Cục Quản lý xuất nhập cảnh cho biết từ 11-11 sẽ vận hành chính thức cổng thông tin cấp thị thực điện tử hoàn toàn mới với nhiều cải tiến.
+- Tuổi Trẻ Online đã liên hệ với Ban quản lý đường sắt đô thị Hà Nội (MRB) để tìm hiểu thêm về lý do đưa ra quyết định trên.
+- Ngày 8-11, tại hội thảo do Trường đại học Tài nguyên và Môi trường tổ chức, các nghiên cứu cho thấy sụt lún tại TP.HCM đang rất báo động.
+- Quá trình giải cứu hai phi công trong vụ rơi máy bay huấn luyện ở Bình Định không thể triển khai nhanh chóng nếu không có công nghệ hỗ trợ.
+- Anh Phạm Xuân Quang (shipper, chồng của chị N.T.N.G. - nạn nhân tử vong sau tai nạn giữa xe máy và xe bồn ở quận 12) chia sẻ luôn cố gắng.
+- Không phiếu thu, chuyển khoản trực tiếp vào tài khoản cá nhân khi khám sức khỏe để đi nước ngoài là thực trạng diễn ra tại một số bệnh viện.
+- Cơ quan cảnh sát điều tra Công an Đà Nẵng đã đồng loạt khám xét khẩn cấp nhiều trụ sở của Công ty GFDI.
+- Lãnh đạo Bộ Chỉ huy quân sự tỉnh Đắk Lắk xác nhận đã phát hiện vị trí máy bay Yak-130 rơi và lực lượng chức năng đang tiếp cận hiện trường.
+- Biết dân đi làm về muộn, các bí thư, chủ tịch, cán bộ xã tranh thủ tới nhà tâm sự để bà con hiểu chính sách, tham gia bảo hiểm xã hội tự nguyện.
+- Việt Nam là đối tác thương mại lớn nhất liên tục trong 5 năm và điểm đến đầu tư lớn nhất của Trùng Khánh (Trung Quốc) trong ASEAN.
+- Honda Việt Nam vừa thông báo đợt triệu hồi lớn nhất từ trước đến nay với hơn 11.000 xe CR-V, Civic và Civic Type R.
+- Phó thủ tướng thường trực Nguyễn Hòa Bình vừa gửi thư khen đến Công an huyện Thạch Hà (Hà Tĩnh).
+- 41 camera AI được triển khai lắp đặt ở 7 điểm là các cửa ngõ giao thông Phú Quốc (Kiên Giang).
+- Hẻm 53 và 67 đường Bùi Văn Ba (phường Tân Thuận Đông, quận 7) bị ngập nặng sau mưa và khi triều cường dâng cao.
+- Bé gái bị mẹ ruột đánh đập 12 cái vào người và đầu ở giữa chợ TP Vĩnh Long do ham chơi, phải ôm vé số ế. Người dân chứng kiến không dám can ngăn.
+- Thương lái mua trái cau với giá khoảng 20.000 đồng/kg, nông dân ở huyện Châu Thành (Kiên Giang) phấn khởi vì hốt bạc.
+- Nữ nhân viên ngân hàng dùng thủ đoạn mượn tiền đáo hạn, qua đó đã lừa đảo chiếm đoạt gần 6 tỉ đồng để trả nợ và đầu tư tiền ảo.
+- Nam thanh niên lái xe có nồng độ cồn trong máu khi bị lập biên bản đã bất ngờ tấn công cảnh sát giao thông ở Bình Dương bị khởi tố.
+- Nhiều lực lượng thuộc Công an Đà Nẵng có mặt tại trụ sở Công ty TNHH MTV Tư vấn đầu tư GFDI tại Đà Nẵng trưa 8-11.
+- Bình Thuận được xem là 'thủ phủ' titan của cả nước nhưng kết quả chưa được như kỳ vọng.
+- Trà Vinh là thành phố có nhiều cây xanh nhất nước, nhưng đang đối mặt với lựa chọn giữa mở rộng đường và giữ cây xanh.
+- Trên đường vành đai phía tây Đà Nẵng có hàng loạt cây hoa giấy èo uột, chết khô. Đơn vị nào chịu trách nhiệm khắc phục tình trạng trên?
+- Bạn đọc cho rằng cần kiên quyết chấn chỉnh, kiểm tra, xử lý mạnh tay những nơi không thực hiện đúng quy định khi vẫn kiểm tra hiện trạng.
+- Tòa nhà Viettel 285 (TP.HCM) có 3.000 người đang làm việc, vui chơi... bất ngờ cháy dữ dội. Đó là tình huống giả định diễn tập phòng cháy chữa cháy.
+- Dự báo bão Yinxing (bão số 7) hướng vào vùng biển các tỉnh Trung Trung Bộ từ ngày 11 đến 13-11, ở Trung Trung Bộ có khả năng mưa to đến rất to.
+- Việt khai để phòng thân nên lên mạng xã hội mua súng. Và hậu quả: lãnh 1 năm 3 tháng tù về tội tàng trữ trái phép vũ khí quân dụng.
+- Thông qua hội nhóm trên mạng xã hội, nhóm này mua súng quân dụng trôi nổi, sau đó tạo các tài khoản ảo để buôn bán.
+- Phó thủ tướng Lê Thành Long trình Quốc hội tờ trình về chủ trương đầu tư chương trình mục tiêu quốc gia phòng, chống ma túy đến năm 2030.
+- Gói thầu thuộc dự án sân bay Long Thành giai đoạn 1 thu hút dư luận khi liên danh trượt thầu liên tục kiến nghị về kết quả và “tiết lộ” giá dự thầu.
+- Đà Nẵng sẽ hỗ trợ cho các tổ dân phố, thôn tổ chức Ngày hội toàn dân chào mừng 50 năm Ngày Giải phóng Đà Nẵng.
+- Sở Giao thông vận tải vừa có ý kiến gửi Sở Nội vụ về việc thành lập Ban Quản lý dự án đầu tư xây dựng các công trình giao thông trọng điểm.
+- Đường đi của bão Yinxing có xu hướng bẻ xuống phía nam do tác động không khí lạnh, vậy thời tiết Nam Bộ có bị ảnh hưởng hay không?
+- Thủ tướng Phạm Minh Chính đã gặp gỡ lưu học sinh, cộng đồng người Việt đang sinh sống, học tập, làm việc tại Trùng Khánh (Trung Quốc).
+- Dự Luật Quảng cáo sửa đổi đề xuất bổ sung quy định nhằm "siết" người nổi tiếng, có ảnh hưởng quảng cáo sản phẩm tràn lan trên mạng.
+- Tin tức đáng chú ý: TP.HCM phát hiện hơn 17.700 phương tiện vi phạm an toàn kỹ thuật; Hôm nay Quốc hội nghe trình nhiều nội dung quan trọng, thảo luận dự Luật Dữ liệu...
+- Sáng sớm nay (8-11), bão Yinxing có gió mạnh cấp 14 (150-166km/h), giật cấp 17, đã đi vào khu vực Bắc Biển Đông, trở thành cơn bão số 7 trong năm 2024.
+- Hôm nay 8-11, thời tiết mưa to ở miền Trung đã giảm, miền Bắc trời lạnh. Nam Bộ ngày nắng, Biển Đông đón bão Yinxing.
+- Chuyến công tác nước ngoài đầu tiên của Chủ tịch nước Lương Cường có ý nghĩa và tầm quan trọng đặc biệt, cả về song phương và đa phương.
+- Đại tá Nguyễn Quốc Vương - trưởng phòng thuộc Cục Tổ chức cán bộ (Bộ Công an) - được điều động đến nhận công tác và giữ chức vụ phó giám đốc Công an tỉnh Phú Thọ.
+- Phó thủ tướng Nguyễn Hòa Bình yêu cầu tập trung khắc phục hậu quả, khẩn trương điều tra, làm rõ trách nhiệm trong vụ cháy ở Vũng Tàu khiến hai cháu bé tử vong.
+- Dự báo sáng 8-11, bão Yinxing đi vào Biển Đông với cường độ cấp 14 (150-166km/h), giật cấp 17. Thủ tướng yêu cầu bảo đảm an toàn cho phương tiện, tàu thuyền còn hoạt động trên biển.
+- Thấy nhóm bạn của vợ cũ đang ngồi uống rượu, do mâu thuẫn từ trước, Hội đã bắn súng tự chế gây thương tích cho một người trong nhóm.
+- Bộ Giao thông vận tải thống nhất với tỉnh Quảng Trị tăng tỉ lệ vốn nhà nước tại dự án PPP cao tốc Cam Lộ - Lao Bảo, sử dụng ngân sách đầu tư mới 8km quốc lộ 15D, xây mới cầu Đakrông…
+- Ngày 7-11, Công ty TNHH MTV Thảo cầm viên Sài Gòn (Thảo cầm viên) đã phối hợp cùng Vườn quốc gia Cát Tiên thả hai con rái cá vuốt bé và hai con mèo rừng về tự nhiên.
+- Là dự án có tổng mức đầu tư lớn nhất từ trước tới nay, Ủy ban Kinh tế đề nghị Chính phủ báo cáo rõ hơn phương án bố trí vốn, khả năng cân đối vốn ngân sách nhà nước sử dụng cho dự án đường sắt tốc độ cao Bắc - Nam.
+- Bộ trưởng Nguyễn Hồng Diên nói thiếu điện do có những dự án giao cả chục năm không làm, lần này không làm phải bị thu hồi.
+- Gói thầu nối hầm chui Trần Quốc Hoàn - Phan Thúc Duyện là đoạn nối đường Thăng Long - 18E - Cộng Hòa (cửa ngõ Tân Sơn Nhất, TP.HCM) đã thông xe, giúp giải tỏa áp lực cho vòng xoay Lăng Cha Cả.
+- Hà Nội sẽ tạm dừng vận hành metro Nhổn - ga Hà Nội đoạn trên cao trong sáng 9-11, để tổ chức lễ gắn biển khánh thành công trình chào mừng 70 năm Giải phóng thủ đô.
+- Chình phủ cần nghiên cứu có thể phục hồi nhà máy điện hạt nhân Ninh Thuận hoặc khởi động dự án điện hạt nhân khác trong thời gian sớm nhất.
+- Một số dự án giao thông ở TP.HCM như mở rộng đường Tân Kỳ Tân Quý, Dương Quảng Hàm, xây cầu Bà Hòm bị vướng lưới điện (dây và cột điện), làm ảnh hưởng đến tiến độ và nguy hiểm đến người đi đường.
+- Cạnh quốc lộ 61 (đoạn qua xã Vĩnh Hòa Hưng Nam, huyện Gò Quao, Kiên Giang) thời gian qua có bãi rác lộ thiên nhếch nhác bầy hầy. Rác và nước rác thải rỉ chảy ra đồng, ra đường hôi thối khiến người đi đường ngao ngán.
+- Không thể để ngành điện báo lỗ hằng năm do phải bù chênh lệch giá điện, mua cao phải bán cao, không thể mua cao lại bán thấp.
+- Chiều 7-11, thông tin thêm về vụ việc máy bay Yak-130 gặp nạn tại Bình Định, Đại tướng Phan Văn Giang, bộ trưởng Bộ Quốc phòng, khẳng định hành động xử lý của hai phi công vô cùng anh dũng và việc trở về an toàn, đó là điều trân trọng nhất.
+- TP.HCM mong muốn có nhiều hoạt động giao lưu giữa tuổi trẻ TP.HCM và tuổi trẻ ở các địa phương Liên bang Nga, làm sâu sắc hơn mối quan hệ truyền thống gắn bó lâu đời giữa nhân dân hai nước.
+- Các nhà lãnh đạo CLMV khẳng định khát vọng chung về xây dựng một tiểu vùng hòa bình, thịnh vượng và hiện thực hóa mục tiêu trở thành các nước có thu nhập trung bình cao vào năm 2030.
+- Nghị quyết 98 có quy định để TP.HCM thu hút nhà đầu tư chiến lược, tuy nhiên nhà đầu tư phải cam kết giải ngân toàn bộ tổng vốn đầu tư trong vòng 5 năm. Việc này rất khó với các dự án lớn như cảng trung chuyển quốc tế Cần Giờ.
+- Tổng giám đốc công ty sản xuất thương hiệu dầu gió 'con ó' ở Singapore đã đến trao thư cảm ơn giám đốc Công an tỉnh Long An phá vụ án sản xuất 30.000 chai dầu 'con ó' giả bán qua Shopee.
+- Tỉnh Thừa Thiên Huế vừa được Tổ chức Công nghiệp điện toán châu Á - châu Đại Dương (ASOCIO) vinh danh là Thành phố thông minh - ASOCIO Smart City.
+- Tổng Bí thư Tô Lâm yêu cầu tháo gỡ điểm nghẽn, nút thắt có nguyên nhân từ quy định của pháp luật; thực hiện cơ chế "sửa một luật, điều chỉnh nhiều luật" để khắc phục ngay tình trạng mâu thuẫn, chồng chéo của các luật.
+- Dù khối lượng thi công dự án ngăn triều 10.000 tỉ đồng tại TP.HCM (nhà đầu tư là Tập đoàn Trung Nam) đã hoàn thành 90%, tuy nhiên vẫn bị tạm dừng do những vướng mắc về tài chính và pháp lý.
+- Đại biểu Quốc hội Trần Hữu Hậu cho rằng muốn có thị trường điện cạnh tranh thực sự, góp phần quan trọng gỡ những rối rắm hiện nay của ngành điện, phải thay đổi triệt để.
+- Sau thời gian triển khai thí điểm tại ba bệnh viện mang lại hiệu quả tốt, TP.HCM đã phát động đợt cao điểm 55 ngày đêm triển khai sổ sức khỏe điện tử trên ứng dụng VNeID.
+- Nhà máy alumin Tân Rai (Lâm Đồng) đã chạy vượt công suất thiết kế, liệu bùn đỏ có vượt mức đã báo cáo Bộ Tài nguyên và Môi trường?
+- Chiều 7-11, Trung tâm Quản lý giao thông công cộng TP.HCM cho biết đã sa thải tài xế xe buýt vượt đèn đỏ ở quận 1 bị người dân phản ánh. Thời gian không ký hợp đồng là 2 năm.
+- Quả bom Mỹ sót lại từ chiến tranh, có ngòi nổ hẹn giờ đã bị kích hoạt, được hủy nổ an toàn sau khi 565 người dân được di dời khỏi vùng nguy hiểm.
+- Ngân hàng Nhà nước cho biết nhu cầu vốn tín dụng đang có xu hướng tiếp tục tăng, thời gian tới việc tiếp tục giảm lãi suất trong thời gian tới rất khó khăn.
+- Thời gian qua, công tác quản lý của chính quyền các cấp đã gắn thực hiện dân chủ ở cơ sở với dân vận của chính quyền, tập trung thực hiện cải cách thủ tục hành chính.
+- Đại tướng Phan Văn Giang, bộ trưởng Bộ Quốc phòng, vừa có thư gửi các cán bộ, nhân viên, chiến sĩ trong ban bay ngày 6-11 của Trung đoàn Không quân 940, Trường sĩ quan Không quân, Quân chủng Phòng không - Không quân và 2 phi công gặp nạn.
+- Sáng 7-11, Trung tướng Phạm Trường Sơn - phó tổng tham mưu trưởng Quân đội nhân dân Việt Nam và ông Phạm Anh Tuấn - chủ tịch UBND tỉnh Bình Định đến Bệnh viện Quân y 13 thăm hỏi sức khỏe hai phi công trong vụ rơi máy bay quân sự Yak-130.
+- Tổng Bí thư Tô Lâm, Chủ tịch nước Lương Cường và Thủ tướng Phạm Minh Chính đã gửi điện chúc mừng ông Trump được bầu làm tổng thống, nhấn mạnh Mỹ là đối tác có tầm quan trọng chiến lược.
+- Chiều 7-11, với 423/425 đại biểu biểu quyết, Quốc hội đã thống nhất điều chỉnh chương trình kỳ họp thứ 8.
+- Thống đốc Nguyễn Thị Hồng cho rằng thị trường vàng chưa thực sự ổn định bền vững, vẫn chịu tác động bởi yếu tố tâm lý, kỳ vọng, tiềm ẩn rủi ro tác động đến thị trường tiền tệ, ngoại hối.
+- Từ 15h chiều 7-11, liên bộ Công Thương - Tài chính đã công bố điều chỉnh giá xăng dầu với xu hướng tăng.
+- Máy bay quân sự rơi, 2 phi công may mắn được tìm thấy và sống sót giữa rừng núi sâu thẳm.
+- Hai mẹ con đi cùng xe máy trên đường Phan Văn Hớn (phường Tân Thới Nhất, quận 12, TP.HCM) thì xảy ra va chạm với xe bồn khiến người mẹ tử vong, con gái bị thương nhập viện.
+- Dự báo sau khi đi qua ven biển và đất liền phía bắc đảo Luzon (Philippines), sáng mai bão Yinxing đi vào Biển Đông, trở thành cơn bão số 7 trong năm 2024.
+- Cùng với việc nhân rộng mô hình cửa khẩu thông minh, Việt Nam - Trung Quốc cần sớm tiến hành trao đổi nghiên cứu về mô hình triển khai Khu hợp tác kinh tế qua biên giới.
+- Phó bí thư Tỉnh ủy Sơn La Nguyễn Đình Việt (47 tuổi) được bầu làm chủ tịch UBND tỉnh Sơn La nhiệm kỳ 2021-2026.
+- Ủy ban Kiểm tra Tỉnh ủy Kiên Giang đề nghị khai trừ, cách hết các chức vụ trong Đảng đối với nguyên viện trưởng Viện kiểm sát nhân dân huyện An Biên.
+- Công điện của Thủ tướng nêu rõ hiện vẫn còn nhiều công trình, dự án để tồn đọng, dừng thi công kéo dài gây lãng phí nguồn lực, bức xúc trong dư luận như cơ sở 2 Bệnh viện Bạch Mai và Việt Đức, dự án chống ngập úng khu vực TP.HCM...
+- Bộ trưởng Đào Hồng Lan nêu rõ một số tổ chức, cá nhân vì lợi nhuận liên quan thực phẩm chức năng đã bất chấp pháp luật, sức khỏe và tính mạng của cộng đồng.
+- Nhiều điểm mặt đường trên quốc lộ 1 qua Hà Tĩnh bong tróc, rạn mai rùa, xuất hiện các ổ gà gây nguy cơ mất an toàn cho người và phương tiện khi tham gia giao thông.
+- Công ty cổ phần Xây dựng hạ tầng Bắc Trung Nam thi công cao tốc Bắc - Nam ở Phú Yên bị xử phạt vì khai thác cát sai quy định.
+- Bệnh viện Giao thông vận tải TP.HCM trực thuộc Cục Y tế giao thông vận tải có ba cơ sở, nhưng đến nay TP.HCM chỉ nhận một cơ sở, hai cơ sở còn lại vẫn chưa nhận.
+- Sáng 7-11, tại Phú Thọ, Đại tướng Phan Văn Giang đã chủ trì hội nghị bàn giao nhiệm vụ tư lệnh Quân khu 2 từ Trung tướng Phạm Hồng Chương sang Thiếu tướng Trần Văn Bắc - phó tư lệnh Quân khu 2.
+- Viện Kiểm sát nhân dân tỉnh Đắk Nông đề nghị tuyên giám đốc công ty tư vấn 10 - 11 năm tù.
+- Với quan điểm coi trọng thời gian và trí tuệ, Thủ tướng Phạm Minh Chính nhấn mạnh GMS cần tập trung phát triển các hành lang kinh tế thế hệ mới, với đổi mới sáng tạo là trung tâm.
+- Công ty cổ phần Vận tải Đường sắt lưu ý nhiều thông tin về việc mua vé tàu trong dịp Tết Ất Tỵ 2025.
+- Ngày 7-11, lực lượng tìm kiếm chiếc máy bay Yak-130 tại Gia Lai đã đi Ea Súp, tỉnh Đắk Lắk để phối hợp với địa phương tổ chức tìm kiếm máy bay.
+- Hiện nay việc sử dụng các công nghệ thông tin hiện đại để thực hiện hành vi thao túng thị trường chứng khoán đang diễn ra phức tạp.
+- Ngay sau khi chiếc máy bay Yak-130 gặp sự cố tại Bình Định, hàng trăm người đã xuyên đêm băng rừng tìm thấy hai phi công an toàn.
+- Theo UBND TP Hà Nội, do sai sót, nhầm lẫn trong quá trình biên tập, thống kê số liệu khi thẩm định, trình cấp thẩm quyền phê duyệt quy hoạch chi tiết khu vực Đông Nam ga Phú Diễn, UBND TP vừa phải ban hành quyết định đính chính.
+- Hội đồng kỷ luật của huyện Minh Hóa đã đưa ra hình thức kỷ luật khiển trách với bà Đinh Thị Bùi Chung, hiệu trưởng Trường mầm non số 1 thị trấn Quy Đạt vì nhiều sai phạm về tài chính cũng như hành vi giật micro, chỉ mặt hội trưởng phụ huynh.
+- Nhiều tồn tại trong thực hiện dự án hồ thủy lợi Bản Mồng được Bộ Nông nghiệp và Phát triển nông thôn chỉ ra như tiến độ giải ngân vốn, giải phóng mặt bằng còn chậm.
+- Nhằm tăng cường nguồn lực đầu tư cho y tế, Thứ trưởng Nguyễn Tri Thức đề nghị bổ sung quy định đơn vị sự nghiệp công lập được sử dụng tài sản là quyền sử dụng đất để liên doanh liên kết.
+- Sáng 7-11, tại ga Ba Son, UBND TP.HCM đã tổ chức lễ trao bằng khen cho các nhà thầu có thành tích xuất sắc trong việc đẩy nhanh tiến độ hoàn thành dự án tuyến đường sắt đô thị số 1 (metro số 1).
+- Cà Mau phấn đấu đến cuối tháng 8-2025, toàn tỉnh hoàn thành xây mới và sửa chữa 3.995 nhà tạm, nhà dột nát, xóa hoàn toàn nhà tạm bợ trên địa bàn tỉnh.
+- Ủy ban Thường vụ Quốc hội thống nhất trình Quốc hội xem xét chủ trương đầu tư dự án đường sắt tốc độ cao trục Bắc - Nam, trị giá hơn 67 tỉ USD.
+- Sau khi 2 phi công nhảy dù, chiếc máy bay Yak-130 tiếp tục bay và rơi ở vị trí chưa xác định, nhiều hướng tìm kiếm đang được triển khai.
+- Lâu nay chúng ta cứ nói giải quyết nạn quá tải ở trung tâm bằng cách mở đô thị vệ tinh, giãn dân... Nay có khái niệm khác là đô thị nén, tức tập trung vào với mật độ dân số cực cao. Điều này góp phần làm thay đổi xu hướng của thị trường bất động sản.
+- Ngày 6-11, Quốc hội thảo luận ở hội trường về dự án Luật sửa đổi, bổ sung một số điều của Luật Quy hoạch, Luật Đầu tư, Luật Đầu tư theo phương thức đối tác công tư và Luật Đấu thầu.
+- Giám đốc Sở Tài nguyên và Môi trường TP.HCM vừa chấn chỉnh việc kiểm tra hiện trạng nhà ở, công trình khi cấp giấy chứng nhận đối với hệ thống Văn phòng đăng ký đất đai tại TP.HCM.
+- Rạng sáng 7-11, bão Yinxing tiếp tục mạnh thêm một cấp lên cấp 15 (167 - 183km/h) - tiệm cận siêu bão. Dự báo sáng mai bão vào Biển Đông và trở thành cơn bão số 7 trong năm 2024.
+- Một số tin tức đáng chú ý: Quốc hội thảo luận sửa Luật Điện lực, xem xét giá điện; Chứng khoán DNSE bị phạt; Hà Nội có lực lượng cảnh sát chữa cháy và cứu nạn đặc biệt tinh nhuệ...
+- Hôm nay 7-11, thời tiết mưa to chỉ còn duy trì chủ yếu ở Quảng Nam đến Khánh Hòa và có xu hướng giảm dần. Bão Yinxing đang áp sát Biển Đông.
+- Dự án sân bay Long Thành giai đoạn 1 được đề xuất xây thêm một đường băng trong giai đoạn 1 và điều chỉnh thời gian hoàn thành, khai thác vào cuối năm 2026.
+- Xã Phước Đồng (TP Nha Trang) vừa báo cáo để xem xét lại việc Sở Giao thông vận tải tỉnh Khánh Hòa đề nghị giao UBND xã “chủ trì xử lý” tảng đá có nguy cơ sạt lở, lăn xuống đường đi sân bay Cam Ranh.
+- Cường độ bão Yinxing mạnh lên cấp 14 (150-166km/h), giật cấp 17. Các tỉnh từ Quảng Ninh đến Bình Thuận thông báo ngay cho các tàu thuyền hoạt động trên Biển Đông.
+- Lúc 22h30, nguồn tin từ Trung đoàn Không quân 940 cho biết đã tìm thấy phi công thứ 2 là đại tá Nguyễn Văn Sơn. Hiện đại tá Sơn và thượng tá Quân đã được đưa xuống núi, chuyển đến bệnh viện.
+- Bà Phạm Thị Bích Thủy, chánh án TAND tỉnh Bình Phước, được điều động làm bí thư Thành ủy Đồng Xoài.
+- Chủ tịch nước Lương Cường thăm chính thức Chile và Peru, dự Tuần lễ cấp cao APEC từ ngày 9 đến 16-11. Đây là chuyến công du nước ngoài đầu tiên của ông sau khi nhậm chức.
+- Chiều 6-11, lãnh đạo UBND tỉnh Đồng Nai đã công bố quyết định phê chuẩn kết quả bầu chủ tịch UBND TP Biên Hòa.
+- Bộ trưởng Nguyễn Chí Dũng nhấn mạnh việc cần đổi mới tư duy xây dựng pháp luật, trong đó giải phóng các nguồn lực, khơi thông các điểm nghẽn.
+- Ngày 6-11, UBND TP.HCM có văn bản gửi các nhà đầu tư về sự quan tâm đối với dự án đường cao tốc TP.HCM - Mộc Bài.
+- Đại sứ Mỹ Marc Knapper dành phút mặc niệm, nghiêng mình trước đài tưởng niệm các y bác sĩ Bệnh viện Bạch Mai đã hy sinh trong đợt ném bom của Không quân Mỹ năm 1972.
+- Ngày 6-11, bà Nguyễn Thị Tuyến, phó bí thư thường trực Thành ủy Hà Nội, đã được bầu giữ chức chủ tịch Hội Liên hiệp phụ nữ Việt Nam.
+- Chủ tịch Quảng Tây khẳng định quyết tâm thúc đẩy hợp tác giữa hai bên. Trong đó, đẩy mạnh kết nối giao thông đường bộ, đường sắt, nhất là các tuyến đường sắt từ Quảng Tây với Đồng Đăng - Hà Nội, Móng Cái - Hải Phòng.
+- Đến chiều tối  6-11, hai phi công nhảy dù thoát hiểm trong vụ rơi máy bay huấn luyện Yak-130 tại Bình Định đã liên lạc được với đội tìm kiếm.
+- Sau khi được một nhà thầu 'mượn' chở vật liệu xây dựng cao tốc Bắc - Nam, đoạn tỉnh lộ ở Nghệ An chi chít hàng trăm ổ gà, ổ voi khiến người dân kêu trời.
+- Nhiều hoạt động, chương trình nghệ thuật được Bộ Văn hóa, Thể thao và Du lịch cùng hai tỉnh Nghệ An, Hà Tĩnh kỷ niệm 10 năm dân ca ví, giặm Nghệ Tĩnh được UNESCO ghi danh.
+- Ông Định khai do muốn nâng rơ moóc để những người trú mưa khỏi ướt nên ông khởi động máy cày, không may khiến 2 người tử vong.
+- Tổng cục Thuế vừa có văn bản yêu cầu Cục Thuế Đắk Lắk xem xét hành vi doanh nghiệp trốn thuế trong chuyển nhượng vốn.
+- Cục Đường bộ khẳng định việc gắn dòng chữ 'đoạn đường Sơn Hải bảo hành 10 năm' trên biển báo hiệu đường bộ của cao tốc Nghi Sơn - Diễn Châu là không phù hợp.
+- Tài là nhân viên ngân hàng đã dùng hình ảnh 2 sổ đỏ của người thân đang thế chấp tại ngân hàng để gửi cho nạn nhân, qua đó nói dối vay gần 4 tỉ đồng để đáo hạn và chiếm đoạt.
+- Cơ sở khám bệnh, chữa bệnh được tự quyết định việc mua thuốc, thiết bị y tế... cho các nhà thuốc trong bệnh viện thay vì đấu thầu.
+- Dự án cầu cảng thương mại dịch vụ Hàm Ninh (xã Hàm Ninh, TP Phú Quốc, Kiên Giang) được kỳ vọng tạo điểm nhấn phát triển du lịch địa phương.
+- Tài xế xe ben chạy xe qua dải phân cách cố định để chuyển làn trên đường Nguyễn Văn Linh (huyện Bình Chánh, TP.HCM) bị cảnh sát giao thông lập biên bản.
+- Trong quá trình tác nghiệp tại Bệnh viện Đa khoa tỉnh Đắk Lắk (cũ), một phóng viên của báo Công An Nhân Dân đã bị bảo vệ đánh và thu máy ảnh.
+- Bộ Giao thông vận tải vừa có báo cáo gửi Thủ tướng về kết quả sắp xếp lại Cục Y tế giao thông vận tải sau khi chuyển các cơ sở y tế, bệnh viện về địa phương quản lý.
+- Dự báo sau khi bão Yinxing đi vào Biển Đông và trở thành cơn bão số 7 trong năm 2024, nhiều khả năng cường độ bão thay đổi do tương tác với không khí lạnh.
+- Thủ tướng Phạm Minh Chính đề nghị Tập đoàn Xây dựng công trình xây dựng Trung Quốc cần sớm có sản phẩm cụ thể là báo cáo nghiên cứu để trình các cấp thẩm quyền.
+- Đại tá Đặng Trọng Cường, giám đốc Công an tỉnh Ninh Bình được điều động, đến nhận công tác và giữ chức vụ giám đốc Công an tỉnh Sơn La.
+- Đại biểu Nguyễn Thị Việt Nga nêu đa phần phụ huynh khi được thông báo con mình tham gia đoàn 'quái xế' đều rất ngạc nhiên, không hề biết con mình có ý định như vậy.
+- Hàng trăm khách hàng của Công ty TNHH MTV Tư vấn đầu tư GFDI đã 'bao vây' trụ sở của công ty này suốt đêm 5 và sáng 6-11.
+- Sau cú đối đầu của hai xe tải, một nam tài xế bị gãy hở xương cẳng chân trái, mắc kẹt trong cabin, được lực lượng cảnh sát tới giải cứu, đưa đi cấp cứu.
+- Trường phổ thông Thực hành Sư phạm thuộc Đại học Đồng Nai đang thiếu tiền trả lương cho giáo viên. Hoạt động giảng dạy của trường cầm chừng vì thiếu kinh phí.
+- Giám đốc điều hành Hiệp hội nước quốc tế cho biết cạnh tranh nguồn nước ngày càng leo thang.
+- Một nam thanh niên tại TP.HCM đã phải nhập viện cấp cứu sau khi cắt bao quy đầu tại nhà do thuê thợ xăm thực hiện.
+- Đại sứ Mỹ tại Việt Nam Marc Knapper khẳng định có sự ủng hộ mạnh mẽ từ Washington D.C về thúc đẩy quan hệ với Việt Nam, bất kể kết quả bầu cử tổng thống Mỹ ra sao.
+- Nạn nhân chết nghi do bị điện giật do người dân dùng điện bẫy chuột. Đây là nạn nhân thứ hai bị điện giật chết do người dân dùng điện bẫy chuột ở huyện An Minh.
+- Cơ quan công an thông báo tìm nhân chứng hoặc xe lưu thông cùng chiều có camera hành trình ghi lại vụ tai nạn xe buýt làm một người tử vong ở quận Bình Thạnh.
+- Trong lúc bay huấn luyện, chiếc máy bay Yak-130 gặp sự cố nên 2 phi công quyết định tránh khu dân cư và bung dù thoát hiểm.
+- Việc xây dựng không gian văn hóa Hồ Chí Minh cần bảo đảm nghiêm túc, không phô trương, hình thức, không làm theo phong trào.
+- Cống ngăn mặn Nguyễn Tấn Thành là cống ngăn mặn lớn thứ 2 tại miền Tây vừa hoàn thành và được bàn giao cho tỉnh Tiền Giang.
+- Đại hội thi đua yêu nước cựu chiến binh gương mẫu lần thứ VII và kỷ niệm 35 năm Ngày truyền thống Hội Cựu chiến binh Việt Nam sẽ được tổ chức vào ngày 3, 4-12.
+- Trên nhiều tuyến đường dù không phải giờ cao điểm, chưa phải lúc kẹt xe, nhiều ô tô vẫn tràn vào làn đường hỗn hợp hoặc làn xe máy. Trong khi đó nhiều xe máy lại len lỏi làn ô tô, ai cũng muốn tranh nhau chạy trước.
+- Trung tâm Dự báo khí tượng thủy văn quốc gia dự báo khoảng sáng 8-11, bão Yinxing đi vào Biển Đông và nhiều khả năng đây là cơn bão số 7 trong năm 2024.
+- Nêu kinh nghiệm từ Trung Quốc, Bộ trưởng Nguyễn Chí Dũng cho rằng nếu tiếp tục làm theo tư duy cũ sẽ rất chậm, nên cần phân cấp mạnh hơn.
+- Ông Nguyễn Ngọc Lương - Bí thư thường trực Trung ương Đoàn - được Ban Bí thư điều động, chỉ định giữ chức vụ phó bí thư Tỉnh ủy Gia Lai.
+- Dự án "trùm mền", công trình "đắp chiếu", nhà đất công bỏ hoang..., hàng loạt thực trạng lãng phí các nguồn lực được các đại biểu Quốc hội nêu ra và hiến kế giải pháp để khơi thông, nhanh chóng đưa nguồn lực vào sử dụng.
+- Sau khi công bố kết quả, ban tổ chức Giải thưởng Văn học, nghệ thuật Đất Quảng lần thứ IV nhận được đơn kiến nghị, tỉnh Quảng Nam chỉ đạo rà soát lại các tác phẩm chấm đoạt giải.
+- Do ảnh hưởng của mưa lũ trong thời gian qua, nhiều diện tích hoa màu sắp vào mùa thu hoạch Tết của người dân xã Hòa Bắc (huyện Hòa Vang, TP Đà Nẵng) gần như mất trắng.
+- Chủ tịch UBND tỉnh Yên Bái Trần Huy Tuấn (50 tuổi) được Ban Chấp hành Đảng bộ tỉnh Yên Bái bầu giữ chức bí thư Tỉnh ủy Yên Bái nhiệm kỳ 2020-2025.
+- Sau vài thao tác lùi xe, tài xế nhấn ga cho ô tô chạy ngược chiều và còn vẫy tay chào người đang quay clip.
+- Ba thanh thiếu niên chở nhau bằng xe máy trên cao tốc Hà Nội - Hải Phòng. Các trường hợp này đều không đội mũ bảo hiểm.
+- UBND xã Vĩnh Lộc B (huyện Bình Chánh, TP.HCM) xử lý các điểm đổ rác bừa bãi, ngăn phát sinh các điểm rác tại tuyến đường ven rạch Cầu Suối.
+- Hai vợ chồng đánh cá ở đầm An Khê (thị xã Đức Phổ, Quảng Ngãi) không may bị lật ghe khiến cả hai đuối nước, tử vong.
+- Sau khi báo Tuổi Trẻ đăng thông tin, UBND tỉnh Lâm Đồng chỉ đạo vụ khai thác cát ngoài phạm vi trên thủy điện Đồng Nai 3.
+- Rạng sáng 6-11 một vụ cháy nhà ở Vũng Tàu làm hai học sinh thiệt mạng. Căn nhà xảy ra hỏa hoạn chỉ rộng chừng 40m².
+- Nhiều năm qua, khu vực đường Mẹ Suốt, các khu dân cư dọc kênh Đa Cô ở quận Liên Chiểu được xem là một 'điểm nóng' ngập lụt ở Đà Nẵng.
+- Ngày 6-11, UBND xã Cư M'Lan, huyện Ea Súp, tỉnh Đắk Lắk thông tin ở địa phương vừa xảy ra vụ việc 2 người tử vong trong lúc trú mưa dưới gầm xe máy cày.
+- Trong lúc đi làm về chạy xe máy qua đoạn đường ngập lũ, người đàn ông ở huyện Nông Sơn, Quảng Nam bị nước lũ cuốn trôi.
+- Sau một đêm tìm kiếm, đến sáng sớm nay, thi thể người đàn ông bị lũ cuốn khi cứu một học sinh tại Quảng Bình đã được tìm thấy.
+- Dự báo của Nhật, Hong Kong và Philippines đều nhận định cường độ bão Yinxing mạnh cấp 13, giật cấp 15-16 và có khả năng đi vào Biển Đông.
+- Sau vụ nhóm "quái xế" tông chết cô gái ở Hà Nội, Công an quận Hoàn Kiếm (Hà Nội) đã tạm giữ 10 người liên quan, đồng thời ra quyết định khởi tố vụ án để điều tra.
+- Ngay khi ông Nguyễn Đức Thái nhậm chức chủ tịch NXB Giáo Dục Việt Nam năm 2017, hai doanh nghiệp đã đến gặp đề nghị được "dọn đường" cho tham gia các gói thầu cung cấp giấy in sách giáo khoa và "sẽ cảm ơn".
+- Một số tin tức đáng chú ý: Quốc hội thảo luận về các nhóm chính sách lớn sửa Luật Đầu tư công; 10 tháng đầu năm, thu bảo hiểm xã hội, thất nghiệp, y tế tăng gần 13% so với cùng kỳ; Việt Nam đạt kỷ lục 9 triệu tài khoản chứng khoán...
+- Hôm nay 6-11, thời tiết mưa to vẫn duy trì từ Hà Tĩnh và bao phủ tới tận Khánh Hòa, còn Tây Nguyên và Nam Bộ cũng mưa rào chiều tối.
+- Liên đoàn Luật sư VN vừa có văn bản cảnh báo về việc liên đoàn và chủ tịch liên đoàn này đã bị các đối tượng mạo danh quảng cáo “hỗ trợ lấy lại tiền” đầu tư chứng khoán, thương mại điện tử, để lừa đảo công dân.
+- Từ ngày 10-11 sắp tới, việc hợp thửa, tách thửa đất ở đô thị, nông thôn và các loại đất khác tại Khánh Hòa phải đảm bảo các điều kiện theo quy định mới tỉnh vừa ban hành.
+- Chiều 5-11, UBND huyện Tam Đường, tỉnh Lai Châu tổ chức họp báo đột xuất cung cấp thông tin về vụ việc trẻ nhập viện nghi ngộ độc do ăn nhầm thuốc diệt chuột tại Trường mầm non xã Giang Ma.
+- Một vết nứt dài khoảng 50m trên núi Phú Gia (xã Lộc Tiến, huyện Phú Lộc, Thừa Thiên Huế) vừa xuất hiện gây nguy cơ sạt lở. Quân đội đã phải di dời người dân ở bên dưới đến nơi an toàn.
+- Dự án mở rộng và nâng cấp quốc lộ 13 đoạn qua tỉnh Bình Dương có tổng mức đầu tư 1.360 tỉ đồng.
+- Tiếp đại sứ Singapore, bí thư Thành ủy TP.HCM hy vọng Singapore có thể chia sẻ, hỗ trợ thành phố trên tinh thần sẵn sàng cùng hợp tác phát triển.
+- Hơn 300 phụ huynh ở Đồng Nai bị xử phạt hành chính do giao xe cho học sinh chưa đủ tuổi điều khiển.
+- 'Thấu hiểu, sẻ chia, lắng nghe, giải quyết thấu đáo các kiến nghị, ý kiến của ngư dân…' là cam kết của Bí thư Tỉnh ủy Quảng Ngãi Bùi Thị Quỳnh Vân trong buổi đối thoại với ngư dân.
+- Phó thủ tướng Lê Thành Long ủy quyền bộ trưởng Bộ Lao động - Thương binh và Xã hội trình Chủ tịch nước Lương Cường tặng quà người có công dịp Tết Nguyên đán Ất Tỵ 2025.
+- Người Việt ở Vân Nam đi theo tuyến đường sắt Côn Minh - Hà Nội tới Trung Quốc và sinh sống ở đây đã 4 thế hệ, góp phần vun đắp cho quan hệ hữu nghị Việt Nam - Trung Quốc.
+- Hằng đêm, sáu thanh thiếu niên chạy quanh các tuyến đường gặp nhà dân ven đường thì ném chất bẩn vào nhà dân, gây hoang mang và bức xúc trong nhân dân.
+- Sau điều chỉnh, tổng giá trị đầu tư dự án BOT đường 768 giảm từ 615 tỉ đồng xuống còn 425 tỉ đồng, thời gian thu phí giảm từ 35 năm xuống còn 24 năm.
+- Người đàn ông tại Quảng Bình bị lũ cuốn mất tích khi lao xuống nước lũ cứu một học sinh đang chới với.
+- Nhận tiền của người khác để giúp hoãn gọi khám nghĩa vụ và hoãn nhập ngũ, nguyên phó chỉ huy trưởng ban chỉ huy quân sự xã ở Quảng Nam bị bắt tạm giam.
+- Tổ công tác sẽ thống kê nhà ở thương mại chưa được cấp giấy chứng nhận. Xác định rõ nguyên nhân, vướng mắc, phân loại và đề ra các giải pháp tháo gỡ vướng mắc theo lộ trình.
+- Lực lượng cứu nạn, cứu hộ tỉnh Lào Cai vừa tìm thấy du khách Thụy Sĩ bị lạc trong rừng khi đi khám phá Vườn quốc gia Hoàng Liên.
+- Đường ven biển ở đập Hòa Duân (giáp ranh giữa phường Thuận An, TP Huế và xã Phú Thuận, huyện Phú Vang) bị sóng biển đợt bão Trà Mi đánh tan nát.
+- TP.HCM đặt mục tiêu đến năm 2030, tuổi thọ trung bình của người dân là 77 tuổi, trong đó thời gian sống khỏe mạnh đạt tối thiểu 68 năm.
+- Bắc Ninh thí điểm tổ chức dạy học 5 ngày trong tuần và nghỉ ngày thứ bảy, chủ nhật tại 4 trường trong tỉnh.
+- Ngày 5-11, Trinity Forum 2024 - diễn đàn thương mại bán lẻ hàng không hàng đầu thế giới - đã chính thức khai mạc. Nhiều cơ hội đã mở ra khi doanh nghiệp quốc tế tìm đến Việt Nam, đổ vốn vào đầu tư dịch vụ hàng không, bán lẻ tại các sân bay.
+- Bộ Giao thông vận tải đề nghị Bộ Tài chính sớm xác lập quyền sở hữu toàn dân đối với dự án BOT quốc lộ 51.
+- Lực lượng chức năng Vùng Cảnh sát biển 4 đã bắt quả tang một tàu chở khoảng 700.000 lít dầu DO không rõ nguồn gốc, trên vùng biển Tây Nam Tổ quốc.
+- Sau va chạm với xe buýt chạy cùng chiều, người đàn ông đi xe máy bị bánh xe cán qua tử vong tại chỗ. Hiện lực lượng chức năng đang điều tra nguyên nhân vụ tai nạn.
+- Ba hậu duệ của vua Hàm Nghi đã dành tặng lại 4 cổ vật, cũng là kỷ vật được vua sử dụng thuở sinh thời cho Bảo tàng Cổ vật cung đình Huế, trong đó có đôi đũa của nhà vua.
+- Chiều 5-11, thông tin từ Bệnh viện Đa khoa tỉnh Lai Châu cho biết sức khỏe 20 trẻ mầm non nghi ăn nhầm thuốc diệt chuột đã ổn định.
+- Ngày 1-11-2024, Đông Triều trở thành thành phố thứ 5 trực thuộc tỉnh Quảng Ninh. Thành phố mới này  tuyên bố hướng tới việc đưa du lịch gắn với điểm khai thác than đầu tiên Việt Nam và sẽ khoanh vùng, phát triển ngành than xanh, sạch.
+- Sau 14 năm khởi công, dự án hồ thủy lợi Bản Mồng có tổng mức đầu tư hơn 5.550 tỉ đồng ở Nghệ An vẫn chưa hoàn thiện như dự kiến.
+- Những câu chuyện hoạt động cách mạng của Chủ tịch Hồ Chí Minh được lưu giữ tại Khu di tích lịch sử Côn Minh (tỉnh Vân Nam, Trung Quốc) gây nhiều xúc động.
+- Bộ Giao thông vận tải đề nghị Tổng công ty Đầu tư phát triển đường cao tốc Việt Nam chỉ đạo nhà thầu tập trung nguồn lực để đưa ba đoạn cao tốc Bến Lức - Long Thành vào khai thác trước 15-1.
+- Bị cắt điện, cắt nước sinh hoạt do có tranh chấp, mâu thuẫn với ban quản trị, ban quản lý chung cư, cư dân khiếu nại ở đâu?
+- Tê tê Java là vật chứng trong vụ án hình sự cùng 18 động vật hoang dã thuộc 8 loài vừa được Chi cục Kiểm lâm TP.HCM thả về Vườn quốc gia Phước Bình, tỉnh Ninh Thuận.
+- Tổng Bí thư Tô Lâm vừa có bài viết “tinh - gọn - mạnh - hiệu năng - hiệu lực - hiệu quả”. Tuổi Trẻ Online trân trọng giới thiệu.
+- Hiện nay, báo chí truyền thông đa phương tiện đang là một xu thế mới của báo chí hiện đại, không chỉ đáp ứng nhu cầu bạn đọc, nâng cao năng lực tuyên truyền, góp phần thực hiện mục tiêu phát triển kinh tế - xã hội tại địa phương.
+- Bà Phượng dự định sang năm sẽ bàn bạc để tạm dừng cho thuê gian nhà trước. Khi ấy cả gia đình sẽ dọn dẹp nhà cửa, chuẩn bị làm đám cưới cho cô con gái. Nhưng ngày dọn nhà phải đến sớm hơn dự định khi ngày vui chưa kịp diễn ra.
+- Công an huyện Bố Trạch (Quảng Bình) đã vào cuộc xác minh những thông tin liên quan đến vụ hiệu trưởng kê khai giá bạt chống nắng cao gấp 3 giá khảo sát của phụ huynh tại Trường tiểu học Lý Trạch.
+- Đại tướng Phan Văn Giang - bộ trưởng Bộ Quốc phòng - đã có giải trình đề xuất cần tương xứng ở một số địa phương khi giám đốc công an là thiếu tướng thì chỉ huy trưởng Bộ chỉ huy quân sự cũng là thiếu tướng.
+- Mưa lớn đã khiến nhiều khu vực thấp trũng ở Quảng Nam ngập trong nước lũ, tuyến đường ĐT 611 nối huyện Nông Sơn và Quế Sơn bị ngập, chính quyền giăng dây, đặt biển cảnh báo cấm người, phương tiện qua lại đoạn ngập nước.
+- Phó chủ nhiệm Ủy ban Kinh tế của Quốc hội Nguyễn Đình Việt được điều động giữ chức phó bí thư Tỉnh ủy Sơn La nhiệm kỳ 2020-2025.
+- Việc giữ lại 21% ngân sách để TP.HCM có nguồn lực bổ sung cho các nhiệm vụ trọng tâm và đột phá chiến lược, đầu tư hạ tầng trọng điểm và nâng cao phúc lợi của người dân, tăng thu nhập cho cán bộ, công chức.
+- Cảnh sát giao thông đội Bến Thành đã lập biên bản tài xế xe buýt vượt đèn đỏ tại giao lộ Cách Mạng Tháng Tám - Bùi Thị Xuân (quận 1, TP.HCM). Tài xế này cũng bị đề nghị đình chỉ công việc.
+- Chủ tịch Liên đoàn Lao động TP Hà Nội Phạm Quang Thanh yêu cầu các công đoàn cơ sở giám sát, đề nghị chủ sử dụng lao động công khai phương án lương thưởng Tết trước kỳ nghỉ Tết ít nhất 30 ngày.
+- Xe ben chạy trên đường Nguyễn Văn Linh (huyện Bình Chánh, TP.HCM) ngang nhiên cán qua dải phân cách cứng để chuyển làn khiến nhiều người hốt hoảng. Vụ việc được camera ô tô ghi lại và đăng tải lên mạng xã hội.
+- Sở Giao thông vận tải TP.HCM vừa có tờ trình gửi UBND TP.HCM về ban hành giá vé của tuyến metro số 1.
+- Để tránh sự truy vết của lực lượng công an, một nam thanh niên ở Nghệ An đã mặc áo mưa đột nhập tiệm vàng lấy cắp tài sản gần 300 triệu đồng.
+- Theo phương án thiết kế, sau khi xây dựng lại đường Thái Văn Lung (hay còn được nhiều người ví von là "khu phố Nhật Bản") ở quận 1, nơi đây sẽ khoác lên mình diện mạo mới mẻ và hiện đại.
+- Các bác sĩ Bệnh viện Chợ Rẫy vừa 'giải oan' cho một bệnh nhân nữ mắc bệnh Wilson hiếm gặp nhưng bị chẩn đoán nhầm thành tâm thần phân liệt nhiều năm.
+- Đồng Nai đã có quyết định mới về việc quy định tách thửa đối với từng loại đất và áp dụng từ ngày 5-11.
+- Một người đàn ông dùng Facebook đăng hơn 300 bài viết chứa các thông tin xúc phạm lãnh tụ, thông tin sai sự thật, bôi nhọ, xâm phạm uy tín, danh dự, nhân phẩm của các đồng chí lãnh đạo Đảng, Nhà nước.
+- Nhiều quan chức lãnh đạo cùng đông đảo thanh thiếu niên tỉnh Vân Nam đã chào đón Thủ tướng Phạm Minh Chính và đoàn đại biểu cấp cao Việt Nam với điệu múa truyền thống rộn ràng.
+- Trong tuần sau sẽ ra mắt công cụ trí tuệ nhân tạo (AI) để kiểm soát doanh thu và việc mua bán trên sàn thương mại điện tử.
+- Một số địa phương phía bắc Quảng Nam sáng nay mưa xối xả, riêng khu vực đảo Cù Lao Chàm mưa lớn, nước cuồn cuộn trên đường.
+- Nếu các bệnh viện, trường đại học phải đi vay tiền để đầu tư xây dựng chắc chắn chi phí khám chữa bệnh, chi phí đào tạo sẽ rất cao.
+- Lo ngại gặp lại tình cảnh như trận ngập lụt lịch sử năm 2022, nhiều người ở Đà Nẵng vội vàng đưa ô tô đi tránh ngập khi thấy trời mưa như trút.
+- Trong lần xét xử thứ 3 (sau 2 lần tạm hoãn) vụ sụt lún Khu công nghiệp Nhân Cơ, cựu giám đốc Sở Xây dựng vẫn vắng mặt.
+- Phần lớn vi phạm của các tài xế xe ôm công nghệ là vượt đèn đỏ, đi ngược chiều… Đặc biệt, không ít người che biển số xe.
+- 12 đội ghe ngo thuộc nhiều tỉnh thành sẽ hội ngộ, tranh tài trên kênh Nhiêu Lộc - Thị Nghè vào cuối tuần này ngày 10-11.
+- Camera hành trình ô tô ghi lại cảnh xe buýt vượt đèn đỏ tại giao lộ Cách Mạng Tháng Tám - Bùi Thị Xuân (quận 1, TP.HCM), thời điểm này có đông xe cộ qua lại. Lực lượng chức năng đang xác minh, xử lý.
+- Tham gia khám chữa bệnh tại phòng khám sản phụ khoa Mary Tân Phú khi chưa được cấp giấy phép hành nghề và đang tham gia thực hành tại Bệnh viện Từ Dũ, nam bác sĩ bị phạt hơn 35 triệu đồng.
+- Đại tướng Phan Văn Giang nêu rõ việc không phân biệt tuổi phục vụ tại ngũ giữa nam với nữ và không quy định lộ trình tăng hạn tuổi phục vụ cao nhất với nữ sĩ quan có quân hàm đại tá là phù hợp.
+- Công an tỉnh Quảng Nam kiểm tra, phát hiện mẫu nước thải tại vị trí xả thải thuộc Bệnh viện Đa khoa Thái Bình Dương - Tam Kỳ có hai thông số vượt, trong đó coliform vượt 480 lần.
+- Văn phòng UBND TP.HCM có văn bản truyền đạt chỉ đạo của Phó chủ tịch Bùi Xuân Cường đến các sở ngành về dự án ngăn triều 10.000 tỉ đồng.
+- 7h55 sáng 5-11, Thủ tướng Phạm Minh Chính cùng đoàn đại biểu cấp cao đã rời sân bay Nội Bài lên đường đi Trung Quốc tham dự Hội nghị Tiểu vùng sông Mekong mở rộng (GMS).
+- Trận mưa kéo dài từ khuya đến tảng sáng nay ở TP Đà Nẵng đã khiến nhiều khu vực trũng thấp ngập sâu. Xe cộ, người dân đi làm đầu ngày không kịp trở tay vì nước lên quá nhanh.
+- Căn nhà 2 tầng ở thị xã Sơn Tây (Hà Nội) đổ sập hoàn toàn vào tối 4-11. Sự cố xảy ra do nhà bên cạnh đang thi công đào móng, gây sạt lở.
+- Sáng 5-11, phụ huynh quận Hải Châu, Liên Chiểu chuẩn bị đưa con đến trường thì nhận được thông báo nghỉ học.
+- Thời tiết ở Đà Nẵng mưa xối xả, nhiều nơi đang bị ngập cục bộ. Một số trường đã thông báo cho học sinh nghỉ học.
+- Dự báo của Nhật, Hong Kong, Philippines đều nhận định bão Yinxing tiếp tục tăng cấp trong những ngày tới và có khả năng vào Biển Đông, trở thành cơn bão số 7 trong năm nay.
+- Tin tức đáng chú ý: Cơ cấu lại kinh tế vùng Đông Nam Bộ theo hướng hiện đại; Gia hạn thẻ bảo hiểm từ 1-1-2025 thế nào?; Chi phí điều trị các bệnh do thuốc lá gấp 5 lần thuế thuốc lá...
+- Hôm nay 5-11, không khí lạnh đã tác động hầu hết Bắc Bộ, trời lạnh đến rét. Trung Bộ thời tiết vẫn mưa, có nơi mưa rất to.
+- Phụ huynh giật mình vì đã từng xuê xoa, chiều con, cho con đua đòi chạy xe máy đi chơi. Cũng có người giật mình lo sợ khi để con tự đi xe máy vào buổi tối.
+- Thêm 7 cơ quan của tỉnh Khánh Hòa và TP Nha Trang kiểm tra, thống nhất hòn đá nằm cao 30m trên núi Cù Hin có nguy cơ sạt lở, lăn xuống đường gây mất an toàn cho người và xe cộ, nhưng vẫn còn để nguyên.
+- Dự kiến, siêu đề án thực hiện mục tiêu di dời toàn bộ nhà trên và ven kênh rạch của TP.HCM sẽ được thí điểm thực hiện tại quận 8.
+- Bà Nguyễn Hải Trâm - phó viện trưởng thường trực Viện Kiểm sát nhân dân tối cao - giữ chức phó bí thư thường trực Tỉnh ủy Tiền Giang nhiệm kỳ 2020-2025.
+- Trung tâm Phát triển quỹ đất huyện Hoài Đức đưa ra đấu giá 20 lô đất, giá khởi điểm 7,3 triệu đồng/m², kết quả có lô trúng cao nhất 103 triệu đồng/m².
+- Một thai phụ tại TP Thủ Đức phải nhập viện, phẫu thuật vì tình trạng quá kích buồng trứng ở mức độ trầm trọng rất hiếm thấy.
+- Sau thiệt hại nặng nề của bão số 3 (bão Yagi), Bộ trưởng Lê Minh Hoan cho biết cần nhận dạng và nâng cấp tư duy về thảm họa thiên tai ở cấp độ cao hơn.
+- Bộ Công an đã gửi thư khen các đơn vị đã triệt phá đường dây sử dụng không gian mạng hoạt động mua bán trái phép ma túy quy mô lớn.
+- UBND TP.HCM vừa ban hành quyết định số 101 quy định khu vực trên địa bàn TP có đường giao thông rộng tối thiểu 3,5m mới được xây 'chung cư mini'.
+- Theo UBND phường Trung Mỹ Tây (quận 12, TP.HCM), chủ cơ sở đồ gỗ nơi gây ra tiếng ồn, bụi và mùi hôi đã làm bản cam kết chuyển cơ sở đi nơi khác.
+- Bộ trưởng Bộ Giáo dục và Đào tạo đề nghị các đại biểu Quốc hội chỉ rõ nhóm lợi ích bất hợp pháp về sách giáo khoa để phối hợp 'bắt mang đi tiếp'.
+- Vụ tai nạn khi xe ben tông liên hoàn vào các xe đang dừng chờ đèn đỏ tại Bình Dương khiến 1 người chết, 1 người bị thương.
+- Ông Đặng An Thanh - phó chánh án TAND tỉnh Bình Dương - được điều động, bổ nhiệm làm chánh án TAND tỉnh Bình Phước.
+- Phó bí thư thường trực Thành ủy TP.HCM Nguyễn Hồ Hải đã trao huy hiệu 60 năm tuổi Đảng cho bà Trần Thị Minh Hoàng, nguyên bí thư Tỉnh ủy Đồng Nai.
+- Thực hiện việc sáp nhập đơn vị hành chính cấp huyện, xã giai đoạn 2023-2025, tỉnh Nghệ An sẽ có 5 thị trấn mới sau sáp nhập.
+- Đại biểu Quốc hội Vũ Trọng Kim (Nam Định) cho hay có bộ trưởng nói với ông rằng nếu 'bộ tôi giảm 30-40% biên chế chẳng hề hấn gì'.
+- Lực lượng chức năng địa phương đang điều tra ai là người đứng sau nhóm người chạy ca nô quăng rác thải sinh hoạt xuống biển Phú Quốc.
+- Việt Nam là nước sản xuất cà phê hàng đầu thế giới, nhưng giá cả hiện do các sàn giao dịch nước ngoài quyết định.
+- Thanh tra tỉnh Đồng Nai vừa ban hành các quyết định thanh tra trách nhiệm nguyên chủ tịch huyện Nhơn Trạch và huyện Trảng Bom.
+- Các hoạt động có ý nghĩa quan trọng, kỳ vọng mang lại kết quả cụ thể, thực chất đối với Việt Nam, tiểu vùng Mekong.
+- Do chiếc xe múc chặn đường vào 30ha rẫy sắn, trời mưa to, người dân không kịp thu hoạch nên sắn đã bắt đầu hư hỏng.
+- Công an tỉnh Lâm Đồng vừa có văn bản đề nghị gỡ bỏ lệnh 'đóng băng' với các bất động sản tại TP Bảo Lộc trong 3 năm nay.
+- Bộ trưởng Bộ Công an điều động công tác, bổ nhiệm đại tá Nguyễn Hữu Phước giữ chức vụ giám đốc Công an tỉnh Khánh Hòa.
+- Dù không có bằng lái nhưng người đàn ông ở Đồng Nai vẫn lái xe đưa rước gần 30 học sinh đến trường.
+- Tập đoàn Sơn Hải khẳng định việc lắp biển thông báo về bảo hành trên cao tốc Nghi Sơn - Diễn Châu là thực hiện theo hợp đồng với chủ đầu tư.
+- Bà L. nói cảm thấy hối hận vì để con đi xe rồi gây ra tai nạn: 'Tôi chỉ nghĩ con lấy xe đi lại, không ngờ lại ra cơ sự này'.
+- Cầu Rạch Đỉa (huyện Nhà Bè, TP.HCM) đã thành hình, đường dẫn hai đầu cầu cũng đang được trải nhựa… sẵn sàng thông xe trong tháng 12.
+- Lãng phí được đại biểu Quốc hội nêu qua các dự án điện gió, điện mặt trời làm xong chưa đưa vào vận hành.
+- Đây là một trong những nội dung Trưởng Ban Tuyên giáo Trung ương Nguyễn Trọng Nghĩa đề nghị Trường cao đẳng Lilama 2 chú trọng đào tạo.
+- Cảnh sát giao thông Đội Bàn Cờ đã mời tài xế xe buýt vừa lái xe vừa bấm điện thoại trên đường Lý Thường Kiệt (TP.HCM) lên làm việc, lập biên bản.
+- Quảng Trị nhận định phân luồng trên cao tốc Cam Lộ - La Sơn là bất hợp lý, mỗi ngày quốc lộ 1 đón thêm 11.000 - 14.000 lượt xe tải nặng.
+- Bí thư Thành ủy TP.HCM cho biết TP.HCM sẽ nỗ lực, không cầu toàn nhưng phải hoàn thành dự án đường Thái Văn Lung trong năm 2025.
+- Quyết định ban hành kế hoạch thực hiện quy hoạch tỉnh Quảng Ngãi thời kỳ 2021-2030, tầm nhìn đến năm 2050 vừa được phó thủ tướng phê duyệt.
+- Sau khi sao kê công khai, nhiều cá nhân bị phát hiện chỉnh sửa hình ảnh thổi phồng số tiền ủng hộ để đánh bóng tên tuổi.
+- Nhà đầu tư vẫn mòn mỏi chờ đợi dẫn đến mất cơ hội đầu tư, đành tâm tư rằng 'đường xa nghĩ nỗi sau này mà kinh'.
+- Tỉnh Quảng Ngãi đã ban hành văn bản, cấm khai thác thủy sản có thời hạn ở khu vực biển gần đảo Lý Sơn và thị xã Đức Phổ.
+- Tại sao cứ dựa vào biến động chỉ số giá tiêu dùng trong khi ai cũng thấy quy định này gây ra sự lạc hậu trong việc giảm trừ gia cảnh?
+- Sở Giao thông vận tải TP.HCM vừa ban hành phương án tổ chức giao thông tại giao lộ đường Phạm Văn Đồng - đường số 20, TP Thủ Đức.
+- Nhận huy hiệu 45 năm tuổi Đảng, nguyên Phó chủ tịch nước Đặng Thị Ngọc Thịnh bày tỏ xúc động, vinh dự và tự hào.
+- Phó thủ tướng Trần Hồng Hà chỉ đạo Bộ Giao thông vận tải tiếp tục sửa chữa, bổ sung đầy đủ hệ thống tín hiệu tại 184 đường ngang có người gác.
+- Ông Nguyễn Cao Trí xin được xét xử vắng mặt tại phiên tòa phúc thẩm vụ án xảy ra tại Tập đoàn Vạn Thịnh Phát, SCB - giai đoạn 1 vì lý do sức khỏe.
+- Đại biểu Mai Thị Phương Hoa nêu rõ còn có một bộ phận cán bộ có tâm lý coi nhẹ việc chống lãng phí ngay trong hoạt động quản lý.
+- Theo Luật Đường bộ, quốc lộ sẽ được phân quyền cho tỉnh, thành chịu trách nhiệm quản lý. Nhiều tỉnh, thành lo lấy kinh phí và nhân lực ở đâu.
+- Huyện Phú Quý, tỉnh Bình Thuận phối hợp hỗ trợ người nhà đưa thi thể du khách C.H.M. (19 tuổi, quê Lâm Đồng) vào đất liền.
+- Ngôi nhà 5 tầng ở Hà Nội xảy ra hỏa hoạn lúc rạng sáng 4-11. Cảnh sát sau đó đã tiếp cận để dập lửa và giải cứu 2 người mắc kẹt.
+- Bệnh dại gia tăng khiến chủ tịch tỉnh Quảng Nam yêu cầu người đứng đầu các địa phương phải chịu trách nhiệm.
+- Theo cơ quan khí tượng Nhật Bản, ngoài khơi Philippines vừa hình thành bão Yinxing, hướng di chuyển cho thấy bão có thể đi vào Biển Đông.
+- Hôm nay 4-11, thời tiết các tỉnh miền Trung vẫn duy trì mưa to đến rất to, miền Bắc chuyển rét, miền Nam mưa dông chiều tối.
+- Một số tin tức đáng chú ý: Lần đầu Việt Nam có ngân hàng nắm khối tài sản trên 100 tỉ USD; Đại gia dầu khí bị 'cuốn' nghìn tỉ lợi nhuận; Hết năm 2024, cả nước có 243km đường ven biển...
+- Hàng chục quái xế phóng xe máy tốc độ cao trên đường phố Hà Nội. Tới ngã tư Trần Hưng Đạo - Bà Triệu, nhóm này tông trúng người phụ nữ dừng đèn đỏ khiến nạn nhân tử vong.
+- Cơ quan cảnh sát điều tra cáo buộc trong vụ án Sài Gòn Đại Ninh, số tiền 2.700 tỉ đồng đại gia Nguyễn Cao Trí nhận của Tập đoàn Novaland là thu lợi bất chính từ hành vi vi phạm pháp luật, nên đề nghị sung công quỹ nhà nước.
+- Ngày 3-11, Tổng công ty Điện lực miền Nam đã kiểm tra tiến độ thi công trạm biến áp 110kV sân bay Long Thành và đường dây kết nối phục vụ sân bay.
+- Theo thông báo từ Bộ Ngoại giao, Thủ tướng Phạm Minh Chính sẽ tới Trung Quốc tham dự Hội nghị Thượng đỉnh Hợp tác tiểu vùng Mekong mở rộng lần thứ 8.
+- Thay thế kịp thời những cán bộ, công chức, viên chức yếu kém về năng lực, sợ sai, sợ trách nhiệm, đùn đẩy, né tránh liên quan đến giải ngân vốn đầu tư công.
+- Gần 164.000 doanh nghiệp rút khỏi thị trường trong 9 tháng đầu năm 2024, đại biểu Quốc hội đề nghị phân tích, làm rõ tình hình.
+- Ngày 31-10, tại Học viện Chính trị quốc gia Hồ Chí Minh, Giáo sư, Tiến sĩ Tô Lâm, Tổng Bí thư Ban Chấp hành Trung ương Đảng Cộng sản Việt Nam, đã có buổi trao đổi một số nội dung về kỷ nguyên mới, kỷ nguyên vươn mình của dân tộc.
+- Dự báo từ chiều nay đến 5-11, ở các tỉnh, thành từ Hà Tĩnh đến Quảng Ngãi có mưa lớn diện rộng, có nơi trên 400mm và mưa to còn kéo dài nhiều ngày sau đó.
+- Ngày 29-10, Ban cưỡng chế huyện Cần Đước đã thực hiện kiểm đếm 17 hộ dân, ngày 30-10 kiểm đếm 9 hộ dân và ngày 31-10 kiểm đếm 17 hộ dân.
+- Phó chủ tịch Quốc hội Nguyễn Đức Hải nêu rõ Ủy ban Thường vụ Quốc hội thống nhất trình Quốc hội xem xét, quyết định việc thí điểm.
+- Mỗi lần có mưa bão là trên TikTok, Facebook… xuất hiện những “nhà khí tượng học online” livestream, đăng thông tin cảnh báo thời tiết.
+- Sáng 3-11, Tổng cục II (Bộ Quốc phòng) đã tổ chức Hội nghị bàn giao chức trách, nhiệm vụ tổng cục trưởng Tổng cục II.
+- Một người đàn ông dùng ô tô chở 158kg pháo nổ các loại từ Campuchia dự tính về Đồng Nai tiêu thụ bị bắt giữ ở gần biên giới Tây Ninh.
+- Nam thanh niên không được tỉnh táo cầm súng nhựa chặn xe, dọa người đi đường ở quận Bình Tân, TP.HCM.
+- Nhà thầu Sơn Hải gắn hàng chữ "Vào đường Sơn Hải bảo hành 10 năm” trên biển báo ở cao tốc Nghi Sơn - Diễn Châu là không đúng quy định.
+- Bộ Công an đề xuất phạt 20 - 30 triệu đồng với hành vi kiểm soát tài sản, thu nhập của thành viên gia đình nhằm tạo lệ thuộc về mặt vật chất, tinh thần.
+- Từ ngày 3 đến 9-11, Bắc Bộ lạnh đến rét vì các đợt không khí lạnh. Thời tiết Trung Bộ mưa to dài ngày, Nam Bộ mưa rào về chiều tối.
+- Đó là ý kiến của ông Lê Hữu Nghĩa (tổng giám đốc Công ty Lê Thành) về vấn đề nhà ở xã hội.
+- Ngày 3-11, Công an tỉnh Đồng Nai đã triển khai lực lượng “đột kích” các lò độ chế xe máy trái phép, phát hiện hàng loạt sai phạm.
+- Các tỉnh thành vừa lấy ý kiến hoặc ban hành mức giá cho thuê nhà ở xã hội.
+- Trong tuần qua báo Tuổi Trẻ tiếp tục nhận rất nhiều thông tin của bạn đọc phản ánh và Tuổi Trẻ đã nhanh chóng phản hồi.
+- Temu có nguy cơ bị chịu mức phạt lên tới 6% doanh thu toàn cầu hằng năm của nền tảng này sau khi Liên minh châu Âu (EU) mở cuộc điều tra.
+- Nhiều người có các khoản thu nhập vãng lai nhỏ nhận thông báo yêu cầu kê khai thuế bổ sung và truy thu, phạt, tính tiền chậm nộp số tiền khủng.
+- Xe tải và xe container xảy ra va chạm trên quốc lộ 22, huyện Củ Chi (TP.HCM), khiến hai vợ chồng kẹt cứng trong cabin, người dân hỗ trợ dùng dây cáp kéo giãn cabin, cứu người bị nạn.
+- Gia đình hiếm muộn được hoàn tiền nếu thụ tinh ống nghiệm không thành công; Người mua vàng gặp khó, "chợ mạng" sôi nổi.
+- Hôm nay 3-11, không khí lạnh ảnh hưởng nhiều nơi ở Bắc Bộ. Trung Bộ mưa to đến rất to, còn Nam Bộ thời tiết có lúc mưa rào.
+- Đoạn clip ghi cảnh tài xế xe buýt vừa lái xe vừa bấm điện thoại trên đường Lý Thường Kiệt khiến nhiều người bức xúc.
+- Chủ tịch Quốc hội Cuba Esteban Lazo Hernández trân trọng cảm ơn sự hỗ trợ, đồng thời cho biết Cuba rất quan tâm trao đổi và học hỏi các kinh nghiệm phong phú của Việt Nam.
+- Căn hộ ở tầng cao block A3 chung cư The Era Town Đức Khải, phường Phú Mỹ, quận 7, TP.HCM bốc cháy tối 2-11.
+- Cơn mưa cực lớn và kéo dài đúng lúc có triều cường nên nhiều tuyến đường ở thành phố Bạc Liêu (tỉnh Bạc Liêu) ngập nặng. Có nơi lượng mưa đo được hơn 221mm.
+- Do ảnh hưởng của không khí lạnh và gió đông nên từ sáng mai 3-11, ở miền Trung có mưa lớn trên diện rộng, nguy cơ cao xảy ra ngập lụt ở đô thị các tỉnh từ Hà Tĩnh đến Quảng Ngãi.
+- Lực lượng chức năng TP Cam Ranh (tỉnh Khánh Hòa) vẫn đang tiến hành thu thập thông tin để xác định danh tính 1 hài cốt liệt sĩ được tìm thấy ở nương rẫy trên địa bàn thành phố này.
+- Chủ tịch Quốc hội Cuba Esteban Lazo Hernandez đã bày tỏ điều này trong cuộc hội đàm với Chủ tịch Quốc hội Trần Thanh Mẫn tại Hà Nội ngày 2-11.
+- Đoạn đường sắt qua đèo Hải Vân đã chính thức thông đường sau sự cố tàu hàng bị trật bánh khi qua đèo ở Đà Nẵng.
+- Ngày 2-11, Ủy ban Kiểm tra Tỉnh ủy Đồng Nai đã phát đi thông báo về việc kiểm tra, giám sát và đề nghị kỷ luật một số tổ chức Đảng, đảng viên trên địa bàn.
+- Thành viên đoàn công tác Ủy ban Kinh tế của Quốc hội đồng tình kiến nghị đầu tư xây sớm đường băng thứ hai thuộc dự án sân bay Long Thành.
+- Một thi thể đang trong trạng thái phân hủy trong thùng container trên khu đất trống ở xã Phước Đồng, TP Nha Trang (Khánh Hòa) được người dân phát hiện.
+- Diễn đàn Trinity Forum 2024, sự kiện quốc tế hàng đầu trong lĩnh vực hàng không và bán lẻ du lịch, diễn ra tại TP.HCM từ ngày 5 đến 6-11, quy tụ hàng loạt thương hiệu lớn L'Oréal, Qatar Airways, Mondelēz, Diageo, Dubai Duty Free, China Duty Free...
+- Văn phòng đăng ký đất đai TP.HCM cho rằng đã đề nghị cấp sổ hồng cho gia đình ông Bùi Mộc từ tháng 5-2023, việc cấp sổ còn lại thuộc thẩm quyền của UBND quận Tân Bình.
+- Dự án di dời nghĩa trang Bình Hưng Hòa gần như hoàn tất công tác bốc mộ ở 2 giai đoạn đầu, bắt đầu giai đoạn 3.
+- Cuộc thi thiết kế cầu vượt biển vịnh Rạch Giá được quy định ngay từ đầu là cao không quá 45m. Thế nhưng có một đơn vị thiết kế cầu cao đến 78m.
+- Trong vụ án xảy ra ở dự án khu đô thị du lịch biển Phan Thiết, Cơ quan cảnh sát điều tra Bộ Công an đã kết luận 2 nội dung vi phạm chính.
+- Nội dung kiểm tra, xác minh, xử lý cần được gởi về Sở Thông tin và Truyền thông trước ngày 8-11 để báo cáo UBND tỉnh Khánh Hòa.
+- Sở Giao thông vận tải TP.HCM đề xuất tháo dỡ cầu sắt cũ Long Kiểng 50 tuổi, xuống cấp nghiêm trọng để đảm bảo an toàn, đỡ tốn phí quản lý.
+- Tàu cá Phú Yên bị đứt neo trôi dạt từ TP Tuy Hòa về phía bãi biển thị xã Đông Hòa, tỉnh Phú Yên. Công việc cứu hộ rất khó khăn do thời tiết bất lợi, sóng rất lớn.
+- PGS.TS Nguyễn Thị Kim Tiến cho biết Việt Nam đang đứng đầu các nước Đông Nam Á về ghép tạng với hơn 1.000 ca mỗi năm.
+- Trong 10 tháng đầu năm 2024, trên địa bàn TP.HCM đã xảy ra 1.235 vụ tai nạn giao thông làm 384 người chết và 765 người bị thương.
+- Chiều 2-11, tại Khánh Hòa diễn ra hội nghị công bố, trao quyết định của Bộ Chính trị điều động, chỉ định ông Nghiêm Xuân Thành - ủy viên Trung ương Đảng, bí thư Tỉnh ủy Hậu Giang - giữ chức bí thư Tỉnh ủy Khánh Hòa.
+- Khu quản lý đường bộ II cho rằng biển báo trên cao tốc Nghi Sơn - Diễn Châu là của Nhà nước, nên chỉ đạo xóa chữ không có trong thiết kế. Nhưng Tập đoàn Sơn Hải vẫn khẳng định đây là tài sản doanh nghiệp.
+- Kết luận điều tra xác định cựu bộ trưởng, chủ nhiệm Văn phòng Chính phủ Mai Tiến Dũng nhận 200 triệu “cảm ơn” từ đại gia Nguyễn Cao Trí. Cựu bí thư Lâm Đồng Trần Đức Quận nhận hối lộ 2,1 tỉ, cựu chủ tịch tỉnh nhận 4,2 tỉ.
+- Thái Lan là nơi điển hình về bảo tồn sếu bởi đã nuôi thả thành công, có thể nói "ban đầu người nuôi sếu, sau này sếu sẽ nuôi người" gắn với phát triển sinh kế, du lịch địa phương. Đó là ý kiến của đa số nhà tài trợ đề án bảo tồn sếu đầu đỏ.
+- Điểm sáng được Bộ Xây dựng ghi nhận, số dự án nhà ở được cấp phép mới và đủ điều kiện bán gia tăng trong quý 3-2024.
+- Phát biểu tại phiên thảo luận tổ Quốc hội, Tổng Bí thư Tô Lâm đã nêu việc hiện ngân sách đang chi gần 70% để trả lương, chi thường xuyên.
+- Thiếu tướng Nguyễn Ngọc Vân, giám đốc Công an tỉnh Sơn La, được điều động đến nhận công tác và giữ chức tư lệnh Cảnh sát cơ động kể từ ngày 6-11-2024.
+- Tòa án nhân dân cấp cao tại Đà Nẵng mới đây đã xét xử phúc thẩm vụ án cựu chủ tịch UBND quận Cẩm Lệ (Đà Nẵng) cùng các thuộc cấp về tội nhận hối lộ.
+- Đơn vị thi công đang đẩy nhanh tiến độ làm và dự kiến hoàn thành đưa vào sử dụng đường Suối Cái - Rạch Vẹm trong tháng 11-2024.
+- Trong chuyên đề về kỷ nguyên mới, kỷ nguyên vươn mình của dân tộc ngày 31-10, Tổng Bí thư Tô Lâm đã trao đổi về 7 định hướng chiến lược đưa đất nước bước vào kỷ nguyên mới, kỷ nguyên vươn mình của dân tộc.
+- Bảo tàng Lịch sử quân sự Việt Nam sẽ tạm đóng cửa, dừng đón khách trong vòng ba ngày, từ ngày 3 đến hết 5-11.
+- Ban Thường vụ Tỉnh ủy Hà Tĩnh công bố quyết định luân chuyển, điều động, bổ nhiệm 19 cán bộ chủ chốt.
+- Các cơ quan thực hiện nhiệm vụ phòng chống tham nhũng, tiêu cực tỉnh Khánh Hòa đã phát hiện, xử lý kỷ luật 85 đảng viên.
+- Bộ Quốc phòng đang lấy ý kiến về dự thảo nghị định của Chính phủ quy định tiêu chí, tiêu chuẩn thăng quân hàm cấp tướng vượt bậc và trước thời hạn.
+- Chủ tịch Quốc hội Trần Thanh Mẫn ký ban hành nghị quyết của Ủy ban Thường vụ Quốc hội về sáp nhập huyện, xã giai đoạn 2023 - 2025 của 21 tỉnh thành.
+- Một tàu trật bánh khỏi đường ray, hàng trăm hành khách trên tàu SE7, SE8 được trung chuyển từ ga Lăng Cô (Thừa Thiên Huế) vào ga Đà Nẵng và ngược lại.
+- Tin tức đáng chú ý: TP.HCM ban hành nhiều chính sách hỗ trợ trong trường hợp bị thu hồi đất; 7,1% người trưởng thành tại Việt Nam mắc đái tháo đường; TP Phan Rang - Tháp Chàm sáp nhập 5 phường xã...
+- Hôm nay 2-11, thời tiết các tỉnh Bắc Bộ lạnh, Nam Bộ mưa rào, Trung Bộ có mưa và chuẩn bị vào đợt mưa to dài ngày.
+- Xe tải cẩu chạy trên cao tốc Phan Thiết - Dầu Giây bất ngờ nổ lốp, lật ngửa, chắn ngang đường. Vụ việc khiến giao thông trên đường cao tốc kẹt xe kéo dài nhiều km.
+- Việc này giúp khai thác và phát triển tốt các quỹ đất có điều kiện chỉnh trang, tạo thành các khu đô thị nén xung quanh nhà ga tuyến metro số 1, 2, dọc vành đai 3… ở TP.HCM.
+- Ông Nguyễn Viết Hải, chủ tịch Tập đoàn Sơn Hải, hỏi như trên. Nhiều bạn đọc thì thắc mắc về quy định có cho phép ghi chữ trên biển báo giao thông không, trong khi Tập đoàn Sơn Hải khẳng định đây là biển thông báo của doanh nghiệp.
+- Bí thư Quận ủy quận Bình Tân (TP.HCM) chỉ đạo cơ quan chức năng quận cân nhắc tiến độ cưỡng chế tháo dỡ diện tích vi phạm tại chung cư Nguyễn Quyền phù hợp, bảo vệ quyền lợi cho các hộ dân.
+- Chủ tịch Quốc hội Trần Thanh Mẫn vừa ký ban hành nghị quyết về việc tăng thêm một thứ trưởng Bộ Nông nghiệp và Phát triển nông thôn.
+- Lực lượng chức năng đã cưỡng chế tháo dỡ tấm biển quảng cáo chữa bách bệnh bằng nước ion kiềm của ông Nguyễn Tiến Nam (sinh năm 1958, trú tại số nhà 47, đường Đìa 1, thôn Đìa, xã Bình Minh, Thanh Oai, Hà Nội) trong ngày 1-11.
+- Di tích Quốc Tử Giám triều Nguyễn sau nhiều năm là trụ sở của Bảo tàng Lịch sử Thừa Thiên Huế sắp được bàn giao, trả lại nguyên trạng cho Trung tâm Bảo tồn di tích cố đô Huế quản lý, tu bổ và phát huy giá trị.
+- Từ ngày 3 đến 5-11, miền Trung, đặc biệt khu vực từ Hà Tĩnh đến Đà Nẵng có mưa to đến rất to với lượng mưa phổ biến 200-400mm, có nơi trên 500mm.
+- Giám đốc Đại học Huế đã đưa ra khẳng định như trên. Việc thu học phí rẻ khiến câu chuyện tái đầu tư cho cơ sở hạ tầng để đạt tiêu chí đại học quốc gia gặp khó khăn.
+- Sau đợt mưa lũ, sò huyết dạt vào bờ biển khiến hàng trăm người dân thị xã Ba Đồn (Quảng Bình) đổ ra bãi biển nhặt. Đây là hiện tượng lạ với vùng biển này.
+- UBND thành phố Quảng Ngãi đang tìm kiếm một thiết kế logo đáp ứng các tiêu chí nhận diện và có ý nghĩa với xứ sở. Thiết kế đoạt giải nhất nhận thưởng 100 triệu đồng và được sử dụng làm biểu trưng cho thành phố.
+- Ngày 1-11, thông tin từ Bệnh viện Trường đại học Y Dược Cần Thơ cho biết bệnh viện này vừa phẫu thuật thành công lấy ra chiếc đũa trong vùng ổ mắt và vách mũi một nam bệnh nhân.
+- Theo phản ánh của người dân, ven đường dọc rạch Cầu Suối (xã Vĩnh Lộc B, huyện Bình Chánh, TP.HCM) đang trở thành nơi đổ rác bừa bãi.
+- Thầy hiệu trưởng trong clip '1.400 học sinh chia tay trước ngày nghỉ hưu' nói muốn được yêu mến, thầy giáo trước tiên phải trải lòng với học trò. Thầy là cha mẹ, nhưng cũng là bạn để các em tâm sự những nỗi niềm tuổi mới lớn.
+- Một vết nứt dài vừa được phát hiện trên một ngọn núi ở phía tây huyện Lệ Thủy (tỉnh Quảng Bình) sau mưa lũ. Chính quyền đang khẩn cấp di dời các hộ dân bên dưới chân núi.
+- Sau 50 ngày được điều trị tại Bệnh viện Bạch Mai, bé M.H.T.N. (11 tuổi) từng bị lũ cuốn trôi ở bản Làng Nủ, Lào Cai ngày đã được ra viện.
+- Liên quan vụ 21 con hổ, báo chết ở Đồng Nai, các mẫu xét nghiệm lấy tại khu du lịch Vườn Xoài liên tiếp âm tính với cúm gia cầm A/H5N1.
+- Đà Nẵng sẽ nghiên cứu kết hợp với thương mại dịch vụ tại các điểm nhà vệ sinh công cộng trên các tuyến đường du lịch.
+- Phường An Phú, An Cư và An Nghiệp được sáp nhập vào phường Thới Bình, quận Ninh Kiều để thành lập phường mới từ hôm nay.
+- Chuyển từ quốc lộ sang đường đô thị là một tất yếu mang tính quy luật do quá trình đô thị hóa và sự thay đổi mạnh mẽ của ngành giao thông.
+- Ông Nguyễn Thanh Lâm, thứ trưởng Bộ Thông tin và Truyền thông, được Thủ tướng Chính phủ bổ nhiệm giữ chức tổng giám đốc VTV.
+- Cơ quan cảnh sát điều tra Bộ Công an vừa kết luận điều tra vụ án xảy ra ở dự án Khu đô thị du lịch biển Phan Thiết, tỉnh Bình Thuận.
+- Chính phủ trình Quốc hội chủ trương đầu tư Chương trình mục tiêu quốc gia phát triển văn hóa 2025-2035 với tổng nguồn 256.250 tỉ đồng.
+- Ngày 1-11, một lãnh đạo Công an TP Pleiku cho biết hiện cơ quan điều tra đang thụ lý vụ nữ sinh bị đánh tập thể rồi lột đồ quay clip.
+- Nguyễn Văn Tiền (ở xã Dương Tơ, Phú Quốc) cùng hai người khác đã chuyển nhượng khoảng 3ha đất lấy 4 tỉ đồng.
+- Để cấm xe máy cá nhân, Hà Nội cần đánh giá tác động xã hội, bởi cấm xe cá nhân thì phải có xe thay thế, phương tiện công cộng phải tiện lợi.
+- Nhiều người dân xã Vĩnh Ngọc (Nha Trang) nói họ "mừng hơn trúng số" khi HĐND TP vừa thống nhất đầu tư xây dựng cầu Phú Kiểng kiên cố.
+- Ông Lâm Phi Hùng sinh năm 1965, ông xin nghỉ hưu trước tuổi hơn 2 năm theo đối tượng tinh giản biên chế.
+- Đại biểu Quốc hội đề nghị quy định cụ thể về phòng cháy chữa cháy với trường hợp nhà ở chuyển đổi công năng sang sản xuất, kinh doanh.
+- Tuyến cao tốc Nghi Sơn - Diễn Châu do Tập đoàn Sơn Hải thi công và bảo hành 10 năm bị gỡ hết 9 biển cam kết bảo hành 10 năm trên đường.
+- Công an bắt quả tang khi tài xế Nguyễn Hoàng Anh nhận 250 triệu đồng của một phụ nữ để hứa hẹn chạy án ma túy.
+- Công an TP Quảng Ngãi đã tống đạt quyết định khởi tố bị can và bắt tạm giam thanh niên quan hệ tình dục với hai chị em sinh đôi mới 15 tuổi.
+- Trao đổi với Tuổi Trẻ, luật sư Trương Anh Tú, chủ tịch TAT Law Firm, khẳng định việc cấm phân lô bán nền là cần thiết.
+- Với thực trạng phân lô bán nền nhức nhối như thời gian qua, liệu các địa phương có thể ngăn chặn?
+- Hầu hết là xe không rõ nguồn gốc, xuất xứ được nhập lậu hoặc tự lắp ráp, "độ chế" từ các linh kiện, phụ tùng không nhãn mác.
+- Quốc hội thảo luận tại hội trường về một số nội dung còn ý kiến khác nhau của dự thảo Luật Phòng cháy, chữa cháy và cứu nạn, cứu hộ.
+- Giao UBND TP Hà Tiên tổ chức kiểm điểm rút kinh nghiệm đối với tập thể lãnh đạo UBND TP trong việc chỉ đạo, quản lý điều hành.
+- UBND thành phố Hà Nội vừa có quyết định về việc ban hành giá vé vận chuyển hành khách công cộng bằng xe buýt có trợ giá trên địa bàn thành phố bắt đầu từ ngày 1-11.
+- Hà Nội, TP.HCM đang gồng mình chịu ô nhiễm, trong đó có lượng khí thải khổng lồ từ xe cộ dùng xăng dầu thải ra hằng ngày.
+- Một số tin tức đáng chú ý: Quốc hội thảo luận Luật Phòng cháy, chữa cháy và cứu nạn, cứu hộ; Miền Tây lại đối mặt triều cường cao; Việt Nam nằm trong nhóm nước bị thiếu i ốt...
+- Hôm nay 1-11, thời tiết Bắc Bộ sẽ chuyển lạnh do không khí lạnh tăng cường. Nam Bộ và Trung Bộ nắng gián đoạn, có lúc mưa rào.
+- Trong 1 tháng cao điểm xử lý vi phạm của cảnh sát giao thông, có hơn 77.000 trường hợp vi phạm nồng độ cồn bị xử lý.
+- Bảo tàng Lịch sử quân sự Việt Nam mới tại quận Nam Từ Liêm, Hà Nội chính thức mở cửa phục vụ người dân và du khách từ ngày mai 1-11.
+- Gặp mặt lãnh đạo TP.HCM, đoàn Hội Tiểu nông Cuba mong muốn thắt chặt quan hệ hợp tác, hữu nghị giữa Hội Tiểu nông Cuba với TP.HCM.
+- Xưởng nội thất ở An Đồng (huyện An Dương, Hải Phòng) cháy lan làm 7 hộ dân liền kề bị thiệt hại.
+- Tỉnh Khánh Hòa đang đề nghị các bộ ngành trung ương góp ý về đề án xây dựng Trung tâm Nghiên cứu quốc gia về công nghệ đại dương tại tỉnh này.
+- Ngày 1-11, thị xã Đông Triều (tỉnh Quảng Ninh) sẽ chính thức trở thành thành phố, như vậy Quảng Ninh sẽ có 5 thành phố trực thuộc tỉnh.
+- HĐND tỉnh Khánh Hòa đã gác lại việc thông qua nghị quyết phê duyệt danh mục 18 khu đất để thực hiện đấu thầu lựa chọn nhà đầu tư.
+- Ngày 31-10, Phó thủ tướng thường trực Nguyễn Hòa Bình đã ký quyết định số 1303/QĐ-TTg về việc thi hành kỷ luật đối với bà Nguyễn Thị Hồng, nguyên phó chủ tịch UBND TP.HCM.
+- Dự án xây dựng đoạn tuyến nối từ đường Võ Văn Kiệt đến đường cao tốc TP.HCM - Trung Lương (giai đoạn 1) khởi công từ năm 2016.
+- Việt Nam bày tỏ mong muốn hợp tác chặt chẽ với chính quyền Mỹ trong thời gian tới, trong bối cảnh chỉ còn vài ngày nữa là bầu cử tổng thống Mỹ.
+- Kết luận có nhiều nội dung để tháo gỡ những điểm nghẽn, khó khăn.
+- Đại biểu Tạ Văn Hạ nêu dẫn chứng con ông đi học phổ thông, được gia đình mua bảo hiểm của công ty nước ngoài, nhưng cũng phải đóng bảo hiểm y tế.
+- Bộ Ngoại giao cho hay Việt Nam sẽ nghiên cứu các quy chế của nhóm BRICS và việc tham gia được xem xét trên cơ sở lợi ích, điều kiện, khả năng của Việt Nam.
+- Nhà thầu thi công mặt đường bề rộng 4m, nhưng lại nghiệm thu với bề rộng 13m, dẫn đến phần diện tích chênh lệch là 1.836m2.
+- Trong 10 ngày đầu tháng 11, ở Biển Đông xuất hiện áp thấp nhiệt đới, còn miền Trung có khả năng gặp đợt mưa đặc biệt lớn, gây ngập lụt.
+- Bộ Ngoại giao nhấn mạnh chủ quyền đối với quần đảo Hoàng Sa, kiên quyết phản đối việc bắt giữ của Trung Quốc và yêu cầu thả ngư dân đồng thời bồi thường.
+- Bộ Ngoại giao Việt Nam bày tỏ hết sức quan ngại khi có thông tin Trung Quốc đang hoàn thiện cơ sở hạ tầng để đưa radar ra đảo Tri Tôn, thuộc quần đảo Hoàng Sa.
+- Biết tin thầy hiệu trưởng nghỉ hưu, 1.400 học sinh Trường THPT Phan Chu Trinh (xã Ea Ral, Ea Hleo, tỉnh Đắk Lắk) tổ chức lễ chia tay ngay tại sân trường.
+- Trường đại học Fulbright Việt Nam cho biết đã nhận giấy phép xây dựng cho giai đoạn 1 tại Khu công nghệ cao TP.HCM vào ngày 28-10-2024.
+- Đại biểu Quốc hội đề nghị quy định thanh toán cho bệnh nhân khám bảo hiểm y tế phải mua thuốc, vật tư y tế bên ngoài khi bệnh viện không có.
+- Quân khu 4 sẽ cử y bác sĩ về thị trấn Lăng Cô (huyện Phú Lộc, Thừa Thiên Huế) để khám, cấp phát thuốc cho người dân ở vùng bị thiệt hại do bão Trà Mi gây ra.
+- Bà Hoàng Thị Kim Châu, nguyên tổng giám đốc Công ty cổ phần Bách Đạt An, đã bị Công an tỉnh Quảng Nam khởi tố, bắt tạm giam.
+- Tại kỳ họp thứ 14 HĐND tỉnh Tiền Giang khóa X, bà Châu Thị Mỹ Phương, trưởng Ban Tuyên giáo Tỉnh ủy Tiền Giang, đã được bầu làm chủ tịch Hội đồng nhân dân tỉnh Tiền Giang khóa 10, nhiệm kỳ 2021-2026
+- Dự án cầu Rạch Miễu 2 đã thi công hoàn thành 100% thân trụ tháp dây văng cho cả 2 trụ tháp P19 và P20, hoàn thành vượt tiến độ hơn 3 tháng so với kế hoạch.
+- Cầu đi bộ kết nối với tuyến metro số 1 sẽ tạo nhiều thuận tiện cho người dân đi lại. Việc xây dựng hoàn thành tất cả 9 cây cầu đi bộ là bước ngoặt quan trọng, tiến đến vận hành chính thức trong tháng 12.
+- Temu, Shein và Taobao đang tạo áp lực cạnh tranh lên thị trường Việt Nam, khiến các sản phẩm nội địa khó cạnh tranh. Việt Nam cần làm gì để giảm khoảng cách này?
 ![New](News.png)
 ## Nhịp sống số 
+- Samsung đã đáp ứng nhu cầu khám phá và trải nghiệm công nghệ của người tiêu dùng theo cách khác biệt với cửa hàng Samsung West Lake.
+- Các quan chức chống độc quyền của Bộ Tư pháp Mỹ đã quyết định sẽ yêu cầu thẩm phán buộc Google bán các trình duyệt Chrome nhằm phá vỡ thế độc quyền.
 - Loại kính mới có thể chỉ cho shipper chính xác nơi cần đến trong tòa nhà, chẳng hạn như các hướng rẽ, và chụp ảnh các gói hàng sau khi giao xong.
 - Apple được cho là đã vi phạm luật cạnh tranh của Anh khi ưu tiên dịch vụ lưu trữ iCloud, 'bẫy' khách hàng buộc phải dùng iCloud.
 - Theo các chuyên gia, mục tiêu cuối cùng của an toàn thông tin không phải là xử lý được bao nhiêu lỗ hổng, ngăn chặn bao nhiêu cuộc tấn công, mà là bảo đảm tính liên tục, hiệu quả cho hoạt động của doanh nghiệp.
@@ -95,4 +2037,971 @@
 - Viettel đang tăng tốc chuyển đổi cho 500.000 thuê bao 2G cuối cùng trước ngày tắt sóng 15-10.
 - FPT Shop mở bán iPhone 16 Series trên toàn quốc
 - Intel công bố ra mắt sản phẩm chip AI mới, cạnh tranh với các đối thủ AMD và Nvidia.
+- Thông tin được ông Nguyễn Minh Hồng - chủ tịch Hội Truyền thông số Việt Nam - đưa ra tại hội thảo an toàn thông tin trong chuyển đổi số ngày 24-9, tại Cần Thơ.
+- Nhằm giúp doanh nghiệp tiết kiệm chi phí mà vẫn có thể tận dụng nhiều lợi ích của các máy chủ cloud, Bizfly Cloud tung ra dòng máy chủ Cloud VPS giá rẻ hấp dẫn.
+- Sở Y tế TP.HCM đã triển khai phần mềm tra cứu thuốc cấp cứu, với 14 bệnh viện tham gia tra cứu, chia sẻ 37 loại thuốc cấp cứu.
+- Ứng dụng Instagram đã cho ra mắt tính năng được thiết kế dành riêng cho lứa tuổi thanh thiếu niên nhằm tăng cường các biện pháp bảo vệ nhóm đối tượng này.
+- Với sự phát triển chóng mặt của trí tuệ nhân tạo (AI), những kẻ lừa đảo chỉ mất 3 phút để tạo app giả, trang web, fanpage mạo danh.
+- Năm 2024, một chiếc laptop sinh viên chuẩn mực ngoài yếu tố hiệu năng và giá cả còn cần thêm các tiêu chí về sự linh hoạt, công nghệ AI cũng như màn hình OLED. Đây cũng chính là các tính năng trên các dòng laptop sinh viên ASUS.
+- Mô hình o1 của OpenAI được nói là sẽ 'suy nghĩ' trước khi trả lời, có thể giải quyết các vấn đề khó hơn về khoa học, toán học hay lập trình.
+- Cục Viễn thông đang đề xuất lùi thời gian tắt sóng 2G, để các nhà mạng có thêm thời gian hỗ trợ 3,4 triệu khách hàng chuyển đổi từ thuê 2G lên 4G.
+- Ban tổ chức cho biết sự kiện nhằm ghi nhận, vinh danh và ủng hộ những đóng góp cũng như tài năng đội ngũ sáng tạo nội dung số tại Việt Nam.
+- Quyết định rút khỏi thị trường Việt Nam của Gojek để lại nhiều tiếc nuối cho các đối tác tài xế, nhà hàng và người dùng, những người đã đồng hành cùng hãng xe công nghệ thời gian qua.
+- Ông Elon Musk đang trên đà trở thành tỉ phú nghìn tỉ (trillionaire) đầu tiên trên thế giới vào năm 2027.
+- Các nhà sản xuất điện thoại smartphone từ Trung Quốc đã làm lung lay vị thế dẫn đầu lâu đời của Samsung tại thị trường Đông Nam Á.
+- Với Galaxy Z Fold6, bạn có thể thoải mái sáng tạo và sáng tác bất cứ khi nào, bất cứ nơi đâu, đặc biệt hữu ích với những bạn trong ngành thiết kế, đồ họa, truyền thông…
+- Hai đối tượng đã lắp đặt thiết bị đánh cắp thông tin thẻ ngân hàng tại một số máy ATM ở Úc, sau đó rút tiền từ tài khoản của nạn nhân.
+- Xã hội Trí tuệ nhân tạo được phác thảo là một xã hội ứng dụng sâu rộng trí tuệ nhân tạo vào mọi mặt chính trị, xã hội, kinh tế, khoa học công nghệ, kinh doanh, văn hóa, giáo dục.
+- Đây là một trong những nhiệm vụ mà Thủ tướng Phạm Minh Chính đề ra trong việc nâng cao hiệu quả cung cấp và sử dụng dịch vụ công trực tuyến.
+- Apple chính thức thông báo sẽ tổ chức sự kiện ra mắt iPhone 16, một trong những sự kiện công nghệ được mong đợi nhất hành tinh, vào ngày 9-9.
+- Nhiều nghiên cứu cho thấy trẻ dùng smartphone đối mặt nhiều nguy cơ, đặc biệt là chức năng thần kinh bị ảnh hưởng, bị 'đầu độc' và bắt nạt trực tuyến...
+- Bạn có tin được không: khoảng 61% mật khẩu hiện nay có thể bị bẻ khóa trong chưa đầy một phút dưới sự hỗ trợ của trí tuệ nhân tạo (AI), trong khi chỉ có 7% mật khẩu đủ mạnh để phòng chống các cuộc tấn công lâu dài.
+- Với xu hướng kinh doanh hiện đại là tập trung nhiều hơn vào khách hàng, việc mang đến nhiều trải nghiệm cá nhân hóa để kết nối sâu sắc hơn với khách hàng là rất quan trọng.
+- AI không có khả năng tiếp thu các kỹ năng mới nếu không được hướng dẫn, do đó không có khả năng đe dọa con người.
+- Hòa chung không khí mùa tựu trường 2024, hệ thống bán lẻ laptop hàng đầu Việt Nam - FPT Shop tiếp tục triển khai hàng loạt các chương trình ưu đãi hấp dẫn.
+- TS Jeff Dean - đồng sáng lập Google Translate, Google Brain hay Gemini - lần đầu tiên có những chia sẻ trực tiếp về AI với cộng đồng công nghệ Việt Nam.
+- Ngày 18-8, Hội nghị GenAI Summit 2024 về trí tuệ nhân tạo với chủ đề “Chân Trời Mới” diễn ra tại TPHCM.
+- Theo Open AI, việc giao tiếp nhiều với ChatGPT có thể khiến người dùng trở nên kém khéo léo hoặc ít muốn tương tác với con người hơn.
+- Sự cố mới đây của Gmail khiến hàng nghìn người không thể gửi email hoặc tin nhắn thông qua dịch vụ này.
+- Sở Cảnh sát thành phố Tulsa, bang Oklahoma (Mỹ) cảnh báo nguy cơ từ pin sạc dự phòng, sau khi một con chó nhai cục sạc dự phòng gây cháy nhà.
+- Việc lướt điện thoại và tiếp xúc với ánh sáng xanh có thực sự gây hại cho làn da bạn không? Và việc thoa kem dưỡng có giúp ích không?
+- Sau hơn 1 tháng xác thực sinh trắc học, số điểm phần trăm người dân đánh giá quá trình xác thực dễ dàng tăng thêm 7%, số người kêu khó giảm 9%.
+- Bang Texas cáo buộc các phần mềm của Meta đã nhận dạng và gắn thẻ mọi người trong ảnh mà không được sự cho phép của người dùng.
+- Theo khảo sát của các công ty nghiên cứu thị trường, thị trường nhà thông minh tại Việt Nam đang phát triển mạnh mẽ và sôi động.
+- Vivobook S 15 (5507) là thế hệ laptop AI Copilot+ PC của ASUS với thiết kế mỏng nhẹ, pin lên tới 18 giờ, màn hình Lumina OLED và hiệu năng mạnh.
+- 'Chatbot AI gặp khó với toán vì chúng chưa bao giờ được thiết kế để làm toán', ông Kristian Hammond, nhà nghiên cứu AI tại Đại học Northwestern (Mỹ), cho biết.
+- Điện thoại gập mới ra mắt của Samsung nâng cao hiệu suất làm việc, giải trí với những tính năng độc nhất.
+- Gần một tuần sau sự cố sập mạng toàn cầu, CrowdStrike cho biết 97% máy tính sử dụng hệ điều hành Windows bị ảnh hưởng đã hoạt động trở lại.
+- CrowdStrike thừa nhận sự cố sập hệ thống vi tính toàn cầu là do lỗi trong quá trình kiểm soát chất lượng các bản cập nhật phần mềm của công ty này.
+- Việc Google giữ cookie đồng nghĩa dữ liệu cá nhân của 3 tỉ người dùng Chrome vẫn đang bị các trang mạng theo dõi.
+- Thay vì loại bỏ cookie của bên thứ ba, Google sẽ giới thiệu trải nghiệm mới trên Chrome.
+- Trung tâm Giám sát an toàn không gian mạng quốc gia phát hiện thêm 68 website giả mạo thương hiệu của các cơ quan, tổ chức, ngân hàng để lừa đảo người dân.
+- Ngày 19-7, thế giới đã chứng kiến hàng loạt hệ thống mạng vận hành sân bay, bệnh viện, ngân hàng... ở khắp nơi bị tê liệt.
+- Các chuyên gia cho biết điều tồi tệ nhất trong sự cố CrowdStrike đã qua nhưng cảnh báo sẽ còn những sự cố trong tương lai nếu không tìm ra cách khắc phục.
+- Hàng không Nga không bị ảnh hưởng bởi sự cố CrowdStrike vì các sân bay nước này sử dụng phần mềm bảo mật Astra, do chính doanh nghiệp Nga phát triển.
+- Cơ quan tình báo mạng của Úc cảnh báo một số trang web độc hại và mã không chính thức đang được phát tán sau sự cố sập dịch vụ đám mây của Microsoft.
+- Công ty phần mềm an ninh mạng CrowdStrike thông báo đã tìm được nguyên nhân vụ sập hệ thống máy tính toàn cầu.
+- Thực hiện chủ trương tắt sóng 2G của Bộ Thông tin và Truyền thông vào tháng 9-2024, VinaPhone triển khai loạt ưu đãi khách hàng nâng cấp lên điện thoại 4G miễn phí và nhiều ưu đãi hấp dẫn khác để duy trì liên lạc mà không phải lo lắng về chi phí.
+- Với gần một nửa dân số Úc bị ảnh hưởng, vụ tấn công mạng MediSecure là một trong những vụ xâm phạm dữ liệu lớn nhất trong lịch sử quốc gia này.
+- Đầu tuần này, giới công nghệ xôn xao với thông tin Alphabet, công ty mẹ của Google, đang sắp hoàn tất thương vụ 'khủng' mua lại công ty khởi nghiệp an ninh mạng Wiz với giá 23 tỉ USD.
+- Trước Đại hội toàn quốc Đảng Cộng hòa, Meta thông báo sẽ dỡ bỏ các hạn chế với tài khoản Facebook và Instagram của cựu tổng thống Donald Trump.
+- Các nhà nghiên cứu tại Cybernews đã phát hiện vụ rò rỉ mật khẩu lớn nhất trong lịch sử, trong đó gần 10 tỉ mật khẩu đã bị lộ.
+- Nhiều người dùng Facebook và Messenger bỗng dưng bị thông báo có thể vi phạm tiêu chuẩn cộng đồng, bị thoát khỏi tài khoản, thậm chí bị chặn không cho ‘lướt' thông tin mới…
+- Kinh tế số ước đạt tăng trưởng 22,4%, chiếm tỉ trọng 18,3% trong GDP. Doanh thu lĩnh vực công nghệ thông tin (kinh tế số ICT) ước đạt trên 1,92 triệu tỉ đồng trong 6 tháng đầu năm.
+- Cơ quan Hàng không vũ trụ Nhật Bản (JAXA) ngày 5-7 thừa nhận đã bị rò rỉ thông tin sau một vụ tấn công mạng, may mắn không lộ thông tin tên lửa và vệ tinh.
+- Có thể thấy rằng để tối đa hóa doanh thu từ website, ứng dụng, thì nhiệm vụ là cần duy trì hiệu suất ở mức cao nhất có thể.
+- Theo cơ quan chức năng, nhà mạng cho phép thực hiện cuộc gọi lừa đảo nghĩa là đã cung cấp dịch vụ liên lạc không đúng cách và gây thiệt hại cho thuê bao.
+- Nghiên cứu mới cho thấy tiếp xúc với ánh sáng nhân tạo như bóng đèn hay điện thoại thông minh sau nửa đêm có thể làm tăng nguy cơ mắc đái tháo đường loại 2.
+- Nếu lỡ cài đặt bản cập nhật KB5039302 được phát hành gần đây cho Windows 11 và bị lỗi khởi động lại liên tục, bạn có thể làm gì?
+- Mới đây, F.Studio by FPT đã chính thức mở bán các sản phẩm Apple trên gian hàng TikTok Shop của hệ thống.
+- Vừa qua, Motorola Solutions đã khai trương trung tâm R&amp;D tại TP.HCM, với mục tiêu thúc đẩy nghiên cứu và phát triển phần mềm, phân tích dữ liệu và công nghệ trí tuệ nhân tạo (AI).
+- Họp trực tuyến ngày càng phổ biến vì đáp ứng nhu cầu công việc tức thời, tối ưu thời gian và chi phí.
+- Công ty Ricoh Imaging của Nhật Bản thông báo sẽ cho ra mắt một máy ảnh phim Pentax mới lần đầu tiên sau hai thập kỷ
+- Một trong những vấn đề nghiêm trọng nhất trong lừa đảo thanh toán là ngoài các kịch bản tấn công lừa đảo đa dạng và phong phú, kỹ thuật công nghệ cũng càng tinh vi.
+- Theo các chuyên gia quốc tế, 46% nội dung độc hại trên các trang web vi phạm bản quyền là lừa đảo, nếu thẻ tín dụng được sử dụng để đăng ký thuê bao vi phạm bản quyền trực tuyến thì khả năng bị gian lận thẻ cao gấp 4 lần.
+- Người dùng có thể sử dụng công cụ ChatGPT trên các thiết bị iPhone, iPad, Macbook để tạo nội dung văn bản và hình ảnh mà không cần tải ứng dụng riêng.
+- Lần đầu tiên, một cuộc thi được dành riêng cho các tác phẩm ảnh và video dành cho lĩnh vực công nghệ.
+- Ngày 15-5, Công ty TNHH Sản phẩm công nghiệp Toshiba Asia đã tổ chức ngày hội đối tác kinh doanh ‘Business Partners Day 2024’ tại GEM Center, TP.HCM.
+- Sáng 4-6, hệ thống công nghệ thông tin của Tổng công ty Bưu điện Việt Nam (Vietnam Post) đã bị tấn công bất hợp pháp bằng mã độc tống tiền (ransomware).
+- Ngày 4-6-2024, các doanh nghiệp viễn thông và dịch vụ trung tâm dữ liệu hàng đầu khu vực đã công bố chính thức thành lập liên minh AseanConnect.One.
+- TikTok từng vấp phải sự lên án của cả ông Trump lẫn ông Biden, nhưng giờ đây lại trở thành một trong những nhân tố tác động trực tiếp đến bầu cử Mỹ.
+- Công nghệ tạo ra những công ty có năng suất cao, buộc các đối thủ phải ‘bứt tốc’ để cạnh tranh.
+- 7 thí sinh Việt Nam đều đoạt giải Olympic tin học châu Á, trong đó có 1 huy chương vàng, 6 huy chương bạc.
+- Các cuộc tấn công mạng, lừa đảo trực tuyến sẽ ngày càng tăng theo cấp số nhân, và ngày càng tinh vi vì có AI hỗ trợ.
+- Mới đây, Huawei chính thức cho ra mắt đồng hồ thông minh mới HUAWEI WATCH FIT 3.
+- Sau đại dịch, ngành dược đã nhận thấy những cơ hội phát triển mạnh mẽ từ việc thúc đẩy ứng dụng công nghệ nhiều hơn.
+- Số người thừa nhận lạm dụng tình dục trực tuyến trẻ em ở Anh cho thấy mức độ đáng báo động của vấn nạn này.
+- Đó là khẳng định của bà Loredana Crisan, phó chủ tịch phụ trách Messenger toàn cầu của Hãng Meta, trong cuộc phỏng vấn độc quyền với báo Tuổi Trẻ. Bà khẳng định Việt Nam là một trong những thị trường lớn nhất - nơi hãng không ngừng đầu tư.
+- Đừng để mình 'lấm lem' trên mạng chỉ vì một phút ham vui theo trào lưu hoặc mắc vạ miệng chỉ vì những bức xúc cá nhân.
+- Ngày 22-5, Cục An toàn thông tin (Bộ Thông tin và Truyền thông) phối hợp với báo VietNamNet tổ chức tọa đàm "Tiêu chuẩn an toàn thông tin mạng cơ bản cho camera giám sát".
+- Nhiều người thường ngại ngùng khi bắt chuyện lại với người bạn đã lâu không liên lạc. Các nhà khoa học đã có cách giúp họ.
+- Nghiên cứu mới của ĐH Michigan (Mỹ) chỉ ra rằng cách tốt nhất để quản lý thời gian dùng điện thoại là... làm cho nó đơ ra mỗi khi xài lâu.
+- Doanh nghiệp và người tiêu dùng đều cần công cụ để tự bảo vệ mình trước những hình thức gian lận mới của thanh toán số.
+- Chỉ trong một thời gian ngắn, truyền hình MyTV của VNPT đã đạt được sự tăng trưởng thần tốc, thực sự trở thành người bạn đồng hành thân thiết với các gia đình Việt mỗi ngày.
+- Kết nối Internet quốc tế gặp sự cố, chập chờn thường là cơn đau đầu của các nhà cung cấp dịch vụ trực tuyến.
+- Với sự xuất hiện của 6G, thế hệ băng thông mở rộng tiếp theo sẽ mang đến nhiều công năng và bất ngờ hơn.
+- Con chip này còn có thể dùng trong các hệ thống cảm biến và giám sát như trong xe tự hành hoặc để phát hiện lỗi nhỏ trong dây chuyền lắp ráp robot.
+- Galaxy Z Fold là một biểu tượng của Samsung trong công nghệ mới, khi có khả năng gập đôi và màn hình rộng gần 8 inch.
+- Để các đối tác nhà hàng, quán ăn được tiếp sức trên chặng đường đầy cạnh tranh, Gojek tiếp tục xây dựng kế hoạch hỗ trợ trong năm 2024.
+- Kết hợp lợi ích của public cloud và các máy chủ vật lý trong một mô hình Hybrid tăng mức độ linh hoạt, khả năng mở rộng và hiệu quả chi phí tối ưu.
+- Galaxy AI trên S24 chưa kịp ngưng sốt thì mới đây, người dùng có cơ hội trải nghiệm những tính năng thông minh trên dòng Galaxy Tab S9.
+- Việc đầu tư khoảng 1 tỉ USD để đào tạo 50.000 kỹ sư bán dẫn sẽ gián tiếp tạo nguồn thu 15 - 16 tỉ USD cho nền kinh tế.
+- Đại diện Cục Bản quyền tác giả nói môi trường số là môi trường xuyên biên giới, nên nạn đánh cắp bản quyền càng nghiêm trọng, khó giải quyết.
+- Những thông tin bị đánh cắp có thể bao gồm thông tin đăng nhập vào nền tảng mạng xã hội, dịch vụ ngân hàng trực tuyến, ví điện tử, hệ thống nội bộ và email doanh nghiệp.
+- TP.HCM thí điểm thực hiện học bạ số với toàn bộ học sinh lớp 1 của thành phố năm học 2023-2024 này.
+- Với tốc độ 156.000 tỉ khung hình mỗi giây, máy ảnh mở ra khả năng ghi lại những hiện tượng xảy ra cực nhanh mà trước nay không nhìn thấy được.
+- Các tổ chức bảo vệ quyền trẻ em lên tiếng phản đối sau khi Meta hạ độ tuổi tối thiểu sử dụng ứng dụng nhắn tin WhatsApp tại Liên minh châu Âu (EU) từ 16 xuống 13 tuổi.
+- Ngoài làm mờ tin nhắn có ảnh khỏa thân, Meta cũng đang phát triển công nghệ xác định tài khoản lừa đảo sextort (tin tặc lừa đang giữ ảnh nóng của người dùng).
+- Nhà báo Vũ Kim Hạnh, sẽ xuất hiện trên sóng Shopee Live vào ngày 15-4 trong một sáng kiến mới nhằm hỗ trợ các doanh nghiệp địa phương trong cả nước giới thiệu nông đặc sản chất lượng.
+- Nếu Công ty Netflix không tuân thủ, Bộ Thông tin và Truyền thông sẽ phối hợp các cơ quan quản lý nhà nước liên quan xử lý theo quy định pháp luật Việt Nam.
+- Chìa khóa giải mã cho sự phát triển vượt trội của TV360 và Viettel Money là nền tảng khổng lồ của Tập đoàn công nghệ lớn nhất Việt Nam - Viettel.
+- Những video, âm thanh và hình ảnh do AI tạo ra hoặc do AI thay đổi nội dung sẽ được Meta gắn nhãn 'tạo bởi AI' để phân biệt với những sản phẩm khác.
+- Chuyên gia cảnh báo các cuộc tấn công mạng có xu hướng 'tự động hóa và cá nhân hóa' khi kẻ tấn công sử dụng thư điện tử lừa đảo và cuộc gọi điện thoại giả mạo do AI điều khiển để đánh lừa nạn nhân.
+- Hầu hết trình duyệt web hiện nay cho phép người dùng sử dụng chế độ ẩn danh như một cách để bảo vệ quyền riêng tư.
+- Sự phát triển của nhiều hình thức kinh doanh mới, nhu cầu làm việc từ xa tăng mạnh v.v. khiến doanh nghiệp phải tìm giải pháp mở rộng đường truyền.
+- OpenAI giới thiệu công cụ có thể nhại giọng con người chỉ với một mẫu âm thanh 15 giây, nhưng chưa tung ra công cụ này do các lo ngại về an ninh.
+- Vinh danh những cá nhân, tập thể đóng góp lớn cho hoạt động sản xuất kinh doanh năm 2023, Tập đoàn Công nghiệp - Viễn thông Quân đội (Viettel) cũng hé lộ những đột phá lớn sau năm năm tuyên bố trở thành tập đoàn công nghệ.
+- Ngoài việc đánh cắp thông tin cá nhân, tin tặc có thể lợi dụng lỗ hổng để chèn một 'lớp' mới vào giữa người dùng và nguồn ảnh thông thường của thiết bị.
+- Giành ngôi vô địch ở giải đấu của những hacker hàng đầu thế giới ở tuổi 20, nghiên cứu công nghệ 5G từ khi còn ngồi trên ghế nhà trường…
+- Qua 15 năm hoạt động, dấu ấn của Vietnamobile để lại trong lòng khách hàng xuất phát từ chính ưu đãi hấp dẫn về giá và dữ liệu.
+- Liên tục các vụ nạn nhân bị mất hàng chục, hàng trăm tỉ đồng, mới nhất là Chủ tịch huyện Nhơn Trạch. Tội phạm đã làm cách nào để lấy số tiền khủng như vậy từ tài khoản của khách hàng?
+- 20 cá nhân, tập thể xuất sắc nhất của Viettel trên toàn cầu đã được vinh danh Viettel’s Stars 2023.
+- Theo lời giới thiệu của chủ tịch Jensen Huang, phiên bản chip AI mới có thể xử lý một số tác vụ nhanh gấp 30 lần so với thế hệ cũ.
+- Chuyên gia bảo mật phát hiện mối đe dọa phổ biến nhất nhắm vào smartphone chính là phần mềm quảng cáo, chiếm đến 40,8%.
+- Có nhiều nguyên nhân khiến máy tính xách tay cháy nổ, do đó người dùng nên trang bị kiến thức cần thiết để sử dụng và bảo quản máy đúng cách.
+- Ba nhà văn Brian Keene, Abdi Nazemian và Stewart O'Nan đã khởi kiện Nvidia vì tự ý sử dụng các tác phẩm của họ để huấn luyện công cụ AI NeMo.
+- Nhóm nghiên cứu đến từ Trường đại học California, Riverside (UCR) phát triển thuật toán giúp gia tăng tốc độ xử lý của máy tính hiện nay lên gấp đôi.
+- Tỉ phú Elon Musk thông báo xAI sẽ biến chatbot Grok thành nguồn mở trong tuần này, chỉ vài ngày sau khi ông kiện OpenAI vì từ bỏ sứ mệnh ban đầu để chạy theo lợi nhuận.
+- Nhà mạng FPT Telecom ra mắt gói cước F-Game với tốc độ internet vượt trội nhằm đáp ứng nhu cầu của cộng đồng game thủ.
+- Nhiều sinh viên không khỏi ngạc nhiên và gọi trải nghiệm tại Galaxy Campus Tour là "trải nghiệm phải thử một lần trong đời và không thể bỏ lỡ".
+- Theo Anthropic, Claude 3 Opus hiện là chatbot mạnh nhất, vượt trội phiên bản mới nhất của ChatGPT và Gemini 1.0 Ultra của Google.
+- Sáng 1-3, tại Trường đại học Công nghệ, Đại học Quốc gia Hà Nội diễn ra khai mạc chung kết thi lập trình sinh viên quốc tế ICPC châu Á - Thái Bình Dương 2024.
+- Trường đại học Công nghệ thông tin (Đại học Quốc gia TP.HCM) vừa tiếp nhận siêu máy chủ AI NVIDIA DGX A100 dựa trên kiến trúc Ampere.
+- Nhiều người dùng từng trải nghiệm 5G cho rằng tốc độ nhiều lúc, nhiều nơi vẫn chỉ ngang ngửa 4G.
+- Giữa lúc Google đối mặt với tin đồn thất thiệt, tỉ phú Elon Musk bất ngờ thông báo ông chuẩn bị mở một dịch vụ mới thay thế Gmail.
+- Tập đoàn Viettel vừa trình làng sản phẩm ‘con người' AI tại phiên khai mạc Hội nghị di động thế giới (MWC 2024).
+- Bộ Thông tin và Truyền thông mới đây đã đề xuất một số quy định mới về quản lý tài nguyên Internet, trong đó có đề cập đến tên miền quốc gia ".vn".
+- Theo OpenAI, công cụ tạo video ngắn Sora có khả năng tạo ra những cảnh quay thực tế và sáng tạo từ những chỉ dẫn bằng văn bản của người dùng.
+- Theo anh Nguyễn Xuân Việt, người đứng sau rất nhiều thiết kế ô tô từ AI nổi tiếng, việc tạo ra những mẫu xe concept bằng AI không chỉ dừng lại ở mục đích truyền thông và marketing.
+- Người dùng nên thay đổi nhiều thói quen sử dụng các dịch vụ mạng để bảo vệ sự an toàn của chính mình và gia đình trên không gian mạng.
+- Sự xuất hiện của Galaxy AI - trải nghiệm trí tuệ nhân tạo toàn diện trên mẫu flagship nhà Samsung đã mang đến rất nhiều cảm hứng.
+- Ngày 30-1-2024, Tổng công ty Viễn thông Viettel (Viettel Telecom) cho biết nhằm đáp ứng nhu cầu truy cập Internet trên di động/tại nhà cũng như phục vụ nhu cầu giải trí dịp Tết Nguyên đán, Viettel triển khai chương trình ưu đãi 'Tết A.I cũng có quà'.
+- Doanh thu trên các sàn thương mại điện tử (TMĐT) lớn tại Việt Nam năm 2023 đã tăng hơn 53% lên 232.134 tỉ đồng.
+- Vài câu lệnh, dăm ba cú click, rồi chờ màn hình xoay vài vòng, bạn đã có thể ngắm những tác phẩm nghệ thuật về rồng do AI sáng tạo.
+- Chỉ trong 7 ngày, đơn đặt hàng trước cho dòng Galaxy S24 lên tới 1,21 triệu chiếc tại Hàn Quốc.
+- Galaxy S24 mới, trung tâm là Galaxy AI, mở ra kỷ nguyên mới không chỉ trong công nghệ, mà cũng là lịch sử điện thoại AI, vừa được Samsung tiết lộ tại Galaxy Unpacked 2024.
+- Honor X9b 5G phiên bản độc quyền tại FPT Shop đã chứng minh được sức hút khủng khi dự kiến bán được 2.000 chiếc trong tuần đầu tiên mở bán (từ ngày 12 đến 19-1-2024).
+- Từ ngày 18-1 đến 27-1, chọn đặt trước Samsung Galaxy S24 Series tại FPT Shop, khách hàng sẽ nhận phiếu mua hàng đến 3 triệu đồng, hỗ trợ thu cũ đến 7 triệu đồng cùng nhiều ưu đãi hấp dẫn.
+- Điện thoại iPhone của Apple lần đầu tiên vượt lên trở thành điện thoại thông minh bán chạy nhất thế giới, chấm dứt chuỗi 12 năm thống trị của đối thủ Samsung.
+- Theo chủ tịch Hội Nhà báo Việt Nam Lê Quốc Minh, chuyển đổi số là xu thế bắt buộc nếu các cơ quan báo chí muốn giữ bạn đọc, khán giả. Đây chính là thời buổi mà tin tức phải tự tìm đến người dùng, qua Internet và các kênh khác.
+- Với những tiến bộ của ứng dụng và phát triển AI trong thời gian qua, AI dự đoán sẽ thúc đẩy mạnh mẽ kinh tế số Việt Nam.
+- Việt Nam không nằm ngoài xu hướng thế giới với hàng loạt sản phẩm AI tạo sinh ra đời.
+- Tổng kết năm 2023 với sự trở lại đột phá của bộ đôi smartphone gập Galaxy Z Flip5 và Z Fold5 tạo nên một bước tiến mới mẻ trong lĩnh vực công nghệ di động.
+- Trong bối cảnh kinh tế còn nhiều khó khăn, người dân thắt chặt chi tiêu, tập trung phát triển nhiều lựa chọn dịch vụ giúp tối ưu tiện ích ở mức phí hợp lý cho từng phân khúc khách hàng là một trong những hướng đi của các nền tảng công nghệ.
+- Năm 2023, Gojek tiếp tục được vinh danh trong Top 100 nơi làm việc tốt nhất Việt Nam của Anphabe.
+- Đứng đầu danh sách là ChatGPT với 14,6 tỉ lượt sử dụng trong khoảng thời gian từ tháng 9-2022 đến tháng 8-2023.
+- Hơn 83.000 máy tính dính mã độc tống tiền, 556 website chính phủ và giáo dục bị tấn công mạng… trong năm 2023.
+- Chia sẻ với Hãng tin AFP, ông Lê Hồng Minh, nhà đồng sáng lập kiêm CEO của VNG, khẳng định đã sẵn sàng chấp nhận thử thách mới và muốn đưa VNG trở thành công ty game toàn cầu.
+- Meta, công ty mẹ của Facebook, bị phạt 5,85 triệu euro (6,4 triệu USD) do vi phạm lệnh cấm quảng cáo cờ bạc của Ý.
+- Trong bối cảnh suy thoái kinh tế toàn cầu, nhiều doanh nghiệp kinh doanh ẩm thực vừa và nhỏ vẫn phát triển ổn định nhờ biết linh hoạt xoay trở, nắm bắt kịp thời xu hướng tiêu dùng ẩm thực.
+- Trong bối cảnh công nghệ và mạng xã hội ngày càng phát triển, đặc biệt là với thế hệ Gen Z (sinh từ năm 1997 đến năm 2012), xu hướng giao tiếp trực tuyến ngày càng trở nên phổ biến.
+- Cuối năm là thời điểm tuyệt vời để Gen Z thực hiện nốt những dự định còn dang dở trong năm và lên những kế hoạch mới cho năm sắp tới.
+- Mã QR đang xuất hiện ở mọi nơi, từ thực đơn của các nhà hàng cho tới các cửa hàng bán lẻ, trở thành một phần không thể thiếu của xã hội không tiền mặt.
+- Ngày 27-11 vừa qua, hãng âm thanh trứ danh JBL ra mắt giới mộ điệu Việt Nam dòng loa Authentics với ba phiên bản 200, 300 và 500.
+- Liên minh Trí tuệ nhân tạo (AI) với hơn 50 thành viên vừa được thành lập, với mục tiêu thúc đẩy phát triển AI mã nguồn mở một cách an toàn và có trách nhiệm.
+- Việc mã hóa tin nhắn mặc định đồng nghĩa Meta không thể xem nội dung của hầu hết các cuộc trò chuyện trên Facebook Messenger, và không thể giao chúng cho cơ quan thực thi pháp luật.
+- Người bán hàng cần áp dụng chiến lược nào để tăng trưởng hiệu quả với hình thức bán hàng xu hướng này trên Shopee?
+- Với ba nhân vật trong bài viết này, ai cũng đã nhận ra phong cách cổ điển cũng có thể làm cho công nghệ hiện đại trở nên viên mãn.
+- Viettel cam kết hợp tác với các trường Đại học thúc đẩy tổ chức các chương trình thực tập cho các bạn sinh viên, tạo điều kiện cho sinh viên tiếp cận nhanh hơn, sớm hơn, chuyên nghiệp hơn với công nghệ và xu thế thế giới.
+- Ngày 25-11, trong khuôn khổ Diễn đàn quốc gia 'Văn hóa với doanh nghiệp' năm 2023, Tổng công ty Viễn thông MobiFone đã được vinh danh là “Doanh nghiệp đạt chuẩn văn hóa kinh doanh Việt Nam”.
+- Chơi game AAA, tính toán mô phỏng cơ khí và kỹ thuật, thiết kế 3D, xử lý trí tuệ nhân tạo (AI) - điểm chung của các tác vụ này là gì? Đây đều là những ứng dụng cực kỳ nặng nề, ngốn rất nhiều tài nguyên của laptop và yêu cầu khắt khe về độ ổn định.
+- Trước làn sóng hàng loạt doanh nghiệp trong và ngoài nước đang đầu tư xây dựng trung tâm dữ liệu (Data Center) tại Việt Nam, Tổng công ty Viễn thông MobiFone cũng đang có sự đầu tư mạnh mẽ vào thị trường này.
+- MobiFone đang triển khai chương trình ưu đãi, miễn phí sử dụng, trải nghiệm hợp đồng điện tử có tích xanh eContract trong vòng 2 tháng đối với các khách hàng là cá nhân, tổ chức và doanh nghiệp.
+- Một mô hình trí tuệ nhân tạo (AI) mới trong quá trình thử nghiệm thu hút sự chú ý của nhiều người, trong đó có cả người đứng sau ChatGPT.
+- Đi trước thế giới, Trung Quốc là quốc gia đầu tiên thành công triển khai mạng Internet có tốc độ 1,2 terabit/giây, nhanh hơn 3 lần so với mạng Internet hàng đầu ở Mỹ.
+- Microsoft và các công ty đang muốn chuyển các trung tâm dữ liệu ra đại dương. Họ sẽ nhấn chìm máy tính và thiết bị mạng xuống biển để lưu trữ dữ liệu.
+- Sản xuất livestream liên hoàn giúp tăng độ hiển thị, hỗ trợ voucher giảm giá vào khung giờ vàng, cung cấp livestream trọn gói… nằm trong số những trợ lực từ Shopee Live giúp thương hiệu trên sàn tăng lợi nhuận.
+- Giới trẻ Việt với thói quen “online 24/24” thì một chiếc smartphone “pin trâu” nay phải có thêm trợ thủ bất ly thân: Tai nghe êm như nhung và “khỏe hơn trâu”.
+- Các thương hiệu thời trang được giới trẻ ưa chuộng như Levents, Canifa, The Bad God… tăng từ 10 - 40 lần số lượng đơn hàng bán ra.
+- Các đội tham dự cuộc thi sẽ phải thiết kế robot có khả năng vẽ tranh, làm các công việc sáng tạo cùng con người.
+- Nhiều người dùng, hội, nhóm trên các trang mạng xã hội tại Việt Nam kêu gọi tẩy chay ứng dụng Snapchat vì hiển thị bản đồ có ‘đường lưỡi bò' phi pháp.
+- Hiện đã có những công cụ giúp tạo video deepfake giống thật đến 70-80%, dễ nhầm lẫn khi nhìn bằng mắt thường.
+- Tỉ phú Elon Musk cho biết chatbot Grok có thể đưa ra những câu trả lời mang tính hài hước, biết nhận dạng hình ảnh, giọng nói và tạo ảnh...
+- Xem video ngắn đã trở thành một xu hướng phổ biến trong giới trẻ trên toàn thế giới, kéo theo nhu cầu online, dùng mạng Internet trên các thiết bị smartphone tăng cao.
+- Kết quả nghiên cứu cho thấy pin điện thoại mới này có thể sạc 80% trong 6 phút và 91,2% trong 10 phút.
+- Mỗi tháng, quán đồ ăn vặt xứ kim chi của chị Trầm Bội Trân cùng em gái bán hàng nghìn đơn hàng nhờ bắt tay với các ứng dụng đặt đồ ăn.
+- Nhà mạng Saymee tổ chức chuỗi hoạt động định hướng giúp học sinh, sinh viên bước ra khỏi vùng an toàn một cách hiệu quả.
+- Tâm sự về lý do đưa anh trở thành tài xế xe công nghệ và gắn bó với Gojek, anh Lê Hoàng Tuấn Huy (40 tuổi, TP.HCM) cho biết tất cả đều như một cơ duyên.
+- Viện An toàn AI sẽ kiểm tra, đánh giá, xác định tất cả các rủi ro từ AI, như quan điểm thiên vị và thông tin sai lệch và những nguy cơ khác.
+- Công nghệ WiFi Halow cho phép thiết bị có thể kết nối trực tiếp với Internet ở khoảng cách xa hơn 1km từ điểm truy cập, phù hợp với rất nhiều ứng dụng IoT cho đô thị thông minh mà TP.HCM đang hướng đến.
+- Google bị nghi ngờ ép các nhà sản xuất điện thoại thông minh tích hợp ứng dụng tìm kiếm của hãng này.
+- Kênh thông báo là công cụ nhắn tin công khai, từ một người gửi đến nhiều người, dành cho trang (Page) trên Facebook.
+- Trong các lỗ hổng mới phát hiện, lỗ hổng CVE-2023-36778 trong hệ điều hành Microsoft Exchange Server cho phép tin tặc tấn công từ xa.
+- Sử dụng nghệ thuật trình diễn Hologram, sự kiện FPT Techday 2023 hứa hẹn sẽ cho người xem cảm nhận vẻ đẹp của công nghệ, chìm đắm trong không gian hiện đại và hình dung về một tương lai số tiện ích.
+- Chuỗi sự kiện Tuần lễ chuyển đổi số TP.HCM năm 2023 gồm nhiều hoạt động đa dạng, phong phú.
+- Với bốn quy tắc ứng xử nòng cốt gồm "Tuân thủ - Lành mạnh - An toàn - Trách nhiệm”, người trẻ sẽ là những người tiên phong trong lan tỏa những thông tin chính thống, tích cực, hướng tới một không gian mạng văn minh.
+- Người dân tại hai tỉnh Bình Dương và Đồng Nai đã có thể sử dụng các dịch vụ trên ứng dụng Gojek như gọi xe hai bánh GoRide, gọi xe bốn bánh GoCar, giao đồ ăn GoFood, và giao hàng GoSend.
+- Trong lúc fan hâm mộ đón chờ các trận tiếp theo của Đấu Trường Danh Vọng Mùa Đông 2023, nhà tài trợ Hảo Hảo chính thức tung bộ sưu tập quà tặng khủng bao gồm hàng trăm thẻ game Garena và 80 gối Hảo Hảo thông qua fanpage Mì ăn liền Hảo Hảo.
+- Lâm Đồng đã vận hành Trung tâm điều hành thông minh IOC hỗ trợ lãnh đạo đưa ra các quyết định điều hành nhanh, chính xác.
+- Bang Utah (Mỹ) ngày 10-10 đã kiện TikTok với cáo buộc 'dụ dỗ' trẻ em vào thói quen sử dụng mạng xã hội đến mức nghiện và không lành mạnh.
+- Với sự phát triển của thương mại điện tử và tăng cầu vận chuyển hàng hóa, các công ty vận tải phải đối mặt với nhiều thách thức.
+- Meta Platforms đã dùng các bài đăng công khai trên Facebook và Instagram để đào tạo trợ lý ảo Meta AI mới của mình.
+- Galaxy Z Series thế hệ thứ 5 ngay từ khi ra mắt đã được giới trẻ đón nhận như một người bạn thân thiết, bởi sự đồng điệu cùng tinh thần 'nghĩ ngược, làm được'.
+- Lừa đảo bằng giọng nói đang gây mối đe dọa ngày càng tăng đối với người dùng điện thoại, khi trí tuệ nhân tạo (AI) tiếp tục phát triển.
+- Từ ngày 22 đến 28-9, khách hàng đặt trước iPhone 15 Series chính hãng tại hệ thống FPT Shop và F.Studio by FPT sẽ nhận trọn bộ ưu đãi giảm đến 3 triệu đồng cùng đặc quyền 12 tháng 1 ĐỔI 1, thu máy cũ đến 75%...
+- Đông đảo người dùng mạng xã hội tại Việt Nam đang hào hứng với các trò vui ghép mặt vào các nhân vật nổi tiếng thông qua các ứng dụng trí tuệ nhân tạo (AI) mà không biết rằng qua đó những hiểm họa có thể xảy đến với họ bất kỳ lúc nào.
+- Ngày 22-9, Hội thảo hợp tác phát triển công nghệ thông tin - truyền thông Việt Nam lần thứ 24 với chủ đề "Dữ liệu số và các nền tảng hỗ trợ ra quyết định" được tổ chức tại TP Quy Nhơn (Bình Định).
+- Chiều 20-9 (giờ địa phương, sáng 21-9 giờ Việt Nam), Thủ tướng Chính phủ Phạm Minh Chính đã tiếp lãnh đạo một số tập đoàn kinh tế hàng đầu của Mỹ và thế giới gồm: SpaceX, Coca-Cola, Pacifico Energy.
+- Được đại diện bởi tiktoker Đức Anh, chiếc laptop Vivobook 14X OLED sở hữu một thiết kế đậm tính thời trang và sự tiện dụng.
+- ASUS cho hay đã khéo léo cân đo, đong đếm để tạo ra những cỗ máy mạnh mẽ, mang công nghệ tiên tiến nhưng lại có giá thành hợp lý.
+- Tỉ phú Elon Musk dự tính sẽ thu phí toàn bộ người dùng mạng xã hội X (Twitter) với một khoản tiền nhỏ hằng tháng, nhằm chống lại các tài khoản tự động (bot).
+- Dù cơ quan quản lý và các ngân hàng đã triển khai nhiều giải pháp để ngăn tội phạm mạng, nhưng theo các chuyên gia, chủ tài khoản phải có ý thức tự bảo vệ bởi tội phạm liên quan đến lĩnh vực ngân hàng ngày càng có nhiều phương thức, thủ đoạn tinh vi.
+- Nhờ đón đầu xu hướng bán hàng thông qua livestream, Shopee ghi nhận số sản phẩm bán ra qua Shopee Live tăng gấp 24 lần trong ngày diễn ra sự kiện siêu sale 9.9.
+- Cục An toàn thông tin cảnh báo nguy cơ lộ thông tin từ việc sử dụng các ứng dụng chỉnh sửa ảnh anime, tạo ảnh như nhân vật phim hoạt hình của nhiều người dùng mạng xã hội Việt Nam hiện nay.
+- Cameo Gimbal, khung chống rung camera thông minh, 5 trục, mang được hai tải đầu tiên trên thế giới của Việt Nam, đã tạo được tiếng vang tại sự kiện triển lãm về drone vừa diễn ra ở Las Vegas, Mỹ.
+- Chuyện Vui Sốp Pi tiếp tục trở lại vào ngày 9.9 và mang đến những màn tung hứng vui nhộn cùng loạt ưu đãi săn sale nửa giá hấp dẫn.
+- Đa dạng hình thức livestream là cách Shopee giúp nhà bán hàng và thương hiệu gia tăng doanh số bán hàng, đặc biệt vào mùa mua sắm cao điểm cuối năm, đồng thời gia tăng vị thế của sàn Thương mại điện tử (TMĐT) dẫn đầu.
+- Google bị cáo buộc bóp nghẹt sự cạnh tranh trên thị trường công cụ tìm kiếm và là nguyên nhân khiến giá cả tăng cao trên toàn nền kinh tế của Anh.
+- Loạt hình ảnh sau cánh gà và những khoảnh khắc tỏa sáng rực rỡ trên sân khấu của dàn nghệ sĩ Việt đã hé lộ. Tất cả đều xuất hiện tại hậu trường livestream của sự kiện “9.9 Shopee Live Thời Trang &amp; Mỹ Phẩm”.
+- Chăm chỉ học tập nâng cấp bản thân mỗi ngày, nhưng cũng đừng quên cháy hết mình với thanh xuân một lần.
+- Tháng 9-2024, khi giấy phép tần số cấp cho mạng 2G hết hạn, sẽ không còn điện thoại di động mạng 2G.
+- Sony không ngừng đưa ra những đổi mới đột phá, và Sony WF-1000XM5 là bước chứng minh hoàn hảo cho điều đó với loạt công nghệ sau đây.
+- Galaxy Z Flip5 đã mở ra những cánh cửa mới cho những bạn trẻ trở thành vlogger, chia sẻ những hành trình đáng nhớ, truyền cảm hứng cho những người yêu thích khám phá du lịch.
+- Hành trình tỏa sáng với sự hỗ trợ của Samsung cùng dấu ấn công nghệ đặc trưng trên Galaxy Z Series đã khơi nguồn cảm hứng để nghệ sĩ trẻ có tư duy khác biệt gia nhập Hội Linh Hoạt (“sân chơi” của Samsung), đưa bản sắc riêng lan tỏa một cách mạnh mẽ.
+- Đạo luật mới sẽ buộc các mạng xã hội lớn như Facebook, TikTok, YouTube chứng minh sản phẩm của họ không gây hại cho trẻ em.
+- Bên cạnh các chương trình nhằm giúp cải thiện doanh thu, quan tâm đến đời sống tinh thần của các anh em tài xế cũng là ưu tiên của Gojek khi phát triển cộng đồng đối tác.
+- Liên minh Xác thực trực tuyến thế giới (FIDO Alliance) vừa chính thức công bố Hội nghị FIDO Châu Á Thái Bình Dương (FIDO APAC Summit) lần đầu tiên được tổ chức tại Vinpearl, Nha Trang, Việt Nam từ ngày 28 đến 30-8-2023.
+- YouTube sẽ gỡ bỏ các nội dung không khuyến khích người bệnh điều trị, hay quảng bá phương pháp điều trị chưa được kiểm chứng.
+- Khi bạn gõ mật khẩu trên máy tính, AI sẽ lắng nghe mọi thao tác gõ phím và đoán chính xác nội dung bạn đang nhập.
+- CEO robot đầu tiên trên thế giới ca ngợi Elon Musk và Mark Zuckerberg vì đã sử dụng công nghệ để mang lại thay đổi tích cực cho xã hội, nhưng cũng nói rằng AI có thể đưa ra quyết định tốt hơn.
+- Tuổi thọ của con người có thể tăng lên 120 tuổi trong vài thập niên tới nhờ sự phát triển của công nghệ cũng như tiến bộ trong các lĩnh vực khác.
+- Giải pháp an ninh mạng SafeGate hoàn toàn do các chuyên gia công nghệ, kỹ sư Việt Nam nghiên cứu phát triển đã đạt được thỏa thuận ra thị trường quốc tế.
+- Số người sử dụng nền tảng Threads hằng ngày đã giảm gần 70% sau khi thu hút hơn 100 triệu người dùng chỉ trong tuần đầu ra mắt.
+- Tận hưởng những ưu đãi trên nền tảng Shopee quốc tế trong Chương trình Ngày mua sắm trực tuyến ASEAN (AOSD), sự kiện có quy mô lớn nhất ASEAN trong lĩnh vực thương mại điện tử.
+- Cục An toàn thông tin vừa đưa ra cảnh báo các cơ quan, tổ chức, doanh nghiệp về các lỗ hổng bảo mật mức cao và nghiêm trọng trong các sản phẩm của Microsoft.
+- Thủ tướng Campuchia Hun Sen yêu cầu các tài khoản TikTok giả mạo tên hoặc hình ảnh của ông phải bị xóa bỏ.
+- Tài khoản Telegram của Thủ tướng Campuchia Hun Sen tới nay đã thu hút gần 1 triệu lượt người theo dõi, không lâu sau khi ông tuyên bố bỏ Facebook để chuyển sang mạng xã hội mới này.
+- Ngày 4-7, Viettel IDC cùng Công ty VinAI thuộc Tập đoàn Vingroup và Qualcomm đã tổ chức Lễ ký kết thỏa thuận hợp tác chiến lược nhằm nghiên cứu, phát triển, đẩy mạnh cung cấp, ứng dụng các giải pháp Trí tuệ nhân tạo tại Việt Nam trên nền tảng công nghệ Qualcomm.
+- Google Analytics là một công cụ đo lường và phân tích lưu lượng truy cập website. Cơ quan chức năng Thụy Điển nói nó đã gián tiếp chuyển thông tin cá nhân người dùng sang Mỹ.
+- Ngày 27-6, Hiệp hội Phần mềm và dịch vụ công nghệ thông tin Việt Nam đã phát động chương trình Top 10 doanh nghiệp công nghệ số xuất sắc Việt Nam 2023.
+- Chiến dịch tấn công bằng virus mới có tên SpectralViper nhắm vào máy tính của hàng loạt doanh nghiệp lớn và người dùng tại Việt Nam.
+- Phần mềm thông báo lưu trú có thể giúp công an phát hiện người đó có tiền án, tiền sự hay bị truy nã nếu ở lại bệnh viện, khách sạn.
+- Nhiều doanh nghiệp logistics, ngân hàng nhanh chóng ứng dụng công nghệ "trợ lý ảo" thông minh như ChatGPT vào hoạt động kinh doanh để tăng sức cạnh tranh, giảm nhân sự, tiết giảm chi phí.
+- Montana vừa trở thành bang đầu tiên của Mỹ thông qua dự luật cấm toàn diện TikTok. Chưa bàn đến tính đúng sai hay hợp lòng dân hay không, việc thi hành một lệnh cấm như thế khả thi đến đâu?
+- Giới chức nhiều nước đang khẩn trương xây dựng các quy tắc quản lý trí tuệ nhân tạo (AI), trong đó Liên minh châu Âu (EU) trở thành nơi dẫn đầu "cuộc đua" khi đề xuất dự thảo Đạo luật Trí tuệ nhân tạo (AIA) đầu tiên trên thế giới vào ngày 21-4-2021.
+- Trong cuộc phỏng vấn với CNBC, Elon Musk đã bày tỏ mối quan tâm về AI, đồng thời bộc lộ khó khăn khi tìm động lực làm việc trước khả năng của công nghệ này.
+- Vừa muốn được lướt Internet ở với tốc độ cao, không gian phủ mạng không có “góc chết”, vừa chỉ phải chi trả chi phí hợp lý là mong muốn của người dùng từ cá nhân đến chủ các quán cà phê, doanh nghiệp.
+- Công ty Sightful (Israel) vừa công bố loại máy tính xách tay không màn hình. Chỉ cần cặp kính AR kết nối với máy tính, người dùng nhìn vào đâu thì đó là màn hình.
+- Chiều 22-5, Trung ương Đoàn cùng Tập đoàn Bưu chính viễn thông Việt Nam (VNPT) đã ký kết hợp tác giai đoạn 2023 - 2027 nhiều nội dung, tập trung chuyển đổi số.
+- FPT Shop tung chương trình siêu ưu đãi giảm đến 50% cho các sản phẩm gia dụng và giảm đến 10 triệu cho các sản phẩm điện thoại, laptop.
+- Hội nghị ‘Data Center &amp; Cloud Infrastructure Summit Light 2023: Tăng tốc cho hành trình số’ với phiên bản mới, tổ chức tại TP.HCM vào ngày 22-6 chính thức mở đăng ký miễn phí.
+- Ông Geoffrey Hinton, một trong những người tiên phong về trí tuệ nhân tạo (AI), cho rằng AI gây ra mối đe dọa cấp bách với con người hơn là biến đổi khí hậu.
+- Không còn chỉ dừng lại ở việc truyền đi một cảm hứng sống hay thông điệp thu hút, ở tầng sâu hơn, nhiều chuyên gia truyền thông đã chỉ ra rằng các doanh nghiệp như FPT đang hướng về một khái niệm mới: Chủ nghĩa tiêu dùng nhân văn.
+- Nhân Ngày Mật khẩu thế giới - World Password Day, Google tung công nghệ passkey tiến gần hơn đến tương lai không cần mật khẩu.
+- Với việc liên tục đổi mới và ứng dụng công nghệ trong quy trình chăm sóc khách hàng, FWD không chỉ đơn giản hóa quy trình tham gia bảo hiểm của khách hàng mà còn mang đến những trải nghiệm tích cực, mới mẻ.
+- Tỉ phú Elon Musk ngày 29-4 thông báo kế hoạch cho phép các chủ báo tính phí người dùng trên nền tảng mạng xã hội Twitter trên cơ sở từng bài viết mỗi lần xem.
+- Nếu dùng Facebook ở Mỹ từ 24-5-2007 đến 22-12-2022, bạn đủ điều kiện để gửi đơn yêu cầu được chia phần trong 725 triệu USD số tiền mà Meta (công ty mẹ của Facebook) chi ra dàn xếp vụ kiện tập thể về rò rỉ dữ liệu người dùng.
+- Chia sẻ của ông Trần Hữu Nhân - chuyên gia kỹ thuật dữ liệu tại One Mount.
+- Công nghệ trí tuệ nhân tạo (AI) mới có khả năng phân tích các văn bản và lọc ra nội dung có thể đe dọa tính mạng con người.
+- Chỉ với vài thao tác, một nhà nghiên cứu bảo mật đã 'nhờ' ChatGPT tạo ra một phần mềm độc hại có thể đánh cắp dữ liệu người khác mà không bị phát hiện.
+- Giờ cái gì cũng gần như đều phải dùng đến app: từ làm việc qua app, mua sắm trên app, đến chuyện hạnh phúc, tình yêu cũng nhờ app.
+- Phạm Huy Hoàng đang làm việc tại CMC Telecom đã chinh phục chứng chỉ CDCE - chứng chỉ cao nhất về Data Center.
+- Không chỉ sao lưu và khôi phục dữ liệu mọi lúc, mọi nơi, CMCCloud thế hệ mới còn tích hợp những tính năng giúp doanh nghiệp chủ động phòng tránh các rủi ro, gây ảnh hưởng đến quy trình sản xuất, tối ưu vận hành nhà máy thông minh.
+- Số hóa quy trình sản xuất, tiến tới nhà máy thông minh giờ đây không còn là ‘nỗi lo’ thường trực của doanh nghiệp ngành sản xuất nữa qua những giải pháp ‘trên mây’ từ phiên bản mới của CMC Cloud.
+- Nhà thông minh, văn phòng thông minh hay thành phố thông minh đang mang tới cho người dùng những tiện ích vượt trội, quản lý linh hoạt, tối ưu được quy trình vận hành.
+- Khi các chính phủ còn đang lúng túng tìm cách điều chỉnh, quản lý hoạt động của trí tuệ nhân tạo (Al), những sản phẩm mới như ChatGPT tiếp tục ra đời lại tạo thêm thách thức mới.
+- Google cho biết chatbot Bard của họ có thể tạo ra các đoạn văn bản ngay lập tức, khác với cách ChatGPT gõ câu trả lời từng từ một.
+- Công nghệ nhân bản giọng nói đang nổi lên như một công cụ nguy hiểm khi những kẻ xấu dùng nó để lừa đảo.
+- CEO Baidu (Trung Quốc) cho biết chatbot của họ chưa hoàn thiện, nhưng công ty vẫn cho ra mắt sản phẩm trong bối cảnh nhu cầu cao như hiện nay.
+- Thuê bao di động như thế nào là trùng khớp với Cơ sở dữ liệu quốc gia về dân cư? SIM mua từ người khác, đi đăng ký lại có cần chủ cũ xác nhận?
+- Nhận thấy nhu cầu cần làm mới trải nghiệm chạy bộ của runner Việt, UPRACE đã tích hợp các yếu tố gamification vào phiên bản mới, chính thức ra mắt vào đầu tháng 4.
+- Ông Nguyễn Văn Khoa, Tổng giám đốc tập đoàn FPT được bầu làm Phó Chủ tịch Hội Doanh nhân trẻ Việt Nam.
+- Duy nhất hôm nay ngày 3-3 trên Shopee, người dùng có thể tận hưởng thêm nhiều ưu đãi độc quyền đầy hấp dẫn cùng loạt sản phẩm chính hãng được giảm giá đến 50%.
+- Trong khi bốn tuyến AAG, APG, AAE-1 và IA đang gặp sự cố, SMW3 là tuyến cáp quang biển ‘lành lặn’ duy nhất và đang ‘gánh team’ kết nối Internet Việt Nam đi quốc tế. Nó đã 24 năm tuổi.
+- Dịch vụ trò chuyện ‘máy học thông minh’ ChatGPT thông báo phiên bản Plus đã mở cho người dùng tại Việt Nam nhưng chưa chấp nhận thanh toán đăng ký tài khoản mới.
+- Nữ nhà báo Alexandra Garfinkle hỏi ChatGPT rằng nó có thay thế người làm báo không, nó đáp: 'Con người không có gì phải lo lắng'.
+- Ngày 7-2, Microsoft cho biết đang cải tiến công cụ tìm kiếm Bing và trình duyệt Edge Web bằng trí tuệ nhân tạo (AI).
+- Hiện mỗi năm Việt Nam chứng kiến khoảng 10 lần đứt cáp quang biển khiến Internet 'rùa bò'. Lần này dự kiến sớm nhất tháng 3 mới khắc phục xong sự cố.
+- Bộ sticker Bé Tra gồm 16 sticker có nội dung, thông điệp từ các câu nói liên quan đến cá. Đây là ý tưởng xuất phát từ những logo được dùng trong lễ hội cá tra lần thứ nhất.
+- Hùa theo "cơn sốt" ChatGPT đang lan rộng tại Việt Nam, dịch vụ tạo, mua, bán tài khoản ChatGPT cũng được rao bán tràn lan trên các trang mạng xã hội.
+- MusicLM của Google có thể chuyển một văn bản bất kỳ thành bản nhạc. Chuyên gia trí tuệ nhân tạo (AI) nói nó còn 'lớn hơn' cả ChatGPT.
+- Trở lại guồng quay công việc sau một kỳ nghỉ Tết dài, bạn hẳn sẽ muốn ‘đổi gió’ cho góc làm việc để chuẩn bị cho một năm mới nhiều năng lượng hơn.
+- Chào Xuân Quý Mão, từ nay đến hết 31-01-2023, FPT Shop lì xì đến 6.800.000 đồng cùng hàng loạt các ưu đãi giá trị cho khách hàng chọn mua sản phẩm Apple chính hãng.
+- Chào Xuân Quý Mão, từ nay đến ngày 31/1/2023, FPT Shop triển khai chương trình ‘Trao ngay 68 Gian bếp Như Ý’ với quà tặng là phiếu mua hàng gia dụng trị giá 19 triệu đồng.
+- Từ nay đến ngày 31-01-2023, khi chọn mua laptop sinh viên, văn phòng tại FPT Shop, khách hàng sẽ được lì xì đến 50%, tặng thêm 01 năm bảo hành và nhiều ưu đãi thiết thực khác.
+- Đến với cuộc thi IDEA Design Award 2022, Dreame đã giành được Giải thưởng Thiết kế đột phá đến từ 2 sản phẩm Dreame Bot W10 và Dreame L10S Ultra. Đây là những sản phẩm hàng đầu cho sự đổi mới về công nghệ, thiết kế.
+- Đứng trước cách mạng công nghiệp 4.0, làm thế nào để doanh nghiệp sữa tăng công suất, tận dụng tối đa thiết bị hiện có và tối ưu chi phí đầu tư vào chuyển đổi số?
+- Chào đón “Quý Mão Lộc Phát”, bên cạnh ưu đãi đến 9.500.000 đồng, FPT Shop còn tặng bộ quà trị giá đến 8.000.000 đồng cho khách hàng chọn mua điện thoại, máy tính bảng Samsung.
+- Sau đại dịch, hybrid work trở thành xu hướng toàn cầu, xuất hiện trong mọi ngành nghề của xã hội. Lối sống hybrid cho phép một người có thể làm nhiều việc, hoàn thành nhiều vai trò cùng một lúc.
+- Chuyển đổi số cho quản lý năng lượng và tự động hóa có thể hỗ trợ các doanh nghiệp F&amp;B đạt được những tiến bộ về hiệu quả hoạt động (OpEx), tối đa hóa giá trị tài sản (CapEx), giảm tiêu thụ năng lượng và truy xuất tức thời nguồn gốc sản phẩm.
+- Duy nhất trong hôm nay ngày 5-1, Shopee gửi gắm thông điệp 'phát tài phát lộc' đến toàn thể người dùng trong năm mới 2023 thông qua Shopee 5.1 Tết Sale với 8 ưu đãi độc quyền mang ý nghĩa tượng trưng cho sự thịnh vượng.
+- Đừng bỏ lỡ cơ hội hái lộc đầu năm theo cách thật đặc biệt và hứng khởi với chương trình '1.1 Tết sale mở màn' trong khuôn khổ '5.1 Tết Sale' đang diễn ra tưng bừng trên Shopee.
+- Nhanh tay truy cập ứng dụng Shopee trong hôm nay để không bỏ lỡ vô vàn sản phẩm giảm giá sâu đi kèm hàng loạt ưu đãi độc quyền trong chương trình Thứ 4 - Siêu Sale Freeship.
+- Chưa đầy một tháng nữa là tới Tết Nguyên đán và 'ngày hội dọn nhà' cũng đã chính thức khởi động.
+- Bằng sự trợ giúp của các thiết bị công nghệ, Lã Thanh Huyền có thể phân bổ thời gian để hoàn thành tốt nhiều vai trò, từ quán xuyến gia đình đến công việc nghệ thuật và kinh doanh.
+- Brother ra mắt một sản phẩm máy in laser màu mới, cho phép tùy chọn tăng khối lượng in chỉ bằng việc chọn vật tư và phụ kiện đáp ứng nhu cầu kinh doanh của từng doanh nghiệp.
+- Công nghệ do Xinapse phát triển cho phép tổng hợp và tái tạo giọng nói ảo tiếng Việt, ngay cả khi đó là của người đã khuất.
+- Trong hôm nay, người dùng Shopee có thể dễ dàng mua sắm các sản phẩm tiện ích gia dụng, đồ dùng cá nhân với mức giá giảm sâu kèm nhiều ưu đãi trong chương trình “Ngày 15 Sale Giữa Tháng”.
+- Các sản phẩm của Viettel không chỉ phục vụ cho lĩnh vực quân sự mà còn cả lĩnh vực dân sự, trải rộng từ phục vụ dân sinh, doanh nghiệp, bộ ban ngành, tới các sản phẩm phục vụ cho nhiệm vụ bảo vệ an ninh quốc phòng - quốc gia.
+- TTO - Tổng công ty Công nghiệp công nghệ cao Viettel vừa ký được hợp đồng xuất khẩu thiết bị công nghệ cao và thỏa thuận hợp tác triển khai thử nghiệm mạng 5G tại Ấn Độ.
+- Từ ngày 9 đến 12-12-2022, FPT Shop triển khai chương trình ưu đãi cuối năm lên đến hơn 50% cho nhiều sản phẩm công nghệ và gia dụng.
+- Lần đầu được giới thiệu trên fanpage LG Electronics Vietnam vào ngày 01-11, LG WashTower™ là sản phẩm “tháp đôi” đặc biệt kết hợp cả hai máy giặt - máy sấy.
+- Sự thuận tiện, tính cá nhân hóa cũng như tính bảo mật của người dùng được Samsung đặt lên hàng đầu trong phiên bản thứ 5 của hệ điều hành smartphone One UI.
+- Với khả năng hiển thị hơn 1 tỉ màu, AQUOS The Scenes 4K và AQUOS The Scenes 8K chính là những đại diện cho thế hệ công nghệ mới, mang đến những trải nghiệm thực tế và sống động đến từng chi tiết.
+- Mùa ưu đãi cuối năm, điển hình là ngày 11.11 Siêu Sale sắp tới trên Shopee, nhà bán hàng cần chuẩn bị những gì để kinh doanh thành công và mang thương hiệu đến gần hơn với tệp khách hàng rộng lớn từ sàn thương mại điện tử?
+- Thay đổi và thích ứng để tối ưu hóa tiến trình công việc là bí quyết để các doanh nghiệp vừa và nhỏ nâng cao sức cạnh tranh trên thị trường.
+- Nắm bắt được nhu cầu của khách hàng và đầu tư cho hạ tầng công nghệ là cách để nhà cung cấp các giải pháp thông minh cho giao thông Phenikaa MaaS bứt phá.
+- Trong những năm qua, các hãng công nghệ đã nâng cấp và thay đổi liên tục tính năng cũng như giao diện smartphone  để mang tới nhiều tiện ích hơn dành cho người dùng. Nhưng dù thay đổi như thế nào vẫn có những thứ chỉ phù hợp cho điện thoại Android.
+- Bốn chiến lược bán sản phẩm thành công trên nền tảng số đã được Chủ tịch một doanh nghiệp thành công trong việc tạo dựng thương hiệu trên các sàn thương mại điện tử “bật mí…
+- Nhỏ gọn nhưng hiệu năng cao, cho bản in sắc nét và tích hợp sẵn các tính năng hiện đại, các dòng máy in laser của HP đang là sự lựa chọn của nhiều chủ doanh nghiệp.
+- Vừa qua, Tập đoàn BIN Corporation, Công ty SAP Việt Nam và Công ty ATS Việt Nam chính thức ký kết hợp tác chuyển đổi số toàn diện với dự án giải pháp SAP S/4 HANA Cloud.
+- Giới thiệu công nghệ bán hàng xu hướng và các giải pháp marketing toàn diện đang là những ‘át chủ bài mới’ mà sàn thương mại điện tử (TMĐT) cung cấp cho doanh nghiệp.
+- Với loạt sản phẩm mới ra mắt đáp ứng nhu cầu người tiêu dùng toàn cầu nói chung và Việt Nam nói riêng, TCL đang chứng tỏ tên tuổi của một thương hiệu cao cấp với giá phải chăng.
+- TTO - Các nhà nghiên cứu tại Đại học Oxford và ông Marcus Hutter, nhà nghiên cứu về trí tuệ nhân tạo (AI) làm việc tại DeepMind (thuộc sở hữu của Alphabet, công ty mẹ của Google), dự báo gây tranh cãi về việc sắp tới AI có thể xóa sổ nhân loại.
+- Với một thị trường rộng lớn, phong phú về nhu cầu và điều kiện đi lại như Việt Nam, dịch vụ vận chuyển cũng ngày càng đa dạng, việc taxi truyền thống và taxi công nghệ cùng chia sẻ cơ hội và thị phần là hoàn toàn khả thi.
+- Với vị thế là chuỗi bán lẻ ủy quyền của Apple tại Việt Nam, TopZone trở thành sự lựa chọn của các tín đồ Táo Khuyết khi xác nhận hơn 20.000 lượt đăng ký sở hữu iPhone 14.
+- Chuẩn bị cho 9-9 Ngày Siêu Mua Sắm, Shopee đang tập trung xây dựng cộng đồng bán hàng văn minh để mang đến trải nghiệm tốt hơn cho khách hàng.
+- TTO - "Đẩy mạnh chuyển đổi số trong giáo dục - đào tạo (GD-ĐT), gắn với đổi mới công tác quản lý và đổi mới phương pháp dạy và học" là một trong những nhiệm vụ trọng tâm của ngành GD-ĐT TP.HCM trong năm học 2022-2023.
+- Thời gian bận rộn vừa qua khiến bạn không có nhiều dịp sum họp cùng gia đình. Nếu đã như vậy, hãy nhân mùa trung thu này cùng mọi người quây quần bên nhau, còn bằng cách nào, hãy để LG ThinQ giúp sức!
+- Các thiết bị gia dụng giúp giải quyết công việc nhà cũng như bảo vệ sức khỏe các thành viên. Thế nhưng, chăm lo ‘sức khỏe’ cho các loại thiết bị lại ít được chú trọng.
+- Với 15 năm kinh nghiệm trong lĩnh vực tư vấn, triển khai các dự án chuyển đổi số, FSI mang đến Tuần lễ 'Chuyển đổi số tỉnh Thừa Thiên Huế 2022' những giải pháp công nghệ cao về tạo lập - xử lý - khai thác dữ liệu toàn diện.
+- Với triết lý hoạt động kiến tạo cuộc sống tốt đẹp hơn mỗi ngày, LG thông qua hệ sinh thái các thiết bị của mình hiện thực hóa sứ mệnh bảo vệ Trái đất xanh.
+- TTO - TikTok mới đây đã cho ra mắt hiệu ứng AI (trí tuệ nhân tạo) có thể tạo ra các bức tranh trừu tượng từ thông tin mô tả do người dùng nhập.
+- TTO - Một kỹ thuật viên của Apple tuyên bố rằng gã khổng lồ công nghệ đang đe dọa sa thải cô, sau khi cô đăng một video trên TikTok với nội dung liên quan đến các mẹo bảo mật cơ bản của iPhone.
+- Đó là nội dung ông Tào Đức Thắng, chủ tịch kiêm tổng giám đốc Viettel, nhấn mạnh trong báo cáo tại buổi thăm và làm việc với Tập đoàn Viettel của Thủ tướng Chính phủ.
+- Thực tế đang chứng minh, những tiện ích số như các dịch vụ tự phục vụ, 24/7 và 'ra lệnh' bằng giọng nói góp phần lớn vào việc đưa ra quyết định lựa chọn ngân hàng của những vị thượng đế Gen Z.
+- Ngày 27-7, chung kết cuộc thi sáng tạo công nghệ Zone Bootcamp 2022: F.I.R.E Tech do ACB WIN đồng tổ chức đã diễn ra thành công với 2 dự án được vinh danh: GREEN4LIFE thuộc bảng sinh viên và EZIN Việt Nam thuộc bảng startups.
+- Huawei tiếp tục khẳng định vị thế tiên phong trong mảng kinh doanh các thiết bị điện tử tiêu dùng, thông qua loạt danh mục thiết bị hội tụ nhiều đổi mới đột phá về công nghệ vừa ra mắt.
+- TTO - Có gì ở các clip triệu view đang dẫn đầu xu hướng trên TikTok? Trả lời ngay đó là những clip với hiệu ứng tự làm méo mó mặt mày, biến mình thành cây hành hay nhảy cùng trụ điện giữa đường phố tấp nập...
+- TTO - Ngày 24-7, trên địa bàn phường 1, thành phố Bảo Lộc, tỉnh Lâm Đồng đã xảy ra 1 vụ tai nạn thương tâm, làm 1 bé trai tử vong. Nguyên nhân ban đầu xác định nạn nhân bị điện giật khi sử dụng điện thoại trong lúc sạc pin.
+- Nhờ nắm bắt lợi thế công nghệ, SSStutter đã thành công xây dựng một thương hiệu thời trang chuyên nghiệp, bền vững và nắm bắt được thị hiếu khách hàng.
+- TTO - Google và Trung tâm Đổi mới sáng tạo quốc gia (NIC), Bộ Kế hoạch và đầu tư vừa ra mắt hai chương trình Google Career Certificates (chương trình phát triển nhân tài số) và Google for Startups: Startup Academy.
+- Xuất hiện tại Việt Nam từ cuối năm 2018, bán hàng qua livestream đang  trở thành công cụ kinh doanh đắc lực của các nhà bán lẻ trên nền tảng thương mại điện tử.
+- Trải nghiệm dịch vụ tài chính số tiện ích trên ứng dụng Mobile Banking SOL của Ngân hàng Shinhan và nhận hoàn tiền lên đến 220.000 đồng với chương trình ‘Lướt SOL là ghiền’.
+- TTO - Những khó khăn trong thủ tục hành chính tại các doanh nghiệp chuyển đổi số mạnh có xu hướng gia tăng trong 3 năm trở lại đây. Lý do là nhiều luật bộc lộ những điểm không phù hợp trong công tác thực thi.
+- TTO - Chiều 6-7, lễ phát động cuộc thi tìm hiểu kiến thức về biển, đảo Việt Nam năm 2022 và ra mắt triển lãm thực tế ảo "Tổ quốc bên bờ sóng" đã diễn ra tại Hà Nội.
+- Các chuyên gia, đại diện đến từ Amazon Global Selling và Shopee chia sẻ kinh nghiệm thực tiễn và bí quyết thành công cho doanh nghiệp Việt.
+- Không chỉ mang đến những thiết bị cần thiết cho cuộc sống, trên hành trình xây dựng thương hiệu của mình, LG tạo ra nhiều giá trị tích cực trong nhiều mặt của cuộc sống, song hành cùng Việt Nam tạo nên một cuộc sống tốt đẹp hơn.
+- TTO - Lần đầu tiên kể từ tháng 11-2020, giá đồng tiền mã hóa bitcoin lao xuống dưới mốc 20.000 USD/btc trong ngày 18-6.
+- Chi phí điện năng khi sử dụng điều hòa không khí khiến nhiều người lo lắng. Nhưng nếu biết 10 mẹo này, người dùng sẽ tiết kiệm số tiền không nhỏ.
+- Ngay sau khi ra mắt MV “Đồng” có sức khuấy đảo mạnh mẽ, LG Việt Nam tiếp tục mang đến “làn sóng nhảy”  thú vị trên nền tảng TikTok.
+- Sử dụng công nghệ xử lý âm thanh và nhận diện giọng nói, Tổng đài Chăm sóc khách hàng của Viettel có thể 'biết' cảm xúc của khách hàng để tự động phân loại hơn 300.000 cuộc gọi đến hằng ngày.
+- Duy trì nhiệt độ vừa phải, tránh gió thổi thẳng vào người, chọn chế độ chạy êm... sẽ giúp người dùng ngủ ngon giấc và sảng khoái khi thức dậy.
+- Xiaomi lần đầu tiên công bố tại Việt Nam dòng sản phẩm TV thông minh 4K cao cấp - Mi TV P1 Series với hai phiên bản 55 inch và 43 inch.
+- Tuy thường được nghĩ đến là nhà cung cấp thiết bị viễn thông hàng đầu thế giới nhưng Huawei còn là một trong những ‘ông lớn’ tạo ra nhiều giải pháp để xây dựng các thành phố thông minh trên thế giới…
+- Với 19 bằng độc quyền sáng chế được bảo hộ tại Việt Nam và 4 tại Hoa Kỳ, Viện Hàng không Vũ trụ Viettel (VTX) hiện nay là một trong những 'thương hiệu' nổi bật về đổi mới, sáng tạo.
+- Ông Tào Đức Thắng, Chủ tịch kiêm Tổng giám đốc Viettel nhấn mạnh: mỗi thời kỳ, Viettel đều có những đổi mới sáng tạo đột phá giúp Tập đoàn vượt qua nhiều khó khăn, thách thức.
+- Sự kiện ‘Bảo mật nền tảng đám mây - thúc đẩy kinh doanh’ do VNG Cloud tổ chức vào ngày 20-5 vừa qua có sự tham gia của Bộ Thông tin và truyền thông, các chuyên gia công nghệ Việt Nam cùng gần 100 doanh nghiệp đến từ các lĩnh vực.
+- Với những phát minh về công nghệ làm thay đổi ngành xử lý nước trên thế giới, A. O. Smith đã đem đến những giải pháp lọc nước hiện đại hàng đầu, bảo vệ sức khỏe cho người tiêu dùng Việt Nam.
+- Huawei đã có bài phát biểu về tương lai đổi mới kỹ thuật số và nền kinh tế số của khu vực châu Á - Thái Bình Dương, cùng với những cam kết đồng hành của hãng trong công cuộc này…
+- Bo mạch nổ, máy nén hỏng, dàn tản nhiệt bị ăn mòn… là những sự cố thường gặp ở dàn nóng khiến máy kém bền.
+- TTO - Theo báo cáo chỉ số thương mại điện tử do Công ty e-logistics Ninja Van hợp tác DPD group công bố, Việt Nam đang dẫn đầu doanh số ở thị trường Đông Nam Á.
+- Thang máy kỹ thuật số KONE DX - một sản phẩm vừa mới được ra mắt gần đây của tập đoàn KONE đã tạo sự khác biệt trong trải nghiệm nhờ tích hợp các công nghệ tân tiến.
+- Khi sức khỏe được xem là yếu tố cốt lõi định nghĩa lối sống ‘wellness’, không gian sống thoáng mát, sạch khuẩn, tích hợp nhiều mảng xanh chính là mục tiêu mà nhiều người hướng đến.
+- Ngày 19-4-2022, tại Quy Nhơn, Tập đoàn Công nghiệp - viễn thông Quân đội (Viettel) chính thức công bố tuyến cáp biển quốc tế ADC (Asia Direct Cable) cập bờ tại Quy Nhơn, Bình Định, Việt Nam.
+- Chương trình Thực tập sinh Tài năng (Viettel Digital Talents) 2022 nằm trong chiến lược đào tạo nguồn nhân lực trẻ lĩnh vực công nghệ của Viettel đã chính thức đón nhận 115 sinh viên xuất sắc vượt qua vòng sơ loại.
+- TTO - Những tiện ích từ chuyển đổi số đã đem lại những lợi ích rõ rệt cho các doanh nghiệp, cá nhân đã nhanh hạy bắt kịp hướng đi này.
+- TTO - Tại diễn đàn 'Chuyển đổi số để phục vụ bạn đọc tốt hơn', cục trưởng Cục Báo chí viện dẫn thực tế hiện nay, trẻ em, người cao tuổi đã quen với YouTube, Netflix nhưng lại loay hoay để tìm các kênh truyền hình thiết yếu.
+- TS.BS Phạm Lê Duy - Bộ môn Sinh lý, Sinh lý bệnh miễn dịch ĐH Y Dược TP.HCM chia sẻ cách sử dụng điều hòa mùa nóng hiệu quả và đảm bảo sức khỏe cho cả gia đình.
+- Ngày 8-4, TCL Electronics đã tổ chức sự kiện giới thiệu loạt TV mini LED, QLED, 8K, 4K cùng các sản phẩm AI x IoT hiện đại và công bố thông điệp mới Inspire Greatness (Truyền cảm hứng tuyệt vời).
+- Hội thảo và giao lưu thương mại trực tuyến Taiwan Excellence: Giới thiệu giải pháp thông minh từ các thương hiệu AAEON, IBASE, IEI, MiFly, MSI và PLANET sẽ diễn ra tại kênh Youtube của Taiwan Excellence vào lúc 14h ngày 14- 4-2022.
+- Trở thành doanh nghiệp thành công để có thể thúc đẩy sự tiến bộ hướng tới tương lai bền vững hơn. Và để đạt được mục tiêu kinh doanh, công nghệ đóng vai trò thiết yếu.
+- TTO - Ngày 1-4, Google hợp tác cùng Trung tâm Giám sát an toàn không gian mạng quốc gia (NCSC) ra mắt website Dauhieuluadao.com (dấu hiệu lừa đảo) nhằm nâng cao nhận thức về lừa đảo trực tuyến đang gia tăng cả về phương thức lẫn số lượng.
+- TTO - Ngày 25-3, nhà mạng VinaPhone cảnh báo việc gia tăng hiện tượng tội phạm lợi dụng tính năng chuyển hướng cuộc gọi (Call Forwarding) để đánh cắp thông tin mã OTP các dịch vụ của khách hàng.
+- TTO - Trong năm 2022, Bộ Khoa học và công nghệ sẽ ưu tiên triển khai chính sách thí điểm cho một vài doanh nghiệp triển khai dự án blockchain khả thi, mang lại lợi ích cho xã hội rõ rệt.
+- TTO - Meta, công ty mẹ của Facebook, vừa thông báo tới các nhân viên về việc họ sẽ không còn được hưởng các dịch vụ miễn phí như trước và thời gian ăn tối cũng bị lùi lại muộn hơn.
+- HP 280 Pro G5 SFF vừa được làm mới với chipset H570 cao cấp, cài đặt sẵn Windows 11 bản quyền, đồng thời sở hữu hiệu năng mạnh mẽ, bảo mật và cực kỳ nhỏ gọn.
+- Thời trang là ngành luôn đòi hỏi sự sáng tạo và phát triển, nắm bắt những xu hướng mới để đáp ứng sự thay đổi không ngừng của thị trường và khách hàng.
+- Ra mắt thị trường từ năm 2016 với sản phẩm điều hòa không khí, Casper nhanh chóng phát triển và trở thành một thương hiệu được nhiều người biết đến trong ngành điện tử, điện lạnh.
+- Với “cánh chim đầu đàn” Viettel, Việt Nam đang là một trong số ít quốc gia xây dựng được hệ sinh thái sản phẩm an toàn, an ninh mạng nội địa, tự chủ về công nghệ và giải pháp an toàn, an ninh mạng.
+- TTO - Hơn một năm qua, Viettel luôn là thương hiệu nổi bật sau thay đổi về nhận diện thương hiệu. Theo đánh giá mới nhất của Brand Finance, giá trị thương hiệu Viettel tăng 99 bậc so với năm 2021 và lọt Top 250 thương hiệu giá trị nhất thế giới.
+- TTO - Trang web so sánh giá PriceRunner của Thụy Điển cho biết họ đang kiện Google đòi bồi thường 2,1 tỉ euro (tương đương 2,4 tỉ USD). Đây là công ty mới nhất có hành động pháp lý cáo buộc Google thao túng kết quả tìm kiếm.
+- Xiaomi chính thức ra mắt Redmi Note 11 Series, dòng sản phẩm tiếp tục kế thừa và hoàn thiện các ưu điểm nổi trội của dòng Redmi Note với bốn sản phẩm hoàn toàn mới.
+- Nguyễn Hồng Phong, học sinh trường THCS Đà Nẵng, TP Hải Phòng luôn trong nhóm 'trốn học' nhiều nhất trong lớp 7C9. Nhưng Phong lại là một trong những em có thành tích học tập tốt nhất...
+- Amazfit GTR 3 Pro chiếc smartwatch đẹp, cao cấp với tính năng theo dõi sức khỏe ưu việt, đáp ứng đủ tiêu chí của một mẫu đồng hồ thông minh 2022.
+- Sự xuất hiện của Huawei ở phân khúc màn hình gaming đã tạo nên 'làn gió mới', khuấy động thị trường tiềm năng nhưng kém sôi động này.
+- Viettel tiếp tục giữ vị trí số 1 trong bảng xếp hạng Top 50 thương hiệu có giá trị nhất Việt Nam (Vietnam 50) năm 2021 với định giá 6,061 tỷ USD. Thông tin trên vừa được công ty định giá thương hiệu hàng đầu thế giới Brand Finance công bố.
+- Hơn 250 học sinh trung học đã góp ý tưởng giải quyết các vấn đề thực tế và tạo tác động tích cực đến xã hội bằng ứng dụng công nghệ ở cuộc thi Sáng kiến công nghệ TechGenius do Đại học RMIT và báo Hoa Học Trò tổ chức.
+- Tháng 9 vừa qua, các chuyên gia tại diễn đàn SingapoReimagine Global Conversations (SRI GC) đã chỉ ra những mô hình kinh doanh và trải nghiệm du lịch mới, mở ra nhiều hướng phát triển cho du lịch Việt Nam.
+- 'Kể từ khi thực hiện bước ngoặt sang lĩnh vực viễn thông, Viettel luôn xác định: phải làm chủ các công nghệ lõi' - Thiếu tướng Lê Đăng Dũng, Quyền Chủ tịch kiêm Tổng giám đốc Tập đoàn Viettel nói.
+- Nếu như từ một chiếc sim điện thoại tí hon, Viettel đã mở ra một thế giới số khổng lồ, thì tương lai, chiếc thẻ ePass bé nhỏ cũng sẽ trở thành một yếu tố trọng điểm, một sản phẩm tiền đề cho phát triển hệ sinh thái giao thông thông minh ở Việt Nam.
+- Sau khi VDTC đạt được “thành tích kép” – vượt 1 triệu người dùng, và làm chủ toàn trình hệ thống ePass, Quyền Chủ tịch kiêm Tổng giám đốc Tập đoàn Viettel, Thiếu tướng Lê Đăng Dũng cho biết: “Đường bộ chỉ là bước đầu. Sắp tới là đường thủy, hàng khôn
+- Tập đoàn Công nghiệp - Viễn thông Quân đội (Viettel) công bố ra mắt Hệ sinh thái Tài chính số Viettel Money tới toàn bộ khách hàng đang sử dụng mạng di động Viettel trên toàn quốc.
+- TTO - Ngày 24-11, chủ đầu tư Khu công nghệ thông tin tập trung TP Đà Nẵng cho biết vừa ký kết với đối tác Singapore - Infracrowd về việc đầu tư khu trung tâm dữ liệu (Data Center) theo tiêu chuẩn Tier 3 Plus với tổng mức 100 triệu USD.
+- TTO - Từ ngày 23-11, tỉnh Bà Rịa - Vũng Tàu bắt đầu tích hợp chữ ký số trên nền tảng di động vào cổng dịch vụ công của tỉnh này. Đây là tỉnh đầu tiên có dịch vụ này, tạo điều kiện thuận lợi cho người dân và doanh nghiệp trong giao dịch.
+- Với xu thế chuyển đổi số, nhiều địa phương tập trung vào thế mạnh phát triển công nghệ trên nền tảng hạ tầng sẵn có, lấy lợi ích của người dân làm trung tâm để xây dựng thành phố thông minh, tiện ích và đáng sống.
+- Sự tăng trưởng mạnh mẽ của thương mại điện tử đã, đang và sẽ tạo nên những bước chuyển biến tích cực trong cộng đồng thông qua công nghệ.
+- Một trong những điểm khác biệt của sàn thương mại điện tử (TMĐT) với cửa hàng truyền thống chính là nền tảng trực tuyến này hoạt động 24/7, liên tục kích thích nhu cầu mua sắm của người dùng.
+- Ngày 26-10, Ban tổ chức Giải thưởng Truyền thông thế giới (World Communication Awards 2021) đã công bố mô hình thành phố thông minh do Tập đoàn Công nghiệp - Viễn thông Quân đội (Viettel) phát triển là hiệu quả và sáng tạo nhất.
+- TTO - Theo báo cáo hoạt động của mã độc tống tiền đầu tiên của VirusTotal và Google, mã độc tống tiền ransomware tăng gần 200% so với thời điểm ban đầu tại Việt Nam.
+- Khi Work From Home (Làm việc ở nhà) đã trở thành một xu hướng chung mang tính thời đại, doanh nghiệp cần chuyển mình để nâng tầm giá trị.
+- "Workstation" - máy trạm chuyên biệt cho những công việc tác vụ nặng không còn xa lạ với dân thiết kế đồ hoạ, dựng phim chuyên nghiệp, kỹ thuật cơ khí CNC, mô phỏng 3D trong y tế…
+- Ban tổ chức cuộc thi Tìm kiếm Giải pháp chuyển đổi số quốc gia (Viet Solutions 2021) cho biết đã lựa chọn được 16 giải pháp/sản phẩm tiềm năng để hợp tác đầu tư ngay từ thời điểm kết thúc vòng sơ loại.
+- Với 2 bằng sáng chế này, Viettel là doanh nghiệp Công nghiệp - Công nghệ cao của Việt Nam có nhiều bằng sáng chế được bảo hộ độc quyền của Mỹ nhiều nhất theo danh sách của Cơ quan Quản lý sáng chế và nhãn hiệu Hoa Kỳ (USPTO).
+- Làm việc từ xa đặt ra nhiều vấn đề bảo mật dữ liệu cho doanh nghiệp, đặc biệt là với những công ty chưa có nhiều kinh nghiệm trong việc triển khai hình thức này.
+- Do dịch COVID-19, nhiều học sinh Việt Nam không thể đến trường mà phải học online tại nhà. Các thiết bị công nghệ thông tin như laptop, máy tính bảng, điện thoại trở thành thiết bị thiết yếu trong quá trình giảng dạy.
+- Việc lựa chọn giữa mua máy in hay thuê máy in đối với một doanh nghiệp đôi khi không thể dễ dàng quyết định. Vậy những lưu ý gì để giúp doanh nghiệp đưa ra lựa chọn phù hợp nhất cho nhu cầu in ấn của minh?
+- Lần đầu tiên, tính đến hết tháng 8-2021, cả ba trang thương mại điện tử (TMĐT) của MWG là: Thegioididong.com, Dienmayxanh.com và Bachhoaxanh.com đều nằm trong nhóm 3 trang có lượt truy cập cao nhất của từng ngành hàng.
+- Tập đoàn Công nghiệp - Viễn thông Quân đội (Viettel) là đơn vị chịu trách nhiệm thiết kế, triển khai hạ tầng công nghệ thông tin (CNTT) cho bệnh viện dã chiến điều trị COVID-19 hiện đại nhất Hà Nội vừa đi vào hoạt động tại Yên Sở, Hoàng Mai.
+- Thay vì ủ dột hoặc ‘chém gió’ trên mạng chán ghét việc ở nhà mỗi ngày, thay vì ở nhà lâu ngày khiến bạn trong tình trạng như… muốn ‘mở tung cửa, đón ánh mặt trời nhưng nhà mình không có ban công…’.
+- Ngày 23-8, Tập đoàn Công nghiệp - Viễn thông Quân đội (Viettel) đưa vào vận hành Viettel Innovation Lab. Đây là phòng thí nghiệm về các công nghệ 4.0 hoàn chỉnh và hiện đại nhất Đông Nam Á, được đặt tại Hà Nội và TP.HCM.
+- Tập đoàn Điện lực Việt Nam (EVN) và ví điện tử ZaloPay chính thức triển khai dịch vụ thanh toán tiền điện bằng nền tảng QR code trên hóa đơn hằng tháng giúp người dùng thanh toán một cách đơn giản, dễ dàng và an toàn.
+- Thông qua Nền tảng hỗ trợ, tư vấn khám, chữa bệnh từ xa (Telehealth) do Viettel thiết lập, các cơ sở y tế đã thực hiện 120 buổi hội chẩn cho hơn 1.800 ca bệnh COVID-19 chuyển biến nặng.
+- TTO - Kể từ 11-8, ngành điện Quảng Nam chính thức triển khai chuyên mục "Điện lực" trên ứng dụng Smart Quảng Nam nhằm cung cấp kịp thời thông tin và đáp ứng nhu cầu tra cứu thông tin liên quan ngành điện của người dân và doanh nghiệp trên địa bàn.
+- Với nền tảng quan hệ hợp tác chính trị tốt đẹp, quan hệ hợp tác kinh tế - đầu tư luôn là điểm sáng trong quan hệ hợp tác đặc biệt Việt Nam - Lào.
+- Nhiều doanh nghiệp đặc thù chỉ truy cập được hệ thống nội bộ khi đến văn phòng. CMC VDI với tốc độ truy cập ổn định và bảo mật cao sẽ giúp doanh nghiệp làm việc từ xa an toàn.
+- TTO - Ban tổ chức cuộc thi Tìm kiếm giải pháp chuyển đổi số quốc gia - Viet Solutions 2021 - đã gia hạn nộp hồ sơ dự thi đến hết ngày 15-9.
+- Bên lề cuộc thi Viet Solutions 2021, Tập đoàn Viettel và Bộ Thông tin và Truyền thông phối hợp tổ chức 2 tọa đàm trực tuyến với chủ đề “Khởi nghiệp thời khủng hoảng COVID-19” và “Hướng đi cho Startup: Tăng trưởng nóng hay bền vững”
+- KinhDoanhSo.com là một trong những trung tâm số đầu tiên tại Việt Nam cung cấp khóa huấn luyện trực tuyến và trực tiếp, các công cụ hỗ trợ cho doanh nghiệp phát triển trên nền tảng số, dự án ra mắt ngày 14-7.
+- Với những ưu điểm về hiệu suất in ấn, bảo mật mạnh mẽ và thiết kế thân thiện với môi trường, MFP P77440dn là sự lựa chọn lý tưởng dành cho doanh nghiệp vừa và nhỏ (SMB).
+- TTO - Đúng ngày 21-6, báo điện tử Đảng Cộng sản Việt Nam cho ra mắt app di động mới được thiết kế hiện đại, giúp bạn đọc dễ dàng tiếp cận, tìm kiếm tin bài.
+- BenQ chính thức giữ vị trí số một thị phần màn hình tương tác (IFP: Interactive Flat Panel) trong quý 1-2021 tại Việt Nam, theo báo cáo từ Futuresource.
+- TTO - Bộ Thông tin và truyền thông vừa ban hành bộ quy tắc ứng xử trên mạng xã hội, trong đó nhấn mạnh không đăng tải thông tin xúc phạm danh dự, nhân phẩm, không quảng cáo trái phép; cơ quan nhà nước nên có phản hồi những ý kiến trên mạng xã hội...
+- TTO - HarmonyOS 2.0 không chỉ tập trung vào điện thoại thông minh hay máy tính bảng. Gã khổng lồ Huawei của Trung Quốc đặt mục tiêu thống trị các thiết bị IoT bằng hệ điều hành mới ra mắt ngày 2-6.
+- TTO - Tiền thân là giải pháp công nghệ được NASA khởi xướng, và tiên phong áp dụng từ sau sự cố phóng tàu vũ trụ Apollo 13. Đến nay, xây dựng "Nhà máy số" đang là một giải pháp công nghệ mang xu thế phát triển tất yếu của thế giới.
+- Một ngành nghề bị ảnh hưởng không ít bởi COVID-19 phải kể đến nghề ca sĩ. Không tụ họp đông người cũng đồng nghĩa với việc không được trình diễn, kết nối.
+- Thực hiện chỉ đạo của Ban Chỉ đạo Quốc gia phòng, chống COVID-19, trong vòng 7 ngày, Viettel đã hoàn thành lắp đặt và kết nối tích hợp 3.000 camera giám sát tại các khu vực cách ly thuộc các tỉnh phía Bắc.
+- TTO - Tỉ phú Elon Musk vừa úp mở trên Twitter rằng Công ty Tesla có thể sẽ bán hết số lượng Bitcoin đang nắm giữ. Xác nhận khơi khơi bằng một chữ này làm giá trị đồng Bitcoin mất ngay 8%.
+- Từ khi biết Thủ tướng Chính phủ đồng ý cho các nhà mạng di động triển khai thí điểm dịch vụ Mobile-Money, đông đảo người dùng đang ngóng chờ thời điểm được tận tay trải nghiệm công nghệ thanh toán mới mẻ nhưng bình dân này.
+- Môi trường kinh doanh luôn thay đổi và vận hành liên tục buộc chúng ta phải đảm bảo mọi chi tiết cần được chuẩn bị kỹ lưỡng và tính toán chuẩn xác.
+- Từ ngày 29-4 đến 3-5, tất cả laptop chính hãng tại FPT Shop đồng loạt giảm 10%. Ngoài ra, bạn còn được thêm nhiều ưu đãi hấp dẫn khác: trả góp 0% lãi suất, giảm giá 300.000 đồng khi mua máy in, giảm 10% khi mua màn hình LCD Samsung…
+- Khám phá hang động Tú Làn là một tour du lịch mạo hiểm cấp độ 2/6 trong các chương trình khám phá hệ thống hang động Sơn Đoòng khổng lồ ở Quảng Bình, Việt Nam.
+- Dịch vụ Mobile Money sẽ giúp những người dân ở vùng nông thôn, vùng sâu vùng xa dễ dàng sử dụng, qua đó gia nhập công cuộc chuyển đổi số đang diễn ra mạnh mẽ trên cả xã hội.
+- TTO - Dịch bệnh đã làm thay đổi nhiều thói quen của người dân, từ mua sắm đến sử dụng dịch vụ, vui chơi giải trí... Và nhiều doanh nghiệp công nghệ Việt đã nhanh chóng “bắt trend”, đầu tư lớn vào các sản phẩm, ứng dụng, công nghệ phục vụ khách hàng.
+- TTO - Các bạn học sinh hãy cam kết thực hiện đúng khi khai thác thiết bị công nghệ cho việc học, giải trí, nếu không sẽ rơi vô hố sâu của nghiện công nghệ, bị công nghệ dẫn dắt và hệ lụy rất lớn.
+- TTO - Chiều ngày 3-4, Công ty CP Vựa Miền Trung đã ra mắt và giới thiệu ứng dụng siêu thị trực tuyến FuMart đến cộng đồng người tiêu dùng. Đây là ứng dụng siêu thị trực tuyến đang phát triển mạnh trong cộng đồng tại TP Đà Nẵng.
+- Theo báo cáo của đơn vị nghiên cứu thị trường công nghệ và bán lẻ uy tín, OPPO Reno5 là smartphone dẫn đầu thị trường, xét trên mọi phân khúc giá trong 3 tháng đầu năm 2021.
+- Singapore đang thực hiện những bước cần thiết để khôi phục nền du lịch, mới đây nhất là việc phát triển tiêu chuẩn mới đối với việc xác minh kết quả xét nghiệm COVID-19.
+- Chỉ 2.000 máy bán ra tại Việt Nam, Reno5 Marvel Edition nổi bật, mạnh mẽ với vẻ ngoài đậm chất "Avengers" kết hợp cùng sức mạnh công nghệ vốn có trên Reno5
+- Năm 2020 vừa qua là một năm vô vàn thách thức với nhiều ngành nghề, nhưng riêng đối với nhóm ngành điện lạnh, đây lại là một năm có nhiều bứt phá.
+- TTCT - Nhiều nghệ sĩ kỹ thuật số, nhờ sự bùng nổ của NFT, đã trở thành triệu phú (tiền mã hóa) chỉ sau một đêm và dấu chân carbon (lượng khí nhà kính phát sinh bởi từng hành động của chúng ta) cũng ngày càng phình to.
+- Umlaut đã công bố kết quả đo kiểm các mạng di động tại Việt Nam với việc Viettel nhận chứng nhận 'Best in Test', với số điểm chất lượng tương đương với Singtel, Starhub (Singapore), Telstra (Australia), T-Mobile, Vodafone, Telefonica (Đức)
+- Với hiệu suất 5G mạnh mẽ cùng khả năng sạc nhanh siêu tốc, Reno5 5G sẽ sẵn sàng mở ra nhiều trải nghiệm kết nối 5G trong tương lai.
+- Sau chưa đầy 2 tháng chính thức triển khai dịch vụ thu phí tự động đường bộ, ePass đã triển khai cung cấp dịch vụ tại hơn 2.000 điểm dịch vụ, với hơn 100.000 khách hàng. Điều gì khiến ePass thu hút được khách hàng nhanh như vậy?
+- Theo hình ảnh vừa được chia sẻ trên fanpage OPPO, thị trường Việt Nam sẽ chào đón sự xuất hiện của Reno5 5G - smartphone tầm trung hỗ trợ mạng băng rộng mới nhất - vào ngày 27-2 tới.
+- Trong không khí Tết, Đà Lạt trở nên thơ mộng, long lanh hơn nhờ tiết trời mùa xuân trong vắt, cũng như những cây mai anh đào đã bung nở.
+- Nếu đi Đà Lạt, bạn nên tranh thủ ghé thăm K'Long K’Lanh, để đắm chìm trong sương khói cao nguyên mờ ảo, và đặc biệt hoa đào nở rộ của mùa xuân.
+- 2020 là một năm có quá nhiều khó khăn và cảm xúc thăng trầm bởi đại dịch. Xen lẫn với bao nỗi buồn dịch bệnh, niềm hi vọng của một chút không khí lạc quan ngày Tết Nguyên đán vẫn hiện diện ở làng hoa Sa Đéc.
+- TTO - Trong khi nhiều sản phẩm điện tử, điện máy phổ dụng như tivi, tủ lạnh, máy giặt... không sôi động lắm trong dịp cuối năm nay, smartphone iPhone 12 vẫn tiếp tục ‘hot’.
+- Theo số liệu của đơn vị Nghiên cứu thị trường công nghệ và bán lẻ uy tín tại Việt Nam, OPPO Reno5 là smartphone bán chạy nhất thị trường Việt Nam trong tháng 1-2021.
+- TTO - Apple đã chính thức phát hành bản cập nhật iOS 14.4 cho iPhone và iPadOS 14.4 cho iPad ngày 27-1. Đây là bản cập nhất lớn đầu tiên được Táo khuyết tung ra trong năm 2021 với nhiều tính năng mới hấp dẫn.
+- Những tháng cuối cùng của năm 2020 đã chứng kiến việc phát động công cuộc chuyển đổi số do Chính phủ Việt Nam khởi xướng, với mục tiêu đưa toàn bộ nền kinh tế bước vào thời đại công nghệ thông tin 4.0.
+- TTO - Năm 2020, thiệt hại do virus máy tính gây ra đối với người dùng Việt Nam đã đạt kỷ lục mới, vượt mốc 1 tỉ USD (23,9 nghìn tỉ đồng).
+- Chọn một sản phẩm đồng hành, đôi khi thứ nhận được không chỉ là hiệu quả sử dụng lâu, mà còn là những lợi ích không ngờ đến.
+- Với người dùng cần đến một chiếc máy tính bàn gọn nhẹ, có khả năng vận hành những tác vụ từ đơn giản đến phức tạp mà vẫn không chiếm dụng diện tích không gian sử dụng, HP EliteDesk 800 G6 Desktop Mini sẽ là một lựa chọn lý tưởng.
+- Trải nghiệm thú vị và an toàn khi sử dụng AppGallery cài đặt các ứng dụng global và local cho các sản phẩm của Huawei như tablet và điện thoại.
+- Ứng dụng AI Life trong kho ứng dụng AppGallery của Huawei giúp người dùng kết nối và điều khiển tai nghe Freebuds Pro dễ dàng.
+- Học sinh 100 trường học vùng sâu, vùng xa đã có thể vừa giải trí, xem phim vừa học tập, mở mang tri thức, trí tưởng tượng với thiết bị FPT Play Box và Smart TV 4K​ TCL.
+- Mới đây, Realme chính thức giới thiệu Realmeow, linh vật được tạo ra với mong muốn kiến tạo những xu hướng mới, phù hợp với cá tính và sự phát triển nhanh nhạy của thế hệ người dùng trẻ.
+- Tất cả smartphone và máy tính bảng của Huawei đã có thể tìm kiếm, tải về và sử dụng các ứng dụng di động phổ biến nhờ kho ứng dụng AppGallery do họ phát triển thay thế CH Play của Google.
+- Những ứng dụng phổ biến nhất với người dùng di động Việt Nam đều đã ‘tề tựu’ đầy đủ trên kho ứng dụng trực tuyến chính thức Huawei AppGallery.
+- Mở cửa nhanh tích tắc chỉ một chạm, khóa an toàn bảo mật ngay từ xa… đó là những công nghệ tiên tiến bạn phải thử một lần và cảm nhận.
+- Vừa qua tại TP.HCM, Bộ Thông tin và truyền thông phối hợp Bộ Công thương và UBND TP.HCM tổ chức hội thảo và triển lãm doanh nghiệp, sản phẩm công nghệ số 'Make in Viet Nam 2020 - Vibrand 2020'.
+- Theo báo cáo của KPMG - một trong bốn công ty kiểm toán lớn nhất thế giới, Viettel là doanh nghiệp viễn thông duy nhất nằm trong 10 thương hiệu có trải nghiệm khách hàng tốt nhất.
+- Ông Vũ Thế Bình, tổng thư ký Hiệp hội Internet, cho rằng hiện nay các nhà mạng lớn sẽ phải có nhiều tuyến cáp quang biển dung lượng đủ lớn để có thể phân tải khi gặp sự cố và đáp ứng nhu cầu dịch vụ của khách hàng.
+- Ngày 8-11, Viettel đã được ban tổ chức cuộc vận động Xây dựng văn hóa doanh nghiệp Việt Nam vinh danh là doanh nghiệp có thành tích xuất sắc trong xây dựng và thực hành văn hóa doanh nghiệp.
+- Ruộng bậc thang lâu năm và nổi tiếng ở Hoàng Su Phì - phía tây Hà Giang - làm một điểm đến cho những ai thích khám phá núi non hùng vĩ.
+- Với Intel® Core™ X-series processor cùng việc bổ trợ lên đến hai card đồ họa thêm nhiều tùy chọn về RAM, bộ lưu trữ… mang đến cho bạn một cỗ máy siêu mạnh sẵn sàng cho mọi tác vụ.
+- Ngày 22-10-2020, Mạng xã hội nghề nghiệp Anphabe công bố Viettel là nơi làm việc tốt nhất Việt Nam năm 2020 trong lĩnh vực Công nghệ thông tin - Hạ tầng - Viễn thông. Đây là lần thứ 4 liên tiếp, Viettel được vinh danh ở hạng mục này.
+- Hiệp hội Thương mại điện tử Việt Nam phối hợp cùng IM Group  vừa tổ chức chương trình "Vietnam Online Marketing Forum 2020 - Growth Hacking After COVID-19" để giúp các doanh nghiệp nắm bắt chiến lược và cách thức tăng trưởng đột phá sau đại dịch.
+- Ngày 20-10, Tập đoàn Công nghiệp - Viễn thông quân đội (Viettel), cán bộ nhân viên Viettel đã chung tay quyên góp tiền lương để hỗ trợ đồng bào miền Trung. Số tiền quyên góp trong ngày hôm nay lên đến 10 tỉ đồng.
+- Hằng ngày làm việc trên máy tính, tưởng chừng đây sẽ luôn là một thiết bị đồng hành của anh em công sở, nhưng ai biết được chuyện đơn giản ấy lại có thể gây ra biết bao tình huống dở khóc, dở cười.
+- Bộ Y tế vừa chính thức khai trương 1.000 cơ sở y tế khám, chữa bệnh từ xa (Telehealth), kết nối với 27 bệnh viện tuyến trên đến các bệnh viện tuyến dưới bao gồm cả vùng núi và hải đảo.
+- Realme 7 series - bộ đôi sản phẩm ra mắt vào tuần trước vừa được mở bán vào ngày 26-9, với 3.600 đơn hàng đặt trước, trong đó có 3.000 khách hàng đã đặt cọc.
+- Những thước ảnh thanh bình được ghi lại nơi xóm chài xa xôi Ngã Ba Gành Mũi Né.
+- Ngày 25-9, Viettel sẽ trao tặng Bộ Y tế 178 trung tâm hội chẩn từ xa phục vụ khám chữa bệnh trị giá 19 tỉ đồng. Toàn bộ số tiền do cán bộ, nhân viên Viettel đóng góp nằm trong chuỗi các hỗ trợ của Viettel chung tay đẩy lùi dịch Covid-19.
+- vBRG (Viettel Border Roaming Gateway) - sản phẩm của Tập đoàn Viettel cho phép công ty viễn thông đa quốc gia quản lý hoạt động thuê bao dễ dàng, đảm bảo chủ quyền về di động ở các vùng biên giới không có cửa khẩu.
+- Chọn mua smartphone 4 camera OPPO Reno4 tại FPT Shop trong tháng 9 này, bạn được trả góp 0% lãi suất, nhận thêm sạc dự phòng 10.000mAh trị giá 599.000 đồng và đặc biệt là tiết kiệm đến 5.900.000 đồng khi tham gia chương trình 'Thu cũ đổi mới'.
+- Câu chuyện về nghề đóng tàu và sửa chữa đại tu tại Kiên Giang được ghi lại tinh tế bằng ống kính OPPO Reno4
+- TTO - Ngày 17-9, Lễ bàn giao mô hình đài truyền thanh ứng dụng công nghệ thông tin - viễn thông do Quỹ Thiện Tâm (Tập đoàn Vingroup) đã diễn ra tại xã Lạc Thủy, tỉnh Hòa Bình. Đây là mô hình áp dụng công nghệ AI, vận hành bằng điện thoại thông minh.
+- Tháng 9 này, FPT Shop mạnh tay giảm đến 7 triệu cho iPhone chính hãng, giảm 1 triệu cho iPad Mini 5, Macbook Air 13” cũng đang có giá 19,99 triệu… Đây đều là những sản phẩm thích hợp để học sinh, sinh viên sắm sửa chuẩn bị năm học mới.
+- Tại Giải thưởng Kinh doanh Quốc tế, IBA Stevie Awards 2020, Viettel có 100% hồ sơ tham dự đạt giải, tăng so với 83% của năm 2019.
+- Ứng dụng công nghệ trí tuệ nhân tạo (AI) nhận diện khuôn mặt hay còn gọi là AI sinh trắc học đã được VNPT tiên phong thử nghiệm và áp dụng trên toàn mạng di động VinaPhone.
+- Sau thành công của Matebook D15, nhận được những phản hồi rất tích cực, Huawei tiếp tục ra mắt Matebook 13 tại thị trường Việt Nam với nhiều cải tiến khác biệt, thiết lập xu hướng màn hình tràn, hiệu năng mạnh mẽ và kết nối thông minh.
+- Sau thành công vượt kỳ vọng của Reno4, OPPO tiếp tục ra mắt thêm phiên bản tím khói sẽ mang đến sắc thái sang trọng hoàn toàn mới, bổ sung vào bộ sưu tập thời trang đầy phong cách.
+- 100% các sản phẩm/dịch vụ dự thi của Viettel đều đạt giải thưởng Công nghệ thông tin thế giới 2020 trong đó lần đầu tiên giành giải thưởng Doanh nghiệp có nhiều sản phẩm đạt giải thưởng nhất tại IT World Awards.
+- Cục Viễn thông - Bộ Thông tin và Truyền thông vừa chính thức công bố kết quả đo kiểm chất lượng mạng 4G tại Hà Nội, Hải Phòng, Hải Dương và Hưng Yên.
+- Ngày 27-8, Vinsmart ra mắt smartphone đầu tiên do công ty này tự chủ 100% từ thiết kế phần cứng, hệ điều hành và sản xuất.
+- Theo số liệu từ Ban tổ chức Viet Solutions (Cuộc thi tìm kiếm giải pháp chuyển đổi số quốc gia), sau hơn 1 tháng khởi động, đã có hơn 200 hồ sơ sản phẩm từ 11 quốc gia. Trong số này, 28% hồ sơ sản phẩm đến từ Việt Nam, số còn lại từ 10 quốc gia khác.
+- Ngày 24-8, FPT Shop chính thức lên kệ Zenbook 14 (UM425) - mẫu laptop 14inch sử dụng mỏng nhẹ nhất thế giới trang bị bộ vi xử lý mới nhất AMD Ryzen 4000 series. Chọn mua sản phẩm, bạn nhận bộ quà trị giá 2 triệu và được giao hàng tận nhà miễn phí.
+- Viettel là doanh nghiệp Việt Nam duy nhất được công nhận là Nơi làm việc tốt nhất toàn cầu trong lĩnh vực viễn thông tại giải thưởng Stevie Award for Great Employers 2020, cùng với các doanh nghiệp quốc tế khác như Cisco, IBM, Bank of America, KPMG.
+- Sau những hoạt động đồng hành và hỗ trợ trong suốt kỳ thi tốt nghiệp THPT 2020, FPT Shop tiếp tục thực hiện chương trình giảm giá 'mạnh tay' đến 30% cho tất cả laptop, giúp các bạn tân sinh viên dễ dàng sở hữu chiếc laptop yêu thích của mình.
+- Đẩy mạnh các dịch vụ phục vụ khách hàng trong xu thế chuyển đổi số, lấy nhu cầu của khách hàng làm trung tâm, doanh thu 6 tháng đầu năm 2020 của Tập đoàn Viettel đạt 120 nghìn tỉ đồng, tăng 9,1 % so với cùng kỳ
+- Sáng 18-8, FPT Telecom và TCL Vietnam vừa ký kết hợp tác triển khai chương trình 'Rạp phim trường em' (mùa thứ hai).
+- TTO - Công ty phần mềm Oracle Corp đang làm việc với một số nhà đầu tư của ByteDance, công ty mẹ của ứng dụng TikTok, để tham gia vào cuộc đấu thầu mua lại các hoạt động của TikTok tại Bắc Mỹ, Úc và New Zealand, theo nguồn tin của Reuters ngày 18-8.
+- Tháng 8 này, FPT Shop mạnh tay giảm đến 7.000.000 đồng cho hàng loạt iPhone chính hãng mới nhất hiện nay.
+- Cụm camera của OPPO Reno4 & Reno4 Pro đã mang lại nhiều cung bậc cảm xúc cho người xem với bộ ảnh đời thường sinh hoạt tự nhiên, nhưng rất khác biệt
+- Sau 6 năm, Viettel cùng Cục quản lý Dược đã số hóa hơn 40.000 loại thuốc, trên 8.000 hoạt chất chuẩn, trên 4.000 nguyên liệu làm thuốc và trên 60.000 thông tin giá thuốc kê khai lưu hành... về đích sớm hơn 2 năm so với kế hoạch.
+- Tổng trạm Hòa Lạc của Tổng Công ty Mạng lưới Viettel (Viettel Networks) chính thức được cấp chứng chỉ danh giá Uptime Tier III về thiết kế trung tâm dữ liệu của tổ chức uy tín hàng đầu thế giới Uptime Institute (Mỹ).
+- 6 tháng đầu năm nay, tăng trưởng doanh thu từ thị trường nước ngoài đã đóng góp đáng kể vào kết quả sản xuất kinh doanh của Viettel, dòng tiền về Việt Nam vượt mức kế hoạch, đạt gần 140 triệu USD.
+- Bộ ba Galaxy Note20 sẽ chính thức bán ra vào ngày 21-8 tới đây, tuy nhiên, sản phẩm hiện đã có tại FPT Shop để người dùng trải nghiệm trước. 'Phượt thủ' Trần Đặng Đăng Khoa là một trong những người đầu tiên đến cửa hàng trải nghiệm siêu phẩm.
+- Ngày 30-6 vừa qua, công ty TNHH Garmin (NASDAQ: GRMN) đã công bố mua lại Firstbeat Analytics Oy.
+- Viettel vừa được công nhận là công ty có ảnh hưởng nhất tại Châu Á tại giải thưởng Doanh nghiệp Xuất sắc và Bền vững Châu Á (Asia’s Most Prestigious Leadership & Sustainability Award - ACES).
+- Sau khi OPPO chính thức ra mắt Reno4 Series và OPPO Watch tại thị trường Việt Nam, tổng số lượng đặt hàng dành cho Reno4 Series đạt số kỷ lục: 23.000 đơn đặt cọc.
+- TTO - Nhiều người dùng mạng xã hội Facebook tại Việt Nam lại tiếp tục "bị lừa" đăng, chia sẻ thông tin tuyên bố không cho Facebook chia sẻ quyền riêng tư thông tin, hình ảnh cá nhân của mình.
+- Ngày 6-8-2020 Viettel đã hoàn thành toàn bộ hệ thống hạ tầng kỹ thuật nhằm đảm bảo chất lượng mạng lưới và dịch vụ tại bệnh viện dã chiến đặt trong Cung Thể thao Tiên Sơn, TP. Đà Nẵng.
+- Dịch COVID-19 bất ngờ bùng phát trở lại và với kinh nghiệm từ đợt đầu, người dân đã tự giác đeo khẩu trang mỗi khi ra đường.
+- Loa Bluetooth OPPO nằm trong bộ quà tặng công nghệ dành cho khách hàng đặt trước điện thoại Reno4 từ nay đến hết ngày 7-8-2020.
+- Ngày 3-8-2020, Viettel đã hoàn thành nâng cấp năng lực hệ thống kê khai y tế điện tử (Vietnam Health Declaration) lên 30% nhằm phục vụ người dân và hỗ trợ Chính phủ, Ban Chỉ đạo quốc gia phòng chống dịch bệnh Covid-19 tốt hơn.
+- Là đại diện cho Việt Nam trở thành nhân tố quan trọng góp phần thay đổi hạ tầng viễn thông của 5/10 quốc gia khu vực Asean, thời gian qua Viettel đã góp phần thay đổi cơ hội công bằng số trên toàn khu vực.
+- Mới đây, fanpage của OPPO Việt Nam đã tiết lộ về chương trình đặt hàng dành cho bộ đôi smartphone Reno4 và Reno4 Pro.
+- TTO - Yêu cầu người dùng trả tiền để đọc báo online, doanh thu từ độc giả trở thành một nguồn thu của các tờ báo, làm thế nào để người đọc trả tiền cho tin tức...
+- TTO - Khảo sát bảo mật cho thấy Việt Nam liên tục hứng chịu nhiều đợt tấn công mạng với mức độ ngày càng tàn khốc, trong đó rất nhiều mục tiêu nhắm đến các doanh nghiệp nhỏ và vừa.
+- Ngày 6-7-2020, IM Group và LadiPage đã tổ chức ký kết hợp tác chiến lược, theo đó IM Group sẽ trở thành đại diện chính thức của LadiPage tại miền Nam.
+- Chia sẻ trong lễ khởi động Viet Solutions 2020, ông Lê Đăng Dũng đưa ra dẫn chứng: Steve Jobs cần có một trợ thủ như Lawrence Levy với vai trò Giám đốc tài chính; Elon Musk kết hợp với kinh nghiệm điều hành của Sean Parker thì mới có thể thành công.
+- Dù đã biết hoặc 'nghe nói' về các tính năng của khóa thông minh, nhưng đến khi trải nghiệm sự tiện nghi và tận hưởng những cảm xúc thoải mái, an tâm mà khoá thông minh mang lại, đó chính là lúc bạn thật sự bị chinh phục.
+- Triển lãm quốc tế Vietbuild lần 2 - 2020 tại TP.HCM đã diễn ra sôi nổi và kết thúc vào ngày 28-6-2020, là hoạt động được nhiều mong đợi và khởi động lại với chủ đề về xây dựng - vật liệu - bất động sản - trang trí nội ngoại thất.
+- Giám đốc Công nghệ FPT Lê Hồng Việt cho biết muốn đem trí tuệ nhân tạo (AI) đến từng ngóc ngách của cuộc sống thông qua đào tạo, nghiên cứu và phát triển sản phẩm, góp phần tăng cường năng lực AI Việt Nam.
+- Sản phẩm FPT Play Box+ 2020 cùng với 3 nâng cấp tối ưu về phần cứng, hệ điều hành và các ứng dụng tiện ích kèm theo, hứa hẹn sẽ trở thành một trợ lý thông minh của gia đình Việt.
+- TTO - Nhà sản xuất game thứ 4 thế giới Ubisoft, nổi tiếng toàn cầu với các tựa game Far Cry, Mario + Rabbids, Watch Dogs, The Division, vừa mở studio thiết kế game tại TP Đà Nẵng.
+- Hãng smartphone tiếp nhận nhiều tin vui trong giai đoạn khó khăn chung toàn cầu 5 tháng đầu năm 2020.
+- Hiệu năng mạnh mẽ, dung lượng pin khủng và kho ứng dụng AppGallery chính là những tính năng nổi bật của bộ đôi sản phẩm vừa được Huawei cho ra mắt, mang tên Huawei Y6p và Huawei Matepad T8.
+- Với dòng Mate series, P series thuộc phân khúc cao cấp, Nova series thuộc phân khúc trung cấp, Huawei trở thành nhà sản xuất di động lớn trên thế giới.
+- Bạn là người thích làm việc linh hoạt, không bị gò bó vào một không gian nhất định. Tuy nhiên, làm cách nào bạn có thể chuyển dữ liệu một cách nhanh chóng sang các thiết bị khác khi trong tay bạn chỉ có chiếc smartphone?
+- Hoạt động kinh doanh của Viettel Global được cải thiện liên tục nhờ tập trung vào hoạt động cốt lõi là viễn thông và đẩy mạnh chuyển đổi số. Tỷ suất lợi nhuận gộp năm 2019 đạt 35,7%, tăng đáng kể so với 31,4% của năm 2018 và 23,6% của năm 2017.
+- Khách hàng đặt trước Reno3 Pro và lấy hàng sớm trong 2 ngày 16-17/5 được tặng 2 triệu đồng (trừ vào giá bán) cùng bộ quà tặng gồm: ốp lưng thời trang thiết kế bởi Prof. Jimmy Choo OBE; tai nghe True Wireless OPPO Enco W31 và chương trình trả góp 0%.
+- Trong khi loa bluetooth là phụ kiện tuyệt vời cho những chuyến dã ngoại thì ốp lưng thiết kế bởi Prof. Jimmy Choo OBE sẽ khiến Reno3 trở nên nổi bật hơn.
+- Hãng điện tử TCL vừa giới thiệu đến người tiêu dùng Việt Nam loạt sản phẩm công nghệ mới vào buổi phát trực tuyến tối 7-5 vừa qua trên nền tảng Facebook và Youtube.
+- Với mục tiêu đem đến trải nghiệm cao cấp cho người dùng, Huawei đã ra mắt kho ứng dụng AppGallery. Vậy kho ứng dụng này có gì đặc biệt?
+- Cùng với dòng smartphone P40 Pro, Huawei cũng giới thiệu đến người dùng về chợ ứng dụng AppGallery trong sự kiện ra mắt sản phẩm.
+- Ngày càng nhiều doanh nghiệp đầu tư vào các loại thiết bị hỗ trợ in ấn không dây vì những lợi ích dài hạn mà nó mang lại.
+- Ngày nay, doanh nghiệp đang dần phải làm quen với các bản vẽ, catalogue sản phẩm, văn bản khổ lớn, in ấn, photocopy số lượng lớn…
+- Không chỉ được trang bị hệ thống camera Leica Siêu tầm nhìn, Huawei P40 Pro còn được hỗ trợ 5G và được cài sẵn kho ứng dụng AppGallery.
+- Ngày nay, ngoài doanh thu, lợi nhuận, tốc độ phát triển thì một yếu tố cực kỳ quan trọng để đánh giá tính chuyên nghiệp của doanh nghiệp chính là cách khai thác không gian và sử dụng văn phòng của mình.
+- Những buổi học trên nền tảng E-learning của hàng triệu học sinh khắp cả nước hiện nay không chỉ để "đối phó" với việc nghỉ học vì đại dịch COVID-19. Hơn thế, khó khăn đang tạo ra cơ hội để thay đổi tư duy dạy - học.
+- Từ 1 đến 3 tuổi là khoảng thời gian bé đang khám phá và học hỏi tất cả mọi thứ. Bé có thể tập trèo lên bàn, nhảy lên ghế hoặc thậm chí nghịch ngợm với cánh cửa.
+- ThinkBook hội tụ đầy đủ như hiệu suất mạnh mẽ, bảo mật nâng cao, kết nối tốc độ trong một thiết kế sang trọng, lịch lãm, hiện đại và linh hoạt, bộ đôi laptop ThinkBook 14 và 15 là những lựa chọn tối ưu hướng tới người dùng trẻ Gen Z và Gen Y.
+- A91 có phải đang ngầm khẳng định vị thế vững vàng của OPPO trong phân khúc tầm trung dù hãng đang dồn nhiều nổ lực cho phân khúc cao cấp.
+- Là đại diện dòng A-Series đầu tiên được trang bị công nghệ sạc nhanh VOOC 3.0, OPPO A91 sẽ "đảo chiều cuộc chơi" khi vượt lên trên các sản phẩm khác cùng phân khúc về tốc độ nạp lại năng lượng.
+- Smartphone mới nhất của A Series có thiết kế gọn nhẹ, màn hình vô cực giọt nước, cụm 3 camera toàn năng và ROM khủng 128GB, hỗ trợ thẻ nhớ lên đến 256GB, giá chỉ 4,49 triệu đồng.
+- Sau quãng đường hơn 4 năm kể từ chiếc A30 vào 2/2016, OPPO A Series sắp “tái ngộ” người dùng với A91 chuẩn bị ra mắt chính thức trong tháng 3/2020.
+- Cách đây ít ngày, cơ quan Bluetooth SIG đã phê duyệt hai smartphone chưa ra mắt của Oppo với tên mã CPH2023 và CPH2025, được cho là Find X2 và Find X2 Pro.
+- OPPO A91 vừa được hé lộ sẽ lên kệ đầu tháng 3 này và độc quyền tại hệ thống Thế Giới Di Động. Là một trong những dòng smartphone chủ lực và hướng đến giới trẻ của OPPO, A91 hứa hẹn mang đến trải nghiệm bất ngờ độc đáo.
+- TTO - Năm 2020 sẽ chứng kiến ​​sự gia tăng của các nhóm mã độc di động và tội phạm mạng tấn công thiết bị di động, cũng như các nhóm tin tặc sử dụng những phương pháp và công cụ tấn công mới.
+- Nhắc tới flagship mới ra mắt của Huawei, nhiều người từng xuýt xoa tiếc nuối nếu bỏ tiền ra sở hữu mẫu smartphone xịn sò này nhưng lại không có Google Play để cài đặt ứng dụng như bao điện thoại Android khác.
+- TTO - Mạng di động 5G dự kiến được triển khai thương mại trong năm 2020, kỳ vọng sẽ giúp những xu hướng thành phố thông minh (smart city), ngôi nhà thông minh (smart home) bùng nổ, góp phần đưa kinh tế số Việt Nam vươn lên.
+- TTO - Với các chuyên gia, công nghệ 5G cần sớm được phát triển ở các khu công nghệ cao, các nhà máy sản xuất thông minh...
+- TTO - Các thông số kỹ thuật của Samsung Galaxy S20 bị rò rỉ cho thấy nó thực sự là một siêu phẩm. Sẽ có tới 3 mẫu S20 được bán ra sau lễ ra mắt ngày 11-2 tới.
+- TTO - Trong năm 2020, các thiết bị IoT như router, wifi, camera giám sát, thiết bị đầu cuối… sẽ là điểm nóng về an ninh mạng, tấn công lừa đảo chiếm đoạt tài khoản ngân hàng sẽ tiếp tục gia tăng khó lường.
+- TTO - 10 đội lọt vào vòng chung kết cuộc thi An toàn không gian mạng toàn cầu WhiteHat Grand Prix đã xác định. Không chỉ dẫn đầu bảng điểm, Mỹ còn là quốc gia có tới 3 đội lọt vào vòng chung kết.
+- Sự kiện 'Tết này về nhà cùng OPPO Reno2 F, 1 cho bạn - 1 cho gia đình' vừa diễn ra rạng sáng ngày 4-1-2020 tại thủ đô Hà Nội.
+- Với 'OPPO Reno2 F - 1 cho bạn, 1 cho gia đình' duy nhất trong ngày 28-12-2019, khách hàng sẽ nhận ngay 1 chiếc Reno2 F khi mua Reno2 F trong 100 suất đầu tiên.
+- Tặng quà những người mà mình thương yêu đã trở thành một truyền thống đẹp mỗi dịp Tết đến, xuân về. Theo sự phát triển của thời đại, các món quà ngày nay cũng thay đổi.
+- Không khí năm mới thôi thúc một tinh thần đổi mới trong mỗi chúng ta, thúc đẩy mọi người đặt ra mục tiêu để hoàn thiện bản thân.
+- Không ngừng đầu tư, mở rộng mạng lưới, tăng cường trạm phát sóng, phủ sóng 4G 95% toàn quốc cùng với rất nhiều ưu đãi bất ngờ, giá trị là những nỗ lực MobiFone dành cho khách hàng
+- K+ Data của MobiFone là dịch vụ cung cấp gói cước miễn phí không giới hạn dung lượng tốc độ cao để truy cập ứng dụng xem truyền hình MyK+ đáp ứng nhu cầu giải trí của khách hàng.
+- TTO - Năm 2019 được đánh giá là một năm không nhiều điểm nhấn của làng công nghệ, thậm chí là thất vọng như chiếc điện thoại gập Galaxy Fold, hay tiền điện tử Libra của Facebook.
+- Hãng OPPO vừa chính thức ra mắt trung tâm chiến lược châu Á - Thái Bình Dương (OPPO APAC), tập trung phát triển thị trường ở châu Á, trong đó có Việt Nam.
+- Trong chiến lược của OPPO tương lai, Việt Nam là một trong những thị trường trọng tâm góp phần không nhỏ vào tham vọng toàn cầu của hãng điện thoại đang rất nổi tiếng tại Châu Á này.
+- Các nền tảng nội dung số, mạng xã hội… là những lĩnh vực có tốc độ ứng dụng công nghệ cực kỳ nhanh chóng. Để tên tuổi VCCorp bay cao và bay xa như hôm nay, không thể thiếu bóng dáng của công nghệ điện toán đám mây.
+- Chỉ vài năm trước đây, website là kênh mua sắm trực tuyến giữ vị trí 'ngôi vương' trong thị trường thương mại điện tử, sánh ngang với các kênh truyền thống thì hiện nay, mobile app đang dần dần vươn lên thay thế, dần chiếm lấy vị trí dẫn đầu.
+- TTO - Khi mua Samsung Galaxy Note 10, Note 10+ kèm gói cước của MobiFone, khách hàng sẽ được hưởng nhiều ưu đãi như miễn phí các cuộc gọi nội mạng dưới 20 phút, miễn phí 300 phút thoại liên mạng và 60GB data.
+- TTO - Có dịp đi công tác hay du lịch nước ngoài, các thuê bao di động không còn phải e ngại khi dùng dịch vụ chuyển vùng quốc tế vì các nhà mạng, dẫn đầu là MobiFone, đã đưa ra các gói cước với chi phí hợp lý, quyền lợi hấp dẫn cho khách hàng.
+- FreeBuds 3 là tai nghe không dây hoàn toàn có thiết kế mở đầu tiên trên thế giới, không chỉ mang đến chất âm vượt trội, khử ồn hiệu quả mà còn cho cảm giác thoải mái.
+- TTO - Sau hơn 2 năm triển khai, MobiFone tiến đến phủ sóng mạng 4G đến 95% toàn quốc. Nhà mạng đang tung chương trình khuyến mại đổi máy 2G/3G sang 4G, tạo điều kiện để khách hàng thoải mái trải nghiệm công nghệ cao trên nền tảng 4G.
+- TTO - Vừa lái xe vừa thu hút người dùng bằng tính năng đột phá được chỉ dẫn, cảnh báo về lộ trình giao thông và nghe tin tức cập nhật từ nhiều tờ báo khác nhau khi đang lưu thông trên đường...
+- TTO - Từ nay những khách hàng cần thường xuyên liên lạc với đối tác, gia đình hay người thân ở nước ngoài, đã có thêm sự lựa chọn với gói cước Global Saving VoIP 1313, cho phép các thuê bao MobiFone gọi đi quốc tế đến nhiều quốc gia và vùng lãnh thổ.
+- Vừa khai trương thêm cửa hàng OPPO Shop mới nhất tại Trung tâm thương mại Sense City (Q.Thủ Đức, TP.HCM) với thiết kế mới 3.0, OPPO đang có kế hoạch mở rộng thêm hệ thống cửa hàng chính hãng để tăng cường trải nghiệm.
+- Dịch vụ chuyển văn bản thành giọng nói tiện lợi đã giúp mAICall của MobiFone phù hợp cho các lớp học, nhóm bạn để nhắc lịch hay các shop kinh doanh muốn gia tăng hiệu quả tương tác với khách hàng.
+- TTO - Cùng với các nhà mạng khác, MobiFone đã và đang thử nghiệm mạng 5G tại các thành phố lớn, đánh dấu bước tiến lớn của ngành công nghệ thông tin ở Việt Nam.
+- TTO - Ngày 4-12, một mẫu mã độc sử dụng kỹ thuật mới tấn công người dùng mạng Việt Nam qua phần mềm gõ chữ tiếng Việt Unikey vừa được phát hiện.
+- Đáp ứng xu hướng "cá nhân hóa" ngày càng phổ biến của khách hàng, MobiFone đã đưa ra những gói data ngày càng đa dạng để nhóm đối tượng khách hàng nào cũng có thể tìm được gói cước phù hợp đáp ứng các tiêu chí: chi phí rẻ mà tốc độ tốt nhất.
+- TTO - Hãng Apple của Mỹ tuyên bố đang nghiên cứu sâu hơn các chính sách về bản đồ sau quyết định gây tranh cãi khi đánh dấu bán đảo Crimea thuộc lãnh thổ Nga.
+- TTO - Lần đầu tiên ở Việt Nam, MobiFone trình làng dịch vụ tổng đài mAICallCenter (aicc.mobifone.ai) -  sử dụng công nghệ tổng hợp tiếng nói (Text to Speech  - TTS) tiếng Việt bằng trí tuệ nhân tạo.
+- Từ nay đến hết 31-12-2019, thanh toán bằng VNPAY khi mua điện thoại di động và đồng hồ định vị trẻ em Tio tại hệ thống cửa hàng MobiFone, khách hàng sẽ được chiết khấu trực tiếp 5%.
+- TTO - Giải pháp tiết kiệm hơn 1.200 tỉ đồng cho Nhà nước và mang đến cho người dân dịch vụ tốt nhất, Trục liên thông văn bản quốc gia VXP (VNPT Exchange Platform) của VNPT đã được ghi nhận ở tầm quốc tế với giải Vàng tại Stevie Awards 2019.
+- Một trong những trăn trở lớn nhất của các bạn sinh viên và học sinh khi lựa chọn mua laptop, đó chính là việc làm thế nào để có thể cân bằng được 3 yếu tố ngoại hình, hiệu năng và mức giá vừa túi tiền.
+- Bên cạnh Trắng Hoa Tuyết và Xanh Biển Hồ, màu Xanh Tinh Vân mới trên Oppo Reno2 F càng khiến mẫu máy có giá dưới 9 triệu đồng này trở nên nổi bật giữa thế giới smartphone đa màu sắc hiện nay.
+- TTO - Camera giám sát đem lại sự an toàn cho người sử dụng, đặc biệt trong các hộ gia đình, nhưng cũng tiềm ẩn những nguy cơ "phản chủ" với hậu quả khôn lường.
+- Tại Peru, vì sao Ti5 được gọi là 'gói cước trả trước của thời đại số'? Bởi Ti5 giúp cho những khách hàng bị 'bỏ quên' do mức tiêu dùng thấp có cơ hội sử dụng thoải mái các ứng dụng 4.0 với giá rẻ, tốc độ cao, và ở khắp mọi nơi.
+- Hôm nay 26-10, OPPO vừa chính thức bán ra Reno2 và Reno2 F, đáp ứng mọi kỳ vọng thời trang và công nghệ của người dùng trẻ.
+- Trọn vẹn trang bị từ trong ra ngoài, OPPO Reno2 F là mẫu smartphone tầm trung hứa hẹn gây sốt thời gian tới.
+- Cụ thể, từ 17-10 đến hết 25-10, ngoài ưu đãi trả góp 0% lãi suất và bảo hành 2 năm, khách hàng đặt trước Reno2 F sẽ nhận được tai nghe bluetooth cảm ứng TEKIN TWS i12.
+- Nhiều camera đi kèm hàng loạt các tính năng chụp ảnh bổ trợ hữu ích, OPPO Reno2 mang tới sự linh động và truyền cảm hứng sáng tạo khi chụp ảnh, điều mà bạn sẽ không gặp ở những mẫu điện thoại ít camera hơn.
+- Reno2 với các tính năng và cấu hình mới mẻ, kết hợp với cụm bốn cảm biến máy ảnh ấn tượng đem lại nhiều trải nghiệm thú vị cho người dùng. Sản phẩm cũng đã gây ấn tượng mạnh với các chuyên gia công nghệ.
+- Tổng đài “biết nói” mAI Callcenter có thể phục vụ hàng chục ngàn người cùng lúc nhờ ứng dụng AI, giúp tăng trải nghiệm người dùng, tiết kiệm chi phí vận hành.
+- Nhà mạng MobiFone vừa ra mắt nền tảng chuyển văn bản tiếng Việt thành giọng nói có cảm xúc MobiFone TTS Cloud. Giải pháp trí tuệ nhân tạo này sẽ mở ra hướng mới cho các nhà cung cấp dịch vụ, giải pháp nội dung số và tiện lợi với người dùng cuối.
+- Reno2 sắp ra mắt sẽ khẳng định chắc chắn con đường Đổi mới mà hãng đã chọn
+- TTO - Công nghệ tăng cường tính kết nối, truy cập thông tin và năng suất làm việc, nhưng cũng đưa con người vào "kỷ nguyên tăm tối" của sự mất tập trung.
+- TTO - Nếu ai từng kinh ngạc với mẫu điện thoại có thể gập màn hình thì sự ra đời của mẫu loại điện thoại có màn hình gần như bao trọn 100% thân máy hẳn cũng không quá “sốc” với họ.
+- Công nghệ mạng 5G được xem là nhân tố quan trọng nhất làm thay đổi thế giới trong ít nhất nửa thập niên tới. Đây là công nghệ được dự đoán sẽ bùng nổ trong năm 2020, nhiều hãng smartphone đã sẵn sàng mang 5G đến với người dùng.
+- Suốt nhiều ngày qua, newsfeed của cư dân mạng được một phen dậy sóng trước chiếc 'thiệp mời ma thuật' đến từ MXH Lotus.
+- Chưa đầy 12 giờ nữa, sự kiện ra mắt mạng xã hội Lotus sẽ chính thức diễn ra, ngay tại thời điểm này có thể thấy được sức hút đến từ mạng xã hội 'Made in Việt Nam' này.
+- TTO - Trước tình trạng để lộ, rò rỉ, mua bán thông tin cá nhân ngày càng phổ biến, UBND TP.HCM kiến nghị trung ương nghiên cứu ban hành một đạo luật riêng quy định về vấn đề bảo vệ dữ liệu cá nhân.
+- Ngày 16-9, mạng xã hội Lotus sẽ phát hành bản dùng thử mở rộng (Open Beta), dự kiến kéo dài từ 3-6 tháng. Open Beta là gì, vì sao cần 3-6 tháng mới có thể cho ra bản chính thức?
+- Tiến sĩ Wang Chenglu, Chủ tịch Phòng Kỹ thuật Phần mềm Tập đoàn Kinh doanh Tiêu dùng Huawei, cho rằng EMUI 10 sẽ là một cột mốc quan trọng trong lịch sử phần mềm trên thiết bị đầu cuối của hãng.
+- TTO - Bộ Công Thương chính thức thiết lập quan hệ chiến lược với Google, để mở rộng chương trình Bệ phóng Việt Nam Digital 4.0 nhằm cung cấp các khóa đào tạo kỹ năng số cho 500.000 người lao động của các doanh nghiệp vừa và nhỏ
+- Phía sau những bản hợp đồng, những văn bản ký kết, những báo cáo tăng trưởng liên tục ấy là cả một quá trình của sự nỗ lực không ngừng nghỉ.
+- Nhiều người Việt đi du lịch, đi chơi có cơ hội mua hàng nước ngoài (của Mỹ, của Nhật…) và mang về Việt Nam.
+- Thời đại 4.0 đã mang đến nhiều tiện ích không tưởng khi không chỉ giới hạn trong việc vui chơi giải trí, mà còn giúp con người làm việc hiệu quả hơn, đôi khi không cần phải ở công sở.
+- Chi hơn 10% doanh thu đầu tư vào R&amp;D hàng năm để tìm chiến lược riêng cho mình, Huawei đã vuơn lên vị trí 61 trong danh sách Fortune 500 - bảng xếp hạng 500 tập đoàn hàng đầu thế giới.
+- TTO - Bên cạnh việc hỗ trợ tập huấn nâng cao năng lực sử dụng mạng xã hội ứng phó thiên tai, Facebook còn công bố chương trình Dữ liệu vì cộng đồng, bao gồm bản đồ mật độ dân cư và bản đồ thiên tai tại VN.
+- TTO - Quốc hội Pháp vừa thông qua luật cải tổ về bản quyền, buộc các ông lớn công nghệ như Google, Facebook trả tiền cho các nội dung báo chí, điển hình là tin tức, của các hãng truyền thông.
+- Chỉ cần khoảng 11 triệu đồng để sở hữu một bộ máy tính bàn cấu hình vừa đủ, gồm cả PC và màn hình HP, với nhiều chính sách hậu mãi.
+- Trong những năm gần đây, viral video đang trở thành một xu hướng quảng cáo nổi bật của ngành marketing.
+- Màn hình tràn viền đích thực, camera bật độc đáo, bổ sung ống kính góc rộng 120 độ hay bộ nhớ trong gấp đôi là những nâng cấp lớn trên smartphone mới của Huawei.
+- Ngày 22-6, Huawei khai trương cửa hàng trải nghiệm (Huawei Experience Store - HES) đặt tại lầu 3, Vincom Mega Mall Thảo Điền, Q.2, TP.HCM.
+- TTO - Các chuyên gia đều nhận định môi trường mạng có nhiều lợi ích đối với người dùng, nhưng ngày càng có những rủi ro tiềm ẩn, đáng để tâm, đặc biệt là đối với trẻ em.
+- TTO - Lời hứa hoàn lại toàn bộ tiền mua smartphone và máy tính bảng thương hiệu Huawei tuy vậy chỉ dành cho các khách hàng ở Philippines, trong trường hợp thiết bị của họ không dùng được Gmail và Facebook.
+- OPPO Reno phiên bản chuẩn đã chính thức lên kệ từ hôm nay 15-6 tại hầu hết các hệ thống phân phối trên cả nước.
+- Từ đầu năm 2018, cơn sốt "tăng cường" số lượng camera sau bắt đầu nóng lên. Và tới đầu năm nay, cơn sốt này vẫn chưa suy giảm.
+- Sau OPPO Find X với camera ẩn nấp dạng trượt rồi đến OPPO F11 Pro với camera pop-up, ắt hẳn, nhiều người đang mong chờ sự đột phá mới của OPPO.
+- TTO - Ngày 10-6, Bộ Thông tin - truyền thông vừa phát cảnh báo tới các doanh nghiệp trong và ngoài nước về việc hiện đang có quảng cáo bị gắn trong các video nội dung xấu độc, phản động trên YouTube.
+- Trong đợt ra mắt lần này, OPPO mang đến 2 smartphone: Reno phiên bản chuẩn và Reno 10x Zoom.
+- Khách hàng có thể mua vé máy bay mọi lúc, mọi nơi với các ứng dụng ngân hàng vốn đã rất quen thuộc trên điện thoại di động.
+- OPPO kết hợp cùng Tinh tế Photos tổ chức cuộc thi và chuỗi workshop 'Ảnh kể chuyện' với chủ đề 'Vượt chuẩn tầm nhìn'.
+- TTO - Không phải đến khi 'Bà Tân Vlog' xuất hiện thì câu chuyện thành công của các kênh YouTube triệu view do những người dân bình thường thực hiện mới được biết đến.
+- Trong nhiều năm liền OPPO tập trung ở phân khúc trung cấp. Ngoài các dòng F hay R có giá tốt, OPPO chỉ đôi lần vén màn smartphone cao cấp.
+- TTO - Huawei cho biết sẽ tung ra hệ điều hành (OS) riêng cho các sản phẩm điện thoại thông minh và máy tính xách tay tại Trung Quốc vào mùa thu năm nay sau khi Mỹ đưa công ty viễn thông này vào danh sách đen.
+- TTO - Trong năm 2019, Quỹ tài trợ nghiên cứu ứng dụng VinTech sẽ tài trợ 15 đề tài nghiên cứu ứng dụng với số tiền có thể lên tới 10 tỉ đồng.
+- TTO - Trận chung kết cuộc đua xe tự hành quốc tế sẽ diễn ra lúc 19h ngày 25-5 tại Trung tâm Văn hóa - thông tin và thể thao quận Tây Hồ (Hà Nội) với giải giành cho thí sinh xuất sắc nhất là một học bổng đào tạo tiến sĩ ngành trí tuệ nhân tạo.
+- TTO - Từ cuộc chiến thuế quan đánh vào hàng xuất khẩu của nhau, hai nền kinh tế hàng đầu thế giới đã nhanh chóng chuyển sang cuộc chiến công nghệ với 'cú đấm chí mạng' đầu tiên đến từ Washington.
+- TTO - Huawei khẳng định sẽ tiếp tục hỗ trợ các thiết bị cầm tay được bán ra. Gã khổng lồ viễn thông Trung Quốc trước đó nhấn mạnh đã có "kế hoạch B" sau khi bị Google nói không với hệ điều hành Android.
+- Ngày 10-5, OPPO chính thức giới thiệu smartphone F11 Pro màu Xám Tinh Vân, nhằm mang đến cho khách hàng một lựa chọn mới với mức giá hợp lý.
+- Được tổ chức lần đầu vào năm 2017, giải thưởng NEXT-IMAGE được xem là cuộc thi lớn về nhiếp ảnh trên di động.
+- Tập đoàn Công nghiệp viễn Thông Quân đội (Viettel) lần đầu thử nghiệm mạng di động 5G tại Việt Nam. Trong thử nghiệm lần này, Viettel cùng đối tác Tập đoàn Ericsson sử dụng một chiếc smartphone của OPPO.
+- TTO - 10h sáng 10-5, tại Hà Nội, cuộc gọi đầu tiên trên mạng 5G tại Việt Nam đã được thực hiện bởi Tập đoàn Công nghiệp - Viễn thông quân đội Viettel.
+- TTO - Hà Nội đang xây dựng cơ sở dữ liệu, khuyến khích các doanh nghiệp đầu tư mạnh vào hạ tầng này nhằm tạo ra hệ sinh thái công nghệ, Chủ tịch UBND TP. Hà Nội Nguyễn Đức Chung cho biết.
+- TTO - Diễn đàn quốc gia phát triển doanh nghiệp công nghệ Việt Nam lần đầu tiên được tổ chức đã khai mạc sáng 9-5 tại Hà Nội, với sự tham dự của Thủ tướng Nguyễn Xuân Phúc cùng nhiều thành viên Chính phủ.
+- TTO - Diễn đàn quốc gia phát triển doanh nghiệp công nghệ Việt Nam lần đầu tiên được tổ chức vào ngày 9-5 tại Hà Nội. Bộ Thông tin và truyền thông cho biết Thủ tướng Nguyễn Xuân Phúc sẽ tham dự và phát biểu tại diễn đàn.
+- Thế Giới Di Động và FPT Shop thông báo, kể từ ngày 1-5, họ bắt đầu triển khai chương trình ‘siêu camera - siêu trợ giá’ để giúp khách hàng mua được P30/P30 Pro.
+- TTO - Việt Nam đang đứng trước nguy cơ lớn bị tấn công và phát tán tấn công từ chối dịch vụ (DDoS) với vị trí thứ 6 trên toàn cầu. Xuất hiện xu hướng tấn công DDoS mới "Bit-and-Piece".
+- Để chào đón mùa du lịch hè 2019, Vietnamobile đã chính thức đưa ra một loạt gói cước Roaming không giới hạn dung lượng. Các gói cước này sẽ giúp khách hàng thoải mái sử dụng thoại và data khi đi du lịch nước ngoài.
+- Tivi thông minh không chỉ kết nối nhiều thiết bị trong nhà mà còn kết nối các thành viên gia đình với nhau, bà Summer Gao - tổng giám đốc TCL Việt Nam, chia sẻ.
+- 'Tuồng nó không chỉ là cái nghiệp mà nó là máu thịt, là hơi thở, dứt nó tôi không sống nổi…'.
+- TTO - Theo các chuyên gia an ninh mạng, hình thức dùng các tài khoản ảo có hình đại diện sexy để comment dạo nhằm lừa đảo, cướp tài khoản Facebook tại Việt Nam vẫn tiếp tục gia tăng.
+- Ngày 20-4-2019, OPPO F11 - chiếc smartphone trung cấp mới nhất chính thức đến tay người dùng Việt Nam.
+- TTO - 94 sản phẩm, dịch vụ CNTT xuất sắc được trao danh hiệu Sao Khuê 2019. Trong đó, riêng 10 sản phẩm top đầu có tổng doanh thu năm 2018 đạt gần 2.600 tỉ đồng, tương đương 111 triệu USD.
+- TTO - Kể từ đầu năm 2019, có tổng cộng hơn 1.600 đợt tấn công mạng nhằm vào hệ thống của Vietnam Airlines, theo thống kê của hãng hàng không này.
+- TTO - Lần đầu tiên Việt Nam công bố kết quả đánh giá, xếp hạng an toàn thông tin (ATTT) mạng của 90 cơ quan nhà nước tại Việt Nam. Phần lớn các cơ quan nhà nước chỉ đạt mức trung bình về bảo đảm ATTT.
+- TTO - Công ty An ninh mạng Viettel quy tụ những chuyên gia hàng đầu của Việt Nam về an toàn, an ninh thông tin đã chính thức ra mắt ngày 12-4 tại Hà Nội.
+- Kết thúc chương trình đặt hàng, siêu phẩm OPPO F11 Pro nhận được số lượng đặt cọc khủng - gần 42.000 đơn và đã chính thức mở bán từ hôm nay (ngày 12-4). Đối với phiên bản F11, chương trình đặt trước tiếp tục kéo dài đến 19-04.
+- TTO - Chính phủ yêu cầu Bộ Thông tin và truyền thông giải quyết dứt điểm tình trạng các doanh nghiệp viễn thông cố tình gây khó khăn trong việc thuê bao di động chuyển mạng giữ nguyên số.
+- Bộ đôi OPPO F11 Pro và F11 đang tạo ra sức hút ấn tượng trong phân khúc smartphone tầm trung dù chưa chính thức mở bán.
+- TTO - Để xảy ra vi phạm bị nhắc nhở đến lần thứ ba về SIM rác, lãnh đạo doanh nghiệp viễn thông sẽ bị xử lý hành chính.
+- Là tòa nhà cao nhất Việt Nam, đồng thời được trang bị hệ thống đèn LED hiện đại bao quanh toàn bộ khối kiến trúc, Landmark 81 luôn rực rỡ mỗi khi thành phố lên đèn.
+- Kết thúc 2018, thị trường di động ở Việt Nam nói riêng và ở Đông Nam Á nói chung vẫn rất nhộn nhịp.
+- Huawei P30 Pro đã được giới công nghệ và nhiếp ảnh di động đánh giá cao về khả năng ghi lại hình ảnh từ hệ thống 4 camera Leica trên máy.
+- Dù 15h hôm nay ngày 29-03, OPPO F11 Pro mới chính thức ra mắt tại Việt Nam nhưng smartphone này đã được trưng bày để khách hàng có thể trải nghiệm tại các cửa hàng bán lẻ trên toàn quốc.
+- TV box phiên bản 2019 với tên gọi FPT Play Box+ đã ra mắt thị trường cùng nhiều nâng cấp.
+- TTO - Cách thanh toán "nhanh, gọn, lẹ" giải phóng người trẻ bận rộn khỏi nỗi lo quên thanh toán một hóa đơn kiểu "đến hẹn lại lên", nhưng nó có thể khiến bạn thiếu tư duy cân nhắc, đánh giá tài chính khôn ngoan, hợp lý.
+- TTO - Đó là nhận xét được rất nhiều chuyên gia và người dùng khẳng định sau khi trải nghiệm chiếc máy ảnh X-T30 vừa lên kệ của hãng Fujifilm.
+- TTO - Về cáo buộc điện thoại Nokia 7 Plus gửi thông tin người dùng về Trung Quốc, HMD Global - chủ sở hữu thương hiệu Nokia - cho rằng đó là do lỗi phần mềm và họ đã sửa lỗi.
+- TTO - Mã độc Shadow Hammer đã nhắm vào người dùng cài đặt ứng dụng Live Update của Asus bằng cách cài backdoor (cửa hậu) trên máy tính của họ. Ước tính cuộc tấn công có thể ảnh hưởng đến hơn 1 triệu người dùng trên toàn cầu.
+- TTO - Bộ trưởng Nguyễn Mạnh Hùng khẳng định tại Hội nghị ASEAN về phát triển mạng thông tin di động thứ năm (5G) do Bộ Thông  tin truyền thông tổ chức tại Hà Nội trong hai ngày 21 và 22-3.
+- TTO - Với sự kiện Google ra mắt nền tảng chơi game trực tuyến Stadia, giới công nghệ nhận định sự kiện này nhiều khả năng dẫn đến sự thay đổi hoàn toàn cách thức chơi game trong tương lai gần.
+- Theo nhà sản xuất, OPPO F11 mang tới hàng loạt công nghệ lần đầu tiên xuất hiện trong ngành smartphone.
+- TTO - Trung tâm Ứng cứu khẩn cấp máy tính Việt Nam phát thông báo khẩn yêu cầu các cơ quan, tổ chức tài chính, doanh nghiệp... khẩn cấp theo dõi, ngăn chặn kết nối máy chủ điều khiển mã độc GandCrab 5.2 qua email giả mạo Bộ Công an.
+- TTO - Trong khi tuyến cáp quang biển quốc tế APG gặp sự cố chưa được khắc phục thì tuyến cáp Liên Á sẽ sửa chữa, bảo dưỡng trong vòng một tháng từ ngày 20-3 tới.
+- TTO - VTVcab NETWORK - Hệ thống mạng lưới quản lý kênh mạng xã hội đầu tiên tại Việt Nam đã chính thức ra mắt chiều ngày 11-3.
+- Mới đây, OPPO vừa trình làng công nghệ zoom lossless 10x tại sự kiện OPPO Innovation Event diễn ra trước thềm Mobile World Congress (MWC) 2019. Đây là nỗ lực quan trọng của OPPO góp phần mang nhiếp ảnh smartphone tiệm cận chất lượng máy ảnh.
+- TTO - Đó là số liệu mới nhất sau 3 tháng triển khai dịch vụ chuyển mạng giữ số vừa được Bộ Thông tin và Truyền thông công bố.
+- TTO - Tỉ lệ chuyển mạng giữ số thành công đối với thuê bao di động của các nhà mạng đang có sự chênh lệch đáng kể, thông tin vừa được Bộ Thông tin và truyền thông công bố.
+- Ngày 16-1, OPPO lần đầu tiên tiết lộ về công nghệ zoom lossless 10X tại Hội nghị Truyền thông Công nghệ Tương lai 2019 (Future Technology Communication Conference).
+- TTO - TP Hà Nội đặt mục tiêu cho năm 2019: 50% các hệ thống thông tin, cơ sở dữ liệu cốt lõi được kết nối, chia sẻ dữ liệu với các cơ sở dữ liệu quốc gia, 80% thủ tục hành chính được cung cấp trực tuyến mức độ 3, 4.
+- Trước ảnh hưởng ngày càng lớn của các mạng xã hội hiện tại, Việt Nam đang tìm thế đối trọng, hướng đến xây dựng một mạng xã hội thay thế, một mạng xã hội “made in Vietnam” do chính người Việt phát triển, đã xuất hiện.
+- TTO - Tại CES 2019, TCL tuyên bố đã gia nhập Hiệp hội TV 8K với tư cách là thành viên sáng lập và ra mắt nền tảng thương hiệu mới, TCL AI-IN.
+- Chúng ta còn chờ gì nữa mà không tận dụng dịp Tết này làm "keo dán sắt" để dẹp tan nỗi lo "người thân thành lạ"?
+- TTO - Viettel trở thành nhà mạng đầu tiên được chính thức cấp phép thử nghiệm dịch vụ viễn thông 5G.
+- Mạng xã hội đang xuất hiện hàng loạt hình ảnh chia sẻ khoảnh khắc trải nghiệm Y7 Pro 2019 - mẫu điện thoại phổ thông mới được Huawei giới thiệu tại Việt Nam.
+- TTO - Rất nhiều người dùng mạng xã hội Facebook tại Việt Nam đang lan truyền nhau việc đăng thông tin tuyên bố với Facebook với mong muốn bảo mật các thông tin, hình ảnh cá nhân.
+- TTO - Dịch vụ chuyển mạng giữ số đang mở ra cuộc chiến tranh giành khách mới, giữ chân khách cũ quyết liệt giữa các nhà mạng di động Việt Nam.
+- TTO - Thái Lan đang trở thành một trong những quốc gia đi đầu ở khu vực Đông Nam Á trong lĩnh vực tiền ảo khi công nhận đến 8 đồng tiền điện tử.
+- “Giáng sinh là gì hả cô”, “giáng sinh người ta có mổ lợn như tết không?"
+- TTO - ‘Máy tính ma’ là công cụ để tội phạm mạng tấn công mạng, phát tán mã độc, spam… Lượng ‘máy tính ma’ càng lớn càng trở nên nguy hiểm.
+- TTO - Sáng ngày 21-12, tập đoàn Điện lực Việt Nam (EVN) đã tổ chức Lễ công bố “Cung cấp dịch vụ điện cấp độ 4”.
+- TTO - Ngày 20-12, công ty Điện tử Samsung Vina đã phối hợp với Thư viện Khoa học Tổng hợp TP.HCM ra mắt Thư viện thông minh lưu động, một không gian công nghệ thu nhỏ mang sách và STEM đến với trẻ em vùng xa.
+- 'Tin phép màu tạo tuyết rơi' là món quà tinh thần đặc biệt mà Huawei muốn mang đến khách hàng trong mùa cuối năm.
+- TTO - Chỉ hai năm sau khi chính thức phát hành, ứng dụng bàn phím ảo Gboard của Google đã hỗ trợ 500 ngôn ngữ khác nhau trên nền tảng Android.
+- TTO - Theo báo cáo của Forcepoint, các doanh nghiệp đang chuyển sang bảo mật dựa trên đám mây để linh hoạt hơn và giảm độ phức tạp, nhưng một số quan niệm sai lầm vẫn tồn tại.
+- TTO - Ánh sáng xanh phát ra từ máy tính, điện thoại và máy tính bảng có nguy cơ nghiêm trọng đối với sức khỏe, có liên quan đến mù lòa do tuổi tác và một số dạng ung thư.
+- TTO - 14.900 tỉ đồng là mức thiệt hại do virút máy tính gây ra đối với người dùng Việt Nam trong năm 2018, tương đương 0,26% GDP.
+- TTO - Các chuyên gia y tế cho rằng việc Google về các triệu chứng liên quan đến sức khỏe sẽ dẫn đến hội chứng “cyberchondria”, một trạng thái rối loạn lo âu sau khi nghiên cứu về các căn bệnh trên Internet.
+- TTO - Bản cập nhật này được phát hành lại sau khi phát hành lần đầu vào tháng 10 và gặp một số lỗi chặn người dùng khiến người dùng không thể cài đặt được.
+- TTO - Từ băn khoăn của một người dùng cụ thể, Facebook đã khẳng định họ có sử dụng các phương pháp khác để theo dõi người dùng khi họ tắt các tính năng định vị của ứng dụng mạng xã hội.
+- TTO - Lovot được ứng dụng AI có thể bắt chước nhiều biểu hiện cảm xúc của con người, tương tự như thú cưng giúp con người bớt cảm giác cô đơn.
+- TTO - Toàn bộ sách tại tất cả các thư viện sẽ được gắn thiết bị nhận dạng tần số vô tuyến (RFID) - công nghệ cho phép người đọc thực hiện mọi thủ tục thanh toán không dây bằng thẻ tín dụng.
+- TTO - Các ứng dụng được tải từ gian hàng App Store của Apple tạo ra hàng trăm triệu USD thu nhập mỗi năm, và đây là thống kê của trang Business Insider về 10 ứng dụng đã tạo ra doanh thu “khủng” nhất.
+- TTO - Tin tặc đã tấn công và đánh cắp được dữ liệu từ trang web của Bộ ngoại giao Pháp vốn dành riêng cho các công dân khi đi du lịch nước ngoài.
+- TTO - Với Foveros 3D, Intel sẽ xếp chồng các thành phần 2D để tạo nên chip 3D với mật độ tính toán và tính linh hoạt cao hơn so với các loại chip thông thường.
+- TTO - Alex Pachikov, nhà sáng lập Evernote kiêm CEO của Sunflower Labs, mới đây đã công bố một hệ thống drone có thể giám sát ngôi nhà.
+- TTO - Phiên bản mới nhất của Firefox cho máy tính và Android đã ra mắt hôm nay đi kèm với một vài tính năng tiện lợi để quản lý và sử dụng trình duyệt chuyên sâu hơn.
+- TTO - Từ Samsung Galaxy S9 cho đến iPhone XS, năm 2018 đã sắp khép lại với những chiếc smartphone hàng đầu. Vậy trong năm 2019, có những đổi mới từ smartphone đáng mong đợi?
+- TTO - Công nghệ AR giúp mọi người xem trên thế giới có thể tương tác với các hình ảnh được phóng to tối đa với độ phân giải cao nhất từ trước đến nay.
+- TTO - Google+ sẽ bị đóng cửa vào tháng 4-2019 thay vì tháng 8 như thông báo trước đó. API truy cập vào mạng xã hội này sẽ ngừng hoạt động trong vòng 90 ngày tới.
+- TTO - Một game thủ tại thành phố Sydney (Úc) bị buộc tội tấn công một phụ nữ sau khi có người tố cáo anh này với chứng cứ nghe được từ đoạn video livestream trong lúc chơi game Fortnite.
+- TTO - Apple từng công bố sẽ đưa các tính năng về tim mạch vào Apple Watch trong tháng 9, nhưng mới đây mới chính thức được áp dụng.
+- TTO - Mặc dù trong năm nay, AI là chủ đề phổ biến trong công nghệ, nhưng việc triển khai ở các doanh nghiệp vẫn còn ở giai đoạn đầu. Sang năm 2019, AI được dự đoán sẽ phát triển mạnh với 6 lý do dưới đây.
+- TTO - 24 nhân viên tại một nhà kho của Amazon ở New Jersey (Mỹ) đã được đưa đến bệnh viện sau khi robot vô tình đâm thủng hộp thuốc diệt côn trùng.
+- TTO - Bạn không có thời gian để đi ăn trưa? Đừng lo lắng, nếu bạn đang ở Phần Lan, Wing sẽ giao thức ăn nóng sốt ngay cho bạn bằng drone.
+- TTO - Smooth Motion làm thay đổi chất lượng hình ảnh TV và dưới đây là những cách bạn có thể tắt chế độ này tùy thuộc vào dòng TV bạn đang sử dụng.
+- TTO - Hiện phiên bản Chrome 71 đã chính thức có sẵn cho Windows, Mac và Linux với tính năng lọc trải nghiệm trên các trang web nhằm ngăn chặn quảng cáo lạm dụng.
+- TTO - "Thứ trưởng Bộ Thông tin - truyền thông Nguyễn Thành Hưng đánh giá các doanh nghiệp Việt hiện nay đã đủ năng lực làm chủ công nghệ, làm chủ thị trường trong nước, thậm chí là mang sản phẩm tiến ra khu vực.
+- TTO - Hoobox Robotics, một công ty robot ở Sao Paulo (Brazil), đã hợp tác với Intel tung ra Wheelie 7, chiếc xe lăn có động cơ được hỗ trợ AI cho phép người tàn tật điều khiển thông qua 10 biểu hiện trên khuôn mặt.
+- TTO - Để thay thế Edge, Microsoft đang xây dựng trình duyệt web tương tự như Chrome với mục tiêu cải thiện khả năng tương thích web cho Windows.
+- TTO - Nếu smartphone không bị thấm nước quá lâu, bạn vẫn có thể tự sửa ngay tại nhà và tiết kiệm được một khoản chi phí.
+- TTO - Cuối năm là thời điểm hoàn hảo để mua điện thoại mới khi các chiến dịch khuyến mãi bắt đầu rầm rộ. Dưới đây là các điểm cần chú ý khi mua điện thoại thông minh (smartphone) có thể giúp bạn thu hẹp lựa chọn của mình.
+- TTO - Chỉ với một bước này, người dùng Windows 10 dễ dàng tiết kiệm năng lượng và làm cho pin chạy lâu nhất có thể.
+- TTO - Kết hợp giữa thí nghiệm hóa học và công nghệ máy tính, các nhà khoa học đã phát triển một phương pháp mới để sản xuất thuốc, được gọi là “chemputer”.
+- TTO - Để hỗ trợ điều hướng cho người mù và người khiếm thị, các nhà khoa học tại Caltech (California, Mỹ) đã phát triển tai nghe AR biến hình ảnh thành giọng nói.
+- TTO - Với phương pháp này, bạn không cần phải nhập hoặc nói cho ai biết mật khẩu của bạn nữa.
+- TTO - Góp phần vào làn sóng khởi nghiệp “công nghệ nông nghiệp” đang bùng nổ, Small Robot Company (Shropshire, Anh) đã tung ra robot làm đồng Tom, sử dụng GPS, AI và công nghệ smartphone để kiểm tra cỏ dại và sâu bệnh trên cây trồng.
+- TTO - Mạng xã hội Instagram vừa có thêm một lựa chọn cho người dùng: tạo những câu chuyện có thể được chia sẻ giữa một nhóm bạn thân với nhau.
+- TTO - Công nghệ Robot Skins được phát triển bởi các nhà nghiên cứu Yale cho phép người dùng biến các vật thể vô tri hằng ngày thành robot.
+- TTO - Theo công ty phân tích ứng dụng Kochava, 8 ứng dụng này đã gian lận hàng triệu USD từ các nhà quảng cáo.
+- TTO - Tội phạm mạng ngày càng phụ thuộc vào sức mạnh của botnet để thực hiện các cuộc tấn công từ chối dịch vụ (DDoS) và lan truyền ransomware.
+- TTO - Chuyển đổi kỹ thuật số không chỉ là một sự thay đổi về công nghệ, mà đó còn là một sự thay đổi về tổ chức, kinh doanh và con người. Dưới đây là 10 xu hướng chuyển đổi kỹ thuật số được dự đoán sẽ lên ngôi trong năm 2019.
+- TTO - Nhằm ứng phó với nạn tin giả ngày càng lan rộng và phức tạp, mạng xã hội Facebook vừa công bố sẽ cung cấp kênh tin tức mới với nguồn tin chọn lọc và được địa phương hóa.
+- TTO - Pivot Yoga cung cấp phản hồi thông qua các cảm biến trên quần áo để cho người mặc biết có đang tập đúng tư thế hay không mà không cần người hướng dẫn.
+- TTO - Robot Furhat có thể nghiêng đầu, mỉm cười, toát lên sự đồng cảm và ấm áp, khuyến khích mọi người mở lòng chia sẻ những vấn đề của họ.
+- TTO - Theo Lukas Stefanko, nhà nghiên cứu phần mềm độc hại của ESET, tất cả 13 ứng dụng trò chơi độc hại này đều xuất phát từ nhà phát triển Luiz O Pinto và đã được tải hơn 560.000 lần.
+- TTO - Hãng Amazon vừa công bố dịch vụ mới có tên Amazon Comprehend Medical ứng dụng thuật toán máy học (machine learning) để giúp tiết kiệm chi phí trong lĩnh vực chăm sóc sức khỏe.
+- TTO - Chính quyền New Zealand đã không cho phép một trong các hãng viễn thông lớn nhất của họ sử dụng các thiết bị viễn thông 5G của hãng Huawei (Trung Quốc) vì lo ngại vấn đề an ninh quốc gia.
+- TTO - Ứng dụng Playlist hoạt động như một ứng dụng âm nhạc xã hội giúp bạn có thể nghe nhạc với nhiều khác cùng lúc theo thời gian thực.
+- TTO - Ứng dụng công nghệ trong thực phẩm không chỉ xoay quanh bếp thông minh mà còn liên quan đến cảm biến, sức khỏe và nhiều yếu tố khác nữa nhằm mang đến cho mọi người cuộc sống lành mạnh hơn.
+- TTO - Công ty Google đang trong quá trình thay đổi các dịch vụ thuê bao trả phí nghe nhạc và xem video, trong đó có những thay đổi nhỏ về giá, đặc biệt có mức giá ưu đãi dành cho sinh viên.
+- TTO - Thay vì nhận được danh sách các kết quả tìm kiếm, Google sẽ cung cấp cho bạn một câu trả lời kết luận.
+- TTO - Được biết, các robot này cao 1,2 mét, được điều khiển từ xa bởi những người khuyết tật.
+- TTO - Nhiều người dùng Facebook giật mình khi thấy những tin nhắn cũ từ nhiều năm trước bỗng bất ngờ xuất hiện trở lại trong ứng dụng nhắn tin Facebook Messenger.
+- TTO - Theo báo cáo của Forcepoint, các doanh nghiệp đang chuyển sang bảo mật dựa trên đám mây để linh hoạt hơn và giảm độ phức tạp, nhưng một số quan niệm sai lầm vẫn tồn tại.
+- TTO - Cuối năm là thời điểm giảm giá mạnh, thu hút mua hàng, đặc biệt là mua sắm trực tuyến. Dưới đây là 8 hướng dẫn an toàn giúp bạn thoải mái shopping mà vẫn giữ mình an toàn khi online.
+- TTO - Tắt tính năng lịch sử vị trí trên smartphone sẽ không ngăn Google biết bạn đến đâu và khi nào. Tuy nhiên, có một cách để tắt hoàn toàn việc thu thập dữ liệu trên thiết bị Android của bạn.
+- TTO - Facebook đã tung ra tính năng mới - hình ảnh 3D và dưới đây là các bước để bạn chụp và chia sẻ ảnh 3D trên Facebook.
+- TTO - Đợt mua sắm giảm giá lớn trong năm Black Friday vừa qua tại Mỹ đạt tổng doanh thu 6,2 tỉ USD. Trong đó 2,1 tỉ USD là giá trị các giao dịch thực hiện trên điện thoại thông minh (smartphone).
+- TTO - Nhóm nghiên cứu từ Úc và Ấn Độ đã tạo ra một cánh tay robot đút cho bạn ăn nhưng với một điều kiện bạn phải luôn nở nụ cười.
+- TTO - Kể cả khi người dùng không có ý thức tiết kiệm năng lượng, công nghệ này vẫn có thể thay đổi hành vi của người dùng và tăng hiệu quả bảo tồn tài nguyên.
+- TTO - Việc sử dụng điện thoại di động vẫn có nguy cơ với sức khỏe và người dùng cần biết cách giảm tác động từ bức xạ điện thoại di động.
+- TTO - Vừa qua, LG đã công bố giới thiệu LG XBOOM AI ThinQ WK9, chiếc loa thông minh được hỗ trợ bởi Android Things với màn hình cảm ứng được phát triển cùng với Google.
+- TTO - Google sẽ đầu tư gần 700 USD vào một trung tâm dữ liệu của Đan Mạch sử dụng năng lượng sạch, đồng thời củng cố mối quan tâm của mình về điện và năng lượng tái tạo ở khu vực Bắc Âu.
+- TTO - Mạng xã hội Facebook đã đồng ý trả hơn 100 triệu euro (114 triệu USD) để chấm dứt một tranh cãi liên quan cáo buộc gian lận thuế của nhà chức trách Ý.
+- TTO - Mới đây, công ty start-up Borderless (Nhật Bản) đã tung ra CrossHelmet X1, chiếc mũ bảo hiểm xe máy mang tính cách mạng khi mang đến cho người lái khả năng hiển thị 360 °, khử tiếng ồn và kết nối smartphone.
+- TTO - Hãng Google vừa ra mắt người dùng công cụ mới có tên Digital Wellbeing, giúp người dùng thiết bị Android kiểm soát thời gian sử dụng điện thoại.
+- TTO - Nhà bán lẻ hàng đầu Amazon vừa thừa nhận một trục trặc kỹ thuật xảy ra với trang web của công ty đã làm lộ tên và địa chỉ email của nhiều khách hàng.
+- Trước khi chính thức đến tay người tiêu dùng, các mẫu smartphone OPPO đều phải trải qua một quy trình sản xuất và kiểm tra chất lượng vô cùng nghiêm ngặt.
+- TTO - Được biết, đây là video quảng cáo đầu tiên trên thế giới được AI viết kịch bản hoàn toàn và được thực hiện bởi đạo diễn từng đoạt giải Oscar Kevin Macdonald.
+- TTO - Được kỳ vọng sẽ góp phần nâng cao độ chính xác của công nghệ nhận diện khuôn mặt, sản phẩm hiện được tung ra thị trường với giá 2.650 USD và được nhiều công ty công nghệ chú ý.
+- TTO - Nông dân chỉ cần gửi mã trên thẻ cào được chứa trong các túi hạt giống qua tin nhắn SMS sẽ nhận được phản hồi ngay lập tức về việc liệu hạt giống có hợp lệ hay không.
+- TTO - Là quốc gia thương mại tiên tiến với sự phụ thuộc lớn vào cơ sở hạ tầng công nghệ thông tin, Singapore gần đây đã kết hợp với các lực lượng an ninh mạng để bảo vệ mình khỏi tội phạm mạng.
+- TTO - Việc AT & T với G + D và Altair thông báo về kế hoạch phát triển SIM tích hợp đã tạo ra sự phấn khích đặc biệt giữa các OEM và ODM.
+- TTO - Sau nhiều tuần công bố về công cụ có tên “Your time on Facebook”, cuối cùng tính năng này vừa được Facebook triển khai với người dùng toàn cầu.
+- TTO - Nghiên cứu mới nhất của nhóm chuyên gia đại học Pennsylvania cho thấy việc dành quá nhiều thời gian cho các trang mạng xã hội như Facebook có thể dẫn tới gia tăng cảm giác cô đơn, trầm cảm.
+- TTO - Công ty phần mềm Sisense đã tung ra công cụ nhận dạng dữ liệu Sisense Hunch nhằm biến các cảm biến, điện thoại và thiết bị đeo được thành siêu máy tính.
+- TTO - Nếu Liên minh châu Âu triển khai việc tính thuế với việc dẫn lại đường link các bản tin trên web, Google có thể phải dừng hoạt động của ứng dụng Google News tại các nước EU.
+- TTO - Lần thứ hai trong tháng 11, ứng dụng Messenger của Facebook gặp sự cố, gián đoạn hoạt động. Lần này sự cố ảnh hưởng tới hàng ngàn người dùng ở châu Âu và Bắc Mỹ.
+- TTO - Xu hướng phát triển xe tự lái gần như không thể tránh khỏi vào thời điểm này. Tuy nhiên, điều này chưa chắc tác động tích cực đến ngành công nghiệp giao thông vận tải.
+- TTO - Một video đăng tải trên kênh YouTube JerryRigEverything đã cho thấy máy tính bảng không cứng như smartphone khi iPad Pro mới nhất của Apple có thể bị bẻ cong và hoàn toàn bị phá hủy mà không cần quá nhiều nỗ lực.
+- TTO - Sau Facebook, tới lượt mạng xã hội Instagram bị trục trặc công cụ tải dữ liệu khiến mật khẩu của nhiều người dùng bị tiết lộ.
+- TTO - Có hàng ngàn máy ảnh trên thị trường nhưng không phải tất cả đều phù hợp với những gì bạn đang tìm kiếm. Vậy làm sao để chọn được camera tốt nhất?
+- TTO - Ứng dụng Windows miễn phí này sử dụng công nghệ học máy để đoán biểu cảm khuôn mặt của bạn đang bắt chước biểu tượng cảm xúc nào và giống đến bao nhiêu phần trăm.
+- TTO - Theo các nhà nghiên cứu bảo mật Kaspersky Labs, có 63 lỗ hổng bảo mật, trong đó có 12 được xếp hạng nguy hiểm, 49 ở mức quan trọng, 1 ở mức trung bình và 1 ở mức nghiêm trọng thấp cần được xử lý ngay.
+- TTO - Thông tin về người dẫn chương trình tin tức đầu tiên bằng công nghệ trí tuệ nhân tạo (AI) của hãng tin Tân Hoa Xã mới đây đã khiến nhiều chuyên gia công nghệ quốc tế tỏ quan điểm nghi ngờ.
+- TTO - Trước mùa mua sắm năm nay mạng xã hội Instagram đã bổ sung thêm tính năng mua sắm, giúp người dùng tìm mua sản phẩm dễ dàng hơn.
+- TTO - Việc khai khống những chi phí không có thật xảy ra ngày càng nhiều tại các công ty lớn nhưng thực trạng đó giờ sẽ sớm hạn chế nhờ AI.
+- TTO - Công ty Facebook vừa bác thông tin báo New York Times đưa trước đó nói CEO công ty này yêu cầu các lãnh đạo trong công ty chỉ sử dụng điện thoại Android.
+- TTO - Mạng xã hội Facebook vừa chính thức triển khai nút lấy lại tin nhắn đã gửi (nút Unsend) trong ứng dụng nhắn tin Messenger của công ty này.
+- TTO - Vừa qua, Intel đã công bố modem Intel XMM 8160 5G, chip có khả năng cấp nguồn cho iPhone 2020 và hỗ trợ tất cả các tiêu chuẩn di động từ 2G trở lên.
+- TTO - Người dùng giờ đây không còn phải lo ngại về khả năng gây ung thư hoặc kích thích từ các thành phần làm đẹp khi chỉ cần quét nhãn dán trên mỹ phẩm.
+- TTO - Mới đây, Google đã thông báo một tính năng mới cho Google Maps: nhắn tin với doanh nghiệp.
+- TTO - Ngày 14-11, trước thời điểm bắt đầu áp dụng dịch vụ chuyển mạng giữ số (MNP) đối với các thuê bao di động trả sau, các nhà mạng đã công bố  quy trình chuyển mạng đối với thuê bao chuyển đi và chuyển đến.
+- TTO - Các nhà nghiên cứu cho biết smartphone và smartwatch có thể phát hiện chính xác bạn có đang bị đau tim hay không, đồng thời chứng minh công nghệ di động có khả năng cứu sống người bị bệnh tim kịp thời.
+- TTO - Sau lỗi bảo mật API vào tháng 5 vừa qua, một lỗ hổng bảo mật mới lại được phát hiện trên Facebook.
+- TTO - Hiện nay, an ninh mạng đang là một trong những ngành nghề được đánh giá có tiềm năng thu nhập cao và dưới đây là 5 yếu tố quan trọng nhất để đảm bảo bạn thăng tiến trong nghề nghiệp với mức lương xứng đáng.
+- TTO - Theo đó, tiến sĩ David Feinberg - CEO của Geisinger, một tổ chức y tế có tiếng hơn 100 năm ở Mỹ sẽ cùng Google đồng hành phát triển và mở rộng các chiến lược sắp tới trong lĩnh vực chăm sóc sức khỏe.
+- TTO - Nghiên cứu mới của các nhà nghiên cứu tại Đại học Pennsylvania (Mỹ) thực hiện đã chỉ ra rằng việc cắt giảm thời gian dành cho các mạng xã hội như Facebook, Snapchat và Instagram có thể giúp cải thiện chỉ số hạnh phúc.
+- TTO - Theo bảng xếp hạng công bố hai lần một năm, hai siêu máy tính nhanh nhất thế giới hiện nay thuộc về Mỹ và đều sử dụng công nghệ của hãng IBM.
+- Ngày 10-11, trong buổi offline tại Café Tinh Tế, hơn 100 người yêu công nghệ đã tận tay trải nghiệm Find X Automobili Lamborghini cùng tính năng sạc siêu nhanh SuperVOOC của OPPO.
+- TTO - Các nhà nghiên cứu bảo mật vừa phát hiện lỗ hổng chưa được vá trong Microsoft Office 2016 và các phiên bản cũ hơn có thể khiến hacker nhúng mã độc vào bên trong tệp tài liệu.
+- TTO - Gần đây, ngành hẹn hò trực tuyến đang chuyển hướng sang sử dụng AI nhằm hỗ trợ người dùng như một “huấn luyện viên” trong chuyện hẹn hò.
+- TTO - Thay vì sử dụng các dãy nút bấm, người dùng có thể điều khiển xe hơi bằng các mặt phẳng thông minh, được tích hợp với nhiều tính năng hiện đại trong tương lai.
+- TTO - Mới đây, cơ quan tin tức Xinhua của Trung Quốc đã khiến giới công nghệ ngỡ ngàng khi ra mắt “phát thanh viên ảo”, một dạng hình ảnh kỹ thuật số không khác gì con người thực tế, có khả năng đọc tin tức bằng giọng nói được tổng hợp từ máy tính.
+- TTO - Hack tài khoản ngân hàng ngày càng trở thành vấn nạn và dưới đây là 5 lưu ý quan trọng có thể giúp bạn bảo vệ mình trong thời đại số.
+- TTO - Vừa qua, Furhat Robotics đã công bố ra mắt robot hình người dựa trên công nghệ AI có khả năng trò chuyện tự nhiên và biểu cảm khuôn mặt đa dạng.
+- TTO - Sau khi ra mắt Dating tại Colombia vào tháng 9, Facebook hiện đang mở rộng thị trường thử nghiệm của mình sang Canada và Thái Lan.
+- TTO - Sự ra đời của 5G cùng với sự bùng nổ về số lượng thiết bị IoT được đánh giá là một cuộc cách mạng số hóa của thời đại mới.
+- TTO - Sự xuất hiện của IoT đã mang đến hàng loạt bước tiến làm thay đổi thói quen sử dụng công nghệ của người dùng. Dưới đây là 8 công nghệ quan trọng được các chuyên gia đánh giá sẽ còn góp phần phát triển IoT hơn nữa.
+- TTO - Nhà chức trách Trung Quốc đã đưa vào ứng dụng công nghệ xác thực không cần nhìn rõ mặt người mà chỉ cần phân tích vóc dáng, cung cách đi lại của họ.
+- TTO - Tối 7-11, Thế giới Di động cho biết vụ việc họ bị lộ thông tin khách hàng là giả, và doanh nghiệp này cũng không lưu trữ thông tin thẻ của khách hàng.
+- TTO - Mới đây, Amazon đã đưa ra chương trình đào tạo viết code cho hơn 10 triệu học sinh mỗi năm để định hướng cho nhiều em có suy nghĩ trở thành kỹ sư máy tính trong tương lai.
+- TTO - Theo Bill Gates, vệ sinh môi trường là một ngành nghiên cứu tiềm năng và việc tái tạo những tiện nghi thiết yếu như nhà vệ sinh có thể tiết kiệm được đến hơn 200 tỉ USD.
+- TTO - Royole FlexPai không phải là một chiếc smartphone siêu việt, nhưng màn hình của nó có thể gấp 180 độ và chuyển đổi từ máy tính bảng sang điện thoại một cách linh hoạt.
+- TTO - Năm 1971 đánh dấu năm máy tính “trình làng” rộng rãi trong công chúng và từ đó đến nay hơn 40 năm, giá cả của thiết bị này cũng có nhiều thay đổi.
+- TTO - Nếu muốn biết thêm về luồng dữ liệu trực tuyến mình đang sử dụng, bạn có thể áp dụng mẹo nhỏ này để xem xét số liệu thống kê.
+- TTO - Mạng không dây thường gặp vấn đề với các sự cố kết nối. Nếu nghi ngờ tín hiệu Wi-Fi của mình, vậy làm thế nào để bạn có thể xác định vấn đề?
+- TTO - Currant, một start-up chuyên sản xuất thiết bị gia dụng thông minh giảm tiêu thụ năng lượng, đã công bố sản phẩm AI đầu tiên Currant Smart Outlet, một ổ cắm thông minh giúp tiết kiệm điện.
+- TTO - FCC đã cấp phép cho Apple thử nghiệm công nghệ 5G vào năm ngoái và “gã khổng lồ công nghệ” này hiện đang ấp ủ kế hoạch xuất xưởng điện thoại 5G trong năm 2020.
+- TTO - Trong gần một thập kỷ qua giới phân tích thường đo lường “sức khỏe” của Apple thông qua doanh số bán iPhone của họ. Nhưng nay Apple thông báo sẽ không tiết lộ con số này nữa, vì sao như vậy?
+- TTO - Với không ít người công cụ tìm kiếm duy nhất trên mạng Internet họ biết là Google, nhưng thực tế còn có lựa chọn khác tốt không kém Google dành cho họ.
+- TTO - Nhà văn trinh thám Mỹ nổi tiếng James Patterson vừa phát hành cuốn tiểu thuyết tương tác đầu tiên của ông trên ứng dụng Messenger của Công ty Facebook.
+- TTO - Hãng công nghệ Microsoft thông báo sẽ bổ sung thêm các tính năng mới cho gói dịch vụ Office 365 trong tháng này, trong đó đặc biệt là những tính năng cho các ứng dụng PowerPoint và Word.
+- TTO - Các tin tặc có vẻ đã đánh cắp được dữ liệu này và rao bán những tin nhắn cá nhân của ít nhất 81.000 tài khoản người dùng Facebook.
+- TTO - Vòng chung kết WhiteHat Grand Prix 2018 vừa kết thúc tại Trung tâm Hội nghị quốc gia (Hà Nội), với vị trí dẫn đầu thuộc về đội LC1BC (Nga).
+- TTO - Sáng nay 1-11, tại Trung tâm Hội nghị Quốc gia (Hà Nội) vòng chung kết cuộc thi An toàn không gian mạng toàn cầu - WhiteHat Grand Prix 2018 đã chính thức khai mạc với cuộc đua tài giữa 10 đội thi xuất sắc nhất vòng loại đến từ 6 nước.
+- TTO - Sự thật bất ngờ này đã được một kỹ sư tiết lộ sau khi xem xét tìm hiểu nguyên nhân trục trặc của nhiều chiếc iPhone và thậm chí là cả đồng hồ Apple Watch.
+- TTO - Mạng xã hội Facebook chia sẻ tầm nhìn tương lai của họ sẽ dần thoát khỏi lệ thuộc vào bảng cấp tin (News Feed) và tăng đầu tư cho các ứng dụng chat và video trên nền tảng của họ.
+- TTO - Kết quả nghiên cứu tiến hành đánh giá gần 1 triệu ứng dụng Android của các nhà nghiên cứu ĐH Oxford vừa tiết lộ cách thức các smartphone Android  thu thập và chia sẻ dữ liệu như thế nào.
+- TTO - Hãng IBM vừa xác nhận đã đồng ý mua lại công ty phần mềm Mỹ Red Hat với giá 34 tỉ USD, bao gồm cả nợ. Đây được cho là một trong những thương vụ thâu tóm lớn nhất trong lĩnh vực công nghệ.
+- TTO - Ngày càng được sử dụng phổ biến, Office 365 đang trở thành mục tiêu nhắm đến hàng đầu của tội phạm mạng.
+- TTO - Cứ 5 phụ nữ ở Việt Nam thì có 4 người muốn mở một doanh nghiệp. Đây là một kết quả nghiên cứu được công bố tại diễn đàn "Doanh nhân nữ: Chìa khóa thành công trong kỷ nguyên số" ngày 26-10.
+- TTO - Theo thông tin từ Bộ Thông tin và Truyền thông, dịch vụ chuyển mạng giữ số di động sẽ được các nhà mạng chính thức cung cấp từ ngày 16-11 tới đây.
+- TTO - Thông tin cá nhân của người dùng tưởng chừng chỉ đơn giản là những dòng chữ, con số mà mọi người thường “cho không, biếu không” với nhau lại có thể được buôn bán với lợi nhuận không tưởng.
+- TTO - Nhà chức trách Ý đã phạt hàng triệu USD đối với Apple và Samsung, sau các phàn nàn của người dùng về hành vi "thiếu trung thực" của hai hãng điện thoại.
+- TTO - Một câu chuyện tưởng chừng như chỉ có trong phim viễn tưởng đang diễn ra ngay tại Thụy Điển: gắn vi mạch điện tử dưới da tay nhằm thuận tiện hóa một số công việc hàng ngày.
+- TTO - Thông báo cải tiến ứng dụng chat Messenger của Facebook vừa công bố cho thấy từ 9 thẻ khác nhau, Messenger sẽ đơn giản hơn khi chỉ còn lại 3 thẻ mục là “Chats”, “People” và “Discover”.
+- TTO - Rất nhiều gia đình, cửa hàng, doanh nghiệp tại Việt Nam đang ứng dụng camera an ninh để theo dõi, giám sát nhưng lại không biết rằng chúng đang dễ bị tấn công nhất.
+- TTO – Rạng sáng hôm nay 24-10 theo giờ Việt Nam, iCloud bất ngờ bị lỗi khiến hàng triệu người dùng trên thế giới bị ảnh hưởng.
+- TTO - Hãng điện thoại Motorola vừa trở thành nhà sản xuất smartphone đầu tiên trên thế giới bán bộ dụng cụ tự sửa chữa điện thoại thông minh cho khách hàng.
+- TTO - Một lỗi kỹ thuật trên ứng dụng tin tức Google News dành cho thiết bị di động Android đang khiến một số người dùng bị tính cước di động oan bất kể đã bật lựa chọn sử dụng wifi.
+- TTO – Hôm nay là kỷ niệm 10 năm Google Play Store ra đời, hãy cùng Tuổi Trẻ Online điểm qua 10 điều thú vị ít người biết của ứng dụng này.
+- TTO - Với hệ thống bảo vệ ba lớp độc quyền được thiết kế để hấp thụ các tác động đa chiều, mũ bảo hiểm in 3D này vừa đảm bảo an toàn, vừa mang đến sự thoải mái tối ưu dành cho người đi xe đạp.
+- TTO - Đoán biết trước sẽ tới lúc người dùng sẽ có lúc gỡ bỏ các ứng dụng (app), nhiều công ty đã bàn tính với các nhà sản xuất ứng dụng để vẫn có thể tiếp cận người dùng sau khi họ đã gỡ app.
+- TTO - Ngày 21-10 (giờ VN) tại London - Anh, Ban Tổ chức giải thưởng Kinh doanh quốc tế - International Business  Awards đã trao giải vàng hạng mục "Sản phẩm - dịch vụ tốt nhất năm" cho phần mềm tính cước thời gian thực của Viettel (vOCS 3.0).
+- TTO - Sở cảnh sát New York đã tạm gỡ bỏ hàng ngàn thiết bị camera đeo trên người sau khi xảy ra sự cố một chiếc bất ngờ bốc cháy ngay trong lúc người đeo nó đang làm nhiệm vụ.
+- TTO - Nhấn mạnh tính thiết thực, ông Maciej Kranz, phó chủ tịch phụ trách đổi mới của tập đoàn Cisco Systems cho rằng các doanh nghiệp nên bắt đầu ứng dụng IoT từ việc giải quyết khó khăn của chính mình.
+- TTO - Thông qua việc phân tích cách bạn gõ chữ và kéo trượt màn hình, một ứng dụng điện thoại có thể phát hiện sớm tình trạng trầm cảm thậm chí trước khi bạn nhận ra điều đó.
+- TTO - Apple sẽ tung ra những điểm mới nào trong dòng máy tính MacBook 2018 vào ngày 30-10 tới? Đây là những gì chúng ta có thể chờ đợi từ các nguồn tin rò rỉ tới thời điểm này.
+- TTO - Mục tiêu Huawei từng nhắm tới là năm 2019 sẽ ra mắt mẫu điện thoại thông minh 5G có thể gập lại của họ.
+- TTO - Kết luận điều tra ban đầu của Facebook nhận thấy những kẻ đứng sau vụ tấn công mạng làm rò rỉ dữ liệu của 30 triệu tài khoản là những đối tượng gửi thư rác trên mạng xã hội.
+- TTO - Sau khi gây sốt một thời gian dài, thông tin về tiền điện tử dần trở nên im ắng, thậm chí nhiều người còn đoán thị trường này đang chết. Tuy nhiên, chuyên gia nghiên cứu blockchain Josh Cotton lại cho rằng tiền điện tử sẽ không bao giờ chết.
+- TTO – Tại sự kiện Playtime hằng năm vừa qua, công ty đã ra mắt nhiều tính năng mới nhằm hỗ trợ các lập trình viên phát triển và thu gọn kích thước ứng dụng nền tảng Android.
+- TTO - Nhóm nghiên cứu AI của “gã khổng lồ phần mềm” đã hợp tác với Vision Australia để giới thiệu một ứng dụng âm thanh 3D dành riêng cho người khiếm thị tại Úc.
+- TTO - Mới đây, Lexar đã giới thiệu chiếc USB được tích hợp công nghệ cảm biến vân tay, có khả năng đảm bảo tất cả dữ liệu của người dùng được an toàn cả trong và ngoài máy tính.
+- TTO - Từng là một trong những phần mềm nghe nhạc đầu tiên hỗ trợ chơi nhạc MP3 phổ biến nhất vào cuối thập niên 1990, Winamp dự kiến ​​sẽ trở lại dưới hình thức một ứng dụng di động tích hợp tất cả các dịch vụ nghe nhạc, streaming, podcast…
+- TTO - Vừa qua, Thống đốc California Jerry Brown đã thông qua luật an ninh mạng dành riêng cho công nghệ IoT nhằm đặt ra tiêu chuẩn chung cho các nhà sản xuất thiết bị kết nối.
+- TTO – Sự thật được hé lộ từ một bài viết trên nền tảng blog Medium của một nhân viên giấu tên làm việc cho Amazon.
+- TTO - Tài khoản email bị hack có thể dẫn đến các vấn đề nghiêm trọng hơn, chẳng hạn như trộm cắp danh tính và xâm nhập quyền riêng tư. Nhưng trước khi bạn hoang mang với những hệ lụy đó, hãy bình tĩnh lại và làm theo 4 bước đơn giản sau đây.
+- TTO - Mạng xã hội Twitter thông báo sẽ công khai rõ ràng việc ai đó đăng tải nội dung (tweet) vi phạm chính sách sử dụng dịch vụ trên nền tảng của họ.
+- TTO - Mạng xã hội Facebook thông báo sẽ loại bỏ và phạt những quảng cáo chứa nội dung cố ý câu view, cố tình che giấu thông tin hoạt động trên nền tảng của họ.
+- TTO - Theo khảo sát tiền lương hàng năm mới nhất của Acumin Consulting ở Anh, mức lương cho các chuyên gia hoạt động trong lĩnh vực bảo mật và an ninh mạng đã tăng 6% trong năm nay, gấp đôi mức trung bình là 2,9%.
+- TTO - Natalie Silvanovich, nhà nghiên cứu bảo mật của Google Project Zero, đã phát hiện ra lỗ hổng nghiêm trọng trong WhatsApp cho phép hacker điều khiển toàn bộ ứng dụng bằng cách gọi video cho bạn.
+- TTO - Hãng Google thông báo sẽ thay đổi chính sách thu phí với hệ điều hành Android của họ tại châu Âu để tuân thủ luật chống độc quyền của Liên minh châu Âu (EU).
+- TTO - Khoảng 7h30 sáng nay 17-10 (giờ Việt Nam), website và ứng dụng YouTube, YouTube TV và YouTube Music bị lỗi trên toàn cầu. YouTube đã xác nhận vụ việc trên tài khoản Twitter của mình.
+- TTO - Chủ tịch Tập đoàn Alibaba cho biết mình đang thảo luận với chính phủ Indonesia về khả năng mở viện đào tạo doanh nhân công nghệ cao ở quốc gia Đông Nam Á này.
+- TTO - Công ty Bkav vừa ra mắt smartphone Bphone 3 và Bphone 3 pro. Đây là dòng sản phẩm smartphone thứ ba của công ty này.
+- TTO – Kiểm duyệt nội dung trên mạng xã hội là làm gì? Tại sao công việc này tồn tại? Yêu cầu cho công việc này là gì?
+- TTO - Ở tuổi 65 nhà đồng sáng lập tập đoàn Microsoft cùng tỉ phú Bill Gates vào những năm 1970, ông Paul Allen, vừa qua đời sau một thời gian chống chọi bệnh ung thư.
+- TTO - Theo báo cáo quý III năm 2018 của Công ty an ninh mạng CyStack, Việt Nam nằm trong tốp 20 quốc gia có số lượng website bị tấn công nhiều nhất.
+- TTO - Được biết, iOS 12 sẽ thắt chặt các vấn đề bảo mật và quyền riêng tư trên iPhone cao hơn so với các phiên bản trước đây. Để tận dụng tối đa các bản cập nhật, bạn có thể phải tinh chỉnh các cài đặt sau.
+- TTO - Từ hôm nay, 15-9, các nhà mạng di động tại Việt Nam bắt đầu lộ trình chuyển đổi các thuê bao di động 11 số thành 10 số và sẽ "nhắc liên tục đến khi người dùng quen với đầu số mới".
+- TTO - Không chỉ nhằm vào một số cá nhân, không ít gian hàng cũng bị chiếm quyền, gây thiệt hại lớn. Cách nào để phòng tránh và ngăn ngừa thiệt hại?
+- TTO - Có những thay đổi tưởng như rất đơn giản nhưng sẽ giúp cho cuộc sống của chúng ta trở nên thú vị hơn rất nhiều. Điều bạn cần phải làm là mạnh dạn thay đổi những thói quen đang ngăn cản bạn cảm nhận được những điều thú vị đó…
+- TTO - Nhà nghiên cứu robot Sun Tianqi (Trung Quốc) đã chế tạo ra một loại robot 6 chân tích hợp trồng cây trên đỉnh có thể tự di chuyển về phía ánh sáng.
+- TTO - Đức là một trong số ít những quốc gia đầu tiên quan tâm về vấn đề pháp lý đối với dữ liệu số của các chủ sở hữu đã qua đời.
+- TTO - Một nhóm nghiên cứu ở Pháp đã ứng dụng các phương pháp điều trị dựa trên VR và kết luận sử dụng VR có khả năng làm giảm chứng sợ độ cao và các rối loạn sức khỏe tâm thần.
+- Từ ngày 1 đến 31-7, mua điện thoại Redmi Note 5 và Redmi S2 tại FPT Shop, bạn không chỉ được mua trả góp không lãi suất và được hưởng gói bảo hành mở rộng mà còn có cơ hội trúng laptop và robot hút bụi Xiaomi.
+- Chỉ trong nửa đầu năm 2018, nhà mạng Vietnamobile đã tung ra nhiều “bom tấn” từ đó đem đến các lợi ích “Phê Không Tưởng” cho hàng triệu người dùng. Và tất nhiên, những điều kỳ tích vẫn chưa dừng lại ở đây…
+- TTO - Gần một nửa số người Việt Nam vớ lấy điện thoại di động trong vòng 5 phút sau khi thức dậy. Nhưng smartphone được người Việt chủ yếu dùng để vào mạng xã hội.
+- TTO - Một nghiên cứu của Kaspersky cho thấy 24% người dùng dễ gặp các sự cố an ninh mạng hơn khi chia sẻ thiết bị và tài khoản trực tuyến của mình với “đối tác”.
+- TTO - Ngày 10-7-2008, Apple đã mở cửa hàng bán các ứng dụng iPhone, cũng từ đó mở ra một kỷ nguyên sáng tạo của các nhà phát triển phần mềm và thay đổi cuộc sống của hàng tỉ người trên khắp thế giới.
+- TTO - Facebook tiếp tục có thêm cách thức chào mời, lôi kéo các nhà quảng cáo đến với nền tảng của họ khi tung ra các loại quảng cáo tích hợp công nghệ thực tế tăng cường (AR).
+- TTO - Cơ quan chống độc quyền của Liên minh châu Âu (EU) chuẩn bị áp mức phạt hàng tỉ USD với Google vì những vi phạm độc quyền liên quan HĐH Android trên điện thoại di động.
+- TTO - Chỉ riêng ở Mỹ, đã có đến 1/4 dân số sợ kim tiêm. Đó là lý do rất nhiều start-up trong lĩnh vực y tế ngày nay đã hướng đến việc nghiên cứu phát triển các giải pháp thay thế cho việc tiêm chích dưới da.
+- TTO - Sau khi nhà chức trách Thái Lan nói tàu ngầm mini không phù hợp cho việc cứu hộ ở hang Tham Luang, tỉ phú Elon Musk chất vấn về năng lực chuyên môn của nhận định này.
+- TTO – Động thái này cho thấy họ đang nỗ lực hết sức để làm ‘sạch’ nền tảng của mình.
+- TTO - Dĩ nhiên sau cải tổ rất lớn của iPhone X năm ngoái, thật khó để hy vọng Apple sẽ lại có đột phá đáng kể năm nay, song giới thạo tin vẫn đang nói về những iPhone XS, iPhone XS Plus và iPhone 9.
+- TTO - Sao chép mã từ chìa khóa xe ô tô không khó đối với các hacker. Do đó, để bảo vệ xế hộp không bị trộm, bạn nên bọc khóa điều khiển từ xa bên trong giấy nhôm hoặc giấy bạc.
+- TTO - Mạng xã hội YouTube vừa công bố một loạt tính năng mới với hy vọng giúp tin tức video trên nền tảng của họ tin cậy và giảm nguy cơ bị thao túng hơn.
+- TTO - Công việc bận rộn, nhịp sống tất bật, di chuyển khắp nơi, đam mê trải nghiệm… là những phần không thể thiếu trong cuộc sống năng động mà phần lớn chúng ta đang trải qua mỗi ngày.
+- TTO - Với Zozosuit và Zozo Inc, người dùng không còn phải lo lắng về kích cỡ hay màu sắc sản phẩm khi mua sắm thời trang trực tuyến nữa.
+- TTO - Ngày 9-7, Bộ trưởng Bộ Thông tin và truyền thông Trương Minh Tuấn cho biết Google và Facebook đã ngăn chặn, gỡ bỏ gần 8.000 clip, đường link vi phạm pháp luật Việt Nam.
+- TTO - Nhiều nghiên cứu cho thấy ánh sáng xanh phát ra từ màn hình máy tính hoặc điện thoại dễ gây ra các triệu chứng rối loạn giấc ngủ ở trẻ em.
+- TTO - Trong ngày 4-7 bách khoa toàn thư trực tuyến mở Wikipedia dừng hoạt động tại ít nhất 3 nước châu Âu để phản đối việc Nghị viện châu Âu chuẩn bị thông qua luật bản quyền số.
+- Bên cạnh 1001 áp lực từ công việc, đối tác, dân văn phòng còn thường xuyên phải đối mặt với những rắc rối không ngờ đến từ chính ví tiền của họ.
+- TTO - Một hệ thống trí tuệ nhân tạo đã chiến thắng 2-0 trước các bác sĩ ưu tú nhất Trung Quốc sau hai vòng thi đấu trong một cuộc thi chẩn đoán khối u não ở Bắc Kinh.
+- TTO - Thuế mạng xã hội vừa có hiệu lực ở Uganda đã khiến phần lớn người dân bất bình và cho rằng đây là “một cuộc tấn công tự do ngôn luận”.
+- TTO - Pin lithium-ion được dự đoán xu hướng sẽ đáp ứng nhu cầu ngày càng tăng trong các lĩnh vực như xe điện (EV), giải pháp năng lượng tái tạo và điện tử tiêu dùng.
+- TTO – Hàng triệu mật khẩu, địa điểm GPS, và thông báo tài chính của rất nhiều người dùng đang bị đe dọa – và bạn có thể nằm trong số họ.
+- TTO - Light, công ty từng sản xuất chiếc máy ảnh có tới 16 camera L16, đang phát triển loại smartphone được trang bị nhiều camera.
+- TTO - Một năm trước Google cam kết tăng bảo mật cho Gmail, song báo Wall Street Journal lại vừa phanh phui việc hàng trăm nhà phát triển ứng dụng đã có thể truy cập hàng triệu hộp thư Gmail.
+- TTO - Facebook vừa gửi thông báo xin lỗi tới 800.000 người dùng về sự cố kỹ thuật khiến những tài khoản đã bị người dùng chặn lại bỗng dưng được “mở khóa”.
+- TTO - Tanita ES-100 có hình dạng như dạng máy nhắn tin, sử dụng công nghệ phân tích và các thuật toán tùy chỉnh có thể phát hiện mùi mồ hôi, mùi người già, mùi mệt mỏi và thậm chí cả mùi các loại nước hoa.
+- TTO - Các phần mềm nhận diện khuôn mặt hiện nay vẫn đang gặp rắc rối với màu da tối, và hứng chịu nhiều tranh cãi xung quanh.
+- TTO - Tại sự kiện ra mắt ViettelPay, người dân Thủ đô đã có cơ hội trải nghiệm Infinity Room - Không gian vô cực lần đầu tiên có mặt tại Việt Nam.
+- TTO - "Hệ thống phân tích và chia sẻ nguy cơ tấn công mạng Việt Nam" vừa được Bộ Thông tin và Truyền thông chính thức ra mắt.
+- TTO - Codecheck, một ứng dụng dành cho cả iOS và Android, có thể cung cấp cho bạn thông tin chi tiết về những gì bạn đang mua.
+- TTO - Hãng Honda (Nhật Bản) vừa thông báo sẽ dừng sản xuất người máy nổi tiếng Asimo của họ để tập trung phát triển công nghệ tự động cho lĩnh vực điều dưỡng và vận tải đường bộ.
+- Để đảm bảo liên lạc thông suốt ở 3 tỉnh Tây Bắc đang bị thiệt hại nặng nề bởi mưa lũ, lực lượng ứng cứu thông tin của Viettel phải chạy đua với thời gian và không ngại khó khăn.
+- TTO - Một nghiên cứu mới cho rằng hệ thống đánh giá tín nhiệm xã hội của Trung Quốc đang gây ảnh hưởng vượt quá biên giới Trung Quốc, tác động tiêu cực tới doanh nghiệp nước ngoài.
+- TTO - Facebook đang thử nghiệm tính năng “Keyword snooze” cho phép người dùng ẩn đi những nội dung có chứa các từ và cụm từ cụ thể trong 30 ngày.
+- TTO - Cả App Store và Google Play đều có rất nhiều ứng dụng liên quan đến giao dịch mua sắm, đặt phòng khách sạn, dịch vụ du lịch, quản lý thời gian, tiền bạc… Dưới đây là 8 ứng dụng được nhiều người dùng đánh giá mang lại hiệu quả và an toàn.
+- TTO - Không chỉ để trang trí, chai phát sáng Gloo do Deconnect phát triển còn chứa đầy các linh kiện điện tử bên trong và có thể sạc các thiết bị không dây.
+- TTO - Lăng Tự Đức và Cung An Định bắt đầu được bảo tồn bằng kỹ thuật số. Tất cả dữ liệu và hình ảnh từ hai di tích này sẽ được chuyển thành mô hình 3D và sử dụng công nghệ thực tế ảo (VR) phục vụ cho mục đích du lịch, giáo dục, bảo tồn…
+- TTO - Một nghiên cứu của Hà Lan cho biết, trẻ em nghe nhạc qua tai nghe còn có nguy cơ mất thính lực hơn cả bị ảnh hưởng bởi tiếng ồn bên ngoài.
+- TTO - Facebook vừa phát thông báo chính thức hủy bỏ dự án chế tạo các loại máy bay không người lái (drone) cỡ lớn để cung cấp Internet cho những khu vực khó tiếp cận dịch vụ mạng.
+- TTO - AI Guardman, một camera an ninh ứng dụng AI được phát triển bởi các nhà lập trình Nhật Bản, đã có thể phát hiện và báo cáo các hành vi đáng ngờ mà không cần sự giám sát của con người.
+- TTO - Mạng xã hội Facebook thông báo những thay đổi mới, nới lỏng hơn với chính sách quảng cáo tiền điện tử, thay vì cấm triệt để như trước trên nền tảng này.
+- TTO - Theo nghiên cứu mới của Mỹ, phẫu thuật robot, một công nghệ sử dụng hệ thống robot để hỗ trợ trong các thủ thuật phẫu thuật, có nhiều lợi thế hơn khi điều trị các bệnh liên quan đến bàng quang hay tuyến tiền liệt.
+- TTO - Một hãng công nghệ có trụ sở tại Cyprus công bố đã chế tạo được chiếc xe hơi có bộ dụng cụ do thám thế hệ mới có thể bẻ khóa (hack) một chiếc iPhone và Android từ khoảng cách 500 mét.
+- TTO - Hình thức này còn gọi là “nick-napping” và sẽ gây ra nhiều phiền toái cho người dùng nếu hacker đánh cắp được địa chỉ email, tài khoản mạng xã hội hoặc tài khoản mua hàng trực tuyến.
+- TTO - Sân bay quốc tế Orlando đã trở thành sân bay đầu tiên ở Mỹ cam kết xử lý toàn bộ quy trình nhập cảnh của hành khách quốc tế bằng cách sử dụng công nghệ nhận dạng khuôn mặt.
+- TTO - Công ty Samsung SDS đã quyết định lựa chọn Tập đoàn công nghệ CMC phụ trách việc triển khai giải pháp quản lý và điều hành nhà máy thông minh (MES) cho các nhà máy của hơn 200 nhà cung cấp của Samsung tại Việt Nam.
+- TTO - Bất cứ mạng xã hội nào có chức năng đăng video đều có thể tạo ra thu nhập cho người dùng. Tuy nhiên, mỗi nền tảng sẽ có “luật chơi” riêng, chẳng hạn cách kiếm tiền từ video trên YouTube và Instagram sẽ khác nhau.
+- TTO - Trung Quốc đã và đang giám sát cư dân nhiều khu vực bằng loại máy bay không người lái công nghệ cao có hình dạng giống như một con chim bồ câu.
+- OPPO đã làm cả thế giới ngỡ ngàng khi giới thiệu Find X với thiết kế cụm camera ẩn trong thân máy. Vì ý tưởng sáng tạo quá táo bạo, nên có người sẽ lo ngại về độ bền của chiếc cụm camera này.
+- TTO - Megvii, hãng công nghệ nhận diện có trụ sở tại Bắc Kinh đang tìm cách mở rộng thị trường tại Đông Nam Á, khởi điểm là Thái Lan và tiếp theo có thể là Malaysia.
+- TTO - Báo cáo mới của McKinsey dự báo, các thành phố lớn của châu Á, với thế hệ trẻ có mức hiểu biết cao, đang đóng một vai trò quan trọng trong việc “thông minh hóa” các cơ sở hạ tầng công nghệ.
+- TTO – Thời lượng video trên IGTV được hỗ trợ lên đến một giờ đồng hồ. Đây là một nỗ lực nhằm lôi kéo người dùng từ YouTube, và giúp Facebook có thêm doanh thu từ quảng cáo.
+- TTO - Mạng chia sẻ video trực tuyến YouTube sẽ bổ sung thêm tính năng cho phép các nhà sáng tạo nội dung có hơn 100.000 người theo dõi có thể thu phí thành viên.
+- TTO - Giờ đây, người dùng đã có thể hạn chế hiển thị các quảng cáo trực tuyến mà bạn không muốn thấy trên tất cả các dịch vụ của Google, cả YouTube lẫn Gmail.
+- TTO - Sân bay ở Amsterdam (Hà Lan) giờ đã có một máy ATM bitcoin, cho phép mọi người chuyển “đồng euro địa phương” thành “các loại tiền điện tử quốc tế”.
+- TTO - Người Mỹ tin rằng có tới 65% tin tức trên mạng xã hội là ngụy tạo hoặc không thể xác minh đúng, sai, trong khi tỉ lệ này trên báo chí và truyền hình theo họ là 39%.
+- TTO - Báo cáo mới nhất của hãng Symantec cho biết đã có một chiến dịch tấn công mạng xuất phát từ Trung Quốc nhắm vào các công ty vệ tinh, quốc phòng ở Mỹ và Đông Nam Á.
+- TTO - Liên minh châu Âu (EU) đã vừa hoàn thành bước đầu tiên trong việc thông qua dự luật chống vi phạm bản quyền trên mạng. Bước tiếp theo sẽ là sự phê chuẩn tại nghị viện châu Âu.
+- TTO - Trong cuộc tranh luận đầu tuần này giữa một hệ thống AI của hãng máy tính IBM với hai đối thủ tranh biện là con người tại San Francisco, cỗ máy của IBM đã thắng.
+- Những khoảnh khắc đời thường cũng có thể mang “dấu ấn” thời trang ấn tượng. Bộ ảnh hậu trường được chụp bằng Galaxy S9+ của siêu mẫu Thanh Hằng đã phần nào thể hiện điều đó.
+- TTO - Google vừa tung ra ứng dụng podcast độc lập dành riêng cho thiết bị Android. Ứng dụng có tên đơn giản là Google Podcasts gồm những đề xuất được cá nhân hóa với từng người dùng.
+- TTO - Sàn giao dịch tiền điện tử Bithumb của Hàn Quốc cho biết 35 tỉ won (31,5 triệu USD) giá trị tiền điện tử đã vừa bị hacker đánh cắp trong vụ tấn công mạng vừa xảy ra.
+- TTO - Sẽ xử lý nghiêm các trường hợp vi phạm bản quyền giải bóng đá World Cup 2018. Đó là ý kiến chỉ đạo của Bộ trưởng Bộ TT&amp;TT đối với việc xử lý tình trạng vi phạm bản quyền đang diễn ra trên các kênh của YouTube, mạng xã hội.
+- TTO - Một nghiên cứu gần đây cho thấy 81% các thiết bị công nghệ đều dính vi khuẩn có hại, vậy phải làm sao để vệ sinh chúng một cách an toàn nhất?
+- TTO - Theo chỉ số phơi nhiễm quốc gia được Rapid7 mới công bố, Mỹ đứng đầu danh sách các quốc gia dễ bị tấn công mạng nhất, tiếp theo là Trung Quốc, Hàn Quốc và Anh.
+- TTO - Kết quả khảo sát mới nhất của một viện nghiên cứu thuộc hãng tin Reuters cho thấy giới trẻ đang có xu hướng giảm bớt việc đọc tin tức trên nền tảng mạng xã hội Facebook.
+- TTO - Bộ An ninh nội địa Mỹ (DHS) thông báo đã vừa xác định được một hoạt động tấn công bằng mã độc của các tin tặc do Chính phủ Triều Tiên bảo trợ.
+- TTO - Các nhà phát triển hệ thống phần mềm trí tuệ nhân tạo với thuật toán machine learning đã mô phỏng toàn bộ giải bóng đá vô địch thế giới 100.000 lần để hệ thống đưa ra các dự đoán kết quả.
+- Sáng ngày 15-6, tại Hà Nội, Bộ Thông tin và truyền thông đã tổ chức Lễ công bố mã bưu chính quốc gia mới. Cả nước có 21.405 mã bưu chính.
+- TTO - Facebook vừa thông báo ông Elliot Schrage, giám đốc phụ trách truyền thông và chính sách cộng đồng của công ty này, sẽ từ chức sau một thập kỷ gắn bó.
+- TTO - Có rất nhiều loại ổ khóa thông minh hiện nay, trong đó các dòng ổ khóa dựa vào dấu vân tay để xác thực rất được tin dùng. Tuy nhiên, được tin dùng không đồng nghĩa với việc luôn an toàn.
+- TTO - Nhà chức trách Trung Quốc đã chấp thuận phê chuẩn thương vụ mua nhà sản xuất chip Hà Lan NXP của hãng Qualcomm (Mỹ) với giá thâu tóm 44 tỉ USD.
+- TTO - Sẽ hỗ trợ phát triển ứng dụng công nghệ Blockchain thông qua các chương trình KH&amp;CN cấp quốc gia và ưu tiên hỗ trợ doanh nghiệp khởi nghiệp thực hiện dự án có ứng dụng công nghệ blockchain
+- TTO - Ứng dụng HerVenture trên thiết bị di động ở Việt Nam cung cấp một phương tiện học tập và tư vấn trực tuyến giá rẻ và linh hoạt cho các nữ chủ doanh nghiệp vừa được chính thức ra mắt sáng ngày 14-6.
+- TTO - Trong một động thái được cho là phản ứng đối đầu của Apple với lực lượng hành pháp, công ty này cho biết sẽ tung ra phần mềm cho phép vô hiệu hóa luôn cửa bảo mật cuối cùng của iPhone.
+- TTO - Mặc dù giá đồng tiền ảo Bitcoin không được khả quan thời gian gần đây nhưng những chiếc máy ‘đào’ tiền ảo vẫn thu hút sự quan tâm mạnh của giới thợ ‘đào’.
+- TTO - Từ năm 2015, Amanda Southworth đã bắt đầu viết các ứng dụng di động và đến nay, các dự án của cô gái 16 tuổi này đã nhận được khoản tài trợ 25.000 USD.
+- TTO - Trong phiên giao dịch trở lại đầu tiên sau 8 tuần tạm ngưng vì lệnh cấm của chính quyền Mỹ, giá cổ phiếu công ty ZTE của Trung Quốc lao dốc 40%.
+- TTO - Sau khi phát hiện VPNFilter, các nhà nghiên cứu bảo mật tiếp tục phát hiện ra một mã độc khác, có tên là Prowli, đã xâm phạm hơn 40.000 máy chủ, modem và thiết bị IoT thuộc nhiều tổ chức trên toàn thế giới với mức độ nguy hiểm gấp nhiều lần.
+- TTO - Nhiều hãng thông tấn, báo chí đã đồng loạt gửi đơn yêu cầu lãnh đạo Facebook điều chỉnh lại chính sách quảng cáo khi công ty này xếp quảng cáo tin tức vào cùng loại quảng cáo chính trị.
+- TTO - Tòa Mỹ vừa tuyên phán quyết cho phép AT&amp;T mua tập đoàn truyền thông giải trí Time Warner với giá 85 tỉ USD, bất chấp phản đối của chính quyền tổng thống Donald Trump.
+- TTO - Chiếc toilet điện từ dành riêng cho mèo giá 225 USD này có khả năng phân tích mẫu phân và nước tiểu và “báo cáo” tình trạng sức khỏe của con vật tới chủ qua smartphone.
+- TTO - Apple đã âm thầm thay đổi các quy định chính sách liên quan tới việc bán hoặc chia sẻ dữ liệu người dùng với các nhà phát triển trong App Store từ tuần trước, song không công bố.
+- TTO - Nền tảng và mô hình mới về điều vận xe trực tuyến EMDDI - một sản phẩm khoa học công nghệ của nhóm các nhà khoa học ĐH Quốc gia Hà Nội vừa được chính thức giới thiệu tại Hà Nội chiều ngày 12-6.
+- TVC thương hiệu thường nói về mơ ước có tính biểu tượng mà thương hiệu đó muốn đạt được trong tương lai. Nhưng với Mytel – mạng di động quốc tế thứ 10 của Viettel, thì đó đã là một phần của hiện thực.
+- TTO - Ngày 9-6-2018 được xem là một dấu mốc quan trọng của đoàn Công nghiệp – Viễn thông Quân đội (Viettel) trên đất Myanmar. Đó là ngày Mytel – mạng di động quốc tế thứ 10 của Viettel chính thức khai trương với đầu số 096.
+- TTO - PetBacker là một dạng ứng dụng kết nối tương tự như Uber, nhưng đối tượng hướng đến là các chủ sở hữu vật nuôi với những người nhận giữ hộ thú cưng trong thời gian ngắn hạn.
+- TTO - Việt Nam luôn được xếp trong top những quốc gia về mã độc nhiều nhất trên thế giới, là thị trường tiềm năng của ngành công nghiệp mã độc.
+- TTO - Một loạt các nhà bán lẻ bao gồm Amazon, Target, Walmart vẫn đang tiếp tục bán đồ chơi thông minh không an toàn cho trẻ em mặc dù đã nhận được cảnh báo từ các chuyên gia bảo mật vào tháng 2 năm ngoái.
+- TTO - Việc ứng dụng công nghệ trí tuệ nhân tạo (AI) trong ngành công nghiệp chăm sóc người già ở Nhật đang góp phần giảm bớt áp lực đáng kể cho thực trạng thiếu nhân lực ngành này.
+- TTO - Một vụ tấn công mạng vừa xảy ra tại một sàn giao dịch tiền điện tử ít tiếng tăm tại Hàn Quốc đã làm “bốc hơi” hàng tỉ USD giá trị vốn hóa thị trường của bitcoin và nhiều loại tiền tiện tử khác.
+- TTO - Mạng xã hội Facebook vừa đăng thông tin tuyển dụng “các chuyên gia thẩm định độ tin cậy của tin tức”, động thái cho thấy công ty này đang có thêm những nỗ lực trong cuộc chiến chống tin giả.
+- TTO - Tập đoàn Microsoft vừa đặt thành công một trung tâm dữ liệu mới nhất của họ dưới đáy biển ở ngoài khơi Scotland với hy vọng sẽ sớm có thêm những trung tâm tương tự trong tương lai.
+- TTO - Sáng ngày 9-6-2018, Tập đoàn Công nghiệp - Viễn thông Quân đội (Viettel) chính thức khai trương mạng di động quốc tế thứ 10 tại Myanmar với thương hiệu Mytel.
+- TTO - Mỹ lại vừa vượt qua Trung Quốc, giành lại ngôi số một trong cuộc đua chế tạo siêu máy tính nhanh nhất thế giới.
+- TTO - Hãng công nghệ Google vừa chính thức lên tiếng khẳng định quan điểm của họ sẽ không cho phép ai sử dụng công nghệ trí tuệ nhân tạo (AI) của họ vào các loại vũ khí quân sự.
+- TTO - Không chỉ luôn cài đặt HTTPS, sử dụng bộ chặn theo dõi hay chọn công cụ tìm kiếm an toàn làm mặc định, bạn có thể áp dụng thêm những cách dưới đây để kiểm soát quyền riêng tư khi online.
+- TTO - Dragon Fire Fighter, ống robot được phát triển bởi các nhà nghiên cứu từ Đại học Tohoku của Nhật Bản và Viện Công nghệ Hachinohe, có thể cân bằng trên không và phun ra tia nước đang được đánh giá cao trong việc dập tắt các đám cháy nguy hiểm.
+- TTO - Vừa qua, dịch vụ thử nghiệm DNA MyHeritage thừa nhận đã bị hacker tấn công 92 triệu tài khoản để truy cập email và mật khẩu mã hóa. Tuy nhiên, câu hỏi đặt ra là tại sao hacker lại muốn đánh cắp thông tin DNA cụ thể?
+- TTO - Các nghị sĩ Pháp vừa bỏ phiếu phê chuẩn dự luật cấm học sinh cấp tiểu học và trung học cơ sở sử dụng điện thoại di động trong trường.
+- TTO - Cho phép dùng thẻ cào viễn thông thanh toán các dịch vụ nội dung số,nghiên cứu để có biện pháp tháo gỡ khó khăn trong việc dừng thẻ viễn thông thanh toán cho các dịch vụ ngoài viễn thông là kiến nghị của các nhà mạng đối với Bộ TTTT
+- Ở tuổi 24, Tuệ Nghi sở hữu một sự nghiệp đáng mơ ước với các dự án kinh doanh phát triển thuận lợi, những đầu sách được nhiều bạn trẻ yêu thích, ghế giám khảo các cuộc thi khởi nghiệp, hay đại sứ của những dự án cộng đồng trong nước và quốc tế.
+- TTO - PageUp, một công ty phần mềm tại Úc chuyên cung cấp giải pháp tuyển dụng tại hơn 190 quốc gia, cho biết hệ thống IT của họ đã bị tấn công vào cuối tháng 5.
+- TTO - Microsoft đang phát triển mạnh mẽ nhờ vào CEO Satya Nadella và đang thu hút rất nhiều tài năng và dĩ nhiên họ phải được trả công xứng đáng.
+- TTO - Trào lưu chụp ảnh "Chuyện 69" tiếp tục được các bạn trẻ sáng tạo và đưa vào đó hơi thở cuộc sống bằng những ý tưởng độc đáo
+- TTO - Một nhóm các nhà khoa học đang nghiên cứu để sử dụng bước sóng não như một phương pháp bảo mật sinh trắc học. Tuy nhiên vẫn còn một số hạn chế.
+- TTO - Trang web MyHeritage chuyên cung cấp dịch vụ xét nghiệm DNA cho biết địa chỉ email và mật khẩu của hơn 92 triệu tài khoản khách hàng của họ đã bị tin tặc tấn công.
+- TTO - Brave và Via là hai trình duyệt được tạp chí công nghệ Đức Connect đánh giá là giúp cải thiện tốc độ và tăng tính bảo mật hơn cả việc sử dụng các trình duyệt được cài đặt sẵn.
+- TTO - Virus nguy hiểm W32.XFileUSB đã lây nhiễm 1,2 triệu máy tính tại Việt Nam. Virus này có khả năng xóa toàn bộ dữ liệu trên USB của nạn nhân. Đây là nội dung cảnh báo vừa được tập đoàn Bkav phát đi.
+- TTO - Samsung SDS, một chi nhánh của tập đoàn Samsung, thông báo triển khai nền tảng tài chính kỹ thuật số mới ứng dụng công nghệ trí tuệ nhân tạo (AI) và blockchain.
+- TTO - Các nhà nghiên cứu đã phát hiện ra lỗ hổng Windows mới cho phép kẻ tấn công từ xa thực thi mã tùy ý và Microsoft hiện vẫn chưa tung ra một bản vá lỗi phần mềm nào.
+- TTO - Apple vừa chính thức ra mắt HĐH iOS phiên bản mới nhất tại hội nghị các nhà phát triển phần mềm thường niên (WWDC), và sau đây là những điểm mới đáng chú ý nhất về iOS 12.
+- TTO - Nhà sản xuất iPhone vừa công bố những chính sách riêng tư mới khiến các đối thủ như Google và Facebook khó theo dõi hoạt động của người dùng hơn trên các thiết bị của Apple.
+- TTO - Các nhà nghiên cứu từ Đại học Princeton và Đại học Purdue đã chứng minh rằng các tín hiệu siêu âm có thể được sử dụng để gây thiệt hại cho ổ cứng bằng cách khai thác một hiện tượng vật lý gọi là cộng hưởng âm thanh.
+- TTO – Ngoài những yếu tố như máy ảnh, vi xử lý, bộ nhớ, thì liệu màu sắc phải chăng là một yếu tố đóng góp lớn đến quyết định mua sản phẩm của người dùng?
+- Đất nước vừa được Mỹ dỡ bỏ cấm vận từ cuối năm 2016 trở thành mỏ vàng cho các doanh nghiệp khi tìm kiếm một thị trường rộng lớn, đầy tiềm năng cả về sản phẩm lẫn dịch vụ, trong đó có Tập đoàn Viettel.
+- TTO - Theo một chuyên gia hàng đầu về trí tuệ nhân tạo (AI), các nhà nghiên cứu về công nghệ này phần lớn đã dừng việc chế tạo các loại máy có khả năng suy nghĩ như người.
+- TTO - Apple gần như chắc chắn sẽ trình làng phiên bản HĐH mới iOS 12 tại hội nghị các nhà phát triển thường niên WWDC ngày 4-6 (giờ Mỹ).
+- TTO - Trong thập kỷ qua, Facebook đã hợp tác chia sẻ dữ liệu người dùng với ít nhất 60 nhà sản xuất thiết bị điện tử như Apple, Amazon, BlackBerry, Microsoft và Samsung.
+- TTO - Facebook thực sự không muốn là công ty truyền thông khi vừa tuyên bố sẽ gỡ bỏ phần nội dung tin tức nổi bật (Trending) trên trang của họ từ tuần tới.
+- TTO - Nếu bạn là người ít có thói quen kiểm tra điện thoại trước khi rời khỏi các nơi mình đã viếng thăm thì bạn nên chuẩn bị tinh thần lúc thiết bị “bốc hơi”. Tuy nhiên, bạn cũng đừng băn khoăn nếu đủ nhanh để thực hiện các bước đơn giản sau đây.
+- TTO - Có vẻ như cả Google và Apple đang cố gắng giúp người dùng cân bằng công nghệ và cuộc sống.
+- TTO - Với tốc độ 9 dặm/giờ và có thể tự động mở khóa khi nhận diện đúng khuôn mặt khách hàng, chiếc xe này có thể giúp quá trình vận chuyển hàng hóa đến người dùng mua hàng trực tuyến diễn ra thuận tiện hơn.
+- TTO - Kết quả khảo sát mới nhất của Trung tâm nghiên cứu Pew cho biết Facebook hiện không phải là mạng xã hội hấp dẫn nhất với nhóm bạn trẻ độ tuổi 13-17.
+- TTO - Để giúp những người khiếm thị sử dụng máy tính thuận lợi hơn, 3 ông lớn công nghệ hàng đầu thế giới đã hợp tác phát triển chung một tiêu chuẩn hiển thị chữ Braille phổ quát.
+- TTO - Tập đoàn Công nghiệp - Viễn thông Quân đội (Viettel) sẽ chính thức áp dụng cước roaming mới tại Myanmar tương tự như cước sử dụng ở Việt Nam vào đúng thời điểm khai trương mạng di động Mytel vào ngày 9-6-2018
+- TTO - Hãng Canon vừa thông báo chính thức dừng bán loại máy ảnh chụp phim cuối cùng EOS-1v của hãng này.
+- TTO - Tỉ phú đầu tư Warren Buffett đầu năm nay từng đề xuất đầu tư 3 tỉ USD vào công ty Uber, song việc đàm phán không thành do những bất đồng về điều khoản và quy mô thỏa thuận.
+- TTO - Ford vừa tung ra chiến dịch Share The Road nhằm mục đích cải thiện an toàn đường bộ bằng sự hỗ trợ của các thiết bị VR dành riêng cho người đi xe đạp trên đường.
+- TTO - Với sự phát triển của xe tự lái, Úc là một trong những quốc gia sớm có động thái đầu tiên bằng việc công bố luật dành riêng nhằm mục đích bảo vệ sự an toàn của công dân trong việc di chuyển bằng các phương tiện tự lái.
+- TTO - Chất thải điện tử, các thiết bị điện tử đã qua sử dụng, phế liệu máy tính… từ mọi nơi trên thế giới, đặc biệt là từ Hồng Kông, Singapore, Nhật Bản…, đang tràn vào Thái Lan với số lượng ngày càng lớn.
+- TTO - Ứng dụng Messenger Kids vừa có thay đổi nhỏ nhưng đáng chú ý, cho phép các phụ huynh không cần kết bạn với nhau trên Facebook nhưng con cái họ vẫn có thể kết nối được với nhau trong ứng dụng này.
+- TTO - Các nhà nghiên cứu tại đại học Newcastle (Anh) đã chế tạo được chiếc máy in 3D đầu tiên trên thế giới có khả năng in giác mạc người.
+- TTO - Một nghiên cứu quốc tế mới đây trên 605 bệnh nhân suy tim ở 6 quốc gia khác nhau bao gồm Mỹ, Ý, Đức, Thụy Điển, Israel và Hà Lan đã phát hiện ra rằng chơi video game có thể giúp cải thiện khả năng thể chất và chất lượng cuộc sống cho họ.
+- TTO - Theo Automation Readiness Index, 10 quốc gia sau đây hiện đang đứng đầu trong việc chuẩn bị cho những tiến bộ AI và IoT.
+- TTO - Chính phủ Mỹ vừa phát thông cáo cảnh báo với các chi tiết kỹ thuật về một loạt vụ tấn công trước nay, lùi về tới tận năm 2009 mà họ cáo buộc do hacker được chính phủ Triều Tiên “chống lưng” tấn công.
 ![life](Life.png)
