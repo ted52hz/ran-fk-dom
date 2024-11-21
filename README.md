@@ -1,6 +1,19 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Ngày 20-11, Quốc hội thảo luận về dự thảo Luật Nhà giáo. Các nội dung liên quan chính sách đặc thù về tiền lương, tuyển dụng nhà giáo, dạy thêm đã nhận được nhiều ý kiến thảo luận của đại biểu.
+- Hành trình dạy học đối với cô giáo Phạm Minh Trang, giáo viên lớp 1/1 Trường tiểu học Đống Đa, quận Tân Bình, TP.HCM, là không ngừng đổi mới.
+- Giải thưởng Lê Văn Thới do giáo sư Lê Ngọc Thạch tài trợ vừa được tiếp tục trao cho người học có kết quả nghiên cứu khoa học xuất sắc.
+- Trường THPT ở Đắk Lắk thông báo không nhận hoa, phong bì vì không muốn phụ huynh, học sinh khó khăn bận lòng dịp lễ 20-11.
+- Bước sang mùa thứ 4 với nhiều đổi mới, sân chơi Royal Speaking Contest của Royal School không chỉ thu hút dàn thí sinh chất lượng mà còn lan tỏa giá trị của kỹ năng hùng biện học thuật.
+- Trẻ tự kỷ cần nhiều hơn một người thầy, người đồng hành sẵn sàng bước vào thế giới của các em, từng chút một.
+- Bộ trưởng Nguyễn Kim Sơn nêu rõ đang chủ trương không cấm việc dạy thêm, mà cấm những hành vi dạy thêm vi phạm đạo đức hoặc trái nguyên tắc chuyên môn của nhà giáo.
+- Theo PGS.TS Nguyễn Đức Sơn, tôn vinh nghề dạy học để thấy trách nhiệm của chúng ta lớn lao, công việc của chúng ta có ý nghĩa.
+- Những buổi không lên lớp, mẹ dọn hàng ra chợ và mãi đến chiều tối mới về nhà. Ngày 20-11 năm nay, tôi gửi lời tri ân hai đấng sinh thành của tôi.
+- Lực lượng cứu nạn, cứu hộ đã tìm được cả 5 thi thể học sinh trong vụ đuối nước xảy ra ở bãi sông Hồng đoạn qua xã Hiền Quan (Phú Thọ).
+- Dạy thêm học thêm cũng có những mặt tích cực, không phải giáo viên nào cũng xấu, ép học sinh học thêm.
+- Huyện đảo Trường Sa vừa tổ chức gặp mặt các thầy cô giáo đang công tác tại huyện đảo, nhân Ngày Nhà giáo Việt Nam (20-11).
+- 'Tình cảm của chúng em dành cho thầy bền chắc như những phân tử liên kết của carbon: Không ai có thể phá vỡ...'.
 - Bối cảnh mới đòi hỏi phải định nghĩa lại người thầy, hay nói cách khác là minh định lại vai trò là sứ mệnh của nghề giáo.
 - Họ đến với nghề giáo từ nhiều ngả đường khác nhau. Dù với con đường nào thì đích đến của họ là nghề trồng người, tuy nhiều gian lao nhưng vô cùng ý nghĩa.
 - Duy nhất cái tên Lê Công Sự là thầy giáo trong cả trăm "cô nuôi dạy trẻ" được Thành Đoàn TP.HCM trao giải thưởng "Nhà giáo trẻ tiêu biểu" TP.HCM 2024 dịp 20-11 năm nay.
@@ -988,21 +1001,56 @@
 - Thứ trưởng Bộ Giáo dục và Đào tạo Phạm Ngọc Thưởng đã yêu cầu TP.HCM sớm có trường phổ thông dùng tiếng Anh là ngôn ngữ thứ 2.
 - Phát hiện hai em nhỏ bị rơi xuống sông đuối nước, ba học sinh lớp 8 đã lao tới cứu các em, đưa lên bờ an toàn.
 - Các bài học về kỹ năng sống phải được thiết kế thiết thực hơn. Sự trải nghiệm quan trọng nhất là trải nghiệm thực tế cuộc sống.
-- Phải có đủ sách giáo khoa đến tay học sinh trước năm học mới 2024-2025 là yêu cầu của Bộ GD-ĐT được nhắc lại khi sắp tới ngày khai trường.
-- Chính quyền Jakarta lên kế hoạch sắp xếp cho học sinh nghèo được học miễn phí tại 1.000 trường tư thục trong năm học tới.
-- Trong năm học mới, các trường phát triển hệ thống ngân hàng câu hỏi trực tuyến cho các môn học; đẩy mạnh đánh giá thường xuyên bằng hình thức trực tuyến...
-- Liên quan vụ tố không xác nhận cư trú cho trẻ đi học, người cha cho biết đã chuyển chỗ ở từ Vĩnh Long sang Bến Tre để con kịp nhập học.
-- Theo dự thảo sửa đổi, bổ sung thông tư số 50/2021, Bộ Công an sẽ sửa đối tượng dự tuyển trình độ thạc sĩ và bổ sung đối tượng được phép đăng ký dự tuyển trình độ đại học vừa làm vừa học.
-- Số điện thoại tiếp nhận thông tin trong giờ hành chính của Bộ Giáo dục và Đào tạo: 024.38621002, email: duongdaynongct10.2019@moet.gov.vn.
-- Trường đại học Sư phạm TP.HCM vừa công bố đề thi đánh giá năng lực chuyên biệt theo cấu trúc mới từ năm 2025.
-- Liên quan đến việc Trường THPT Ngô Quyền - Đông Anh, Hà Nội, ra quyết định "dừng đào tạo" với một học sinh lớp 12A5, Sở Giáo dục và Đào tạo Hà Nội vừa có chỉ đạo.
-- Trường trung cấp Y - Dược Tôn Thất Tùng bị thanh tra kết luận có dấu hiệu làm giả giấy chứng nhận đăng ký hoạt động để cung cấp cho bảo hiểm xã hội quận.
-- Ông Nguyễn Văn Hiếu - giám đốc Sở Giáo dục và Đào tạo TP.HCM - yêu cầu các trường trung học coi dạy tiếng Anh là mở cánh cửa vào đời cho học sinh và yêu cầu cán bộ sở này nghiên cứu trình dự thảo về phổ cập tiếng Anh cho học sinh TP.
-- Sinh viên ngành công nghệ thông tin Trường đại học Công nghệ TP.HCM (HUTECH) trải nghiệm cách học lưu động mà ở đó các bạn được vạch đường từ những chuyên gia công nghệ.
-- Nhiều trường phổ thông tư thục tại TP.HCM đã bắt đầu đón học sinh tựu trường năm học mới từ tuần này.
-- Sở Giáo dục và Đào tạo TP.HCM vừa yêu cầu Trường quốc tế AISVN nghiêm túc chấp hành quyết định đình chỉ hoạt động, đồng thời tạo mọi điều kiện thuận lợi nhất cho cha mẹ học sinh làm thủ tục chuyển trường.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Từ thực tế gỡ vướng cho dự án Nhiệt điện Thái Bình 2, những dự án ngàn tỉ đồng hiện đang còn vướng mắc có cách nào để giải quyết?
+- Sự hồi sinh Nhà máy nhiệt điện Thái Bình 2, đạm Ninh Bình, xơ sợi Đình Vũ... thời gian qua cho thấy có thể chặn đứng lãng phí ở những đại dự án ngàn tỉ đồng "đắp chiếu" nhiều năm.
+- Ngày 20-11, Quốc hội thảo luận về dự thảo Luật Nhà giáo. Các nội dung liên quan chính sách đặc thù về tiền lương, tuyển dụng nhà giáo, dạy thêm đã nhận được nhiều ý kiến thảo luận của đại biểu.
+- Hôm nay (21-11), Quốc hội thảo luận việc thí điểm cho mua đất nông nghiệp, đất không phải đất ở làm dự án nhà ở thương mại. Lần thứ 3 (trong hai năm kể từ năm 2022) doanh nghiệp hồi hộp chờ một chính sách vốn đã có, giờ chờ thông qua để "thí điểm".
+- Vụ tai nạn xảy ra khoảng 23h30 ngày 20-11 tại km 6+500 cao tốc Phan Thiết - Dầu Giây, đoạn qua huyện Hàm Thuận Nam, tỉnh Bình Thuận giữa xe khách và xe đầu kéo.
+- Một số tin tức đáng chú ý: FPT chi nghìn tỉ đồng trả cổ tức; Phát hiện một doanh nghiệp 'ém' thông tin trái phiếu; Cuối tháng 11, cầu Rạch Đỉa ở huyện Nhà Bè sẽ thông xe; Sốt xuất huyết, tay chân miệng tại TP.HCM giảm, sởi tiếp tục tăng mạnh...
+- Thủ tướng Phạm Minh Chính nhấn mạnh quan hệ giữa Việt Nam và Cộng hòa Dominica đang bắt đầu bước sang trang mới.
+- Từ đêm nay 21-11, thời tiết miền Trung mưa lớn, hai miền Nam, Bắc ngày nắng, trên biển dông gió dữ dội.
+- Sáng 20-11 (giờ địa phương, tối cùng ngày giờ Việt Nam), Thủ tướng Phạm Minh Chính và Phu nhân đã bắt đầu các hoạt động chính thức tại Cộng hòa Dominica.
+- UBND huyện Cát Hải (TP Hải Phòng) vừa thông báo dừng hoạt động dịch vụ chèo thuyền kayak trên các vịnh thuộc quần đảo Cát Bà.
+- Một thầy giáo người Hà Tĩnh suốt hơn 50 năm qua cất công sưu tầm hàng ngàn hiện vật với tâm niệm lưu giữ, tái hiện quá khứ, phục sinh những giá trị truyền thống của dân tộc.
+- Chủ tịch UBND TP.HCM có quyết định xếp hạng di tích cấp TP với di tích kiến trúc nghệ thuật chợ Bến Thành cùng với trụ sở UBND quận 1, trụ sở Cục Hải quan TP.HCM, đền thờ Đức Thánh Trần Hưng Đạo.
+- Phó thủ tướng Trần Hồng Hà nói trong buổi làm việc với các bộ, ngành và lãnh đạo các địa phương về dự án cao tốc Đồng bằng sông Cửu Long.
+- TP.HCM rà soát toàn bộ dự án, công trình tồn đọng, tài sản công sử dụng lãng phí. Trong tháng 12 sẽ xây dựng kế hoạch chi tiết xử lý các vướng mắc.
+- Từ ngày 24-11, năm phường trên địa bàn tỉnh Hải Dương sẽ không được chăn nuôi gia súc, gia cầm.
+- Liên quan vụ tai nạn tài xế xe công nghệ có nồng độ cồn tông liên hoàn tại Bình Dương làm một người chết, công an đã khởi tố và bắt tạm giam bị can.
+- Cầu Cánh Cò vừa được UBND tỉnh Hải Dương phê duyệt kết quả thi tuyển phương án kiến trúc có vốn đầu tư 759 tỉ đồng.
+- Cùng lúc, Công an tỉnh Bình Dương có thêm hai phó giám đốc, trong đó một người tại chỗ và một người được điều động, bổ nhiệm để kiện toàn công tác nhân sự.
+- Chủ tịch UBND tỉnh Bình Thuận Đoàn Anh Dũng vừa ký ban hành kế hoạch triển khai nghị quyết số 1253 của Ủy ban Thường vụ Quốc hội về việc sắp xếp đơn vị hành chính cấp xã tại tỉnh giai đoạn 2023 - 2025.
+- Chủ tịch Hà Nội Trần Sỹ Thanh đã yêu cầu các đơn vị liên quan bàn giải pháp về việc Công viên hồ Phùng Khoang bỏ hoang nhiều năm gây lãng phí.
+- Cơ quan công an xác định có lỗi từ hai phía trong vụ tài xế taxi xịt hơi cay vào du khách ở Đà Lạt.
+- Một số đại biểu Quốc hội kiến nghị cần xem xét mở rộng tuyến đường sắt tốc độ cao, đảm bảo phát triển đồng bộ và huy động nguồn lực trong nhân dân, khối tư nhân cho dự án này.
+- Bí thư Bình Phước Nguyễn Mạnh Cường đã được Bộ Chính trị điều động, bổ nhiệm làm phó trưởng Ban Đối ngoại Trung ương.
+- Ông Võ Thành Hưng, thứ trưởng Bộ Tài chính, được Ban Bí thư điều động, bổ nhiệm giữ chức phó chánh Văn phòng Trung ương Đảng.
+- Bộ Chính trị yêu cầu các cơ quan phải xác định quyết tâm chính trị cao trong tổ chức thực hiện đề án trung tâm tài chính TP.HCM và Đà Nẵng.
+- Cục Thi hành án dân sự TP Cần Thơ vừa có báo cáo gửi Tổng cục Thi hành án dân sự về vụ cho thuê nhà rồi đòi mãi không trả, tòa buộc trả vẫn không trả.
+- Cao tốc TP.HCM - Thủ Dầu Một - Chơn Thành, cao tốc Dầu Giây - Tân Phú giai đoạn 1... đang trong giai đoạn lựa chọn nhà đầu tư triển khai.
+- Trách nhiệm chính đối với nguyên nhân kéo dài thời hạn hoàn thành giai đoạn 1 dự án sân bay Long Thành là của Bộ Giao thông vận tải và ACV.
+- Tài xế Porsche Macan S đi làn khẩn cấp rồi thò tay qua cửa kính đập gương xe Hyundai. Người ngồi trên ghế phụ ô tô Hyundai cũng hành động tương tự.
+- Hai cháu nhỏ ở Đắk Lắk ăn thịt cóc tự làm, một cháu tử vong, cháu còn lại hiện đang cấp cứu.
+- UBND TP.HCM đề xuất Thủ tướng cho phép được xây dựng quy định xử lý nợ rủi ro phát sinh của người nghèo do nguyên nhân mang tính chất đặc thù.
+- Các đơn vị hiện lắp đặt, thử nghiệm hệ thống thu soát vé tự động cho giao thông công cộng tại TP.HCM, hướng tới phục vụ người dân tốt hơn.
+- Như vậy, sau 13 năm trần ai lặn lội ngược xuôi, tốn kém tiền bạc, sức lực, người cha già đã tìm được công bằng cho con mình.
+- Bộ Giao thông vận tải nêu việc lựa chọn tốc độ thiết kế 350km/h cho đường sắt tốc độ cao Bắc - Nam để đáp ứng tiêu chí hiện đại, suất đầu tư là không đắt.
+- Ông Học đã lợi dụng chức vụ, quyền hạn, ‘thụt két’ của công ty 2,1 tỉ đồng để tiêu xài cá nhân.
+- Người đứng đầu chính quyền Đồng Nai chưa chấp thuận việc tháo dỡ hàng rào công viên quảng trường tỉnh.
+- Sáng 20-11, một số người dân ở khu vực biển Tân Thành, TP Hội An tá hỏa khi thấy trên bãi biển thi thể một người đàn ông nước ngoài nổi lên gần bờ.
+- Bộ trưởng Nguyễn Kim Sơn nêu rõ đang chủ trương không cấm việc dạy thêm, mà cấm những hành vi dạy thêm vi phạm đạo đức hoặc trái nguyên tắc chuyên môn của nhà giáo.
+- Thủ tướng Phạm Minh Chính là lãnh đạo chủ chốt đầu tiên của Việt Nam đến thăm Cộng hòa Dominica kể từ khi hai nước thiết lập quan hệ ngoại giao năm 2005.
+- Đẩy mạnh công tác giáo dục chính trị tư tưởng trong đội ngũ phóng viên, biên tập viên, đổi mới phương pháp giảng dạy lý luận chính trị, chú trọng thực tiễn và hấp dẫn.
+- Công an thị xã Phú Mỹ, tỉnh Bà Rịa - Vũng Tàu đã cưỡng chế công trình vi phạm hành lang tuyến ống dẫn khí trong Khu công nghiệp Mỹ Xuân A2. Chủ công trình vi phạm là Công ty TNHH phát triển quốc tế Formosa.
+- Hết tiền, Trung tâm nuôi dưỡng, phục hồi chức năng nạn nhân chất độc da cam/dioxin Nghĩa Thắng (Quảng Ngãi) phải dừng hoạt động. Những người gắn bó với trung tâm 13 năm qua rất buồn vì điều này.
+- Trưởng Ban Tuyên giáo Thành ủy TP.HCM cho rằng báo Tuổi Trẻ có bước đi và kinh nghiệm rất đáng trân trọng trong công tác phát triển Đảng; đào tạo, bồi dưỡng chính trị cho đội ngũ.
+- TS Nguyễn Tiến Dĩnh cho rằng vấn đề cải cách hành chính, trong đó có tinh gọn bộ máy, tinh giản biên chế là 'khâu đột phá' trong tháo gỡ thể chế.
+- Chủ tịch UBND TP Hà Nội Trần Sỹ Thanh sẽ làm trưởng Ban Chỉ đạo về thực hiện các biện pháp phòng, chống lãng phí TP Hà Nội.
+- Một phụ nữ khi thao tác trên Internet Banking thì chuyển khoản nhầm cho người lạ. Hành trình của công an phường ở Đà Nẵng giúp người phụ nữ thu hồi số tiền như thế nào?
+- Lực lượng cứu nạn, cứu hộ đã tìm được cả 5 thi thể học sinh trong vụ đuối nước xảy ra ở bãi sông Hồng đoạn qua xã Hiền Quan (Phú Thọ).
+- Dạy thêm học thêm cũng có những mặt tích cực, không phải giáo viên nào cũng xấu, ép học sinh học thêm.
 - Họ đến với nghề giáo từ nhiều ngả đường khác nhau. Dù với con đường nào thì đích đến của họ là nghề trồng người, tuy nhiều gian lao nhưng vô cùng ý nghĩa.
 - Nguyễn Văn Giỏi - phó giám đốc Công ty Nam Hào Kiệt - bị bắt với cáo buộc nghiệm thu khối lượng công trình xử lý sạt lở bờ sông Hậu gây thiệt hại cho Nhà nước.
 - Bộ trưởng Bộ Giáo dục và Đào tạo Nguyễn Kim Sơn đã giải trình ý kiến đại biểu liên quan chính sách tiền lương, phụ cấp của giáo viên tại dự Luật Nhà giáo.
@@ -1955,54 +2003,6 @@
 - Liên quan vụ 21 con hổ, báo chết ở Đồng Nai, các mẫu xét nghiệm lấy tại khu du lịch Vườn Xoài liên tiếp âm tính với cúm gia cầm A/H5N1.
 - Đà Nẵng sẽ nghiên cứu kết hợp với thương mại dịch vụ tại các điểm nhà vệ sinh công cộng trên các tuyến đường du lịch.
 - Phường An Phú, An Cư và An Nghiệp được sáp nhập vào phường Thới Bình, quận Ninh Kiều để thành lập phường mới từ hôm nay.
-- Chuyển từ quốc lộ sang đường đô thị là một tất yếu mang tính quy luật do quá trình đô thị hóa và sự thay đổi mạnh mẽ của ngành giao thông.
-- Ông Nguyễn Thanh Lâm, thứ trưởng Bộ Thông tin và Truyền thông, được Thủ tướng Chính phủ bổ nhiệm giữ chức tổng giám đốc VTV.
-- Cơ quan cảnh sát điều tra Bộ Công an vừa kết luận điều tra vụ án xảy ra ở dự án Khu đô thị du lịch biển Phan Thiết, tỉnh Bình Thuận.
-- Chính phủ trình Quốc hội chủ trương đầu tư Chương trình mục tiêu quốc gia phát triển văn hóa 2025-2035 với tổng nguồn 256.250 tỉ đồng.
-- Ngày 1-11, một lãnh đạo Công an TP Pleiku cho biết hiện cơ quan điều tra đang thụ lý vụ nữ sinh bị đánh tập thể rồi lột đồ quay clip.
-- Nguyễn Văn Tiền (ở xã Dương Tơ, Phú Quốc) cùng hai người khác đã chuyển nhượng khoảng 3ha đất lấy 4 tỉ đồng.
-- Để cấm xe máy cá nhân, Hà Nội cần đánh giá tác động xã hội, bởi cấm xe cá nhân thì phải có xe thay thế, phương tiện công cộng phải tiện lợi.
-- Nhiều người dân xã Vĩnh Ngọc (Nha Trang) nói họ "mừng hơn trúng số" khi HĐND TP vừa thống nhất đầu tư xây dựng cầu Phú Kiểng kiên cố.
-- Ông Lâm Phi Hùng sinh năm 1965, ông xin nghỉ hưu trước tuổi hơn 2 năm theo đối tượng tinh giản biên chế.
-- Đại biểu Quốc hội đề nghị quy định cụ thể về phòng cháy chữa cháy với trường hợp nhà ở chuyển đổi công năng sang sản xuất, kinh doanh.
-- Tuyến cao tốc Nghi Sơn - Diễn Châu do Tập đoàn Sơn Hải thi công và bảo hành 10 năm bị gỡ hết 9 biển cam kết bảo hành 10 năm trên đường.
-- Công an bắt quả tang khi tài xế Nguyễn Hoàng Anh nhận 250 triệu đồng của một phụ nữ để hứa hẹn chạy án ma túy.
-- Công an TP Quảng Ngãi đã tống đạt quyết định khởi tố bị can và bắt tạm giam thanh niên quan hệ tình dục với hai chị em sinh đôi mới 15 tuổi.
-- Trao đổi với Tuổi Trẻ, luật sư Trương Anh Tú, chủ tịch TAT Law Firm, khẳng định việc cấm phân lô bán nền là cần thiết.
-- Với thực trạng phân lô bán nền nhức nhối như thời gian qua, liệu các địa phương có thể ngăn chặn?
-- Hầu hết là xe không rõ nguồn gốc, xuất xứ được nhập lậu hoặc tự lắp ráp, "độ chế" từ các linh kiện, phụ tùng không nhãn mác.
-- Quốc hội thảo luận tại hội trường về một số nội dung còn ý kiến khác nhau của dự thảo Luật Phòng cháy, chữa cháy và cứu nạn, cứu hộ.
-- Giao UBND TP Hà Tiên tổ chức kiểm điểm rút kinh nghiệm đối với tập thể lãnh đạo UBND TP trong việc chỉ đạo, quản lý điều hành.
-- UBND thành phố Hà Nội vừa có quyết định về việc ban hành giá vé vận chuyển hành khách công cộng bằng xe buýt có trợ giá trên địa bàn thành phố bắt đầu từ ngày 1-11.
-- Hà Nội, TP.HCM đang gồng mình chịu ô nhiễm, trong đó có lượng khí thải khổng lồ từ xe cộ dùng xăng dầu thải ra hằng ngày.
-- Một số tin tức đáng chú ý: Quốc hội thảo luận Luật Phòng cháy, chữa cháy và cứu nạn, cứu hộ; Miền Tây lại đối mặt triều cường cao; Việt Nam nằm trong nhóm nước bị thiếu i ốt...
-- Hôm nay 1-11, thời tiết Bắc Bộ sẽ chuyển lạnh do không khí lạnh tăng cường. Nam Bộ và Trung Bộ nắng gián đoạn, có lúc mưa rào.
-- Trong 1 tháng cao điểm xử lý vi phạm của cảnh sát giao thông, có hơn 77.000 trường hợp vi phạm nồng độ cồn bị xử lý.
-- Bảo tàng Lịch sử quân sự Việt Nam mới tại quận Nam Từ Liêm, Hà Nội chính thức mở cửa phục vụ người dân và du khách từ ngày mai 1-11.
-- Gặp mặt lãnh đạo TP.HCM, đoàn Hội Tiểu nông Cuba mong muốn thắt chặt quan hệ hợp tác, hữu nghị giữa Hội Tiểu nông Cuba với TP.HCM.
-- Xưởng nội thất ở An Đồng (huyện An Dương, Hải Phòng) cháy lan làm 7 hộ dân liền kề bị thiệt hại.
-- Tỉnh Khánh Hòa đang đề nghị các bộ ngành trung ương góp ý về đề án xây dựng Trung tâm Nghiên cứu quốc gia về công nghệ đại dương tại tỉnh này.
-- Ngày 1-11, thị xã Đông Triều (tỉnh Quảng Ninh) sẽ chính thức trở thành thành phố, như vậy Quảng Ninh sẽ có 5 thành phố trực thuộc tỉnh.
-- HĐND tỉnh Khánh Hòa đã gác lại việc thông qua nghị quyết phê duyệt danh mục 18 khu đất để thực hiện đấu thầu lựa chọn nhà đầu tư.
-- Ngày 31-10, Phó thủ tướng thường trực Nguyễn Hòa Bình đã ký quyết định số 1303/QĐ-TTg về việc thi hành kỷ luật đối với bà Nguyễn Thị Hồng, nguyên phó chủ tịch UBND TP.HCM.
-- Dự án xây dựng đoạn tuyến nối từ đường Võ Văn Kiệt đến đường cao tốc TP.HCM - Trung Lương (giai đoạn 1) khởi công từ năm 2016.
-- Việt Nam bày tỏ mong muốn hợp tác chặt chẽ với chính quyền Mỹ trong thời gian tới, trong bối cảnh chỉ còn vài ngày nữa là bầu cử tổng thống Mỹ.
-- Kết luận có nhiều nội dung để tháo gỡ những điểm nghẽn, khó khăn.
-- Đại biểu Tạ Văn Hạ nêu dẫn chứng con ông đi học phổ thông, được gia đình mua bảo hiểm của công ty nước ngoài, nhưng cũng phải đóng bảo hiểm y tế.
-- Bộ Ngoại giao cho hay Việt Nam sẽ nghiên cứu các quy chế của nhóm BRICS và việc tham gia được xem xét trên cơ sở lợi ích, điều kiện, khả năng của Việt Nam.
-- Nhà thầu thi công mặt đường bề rộng 4m, nhưng lại nghiệm thu với bề rộng 13m, dẫn đến phần diện tích chênh lệch là 1.836m2.
-- Trong 10 ngày đầu tháng 11, ở Biển Đông xuất hiện áp thấp nhiệt đới, còn miền Trung có khả năng gặp đợt mưa đặc biệt lớn, gây ngập lụt.
-- Bộ Ngoại giao nhấn mạnh chủ quyền đối với quần đảo Hoàng Sa, kiên quyết phản đối việc bắt giữ của Trung Quốc và yêu cầu thả ngư dân đồng thời bồi thường.
-- Bộ Ngoại giao Việt Nam bày tỏ hết sức quan ngại khi có thông tin Trung Quốc đang hoàn thiện cơ sở hạ tầng để đưa radar ra đảo Tri Tôn, thuộc quần đảo Hoàng Sa.
-- Biết tin thầy hiệu trưởng nghỉ hưu, 1.400 học sinh Trường THPT Phan Chu Trinh (xã Ea Ral, Ea Hleo, tỉnh Đắk Lắk) tổ chức lễ chia tay ngay tại sân trường.
-- Trường đại học Fulbright Việt Nam cho biết đã nhận giấy phép xây dựng cho giai đoạn 1 tại Khu công nghệ cao TP.HCM vào ngày 28-10-2024.
-- Đại biểu Quốc hội đề nghị quy định thanh toán cho bệnh nhân khám bảo hiểm y tế phải mua thuốc, vật tư y tế bên ngoài khi bệnh viện không có.
-- Quân khu 4 sẽ cử y bác sĩ về thị trấn Lăng Cô (huyện Phú Lộc, Thừa Thiên Huế) để khám, cấp phát thuốc cho người dân ở vùng bị thiệt hại do bão Trà Mi gây ra.
-- Bà Hoàng Thị Kim Châu, nguyên tổng giám đốc Công ty cổ phần Bách Đạt An, đã bị Công an tỉnh Quảng Nam khởi tố, bắt tạm giam.
-- Tại kỳ họp thứ 14 HĐND tỉnh Tiền Giang khóa X, bà Châu Thị Mỹ Phương, trưởng Ban Tuyên giáo Tỉnh ủy Tiền Giang, đã được bầu làm chủ tịch Hội đồng nhân dân tỉnh Tiền Giang khóa 10, nhiệm kỳ 2021-2026
-- Dự án cầu Rạch Miễu 2 đã thi công hoàn thành 100% thân trụ tháp dây văng cho cả 2 trụ tháp P19 và P20, hoàn thành vượt tiến độ hơn 3 tháng so với kế hoạch.
-- Cầu đi bộ kết nối với tuyến metro số 1 sẽ tạo nhiều thuận tiện cho người dân đi lại. Việc xây dựng hoàn thành tất cả 9 cây cầu đi bộ là bước ngoặt quan trọng, tiến đến vận hành chính thức trong tháng 12.
-- Temu, Shein và Taobao đang tạo áp lực cạnh tranh lên thị trường Việt Nam, khiến các sản phẩm nội địa khó cạnh tranh. Việt Nam cần làm gì để giảm khoảng cách này?
 ![New](News.png)
 ## Nhịp sống số 
 - Samsung đã đáp ứng nhu cầu khám phá và trải nghiệm công nghệ của người tiêu dùng theo cách khác biệt với cửa hàng Samsung West Lake.
