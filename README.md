@@ -1,6 +1,21 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Hãng Clarivate vừa công bố danh sách thường niên các nhà nghiên cứu được trích dẫn nhiều, Highly Cited Researchers (HCR) năm 2024, trong đó lần đầu tiên không có người nào từ Việt Nam.
+- Có nghiên cứu sinh làm chục năm chưa xong tiến sĩ, nhiều người bỏ ngang. Cơ chế hiện nay không khuyến khích giảng viên học tiến sĩ vì quá cực.
+- Ngày 22-11, tại trụ sở Tập đoàn Viettel đã diễn ra lễ bế giảng chương trình Thực tập sinh tài năng - Viettel Digital Talent 2024, tổng kết chặng đường 6 tháng đào tạo và thực tập tại các đơn vị, cơ quan với chủ đề “Bung ý tưởng - bừng tương lai”.
+- Một trong hai giải pháp là phát hiện lỗ hổng kiến thức của học sinh, trên cơ sở đó AI sẽ đề xuất những nội dung học sinh cần bồi dưỡng.
+- Dự kiến từ năm 2025, cơ sở giáo dục đại học xét học bạ phải xét kết quả học tập cả năm lớp 12 của thí sinh; công khai danh sách thí sinh trúng tuyển xét tuyển sớm, tuyển không quá 20%.
+- Ngày 22-11, Trường đại học Y Dược Cần Thơ đã tổ chức lễ khai giảng năm học 2024-2025 dành cho sinh viên nước ngoài. Năm học này có 100 sinh viên đến từ Ấn Độ theo học ngành y khoa tại trường.
+- Khoản thuế 2% hoạt động giáo dục sẽ được tính vào học phí, nghĩa là gánh nặng cho sinh viên và phụ huynh.
+- Hơn 1.000 học sinh tiểu học tại TP.HCM đã có một ngày thỏa thích vui cười với nhiều loại hình trò chơi đến từ tiếng mẹ đẻ trong Ngày hội học sinh tiểu học chủ đề "Em yêu tiếng Việt".
+- Đợt tốt nghiệp tháng 11-2024 của Trường đại học Bách khoa, Đại học Quốc gia TP.HCM có năm sinh viên với nhiều thành tích xuất sắc được nhà trường trao tặng cúp toàn năng.
+- Một nhóm sinh viên Mỹ đã phá vỡ loạt kỷ lục thế giới khi phóng tên lửa tự chế xa hơn và nhanh hơn bất kỳ tên lửa nghiệp dư nào khác...
+- Theo các nhà khoa học, không thể loại bỏ ChatGPT ra khỏi quá trình giáo dục, ngược lại cần khuyến khích sử dụng nhưng đòi hỏi giảng viên phải 'thông minh' hơn ChatGPT.
+- New Zealand vừa công bố những cập nhật quan trọng về tiêu chí xét duyệt visa làm việc sau tốt nghiệp (PSWV) cho du học sinh.
+- Đôi khi chính các thầy cô giáo cũng không nghĩ mình chính là "nhà lãnh đạo" của các em học sinh, trong cả kỳ vọng của xã hội lẫn trong mắt của chính các em.
+- Đại học Huế vừa có kết luận vụ luận án tiến sĩ của trưởng phòng nghiên cứu khoa học Trung tâm Bảo tồn di tích cố đô Huế bị tố đạo văn.
+- Bộ trưởng Bộ Giáo dục và đào tạo Nguyễn Kim Sơn vừa có giải trình tại Quốc hội một số vấn đề tại phiên thảo luận về dự Luật Nhà giáo.
 - Kỳ thi độc lập, đánh giá năng lực của Trường đại học Sư phạm Hà Nội năm 2025 sẽ thi vào ngày 17 và 18-5-2025. Từ năm 2026, kỳ thi bổ sung thêm các môn giáo dục kinh tế và pháp luật, tin học, công nghệ.
 - Giáo viên phải đăng ký dạy thêm, đóng thuế rõ ràng như các ngành nghề khác.
 - UBND tỉnh Khánh Hòa cho hay sẽ sửa chữa và bàn giao khu ký túc xá sinh viên Nha Trang bỏ hoang nhiều năm cho Trường đại học Khánh Hòa quản lý.
@@ -986,26 +1001,61 @@
 - Năm 2024, điểm chuẩn hầu hết các ngành của Trường đại học Ngân hàng TP.HCM tăng so với năm 2023. Tuy nhiên có ngành giảm 1 điểm.
 - Điểm chuẩn vào Trường đại học Công nghệ (Đại học Quốc gia Hà Nội) năm nay dao động từ 22,5 đến 27,8 điểm.
 - Trường đại học Khoa học xã hội và Nhân văn Hà Nội lấy điểm chuẩn vào ngành quan hệ công chúng, báo chí ở mức trên 29 điểm, tổ hợp C00.
-- Điểm chuẩn ngành kỹ thuật hạt nhân năm nay tăng 6,6 điểm; ngành khoa học vật liệu tăng 5,3 điểm; ngành quản lý tài nguyên và môi trường tăng 3,5 điểm...
-- Ngành thương mại điện tử của Trường đại học Kinh tế quốc dân lấy điểm chuẩn ở mức cao như năm 2023 là 28,02 điểm.
-- Ngày 17-8, Trường đại học Ngoại thương (FTU) công bố điểm chuẩn theo phương thức xét điểm thi tốt nghiệp. Có 95% chỉ tiêu có ngưỡng điểm 27.
-- Chiều 17-8, Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) công bố điểm chuẩn theo phương thức xét tuyển tổng hợp năm 2024.
-- Hai ngành lấy điểm chuẩn cao nhất Trường đại học Thương mại là thương mại điện tử (quản trị thương mại điện tử), marketing (marketing thương mại), thí sinh phải được 9 điểm/môn.
-- Ngành có điểm chuẩn tăng nhiều nhất Trường đại học Y Dược Cần Thơ là y học cổ truyền. Riêng ngành y tế công cộng giảm gần 1 điểm.
-- Giải Lê Quý Đôn trên ấn phẩm Nhi Đồng - Khăn Quàng Đỏ của báo Tuổi Trẻ bước vào mùa giải thứ 30 và đón nhận bằng khen của UBND TP.HCM.
-- Trường đại học Kinh tế - Luật (Đại học Quốc gia TP.HCM) vừa công bố điểm chuẩn trúng tuyển đại học chính quy theo phương thức xét điểm thi tốt nghiệp THPT năm 2024.
-- Chiều 17-8, Đại học Bách khoa Hà Nội công bố điểm chuẩn trúng tuyển đại học chính quy năm 2024 theo phương thức xét điểm thi tốt nghiệp THPT và điểm thi đánh giá tư duy.
-- Ngành luật kinh tế của Học viện Ngân hàng có điểm chuẩn cao nhất 28,13 điểm, tương đương hơn 9,3 điểm/môn thí sinh mới trúng tuyển.
-- Chiều và tối nay 17-8, nhiều trường đại học đã công bố điểm chuẩn phương thức xét điểm thi tốt nghiệp THPT. Tuổi Trẻ Online liên tục cập nhật.
-- Dự thảo thông tư về kiểm định chất lượng chương trình đào tạo do Bộ Giáo dục và Đào tạo đưa ra lấy ý kiến có nhiều thay đổi so với trước đây.
-- Trường đại học Y Dược TP.HCM vừa công bố nghị quyết bổ nhiệm phó hiệu trưởng phụ trách chuyên môn của nhà trường.
-- Năm học 2024 - 2025, TP.HCM sẽ lựa chọn các trường phổ thông công lập để thí điểm dùng tiếng Anh làm ngôn ngữ thứ 2 dạy học. Đây là bước đột phá của giáo dục TP.HCM trong năm học mới.
-- Các trường học cho rằng nếu học sinh được tự do dùng điện thoại, các em có thể xem nội dung có hại hoặc chơi trò chơi, dẫn tới không tập trung học.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Sáng 22-11, Vietnam Airlines Group (gồm Vietnam Airlines, Pacific Airlines và VASCO) thông báo cung ứng thêm hơn 650.000 ghế, tương đương hơn 3.000 chuyến bay trên các chặng bay nội địa Việt Nam dịp Tết 2025.
+- Tại dự Luật Công nghiệp công nghệ số đã bổ sung nội dung về tài sản số, trí tuệ nhân tạo (Al) và quy định chương riêng liên quan công nghiệp bán dẫn.
+- Dự kiến cuối tháng 11 này, dự thảo sửa đổi bổ sung một số điều Luật Bảo hiểm y tế (BHYT) được Quốc hội thông qua, kỳ vọng sẽ đem lại nhiều lợi ích cho người tham gia BHYT mà người dân đang rất quan tâm.
+- Quảng Ngãi yêu cầu cả hệ thống chính trị vào cuộc, giải quyết dứt điểm vướng mắc, hỗ trợ tối đa thủ tục hành chính, mỏ vật liệu để nhà thầu đẩy nhanh tiến độ cao tốc Quảng Ngãi - Hoài Nhơn.
+- Vụ tai nạn giữa sà lan và ghe chài lưới trên sông Đồng Nai khiến hai vợ chồng rơi xuống sông. Người vợ được cứu kịp thời, còn người chồng mất tích, được tìm thấy đã tử vong sau đó.
+- Một số tin tức đáng chú ý: Quốc hội họp bàn về công nghệ số, phát triển trí tuệ nhân tạo; Người Việt đầu tiên giành giải TechWomen 100; TP.HCM tiêm vắc xin sởi cho trẻ 6 - 9 tháng tuổi...
+- Hôm nay 23-11, thời tiết Bắc Bộ lạnh đến rét, vùng núi nhiệt độ xuống dưới 15 độ C. Trung Bộ mưa to, còn Nam Bộ ngày nắng.
+- Tại lễ kỷ niệm 120 năm thành lập tỉnh Đắk Lắk, Phó thủ tướng thường trực Chính phủ Nguyễn Hòa Bình cho rằng đoàn kết là "chìa khóa" để địa phương trở thành điểm đến đáng sống.
+- Chuyển đổi số xanh được kỳ vọng sẽ nâng cao năng lực, tạo ra lợi thế cạnh tranh lớn hơn cho thành phố cảng.
+- 'Đài truyền hình Việt Nam lấy làm tiếc về sự việc nghiêm trọng này và sẽ chủ động phối hợp với các cơ quan chức năng cùng gia đình tài xế xe tải để giải quyết vụ việc theo đúng tinh thần thượng tôn pháp luật', VTV thông tin.
+- UBND TP.HCM vừa công bố danh mục 31 vị trí sạt lở bờ sông, kênh, rạch nguy hiểm và đặc biệt nguy hiểm năm 2024.
+- Hiện nay khu vực dân cư phường Dương Đông (TP Phú Quốc, Kiên Giang) chưa có hệ thống xử lý nước thải tập trung. Địa phương sẽ làm gì để xử lý vấn đề trên, góp phần hạn chế ô nhiễm môi trường, phát triển du lịch biển đảo?
+- Phó chủ tịch thường trực UBND tỉnh Quảng Trị Hà Sỹ Đồng vừa được Thủ tướng giao quyền chủ tịch UBND tỉnh nhiệm kỳ 2021-2026.
+- Bộ Giao thông vận tải vừa thành lập Hội đồng thẩm định quy hoạch tuyến đường sắt Lào Cai - Hà Nội - Hải Phòng - Quảng Ninh dài hơn 447km, có chi phí đầu tư ước tính hơn 183.800 tỉ đồng.
+- Bộ Chính trị điều động, phân công, bổ nhiệm Bí thư Tỉnh ủy Thái Bình Ngô Đông Hải giữ chức phó trưởng Ban Tuyên giáo Trung ương.
+- Sau nhiều lần chậm tiến độ, dự án hệ thống xử lý nước thải Yên Xá (Hà Nội) sẽ được vận hành thử vào ngày 1-12 tới.
+- Ngày 22-11, Đảng ủy Văn phòng Trung ương Đảng tổ chức lễ trao Huy hiệu 50 năm tuổi Đảng tặng nguyên Ủy viên Bộ Chính trị, nguyên Thường trực Ban Bí thư khóa XII Đinh Thế Huynh.
+- Thiếu phôi, sao không cấp bằng lái số để giải quyết tình trạng hàng chục ngàn người dân ở nhiều tỉnh thành bị treo bằng lái dù thi đậu?
+- Xeng và Sisavanh Yongyaerlor vận chuyển thuê 70kg ma túy từ Lào vào Việt Nam để lấy 28.000 USD tiền công, thì bị lực lượng chức năng phát hiện, bắt giữ.
+- Theo Tổ chức Y tế thế giới, đã có gần 270.000 ca tử vong do đề kháng thuốc kháng sinh tại Việt Nam trong khoảng thời gian từ năm 2020 đến năm 2023.
+- Khoản thuế 2% hoạt động giáo dục sẽ được tính vào học phí, nghĩa là gánh nặng cho sinh viên và phụ huynh.
+- Đại diện Hiệp hội Bất động sản TP.HCM và các doanh nghiệp đề xuất quận 1 vận dụng các quy định để thu hồi đất, tăng số căn hộ, tăng chỉ tiêu dân số, hỗ trợ doanh nghiệp thủ tục điều chỉnh quy hoạch của dự án xây dựng mới khu vực chợ Gà, chợ Gạo.
+- Ngày 22-11, Sở Giao thông vận tải tỉnh Kiên Giang tổ chức lễ công bố kết quả thi tuyển phương án kiến trúc cầu trên tuyến đường bộ ven biển kết nối từ An Biên - TP Rạch Giá (gọi tắt cầu vượt biển vịnh Rạch Giá).
+- Cơ quan báo chí, truyền thông hiện đang khó khăn cần chính sách ưu đãi ở mức không chịu hoặc chịu mức thuế thu nhập doanh nghiệp thấp nhất.
+- Ngày 22-11, Cơ quan an ninh điều tra Bộ Công an đã thi hành lệnh khám xét nơi làm việc và chỗ ở của ông Huỳnh Nguyễn Lộc, viện trưởng Viện Y dược học dân tộc TP.HCM.
+- Phó bí thư Thành ủy TP.HCM Nguyễn Phước Lộc khẳng định nhiệm vụ trọng tâm này gắn với việc TP thường xuyên quán triệt, tiếp thu ý kiến chỉ đạo của Trung ương, trực tiếp là đồng chí Tổng Bí thư Tô Lâm.
+- Hai mặt hàng xăng dầu tiêu dùng phổ biến là RON 95-III và dầu diesel DO có thể sẽ được Bộ Công Thương công bố giá trần.
+- Bà Tôn Ngọc Hạnh, 44 tuổi, được điều động, chỉ định làm tân bí thư Tỉnh ủy Bình Phước và là bí thư Tỉnh ủy trẻ nhất cả nước hiện nay.
+- Với tinh thần tương thân, tương ái, nâng cao ý thức, trách nhiệm của tổ chức, cá nhân chăm lo, giúp đỡ người nghèo. Ngày 28-11, Quảng Ngãi sẽ tổ chức Lễ phát động vận động ủng hộ chương trình xóa nhà tạm, nhà dột nát.
+- Ngày 22-11, nhà chức trách cho biết gần 150 bộ hài cốt phát hiện trên phố Tây Sơn, Hà Nội là của người dân bình thường, được chôn cất ở đây từ 50-70 năm.
+- Liên quan vụ tai nạn xe khách trên cao tốc Phan Thiết - Dầu Giây đêm 20-11, nhiều bạn đọc cho rằng đừng đổ lỗi cho đường sá nữa.
+- Á hậu Miss Earth Việt Nam 2023 Hoàng Kim Chi đã dành 2 giờ để vừa dạy cách livestream bán hàng, vừa trực tiếp bán hàng giúp những bạn trẻ tại Quảng Trị khởi nghiệp bằng các sản phẩm OCOP.
+- Tỉ lệ nhân lực ngành phục hồi chức năng tại Việt Nam rất thấp, chưa đáp ứng được nhu cầu của người dân trong xu hướng già hóa dân số.
+- Sau thời gian theo dõi, Công an huyện Đức Thọ (Hà Tĩnh) phối hợp với các đơn vị liên quan triệt phá thành công chuyên án buôn pháo lậu, bắt giữ 6 nghi phạm và thu giữ hơn 2,2 tấn pháo các loại.
+- Quảng Ngãi yêu cầu các chủ đầu tư không nhũng nhiễu, làm khó mà phải tạo mọi điều kiện cho nhà thầu làm hồ sơ tạm ứng, thanh toán để đẩy nhanh tiến độ giải ngân vốn đầu tư công.
+- Chủ tịch nước đã quyết định tặng thưởng Huân chương Bảo vệ Tổ quốc cho 2 phi công vụ rơi máy bay YAK-130 ở Bình Định.
+- Để kiện toàn công tác nhân sự, Bình Dương trao quyết định điều động, bổ nhiệm hàng loạt cán bộ
+- Mặc dù đồng tình với chính sách đánh thuế nước giải khát có đường song nhiều đại biểu cho rằng cần làm rõ danh mục chịu thuế và có lộ trình phù hợp.
+- Người lao động nghèo ở nhà trọ cũng lắp máy điều hòa, không hiểu sao lại đưa mặt hàng này vào hàng hóa xa xỉ để đánh thuế tiêu thụ đặc biệt.
+- Giá vé máy bay Tết Ất Tỵ 2025 không chỉ đắt đỏ mà còn khan hiếm, đặc biệt trên các đường bay tỉnh.
+- Nhiều ý kiến cho rằng nên giảm 20% thuế VAT cho cả năm 2025 để kích thích sức mua, thay vì chỉ kéo dài đến giữa năm.
+- Thượng tướng Trịnh Văn Quyết - chủ nhiệm Tổng cục Chính trị Quân đội nhân dân Việt Nam cùng hàng chục tướng lĩnh và anh hùng lực lượng vũ trang, cựu chiến binh cùng tham dự hội thảo khoa học 60 năm chiến thắng Bình Giã.
+- Cần tăng tính tự chủ, thẩm quyền cho đơn vị sự nghiệp công để tham gia cung cấp dịch vụ công, giảm tải cho cơ quan quản lý nhà nước...
+- Một gia đình ở Đồng Nai treo ô tô cũ trước cổng nhà làm kỷ niệm khiến cộng đồng mạng xôn xao.
+- Đám cháy xảy ra tại ngôi nhà cho thuê trọ ở phường Đằng Giang (quận Ngô Quyền, TP Hải Phòng) làm một người bị thương.
+- Ông Nguyễn Văn Thành, giám đốc Sở Khoa học và Công nghệ tỉnh Quảng Ngãi, bị kỷ luật khiển trách vì sai phạm, khuyết điểm trong thực hiện chức trách, nhiệm vụ được giao.
+- Bên cạnh đề xuất bổ sung một số mặt hàng vào diện chịu thuế thì một số đại biểu Quốc hội cũng đề nghị giãn áp tăng thuế tiêu thụ đặc biệt với rượu, bia.
+- 'Tai nạn giao thông là kẻ thù' cần được khởi động thành chiến dịch mạnh mẽ và quyết liệt hơn nữa.
+- Đại học Huế vừa có kết luận vụ luận án tiến sĩ của trưởng phòng nghiên cứu khoa học Trung tâm Bảo tồn di tích cố đô Huế bị tố đạo văn.
+- Với các nền tảng thương mại điện tử, nền tảng công nghệ số của doanh nghiệp nước ngoài tiến hành cung cấp hàng hóa, dịch vụ tại Việt Nam sẽ phải chịu thuế dù không có hiện diện.
+- Tình trạng thiếu phôi bằng lái đang lan ra nhiều tỉnh thành cả nước. Hệ lụy của thực trạng này là hàng chục ngàn người dân bị "treo bằng" dù thi đậu, có địa phương phải loay hoay đi mượn phôi hoặc bất đắc dĩ tạm dừng kỳ sát hạch.
 - Lực lượng chức năng quận Bình Tân đã làm việc với thanh niên đạp thẳng vào tay lái của người chạy xe máy chở hàng khiến người này ngã nhào xuống đường.
 - TP.HCM tổ chức hội thảo trọng điểm, tập trung đổi mới phương thức lãnh đạo, tinh gọn bộ máy, hướng tới kỷ nguyên mới quản lý hiệu quả và phát triển bền vững.
+- Sáng 22-11, Vietnam Airlines Group (gồm Vietnam Airlines, Pacific Airlines và VASCO) thông báo cung ứng thêm hơn 650.000 ghế, tương đương hơn 3.000 chuyến bay trên các chặng bay nội địa Việt Nam dịp Tết 2025.
 - Sau khi làm việc, Phòng Cảnh sát giao thông Công an tỉnh Đắk Lắk đã tước bằng lái 2 tháng tài xế dừng xe đón khách giữa quốc lộ 26.
 - Sau khi bị khởi tố, bắt tạm giam vì chiếm giữ nhà trái phép của mẹ già, vợ chồng người con trai đã nhận thức được hành vi của mình và tự nguyện trả lại nhà.
 - Chuyến công tác 6 ngày của Thủ tướng Phạm Minh Chính đã góp phần nâng cao vị thế Việt Nam, củng cố quan hệ song phương với Brazil và Cộng hòa Dominica.
@@ -1953,58 +2003,9 @@
 - Thanh tra tỉnh Đồng Nai vừa ban hành các quyết định thanh tra trách nhiệm nguyên chủ tịch huyện Nhơn Trạch và huyện Trảng Bom.
 - Các hoạt động có ý nghĩa quan trọng, kỳ vọng mang lại kết quả cụ thể, thực chất đối với Việt Nam, tiểu vùng Mekong.
 - Do chiếc xe múc chặn đường vào 30ha rẫy sắn, trời mưa to, người dân không kịp thu hoạch nên sắn đã bắt đầu hư hỏng.
-- Công an tỉnh Lâm Đồng vừa có văn bản đề nghị gỡ bỏ lệnh 'đóng băng' với các bất động sản tại TP Bảo Lộc trong 3 năm nay.
-- Bộ trưởng Bộ Công an điều động công tác, bổ nhiệm đại tá Nguyễn Hữu Phước giữ chức vụ giám đốc Công an tỉnh Khánh Hòa.
-- Dù không có bằng lái nhưng người đàn ông ở Đồng Nai vẫn lái xe đưa rước gần 30 học sinh đến trường.
-- Tập đoàn Sơn Hải khẳng định việc lắp biển thông báo về bảo hành trên cao tốc Nghi Sơn - Diễn Châu là thực hiện theo hợp đồng với chủ đầu tư.
-- Bà L. nói cảm thấy hối hận vì để con đi xe rồi gây ra tai nạn: 'Tôi chỉ nghĩ con lấy xe đi lại, không ngờ lại ra cơ sự này'.
-- Cầu Rạch Đỉa (huyện Nhà Bè, TP.HCM) đã thành hình, đường dẫn hai đầu cầu cũng đang được trải nhựa… sẵn sàng thông xe trong tháng 12.
-- Lãng phí được đại biểu Quốc hội nêu qua các dự án điện gió, điện mặt trời làm xong chưa đưa vào vận hành.
-- Đây là một trong những nội dung Trưởng Ban Tuyên giáo Trung ương Nguyễn Trọng Nghĩa đề nghị Trường cao đẳng Lilama 2 chú trọng đào tạo.
-- Cảnh sát giao thông Đội Bàn Cờ đã mời tài xế xe buýt vừa lái xe vừa bấm điện thoại trên đường Lý Thường Kiệt (TP.HCM) lên làm việc, lập biên bản.
-- Quảng Trị nhận định phân luồng trên cao tốc Cam Lộ - La Sơn là bất hợp lý, mỗi ngày quốc lộ 1 đón thêm 11.000 - 14.000 lượt xe tải nặng.
-- Bí thư Thành ủy TP.HCM cho biết TP.HCM sẽ nỗ lực, không cầu toàn nhưng phải hoàn thành dự án đường Thái Văn Lung trong năm 2025.
-- Quyết định ban hành kế hoạch thực hiện quy hoạch tỉnh Quảng Ngãi thời kỳ 2021-2030, tầm nhìn đến năm 2050 vừa được phó thủ tướng phê duyệt.
-- Sau khi sao kê công khai, nhiều cá nhân bị phát hiện chỉnh sửa hình ảnh thổi phồng số tiền ủng hộ để đánh bóng tên tuổi.
-- Nhà đầu tư vẫn mòn mỏi chờ đợi dẫn đến mất cơ hội đầu tư, đành tâm tư rằng 'đường xa nghĩ nỗi sau này mà kinh'.
-- Tỉnh Quảng Ngãi đã ban hành văn bản, cấm khai thác thủy sản có thời hạn ở khu vực biển gần đảo Lý Sơn và thị xã Đức Phổ.
-- Tại sao cứ dựa vào biến động chỉ số giá tiêu dùng trong khi ai cũng thấy quy định này gây ra sự lạc hậu trong việc giảm trừ gia cảnh?
-- Sở Giao thông vận tải TP.HCM vừa ban hành phương án tổ chức giao thông tại giao lộ đường Phạm Văn Đồng - đường số 20, TP Thủ Đức.
-- Nhận huy hiệu 45 năm tuổi Đảng, nguyên Phó chủ tịch nước Đặng Thị Ngọc Thịnh bày tỏ xúc động, vinh dự và tự hào.
-- Phó thủ tướng Trần Hồng Hà chỉ đạo Bộ Giao thông vận tải tiếp tục sửa chữa, bổ sung đầy đủ hệ thống tín hiệu tại 184 đường ngang có người gác.
-- Ông Nguyễn Cao Trí xin được xét xử vắng mặt tại phiên tòa phúc thẩm vụ án xảy ra tại Tập đoàn Vạn Thịnh Phát, SCB - giai đoạn 1 vì lý do sức khỏe.
-- Đại biểu Mai Thị Phương Hoa nêu rõ còn có một bộ phận cán bộ có tâm lý coi nhẹ việc chống lãng phí ngay trong hoạt động quản lý.
-- Theo Luật Đường bộ, quốc lộ sẽ được phân quyền cho tỉnh, thành chịu trách nhiệm quản lý. Nhiều tỉnh, thành lo lấy kinh phí và nhân lực ở đâu.
-- Huyện Phú Quý, tỉnh Bình Thuận phối hợp hỗ trợ người nhà đưa thi thể du khách C.H.M. (19 tuổi, quê Lâm Đồng) vào đất liền.
-- Ngôi nhà 5 tầng ở Hà Nội xảy ra hỏa hoạn lúc rạng sáng 4-11. Cảnh sát sau đó đã tiếp cận để dập lửa và giải cứu 2 người mắc kẹt.
-- Bệnh dại gia tăng khiến chủ tịch tỉnh Quảng Nam yêu cầu người đứng đầu các địa phương phải chịu trách nhiệm.
-- Theo cơ quan khí tượng Nhật Bản, ngoài khơi Philippines vừa hình thành bão Yinxing, hướng di chuyển cho thấy bão có thể đi vào Biển Đông.
-- Hôm nay 4-11, thời tiết các tỉnh miền Trung vẫn duy trì mưa to đến rất to, miền Bắc chuyển rét, miền Nam mưa dông chiều tối.
-- Một số tin tức đáng chú ý: Lần đầu Việt Nam có ngân hàng nắm khối tài sản trên 100 tỉ USD; Đại gia dầu khí bị 'cuốn' nghìn tỉ lợi nhuận; Hết năm 2024, cả nước có 243km đường ven biển...
-- Hàng chục quái xế phóng xe máy tốc độ cao trên đường phố Hà Nội. Tới ngã tư Trần Hưng Đạo - Bà Triệu, nhóm này tông trúng người phụ nữ dừng đèn đỏ khiến nạn nhân tử vong.
-- Cơ quan cảnh sát điều tra cáo buộc trong vụ án Sài Gòn Đại Ninh, số tiền 2.700 tỉ đồng đại gia Nguyễn Cao Trí nhận của Tập đoàn Novaland là thu lợi bất chính từ hành vi vi phạm pháp luật, nên đề nghị sung công quỹ nhà nước.
-- Ngày 3-11, Tổng công ty Điện lực miền Nam đã kiểm tra tiến độ thi công trạm biến áp 110kV sân bay Long Thành và đường dây kết nối phục vụ sân bay.
-- Theo thông báo từ Bộ Ngoại giao, Thủ tướng Phạm Minh Chính sẽ tới Trung Quốc tham dự Hội nghị Thượng đỉnh Hợp tác tiểu vùng Mekong mở rộng lần thứ 8.
-- Thay thế kịp thời những cán bộ, công chức, viên chức yếu kém về năng lực, sợ sai, sợ trách nhiệm, đùn đẩy, né tránh liên quan đến giải ngân vốn đầu tư công.
-- Gần 164.000 doanh nghiệp rút khỏi thị trường trong 9 tháng đầu năm 2024, đại biểu Quốc hội đề nghị phân tích, làm rõ tình hình.
-- Ngày 31-10, tại Học viện Chính trị quốc gia Hồ Chí Minh, Giáo sư, Tiến sĩ Tô Lâm, Tổng Bí thư Ban Chấp hành Trung ương Đảng Cộng sản Việt Nam, đã có buổi trao đổi một số nội dung về kỷ nguyên mới, kỷ nguyên vươn mình của dân tộc.
-- Dự báo từ chiều nay đến 5-11, ở các tỉnh, thành từ Hà Tĩnh đến Quảng Ngãi có mưa lớn diện rộng, có nơi trên 400mm và mưa to còn kéo dài nhiều ngày sau đó.
-- Ngày 29-10, Ban cưỡng chế huyện Cần Đước đã thực hiện kiểm đếm 17 hộ dân, ngày 30-10 kiểm đếm 9 hộ dân và ngày 31-10 kiểm đếm 17 hộ dân.
-- Phó chủ tịch Quốc hội Nguyễn Đức Hải nêu rõ Ủy ban Thường vụ Quốc hội thống nhất trình Quốc hội xem xét, quyết định việc thí điểm.
-- Mỗi lần có mưa bão là trên TikTok, Facebook… xuất hiện những “nhà khí tượng học online” livestream, đăng thông tin cảnh báo thời tiết.
-- Sáng 3-11, Tổng cục II (Bộ Quốc phòng) đã tổ chức Hội nghị bàn giao chức trách, nhiệm vụ tổng cục trưởng Tổng cục II.
-- Một người đàn ông dùng ô tô chở 158kg pháo nổ các loại từ Campuchia dự tính về Đồng Nai tiêu thụ bị bắt giữ ở gần biên giới Tây Ninh.
-- Nam thanh niên không được tỉnh táo cầm súng nhựa chặn xe, dọa người đi đường ở quận Bình Tân, TP.HCM.
-- Nhà thầu Sơn Hải gắn hàng chữ "Vào đường Sơn Hải bảo hành 10 năm” trên biển báo ở cao tốc Nghi Sơn - Diễn Châu là không đúng quy định.
-- Bộ Công an đề xuất phạt 20 - 30 triệu đồng với hành vi kiểm soát tài sản, thu nhập của thành viên gia đình nhằm tạo lệ thuộc về mặt vật chất, tinh thần.
-- Từ ngày 3 đến 9-11, Bắc Bộ lạnh đến rét vì các đợt không khí lạnh. Thời tiết Trung Bộ mưa to dài ngày, Nam Bộ mưa rào về chiều tối.
-- Đó là ý kiến của ông Lê Hữu Nghĩa (tổng giám đốc Công ty Lê Thành) về vấn đề nhà ở xã hội.
-- Ngày 3-11, Công an tỉnh Đồng Nai đã triển khai lực lượng “đột kích” các lò độ chế xe máy trái phép, phát hiện hàng loạt sai phạm.
-- Các tỉnh thành vừa lấy ý kiến hoặc ban hành mức giá cho thuê nhà ở xã hội.
-- Trong tuần qua báo Tuổi Trẻ tiếp tục nhận rất nhiều thông tin của bạn đọc phản ánh và Tuổi Trẻ đã nhanh chóng phản hồi.
-- Temu có nguy cơ bị chịu mức phạt lên tới 6% doanh thu toàn cầu hằng năm của nền tảng này sau khi Liên minh châu Âu (EU) mở cuộc điều tra.
 ![New](News.png)
 ## Nhịp sống số 
+- Sự trỗi dậy nhanh chóng của Trung Quốc đang gây áp lực lớn lên các ngành công nghiệp và công nghệ tiên tiến của Hàn Quốc.
 - Hình thức, thành phần, nội dung của Ngày hội khởi nghiệp sáng tạo năm nay sẽ có điều chỉnh so với những năm trước.
 - Samsung đã đáp ứng nhu cầu khám phá và trải nghiệm công nghệ của người tiêu dùng theo cách khác biệt với cửa hàng Samsung West Lake.
 - Các quan chức chống độc quyền của Bộ Tư pháp Mỹ đã quyết định sẽ yêu cầu thẩm phán buộc Google bán các trình duyệt Chrome nhằm phá vỡ thế độc quyền.
@@ -3003,5 +3004,4 @@
 - TTO - Ứng dụng Messenger Kids vừa có thay đổi nhỏ nhưng đáng chú ý, cho phép các phụ huynh không cần kết bạn với nhau trên Facebook nhưng con cái họ vẫn có thể kết nối được với nhau trong ứng dụng này.
 - TTO - Các nhà nghiên cứu tại đại học Newcastle (Anh) đã chế tạo được chiếc máy in 3D đầu tiên trên thế giới có khả năng in giác mạc người.
 - TTO - Một nghiên cứu quốc tế mới đây trên 605 bệnh nhân suy tim ở 6 quốc gia khác nhau bao gồm Mỹ, Ý, Đức, Thụy Điển, Israel và Hà Lan đã phát hiện ra rằng chơi video game có thể giúp cải thiện khả năng thể chất và chất lượng cuộc sống cho họ.
-- TTO - Theo Automation Readiness Index, 10 quốc gia sau đây hiện đang đứng đầu trong việc chuẩn bị cho những tiến bộ AI và IoT.
 ![life](Life.png)
