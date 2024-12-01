@@ -1,6 +1,13 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Trong các hệ thống giáo dục, đặc biệt ở Đông Á, "giáo dục vị thi cử" - hay còn gọi là "teaching to the test" - đã trở thành hiện tượng phổ biến.
+- Một em bé nhiều lần nhắc ông không vứt rác bừa bãi. Cuối cùng ông cậu bé lại trở thành người thu gom rác thải tái chế trong nhà, mang tới trường góp cho cô giáo làm giáo cụ cho các bé chơi.
+- Chiều 30-11 đã diễn ra lễ trao học bổng Vì tương lai Việt Nam 2024 cho 40 học sinh nghèo vượt khó, học giỏi của 3 huyện vùng cao Quan Hóa, Quan Sơn, Mường Lát.
+- Chuyên gia nhân sự nhấn mạnh hỏi 'sốc' không nhằm mục đích hạ thấp người ứng tuyển, mà để nhà tuyển dụng xem cách các ứng viên phản ứng như thế nào.
+- Liên quan video lan truyền trên mạng về một nữ sinh bị đánh hội đồng tại Bình Dương, công an đã xác minh danh tính những người liên quan.
+- Trái ngược với đa số các tỉnh thành, ở TP.HCM số học sinh lớp 10 chọn môn học lựa chọn thuộc khối khoa học xã hội rất ít.
+- Hãy cho con trẻ không gian để bày tỏ những suy nghĩ, lo âu của mình. Hãy dạy con trẻ cách đối diện với những khó khăn trong cuộc sống một cách lành mạnh...
 - Lãnh đạo tỉnh Đồng Nai vừa yêu cầu xử lý trách nhiệm các tổ chức, cá nhân trong vụ xây trường học 13 tỉ đồng ở huyện Nhơn Trạch bị xuống cấp.
 - Bộ Giáo dục và Đào tạo vừa có thông cáo giải thích rõ dự thảo thông tư sửa đổi, bổ sung một số điều của quy chế tuyển sinh trình độ đại học, trong đó khẳng định không hạn chế phương thức xét tuyển.
 - Vượt qua hơn 200 thí sinh từ 40 trường đại học, Lâm Quốc Dũng trở thành nam vương Sinh viên thanh lịch năm 2024.
@@ -994,16 +1001,59 @@
 - Nói về việc thí sinh đạt 9 điểm mỗi môn vẫn rớt nguyện vọng 1 vào trường, ông Nguyễn Đức Sơn - hiệu trưởng Trường đại học Sư phạm Hà Nội - cho rằng đó là điều bình thường.
 - GS.TS Võ Tòng Xuân, "cây đại thụ" của nền nông nghiệp Việt Nam, chuyên gia uyên bác trong mắt bạn bè quốc tế, thầy Xuân của nhiều thế hệ học trò, anh Ba Xuân của bà con nông dân miền Tây, vĩnh viễn trở về nằm lại ở quê nhà Ba Chúc, Tri Tôn, An Giang.
 - Kỳ thi vào lớp 10 THPT công lập tỉnh Thái Bình diễn ra từ ngày 6 đến 8-6, thế nhưng sau hơn 70 ngày trong tâm trạng hồi hộp, lo lắng, có cả buồn tủi, đến sáng 20-8 nhiều thí sinh mới chính thức biết điểm thi thật của mình.
-- Nhiều giảng viên Trường ĐH Sư phạm kỹ thuật Đà Nẵng 'té ngửa' vì sau hơn 5 năm sử dụng mới biết cuốn sách chưa hề được xuất bản.
-- Niềm vui của học sinh này lại là nỗi buồn của học sinh khác, đó là thực tế đang diễn ra tại Thái Bình khi sau kết luận thanh tra kỳ thi vào lớp 10 tại tỉnh này, có hơn 500 thí sinh từ trượt sang đỗ, từ đỗ sang trượt.
-- Văn phòng Sở Giáo dục và Đào tạo TP.HCM vừa công bố kết luận của phó giám đốc Sở Giáo dục và Đào tạo tại buổi làm việc với Trường quốc tế AISVN.
-- Chiều 20-8, Cục Đào tạo, Bộ Công an công bố điểm chuẩn trúng tuyển vào các học viện, trường đại học Công an nhân dân năm 2024.
-- Mỗi học sinh Nghệ An đạt điểm cao trong kỳ thi tốt nghiệp THPT năm 2024 sẽ được nhận thưởng gần 19 triệu đồng.
-- Điểm chuẩn Học viện Cảnh sát nhân dân với thí sinh nam dao động 20,67 - 21,52, cao nhất là đối tượng vùng 1 mã bài CA2.
-- Qua thanh tra cho thấy ban thư ký đã phát hiện sai sót nhưng không lập biên bản, trưởng ban chỉ đạo kỳ thi cũng không có biện pháp khắc phục.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Luật Tư pháp người chưa thành niên vừa được Quốc hội thông qua có nhiều quy định mới, trong đó, quy định về điều kiện trại giam cho người chưa thành niên.
+- Trang ẩm thực Taste Atlas từng xếp bánh mì Việt Nam hàng thứ 6 trong 50 món ăn đường phố ngon nhất thế giới.
+- Nhiều ý kiến cho rằng cần siết chặt hơn nữa quy định về bay drone như đối với điều khiển xe máy, ô tô.
+- TP.HCM triển khai chiến dịch cho trẻ uống vitamin trong ngày 1 và 2-12; Hơn 3.000 ca mắc sởi, 2 trẻ tử vong, y tế tỉnh Đồng Nai báo động.
+- Tuần này thời tiết Bắc Bộ tiếp tục đón đợt không khí lạnh. Trung Bộ có nơi mưa to, Nam Bộ nhiều mây, chiều tối có mưa.
+- Hôm nay 1-12, thời tiết ba miền ít có biến động, không khí lạnh vẫn là hình thái chủ đạo chi phối cả nước.
+- Đại tướng Phan Văn Giang lưu ý ban chỉ đạo, ban tổ chức tùy tình hình thực tế sẽ tổ chức thêm thời gian cho người dân vào tham quan triển lãm.
+- Một xe ô tô qua nút giao Hoàng Tân thuộc địa phận thị xã Quảng Yên, cao tốc Hải Phòng - Móng Cái, khi thấy lực lượng chức năng, lái xe đã tăng ga bỏ chạy.
+- Cảnh sát hóa trang chỉ được dừng xe nếu phát hiện vi phạm nghiêm trọng về trật tự, an toàn giao thông, an ninh, trật tự xã hội...
+- Thủ tướng yêu cầu phải nghiên cứu, đánh giá kỹ tác động chính sách, đồng thời cần có sự chuẩn bị kỹ lưỡng trong công tác nhân sự khi tinh gọn bộ máy.
+- Nghi phạm là phó giám đốc một ngân hàng thương mại cùng vợ đang bị Công an tỉnh Quảng Ngãi tạm giữ để điều tra hành vi lừa đảo chiếm đoạt tài sản.
+- Công trình cầu Nhơn Trạch - cầu lớn nhất đường vành đai 3 TP.HCM - tăng tốc thi công để về đích sớm hơn kế hoạch.
+- Khi các điều kiện hoàn thiện, bảo đảm kiểm soát, quản lý tốt bán thuốc online, Chính phủ sẽ xem xét, trình sửa, cho phép bán thuốc kê đơn online.
+- Một dự án phân hiệu trường cao đẳng tại xã Dương Tơ (TP Phú Quốc, Kiên Giang) diện tích khoảng 47.954m² đã kéo dài 9 năm nhưng chưa thực hiện.
+- Ủy viên thường trực Ủy ban Tài chính - Ngân sách Vũ Tuấn Anh nêu rõ hiện Chính phủ chưa trình Ủy ban Thường vụ Quốc hội điều chỉnh mức giảm trừ gia cảnh.
+- Bước đầu cơ quan chức năng nghi tài xế xe container có dấu hiệu buồn ngủ, khi đến gần ngã tư thì tông liên hoàn vào các ô tô còn lại.
+- Kết quả thử nghiệm mẫu các thực phẩm dùng ở tiệm bánh mì tại Vũng Tàu nghi gây ra vụ ngộ độc lớn ở thành phố này cho thấy đều nhiễm vi khuẩn salmonella.
+- Người dân xứ Huế đang kỳ vọng vào sự thay da đổi thịt của quê hương sau khi Huế trở thành thành phố thuộc trung ương.
+- Theo tờ trình, việc đầu tư cảng hàng không Măng Đen cần khoảng 4.900 tỉ và đa số nguồn vốn sẽ huy động từ nhà đầu tư qua phương thức đối tác công - tư.
+- Theo kế hoạch, đường Dương Quảng Hàm sẽ thông xe cuối năm 2024. Tuy nhiên đến nay dự án vẫn còn vướng mắc mặt bằng và lưới điện.
+- Về công tác nhân sự tại kỳ họp thứ 8, Chủ tịch Quốc hội Trần Thanh Mẫn cho biết đã thực hiện chặt chẽ theo đúng quy định của Đảng, pháp luật Nhà nước.
+- Hà Nội đang lấy ý kiến về việc cấp thẻ hành nghề vận chuyển cho những người dùng mô tô, xe gắn máy, xe thô sơ để chở khách hay hàng hóa.
+- Chiều 30-11, Quốc hội đã biểu quyết thông qua nghị quyết kỳ họp thứ 8 với 100% đại biểu tán thành và nhiều nội dung quan trọng.
+- Quốc hội đồng ý bổ sung dự toán chi ngân sách nhà nước năm 2024 cho các bộ, cơ quan trung ương và các địa phương để thực hiện mức lương cơ sở.
+- Đến nay, hệ thống giám sát của ngành y tế Vũng Tàu ghi nhận 379 người ngộ độc sau khi ăn bánh mì.
+- Cơ quan cảnh sát điều tra đã bắt tạm giam 10 nam thanh niên ở Quảng Nam đánh gây thương tích nhiều người, trong đó có người thân chú rể sau khi dự tiệc cưới.
+- Phát hiện khói và mùi khét, tài xế đánh lái xe tải vào làn dừng khẩn cấp trên cao tốc Nội Bài - Lào Cai. Ngọn lửa sau đó bùng lên nhanh, thiêu rụi cả chiếc xe.
+- Sáng 30-11, tại Nhà văn hóa Lao động tỉnh Quảng Ngãi đã diễn ra Đại hội đại biểu các dân tộc thiểu số tỉnh lần thứ IV - năm 2024. Bà Nông Thị Hà - thứ trưởng, phó chủ nhiệm Ủy ban Dân tộc - dự và phát biểu chỉ đạo.
+- Doanh nghiệp bất động sản được quyền nhận đất nông nghiệp, đất phi nông nghiệp không phải đất ở để làm dự án nhà ở thương mại.
+- Quốc hội thống nhất cấm sản xuất, kinh doanh, nhập khẩu, chứa chấp, vận chuyển, sử dụng thuốc lá điện tử, thuốc lá nung nóng từ năm 2025 và giao Chính phủ tổ chức thực hiện.
+- Trong 6 tháng đầu năm, Công ty TNHH Nhà nước một thành viên Xổ số kiến thiết Thừa Thiên Huế đạt hơn 252 tỉ đồng doanh thu nhờ phát hành xổ số.
+- Dự án đường sắt tốc độ cao Bắc - Nam có tổng chiều dài tuyến khoảng 1.541km, tốc độ thiết kế 350km/h và tổng mức đầu tư hơn 67 tỉ USD.
+- Theo Luật Dữ liệu, cơ quan, tổ chức, cá nhân được tự do chuyển dữ liệu từ nước ngoài về Việt Nam, xử lý dữ liệu của nước ngoài tại Việt Nam.
+- Liên quan chuyện nhóm vệ sĩ dẹp đường cho xe đám cưới ở Thanh Hóa gây xôn xao dư luận, bạn đọc đề nghị phải xử lý nghiêm để răn đe việc 'ngáo' quyền lực.
+- 3 ngư dân huyện Triệu Phong đánh cá gần bờ thì bị sóng lớn đánh chìm ghe. Trong đó, 2 người kịp bơi vào bờ an toàn, một người bám lấy ghe bị sóng đẩy ra xa bờ.
+- Cựu bí thư, cựu chủ tịch tỉnh Lâm Đồng bị cáo buộc nhận hối lộ, tạo điều kiện cho đại gia Nguyễn Cao Trí trong thương vụ thâu tóm siêu dự án Đại Ninh.
+- Hai vợ chồng chèo thuyền ra sông Đà Nông (Đông Hòa, Phú Yên) đánh bắt cá rồi mất tích.
+- Giấy mời dự lễ khai mạc Festival hoa Đà Lạt lần thứ X năm 2024 đang được rao bán với giá 300.000 đồng.
+- Tại lễ trao Giải thưởng Lương Định Của năm 2024, Chủ tịch Ủy ban Trung ương Mặt trận Tổ quốc Việt Nam Đỗ Văn Chiến phát biểu nếu không phù hợp làm việc trong cơ quan nhà nước thì dũng cảm bước ra sản xuất, kinh doanh, tạo sản phẩm cho xã hội.
+- Nam sinh lớp 10 đi học võ về, bị nhóm học sinh lớp 9 đuổi theo đạp ngã xe rồi đánh hội đồng phải nhập viện cấp cứu trong đêm.
+- Chỉ trong thời gian ngắn, công an liên tiếp bắt các nhóm thực hiện hàng chục phi vụ trộm cắp với độc chiêu chỉ nhắm vào ống pô xe máy các loại.
+- Sáng 30-11, Đại tướng Phan Văn Giang cùng nhiều lãnh đạo Bộ Quốc phòng dự tổng duyệt Triển lãm quốc phòng quốc tế Việt Nam 2024.
+- Nam tài xế đang cầm lái xe buýt dừng đèn đỏ tại giao lộ đường Chu Văn An - Đinh Bộ Lĩnh (quận Bình Thạnh, TP.HCM) thì bị đột quỵ và chết sau đó.
+- 'Thuê TikToker livestream bán hàng một phiên bằng 3 tháng bán trên sàn', chủ một doanh nghiệp thời trang chia sẻ.
+- Sáng 30-11, Thảo cầm viên Sài Gòn tổ chức kỷ niệm 4 năm giải cứu và giới thiệu tới du khách về hành trình đặc biệt của một nàng gấu mèo 'đi chui' từ Mỹ về Việt Nam.
+- Sau một thời gian khởi tố vụ án để điều tra, Công an TP Vĩnh Long, tỉnh Vĩnh Long đã khởi tố, bắt tạm giam 4 bị can trong vụ ‘giang hồ’ quậy phá quán xá.
+- Đến tháng 9-2024, TP.HCM có 52.695 người nhiễm HIV được quản lý, trong đó có 48.741 người đang điều trị thuốc kháng vi rút HIV.
+- Ngày 30-11, với 454/459 đại biểu tán thành, Quốc hội đã thông qua nghị quyết về tổ chức chính quyền đô thị tại TP Hải Phòng.
+- Trong khi tốc độ tối đa cho phép 90km/h nhưng tài xế lái ô tô trên cao tốc Vĩnh Hảo - Phan Thiết chạy 157km/h.
+- Một số trường hợp mắc bệnh hiếm, hiểm nghèo, cần phẫu thuật hoặc sử dụng kỹ thuật cao không phải chuyển tuyến, mà được hưởng 100% mức hưởng bảo hiểm y tế.
+- Dự án nghĩa trang nhân dân Nỗng Tranh ở huyện Quế Sơn, Quảng Nam thi công nhiều năm nay, doanh nghiệp tận thu hàng trăm ngàn mét khối đất nay chỉ là bãi đất hoang, chẳng thấy nghĩa trang đâu khiến người dân bức xúc.
+- Luật Tư pháp người chưa thành niên vừa được Quốc hội thông qua có nhiều quy định mới, trong đó quy định về điều kiện trại giam cho người chưa thành niên.
 - Sáng nay 30-11, thời tiết TP.HCM tiếp tục mát mẻ, người dân có một sớm cuối tuần khá dễ chịu khi trời không nắng gắt.
 - Với số phiếu tán thành rất cao, Quốc hội đã thông qua nghị quyết về việc thành lập thành phố Huế trực thuộc trung ương.
 - Thủ tướng Phạm Minh Chính ký quyết định kéo dài thời gian phục vụ tại ngũ, giữ nguyên chức vụ đối với Thượng tướng Nguyễn Văn Nghĩa.
@@ -1039,7 +1089,6 @@
 - Cô giáo ở Quảng Nam đánh học sinh lớp 6 của mình chủ nhiệm bầm tím hai chân nhận hình thức kỷ luật cảnh cáo.
 - Các cơ quan chức năng cho biết đã thu hồi lượng chất thải chôn lấp trái phép tại khu đất trống ở thị trấn Tân Túc (Bình Chánh, TP.HCM).
 - Hà Nội dự kiến xây nhà hát theo dạng nổi nằm trên mặt nước giữa Đầm Trị, ngay sát hồ Tây (quận Tây Hồ, Hà Nội) cao hơn 38m.
-- Chủ tịch UBND TP.HCM vừa yêu cầu báo cáo nghiên cứu khả thi hạng mục lấn biển Khu đô thị lấn biển Cần Giờ để chủ đầu tư khởi công dự án trước 30-4-2025.
 - Một bệnh nhân dính ngộ độc thực phẩm nghi do ăn bánh mì ở Vũng Tàu đã tử vong. Hiện sự vụ đang được báo cáo lên ngành y tế tỉnh Bà Rịa - Vũng Tàu.
 - Sáng 29-11, người dân nghe thấy tiếng nổ lớn kèm theo bụi mù mịt trên đỉnh núi Con Voi thuộc Làng Nủ (xã Phúc Khánh, huyện Bảo Yên) - nơi xảy ra vụ sạt lở đất kinh hoàng hồi tháng 9-2024.
 - Chủ tịch UBND tỉnh Bắc Ninh Vương Quốc Tuấn đề nghị huyện Yên Phong, nơi có nhiều nhà máy của Samsung, nhanh chóng hoàn thành các chỉ tiêu của đô thị loại III và phấn đấu trở thành thành phố trực thuộc tỉnh.
@@ -1059,7 +1108,6 @@
 - Sở Giáo dục và Đào tạo TP Đà Nẵng vừa có công văn gửi phòng giáo dục các quận huyện, các trường, trung tâm trực thuộc sở chỉ đạo tăng cường quản lý công tác dạy trẻ khuyết tật trên địa bàn.
 - Trong số 105 hài cốt liệt sĩ vừa được quy tập, phần lớn được tìm thấy tại khu vực sân bay Lộc Ninh.
 - Do gió thổi mạnh, nhiều cây xanh to, cao dọc theo con đường Dương Đông đi xã Bãi Thơm, TP Phú Quốc (Kiên Giang) bị đổ ngã.
-- Công ty Xổ số kiến thiết Đà Nẵng đã từng chi trả vé trúng thưởng giải đặc biệt cho một khách hàng dù vé này đã bị rách rời.
 - Đang đạp xe đạp thể thao trên đường Điện Biên Phủ (quận Bình Thạnh, TP.HCM) người đàn ông 69 tuổi bất ngờ té ngã xuống đường, tử vong, nghi do bệnh lý đột quỵ
 - Tuổi Trẻ Online đã liên hệ với ông Võ Quốc Việt - người xưng là đại diện phía Công ty dịch vụ môi trường - vệ sinh Quốc Việt, đơn vị có hành vi chôn lấp chất thải tại khu vực gần khu dân cư đường Nguyễn Hữu Trí (Bình Chánh, TP.HCM).
 - Hạn hán và xâm nhập mặn năm 2023-2024 tại Đồng bằng sông Cửu Long đã làm 43ha lúa mất trắng và gần 74.000 hộ thiếu nước sinh hoạt.
@@ -1348,7 +1396,6 @@
 - Vụ tai nạn giữa 2 chiếc xe tải trên cao tốc Phan Thiết - Dầu Giây, đoạn qua huyện Hàm Tân, Bình Thuận khiến 3 người bị thương.
 - Ngày 23-11, Chủ tịch UBND TP.HCM Phan Văn Mãi đã ký tờ trình gửi Thủ tướng và Bộ Kế hoạch và Đầu tư về báo cáo nghiên cứu tiền khả thi dự án đầu tư xây dựng đường vành đai 4 TP.HCM.
 - Trung tướng, Anh hùng Lực lượng vũ trang nhân dân Khuất Duy Tiến, nguyên hiệu trưởng Trường Sĩ quan Lục quân 1 đã từ trần chiều 23-11, hưởng thọ 94 tuổi.
-- Thủ tướng Phạm Minh Chính nêu rõ tầm quan trọng của công nghiệp bán dẫn và đồng tình việc phải có chính sách ưu đãi.
 - Tối 23-11, tại quảng trường Hồ Chí Minh, TP Vinh, tỉnh Nghệ An diễn ra lễ kỷ niệm 10 năm dân ca ví, giặm Nghệ Tĩnh được UNESCO vinh danh là Di sản văn hóa phi vật thể đại diện của nhân loại.
 - Tuần này Bắc Bộ đón không khí lạnh nên nhiệt độ giảm mạnh. Trung Bộ có nơi mưa to, Nam Bộ ngày nắng gián đoạn, chiều tối mưa rào.
 - Trong khi sân bay Long Thành và các đơn vị cung cấp hậu cần đang tăng tốc về đích, các tuyến cao tốc kết nối với sân bay lại ì ạch.
@@ -1956,55 +2003,9 @@
 - Chủ tịch UBND tỉnh Quảng Trị Võ Văn Hưng đã ngay lập tức chỉ đạo Công an TP Đông Hà xử lý vụ nhóm người chặn cổng công ty gas. Nhóm này đã đưa toàn bộ xe rời đi sau đó.
 - Bộ Công an đang xử lý các đội nhóm lập trên mạng xã hội như "báo chốt 141, thông chốt kiểm soát nồng độ cồn, né bắn tốc độ".
 - Thủ tướng khẳng định cần xây dựng thể chế những vấn đề được làm và không được làm,  mở rộng không gian sáng tạo, bảo vệ quyền và lợi ích hợp pháp của mọi công dân, doanh nghiệp.
-- Bãi xe ở một số bệnh viện tại TP.HCM thu phí cao hơn giá niêm yết, khi người dân thắc mắc thì nhân viên thu phí gắt gỏng.
-- Doanh nghiệp khai thác khoáng sản (đất sét) hết hạn giấy phép rời đi thì để lại cảnh đồng hoang, đất chết, loang lổ nhiều chỗ không khác gì ‘hố bom’.
-- “Xung đột” giữa nghề phơi cá cơm truyền thống của người dân với ngành du lịch kinh tế mũi nhọn đang là câu chuyện nan giải ở vùng biển Mũi Né, TP Phan Thiết, tỉnh Bình Thuận.
-- Thượng tá Bùi Xuân Bình - trưởng Phòng cán bộ Quân chủng hải quân - được bổ nhiệm giữ chức vụ bí thư Đảng ủy, chính ủy Vùng 4 hải quân.
-- Cầu Đakrông trên đường Hồ Chí Minh nhánh tây gặp sự cố hư hỏng nên mỗi khi có xe tải chở than qua cầu, dù với tốc độ chậm nhưng cầu rung lên bần bật.
-- Ngày 12-11, lãnh đạo Chi cục Kiểm lâm tỉnh Kiên Giang cho biết Tổ công tác xử lý vi phạm phá rừng, lấn chiếm đất rừng trên địa bàn huyện Kiên Lương phát hiện 3 vụ phá rừng có dấu hiệu hình sự.
-- Một clip ngắn dài 8 giây ghi lại hình ảnh một cô gái cùng một người khác trèo lên nóc Bảo tàng Lịch sử quân sự Việt Nam để quay phim, chụp ảnh những ngày qua lại khiến cộng đồng mạng bức xúc.
-- Một quán tạp hóa tại vùng biên giới Hướng Hóa (Quảng Trị) bị đặt thuốc nổ và nổ tung trong đêm. Nhưng cơ quan điều tra không thể xử lý hình sự kẻ chủ mưu vì người này mới 14 tuổi.
-- Nhiều bạn đọc bức xúc trước cảnh 'phản cảm leo lên xe tăng, súng, pháo ở Bảo tàng Lịch sử quân sự Việt Nam chụp ảnh, cha mẹ còn cổ vũ', và đại diện bảo tàng đã lên tiếng.
-- Một người dân bị hỏng mắt phải, không nhìn thấy vẫn được phòng khám đa khoa ở Quảng Nam cấp giấy khám sức khỏe với kết luận thị lực cả hai mắt không kính là 10/10, đủ sức khỏe lái xe hạng C.
-- Đến nay trên địa bàn tỉnh Bà Rịa - Vũng Tàu không còn nhà dột nát, nhà tạm. Hiện nay chính quyền, các ngành chức năng chủ yếu tập trung sửa chữa và xây mới những căn nhà đại đoàn kết.
-- Khởi công ngày 5-1-2021, đến nay sau hơn 1.400 ngày triển khai xây dựng dự án sân bay Long Thành giai đoạn 1 đã triển khai ra sao?
-- Chấn chỉnh việc văn phòng đăng ký đất đai kiểm tra hiện trạng nhà, giảm phiền hà cho dân là kịp thời và cần thiết.
-- Nhiều ngày qua, thông tin phó chủ tịch huyện Giang Thành cho con gái 600 công đất trị giá 90 tỉ đồng trong ngày đám cưới làm xôn xao dư luận. Tuy nhiên, phó chủ tịch UBND huyện khẳng định vợ “nói nhầm”, còn Ủy ban Kiểm tra vào cuộc.
-- Trong lúc tuần tra kiểm soát trên quốc lộ 1, lực lượng cảnh sát giao thông Công an tỉnh Hà Tĩnh phát hiện một thanh niên vận chuyển hơn 1,2 tạ pháo hoa và 3.000 quả pháo bi nhãn hiệu nước ngoài.
-- Sáng 12-11, Đảng ủy khối Dân - Chính - Đảng TP.HCM tổ chức lễ trao huy hiệu Đảng đợt ngày 7-11-2024. Bí thư Thành ủy TP.HCM Nguyễn Văn Nên tham dự.
-- Cơ bản đảm bảo thuốc, vật tư, trang thiết bị y tế, song vẫn xảy ra hiện tượng thiếu hụt cục bộ tại một số cơ sở y tế công lập, nhất là thuốc đặc thù.
-- Bộ trưởng Đào Hồng Lan nêu rõ bản thân rất quan tâm và 'mấy ngày trước đây cũng đeo khẩu trang bịt mặt ra hàng thuốc gần nhà mua thuốc kê đơn'.
-- Đàn chó dữ trong sân golf của gia đình giám đốc ngân hàng rất nguy hiểm nên phải hoãn cưỡng chế chờ sự hỗ trợ của đội huấn luyện chó nghiệp vụ Công an tỉnh Đắk Lắk đến xử lý.
-- Sáng 12-11, áp thấp nhiệt đới suy yếu từ bão số 7 (bão Yinxing) đang ở ngay trên vùng biển các tỉnh Quảng Nam đến Bình Định và gây mưa các tỉnh Trung và Nam Trung Bộ.
-- Sở Xây dựng TP.HCM vừa tham mưu UBND TP xây dựng Đề án thực hiện di dời toàn bộ nhà trên và ven sông, kênh, rạch trên địa bàn TP.HCM.
-- Sáng nay 12-11, Bộ trưởng Bộ Thông tin và Truyền thông Nguyễn Mạnh Hùng là ‘tư lệnh’ ngành thứ 3 đăng đàn trả lời chất vấn.
-- Đề xuất cần phải tịch thu xe để xử lý quái xế có phù hợp?
-- Tại phiên chất vấn đối với lĩnh vực ngân hàng vào hôm 11-11, quản lý thị trường vàng và tăng trưởng tín dụng là hai nội dung được nhiều đại biểu quan tâm nhất.
-- Chỉ hơn 2 tuần sau khi đảm nhận cương vị mới, Chủ tịch nước Lương Cường đã chọn Chile là điểm đến cho chuyến thăm nước ngoài đầu tiên.
-- Sau phản ánh của Tuổi Trẻ Online về việc vỉa hè dọc hồ Tây ngang nhiên biến thành chốn ăn nhậu, trong tối 11-11, Công an quận Tây Hồ (Hà Nội) đã phối hợp với công an các phường ra quân nhắc nhở, xử lý vi phạm.
-- Vì cho rằng UBND tỉnh Khánh Hòa chưa có văn bản trả lời ý kiến của Cục Thuế tỉnh, một chi cục thuế ở tỉnh này đã dừng xử lý hồ sơ xác định nghĩa vụ tài chính về đất đai cho dân.
-- Một số tin tức đáng chú ý: Hôm nay Thủ tướng Phạm Minh Chính sẽ trả lời chất vấn trước Quốc hội; Cổ phiếu một doanh nghiệp bất động sản vào diện cảnh báo; "Cơn mưa" tiền mặt cổ tức về cuối năm, một công ty Sông Đà sắp chi hàng trăm tỉ...
-- Tổng Bí thư Tô Lâm và Tổng thống đắc cử của Mỹ Donald Trump đã trao đổi đánh giá về quan hệ song phương, cũng như phương hướng tăng cường quan hệ kinh tế, thương mại trong cuộc điện đàm tối 11-11.
-- Hôm nay 12-11, bão số 7 (Yinxing) suy yếu nhanh chóng nhưng gây mưa to cho miền Trung, bão Toraji dự báo vào Biển Đông thành bão số 8.
-- Trong khuôn khổ chuyến thăm chính thức Chile, Chủ tịch nước Lương Cường đã hội kiến Chủ tịch Thượng viện José Garcia Ruminot và Chủ tịch Hạ viện Karol Cariola ngày 11-11.
-- Hai giám đốc sở Nội vụ và Tài nguyên và Môi trường đã trúng cử chức danh ủy viên UBND thành phố Hải Phòng khóa XVI.
-- Tối 11-11, bão Toraji đi vào Biển Đông, trở thành cơn bão số 8 trong năm 2024. Trong khi đó, bão Yinxing (bão số 7) suy yếu thành áp thấp nhiệt đới.
-- Tổng thống Gabriel Boric Font chủ trì lễ đón chính thức Chủ tịch nước Lương Cường tại Quảng trường Hiến Pháp trưa 11-11.
-- 90 tác phẩm đã được trao giải báo chí ‘Vì sự nghiệp đại đoàn kết toàn dân tộc’ lần thứ 16.
-- Tổng Bí thư Tô Lâm nêu rõ cần khẩn trương thực hiện nghị quyết 18 về tinh gọn tổ chức bộ máy với quyết tâm chính trị cao, hành động quyết liệt, thống nhất về tư tưởng của cả hệ thống chính trị.
-- Ngoài điện chúc mừng Thủ tướng Nhật Bản Ishiba Shigeru của Thủ tướng Phạm Minh Chính, Chủ tịch Quốc hội Trần Thanh Mẫn cũng có thư mừng Chủ tịch Hạ viện và Chủ tịch Thượng viện Nhật Bản.
-- Ban Giao thông vừa có báo cáo về tình hình thi công các dự án trọng điểm như nút giao An Phú, hầm chui Nguyễn Hữu Thọ, đường nối ở sân bay Tân Sơn Nhất...
-- Ngày 11-11, Tỉnh ủy Bình Thuận tổ chức hội nghị công bố quyết định của Ban thường vụ về công tác cán bộ tại huyện đảo Phú Quý.
-- Dự kiến lễ khai mạc triển lãm sẽ có màn trình diễn bay của lực lượng không quân và khoảng 2.200 cán bộ, chiến sĩ đặc công biểu diễn võ thuật.
-- Công an TP.HCM đang tạm giữ bà Nguyễn Thị Linh và Lý Thị Ngọc Bích do liên quan vụ mang trái phép 716 viên kim cương qua sân bay Tân Sơn Nhất.
-- Người đàn ông bị còng tay rồi bị một thanh niên dùng chân đá vào người ở khu vực ngã tư An Sương, quận 12, TP.HCM.
-- Đó là khẳng định của Bộ trưởng Bộ Công Thương Nguyễn Hồng Diên khi giải trình thêm về việc quản lý thuốc lá điện tử, thuốc lá nung nóng tại phiên chất vấn và trả lời chất vấn chiều 11-11.
-- Sở Lao động, Thương binh và Xã hội TP Cần Thơ nói không chi sai 4,7 tỉ đồng tiền trợ cấp thất nghiệp, mà do người lao động gian lận, hưởng sai.
-- UBND TP Tuy Hòa (Phú Yên) thông báo cưỡng chế tháo dỡ 2 tầng xây vượt của khách sạn Bạch Dương Aries, 17 đường Điện Biên Phủ, TP Tuy Hòa.
-- HĐND tỉnh Cà Mau khóa X, nhiệm kỳ 2021-2026 tổ chức kỳ họp thứ 16 (chuyên đề) và thống nhất bầu ông Phạm Thành Ngại - phó bí thư thường trực Tỉnh ủy - giữ chức chủ tịch UBND tỉnh Cà Mau.
-- Ông Nguyễn Đức Trung - phó bí thư Tỉnh ủy, chủ tịch UBND tỉnh Nghệ An - được bầu giữ chức bí thư Tỉnh ủy nhiệm kỳ 2020-2025.
 ![New](News.png)
 ## Nhịp sống số 
+- Sắp tới đây, mỗi tài khoản chơi game dành cho người dưới 18 tuổi chỉ được phép chơi một trò chơi tối đa 60 phút/ngày.
 - Theo thống kê của Akishop, nhà phân phối máy đọc sách hàng đầu ở Việt Nam, cộng đồng sử dụng máy đọc sách tại Việt Nam ước tính hiện có trên 300.000 người với mức tăng trưởng khoảng 15% mỗi năm.
 - Sự trỗi dậy nhanh chóng của Trung Quốc đang gây áp lực lớn lên các ngành công nghiệp và công nghệ tiên tiến của Hàn Quốc.
 - Hình thức, thành phần, nội dung của Ngày hội khởi nghiệp sáng tạo năm nay sẽ có điều chỉnh so với những năm trước.
@@ -3003,5 +3004,4 @@
 - TTO - Với sự phát triển của xe tự lái, Úc là một trong những quốc gia sớm có động thái đầu tiên bằng việc công bố luật dành riêng nhằm mục đích bảo vệ sự an toàn của công dân trong việc di chuyển bằng các phương tiện tự lái.
 - TTO - Chất thải điện tử, các thiết bị điện tử đã qua sử dụng, phế liệu máy tính… từ mọi nơi trên thế giới, đặc biệt là từ Hồng Kông, Singapore, Nhật Bản…, đang tràn vào Thái Lan với số lượng ngày càng lớn.
 - TTO - Ứng dụng Messenger Kids vừa có thay đổi nhỏ nhưng đáng chú ý, cho phép các phụ huynh không cần kết bạn với nhau trên Facebook nhưng con cái họ vẫn có thể kết nối được với nhau trong ứng dụng này.
-- TTO - Các nhà nghiên cứu tại đại học Newcastle (Anh) đã chế tạo được chiếc máy in 3D đầu tiên trên thế giới có khả năng in giác mạc người.
 ![life](Life.png)
