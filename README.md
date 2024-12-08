@@ -1,6 +1,16 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Xuất phát từ mục tiêu giúp các bạn yêu thích môn lịch sử, một học sinh lớp 9 Trường THCS Trần Văn Ơn, quận 1, TP.HCM đã quyết định làm game.
+- Việc xét tuyển sớm dẫn đến tình trạng các trường phải chuẩn bị công tác tuyển sinh từ đầu năm, học sinh "chạy đôn chạy đáo" làm thủ tục mà hiệu quả không cao.
+- Một giáo viên tại Gia Lai yếu kém năng lực chuyên môn đã xin nhà trường thuê 2 người dạy thay mình mà vẫn nhận đủ tiền lương, phụ cấp.
+- Năm 1954, Trường THPT Vũng Tàu được thành lập. 70 năm qua nhiều thế hệ học sinh của ngôi trường này thành đạt, trở thành những trụ cột trong lĩnh vực công tác của mình.
+- Thay vì đưa áo dài quay lại nhà trường như đồng phục bắt buộc thì nên tăng cường hơn các hoạt động để người trẻ hiểu ý nghĩa của trang phục truyền thống.
+- Thanh tra Chính phủ kết luận Bộ GD-ĐT buông lỏng công tác quản lý, để sai phạm trong hoạt động liên kết tổ chức thi cấp chứng chỉ năng lực ngoại ngữ diễn ra kéo dài, gây bức xúc dư luận xã hội.
+- Trường đại học không chấp nhận chứng chỉ IELTS, sinh viên buộc phải học chương trình tiếng Anh do trường tổ chức, có hợp lý không?
+- Hơn 1.000 học sinh ở Cao Bằng đã được báo Tuổi Trẻ và Tỉnh đoàn Cao Bằng trao tặng những phần quà từ Công ty Morinaga Nutritional Foods.
+- 'Bạo lực học đường âm ỉ trong khuôn viên các trường học, là một hiện thực không thể tránh được. Học sinh đừng ngần ngại nói ra khi mình là nạn nhân vì các bạn không hề cô đơn'.
+- Chỉ mới mấy tuần nhận làm tổ trưởng, con gái tôi ngày càng bộc lộ sự nhún nhường và… bất lực.
 - Theo nhiều chuyên gia, khó có căn cứ khoa học để quy đổi về một thang điểm giữa các phương thức tuyển sinh.
 - 'Cuộc đời thật nghiệt ngã và bất công với em. Trung ơi! Em còn bao đam mê, nung nấu, ấp ủ. Học trò cần em với kiến thức tin học mà em hằng nhiệt huyết. Vợ và bốn đứa trẻ thơ dại cần em...'.
 - Việc kiện toàn, sắp xếp hai viện hàn lâm phải thực sự đổi mới về tư duy, phương pháp quản lý, quản trị hoạt động nghiên cứu khoa học.
@@ -991,18 +1001,46 @@
 - Toàn bộ 523 đơn đăng ký vào Trường tiểu học Tây Mỗ 3 của phụ huynh gửi Phòng Giáo dục và Đào tạo quận Nam Từ Liêm hôm 21-8 đều không được giải quyết.
 - Tất cả 180 trường tiểu học ở Singapore đều có lớp học năng khiếu dành cho các học sinh xuất sắc và giáo viên riêng để giảng dạy các lớp này.
 - Có những ông bố, bà mẹ nghĩ con mình là vàng, con thiên hạ là "rơm rác" nên luôn bênh con mình và cư xử thô bạo với con người khác.
-- Việt Nam đề nghị Úc tạo điều kiện, không để các chính sách mới ảnh hưởng tiến độ cấp visa cho du học sinh Việt Nam.
-- Trước dự báo có nhiều thay đổi về tuyển sinh năm học tới, ngày 27-8, Tuổi Trẻ tổ chức tọa đàm đổi mới chương trình tư vấn tuyển sinh - hướng nghiệp.
-- Ngay từ xa xưa, người ta đã quan niệm giáo dục có nghĩa là khơi ra, chứ không phải là nhồi vào như ta hằng tưởng.
-- Hiệu trưởng một trường THCS ở TP.HCM tư vấn như vậy trong cuộc gặp gỡ phụ huynh của trường nhân năm học mới 2024-2025.
-- Nhằm tạo thêm cơ hội cho các thí sinh, Trường Đại học Quốc tế Sài Gòn (SIU) xét tuyển bổ sung 300 chỉ tiêu.
-- Dạy thêm, học thêm là nhu cầu chính đáng của người học và người dạy, cần quy định rõ ràng hơn để tránh dạy thêm biến tướng.
-- Giữa trưa, vượt gần 20km từ trung tâm xã Ea R'bin, cô giáo Phạm Thị Hồng vào buôn Plao Siêng thì gặp hai em nhỏ.
-- Học viện Hàng không Việt Nam yêu cầu thí sinh đã trúng tuyển trường khác hủy xác nhận nhập học trường đó để nhập học bằng xét tuyển bổ sung vào học viện.
-- Dư luận Đà Nẵng đang xôn xao vụ một giáo viên tố nhóm trẻ dùng bún thiu khiến nhiều em đau bụng.
-- Ngày 26-8, Trường THPT Ernst Thälmann (quận 1, TP.HCM) tổ chức gian hàng sách 0 đồng cho học sinh đến trao đổi sách giáo khoa và dụng cụ học tập.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Lễ tang trang trọng tiễn biệt 12 liệt sĩ diễn ra tại Nhà tang lễ Quốc gia phía Nam (TP.HCM) ngày 8-12 trong niềm tiếc thương vô hạn.
+- Khánh Hòa yêu cầu một doanh nghiệp cung cấp hồ sơ, tài khoản nhận tiền từ Tập đoàn Phúc Sơn liên quan các gói thầu dự án đang điều tra.
+- Sáng 8-12, Quân khu 7 tổ chức lễ tang trang trọng cho 12 liệt sĩ hy sinh trong diễn tập tác chiến phòng thủ tại Trường bắn Quốc gia khu vực 3.
+- Tin tức đáng chú ý: Nghiên cứu chế độ chính sách cho cán bộ sau sắp xếp bộ máy; Tử vong do đột quỵ còn cao, 21% bệnh nhân bị đột quỵ đối diện nguy cơ tàn phế; Sáng nay diễn ra giải chạy "Hành trình tiếp sức" gây quỹ hỗ trợ bệnh nhân ung thư...
+- Quy định mới về đào tạo lái ô tô yêu cầu tất cả các hạng giấy phép lái xe ô tô phải học lý thuyết đầy đủ theo hình thức tập trung hoặc đào tạo từ xa, tự học có hướng dẫn.
+- Do ảnh hưởng không khí lạnh nên thời tiết Bắc Bộ rét, Trung Bộ có nơi mưa to, Nam Bộ mưa rào.
+- Cử tri phản ánh có rất nhiều thực phẩm chức năng phổi phồng công dụng, có tình trạng các nhóm đẩy mạnh các buổi tiếp thị, bán cho người cao tuổi.
+- Bộ Chính trị đã chuẩn y ông Nguyễn Khắc Thận - phó bí thư Tỉnh ủy, chủ tịch UBND tỉnh Thái Bình - giữ chức bí thư Tỉnh ủy Thái Bình.
+- Quảng Ngãi sẽ kết thúc hoạt động của Sở Ngoại vụ, sáp nhập Ban Tuyên giáo và Ban Dân vận… để sắp xếp tổ chức bộ máy của hệ thống chính trị tinh gọn, hoạt động hiệu lực, hiệu quả.
+- Chiều 7-12, Chủ tịch nước Lương Cường đã ký quyết định truy tặng Huân chương Bảo vệ Tổ quốc hạng ba cho 12 liệt sĩ đã dũng cảm hy sinh trong khi thực hiện nhiệm vụ diễn tập tác chiến phòng thủ Quân khu 7.
+- Việc xét tuyển sớm dẫn đến tình trạng các trường phải chuẩn bị công tác tuyển sinh từ đầu năm, học sinh "chạy đôn chạy đáo" làm thủ tục mà hiệu quả không cao.
+- Ngày 7-12, tổ đại biểu Quốc hội đơn vị số 9 gồm Chủ tịch UBND TP.HCM Phan Văn Mãi, Chủ tịch Hội Liên hiệp phụ nữ TP Nguyễn Trần Phượng Trân đã tiếp xúc cử tri huyện Cần Giờ.
+- Sẽ có chính sách mới, tính toán đến việc ưu tiên bố trí sử dụng người có trình độ, phẩm chất, năng lực vượt trội, người có thâm niên kinh nghiệm công tác để giữ chân người tài khi sắp xếp.
+- Các doanh nghiệp đã khôi phục hoạt động sản xuất kinh doanh và mục tiêu tăng trưởng tín dụng 15% có thể đạt được.
+- Lễ tang 12 liệt sĩ hy sinh trong diễn tập tác chiến phòng thủ ở Đồng Nai sẽ được tổ chức sáng 8-12, tại Nhà tang lễ Quốc gia phía Nam (quận Gò Vấp, TP.HCM).
+- Theo PGS.TS Nguyễn Thiện Tống, trong khi nhiều sân bay đang phải bù lỗ, nếu có làm sân bay Măng Đen nên nghiên cứu sân bay nhỏ, khai thác tàu bay loại nhỏ.
+- Cơ quan chức năng tìm thấy thi thể một nạn nhân trong vụ chìm tàu khách ở khu vực Hòn Nét, vịnh Bái Tử Long.
+- Bộ Công an đã gửi hội đồng định giá 16 tỉnh định giá tài sản 413 dự án liên quan vụ án tại Công ty cây xanh Công Minh, nhưng đến nay mới chỉ 1 tỉnh có kết quả.
+- Do ảnh hưởng mưa lớn và động đất ở Kon Tum, nhiều nơi ở huyện Nam Trà My, Quảng Nam bị sạt lở đất, các tảng đá lớn trên núi lăn xuống sát khu dân cư.
+- Thứ trưởng Bộ Công Thương cho biết dự kiến dự án điện hạt nhân Ninh Thuận có quy mô đầu tư lên tới tỉ USD và 'kỳ vọng mang lại nhiều lợi ích'.
+- 31 tỉnh, thành vùng Đồng bằng Sông Cửu Long, Đông Nam Bộ, Tây Nguyên và vùng Duyên hải Trung Bộ đã ký kết xây dựng mạng lưới ung thư vùng.
+- Ban Thường vụ Tỉnh ủy Quảng Ngãi thành lập 4 tổ để thảo luận, tham gia ý kiến góp ý dự thảo báo cáo chính trị của Ban Chấp hành Đảng bộ tỉnh khóa 20, trình Đại hội đại biểu Đảng bộ tỉnh khóa 21.
+- Hội đồng nhân dân tỉnh Bình Thuận khóa XI vừa bế mạc, hoàn thành toàn bộ nội dung, chương trình đề ra và thông qua 21 nghị quyết quan trọng.
+- Tỉnh ủy Lạng Sơn vừa tổ chức hội nghị công bố quyết định của Bộ Chính trị chuẩn y ông Hoàng Văn Nghiệm là bí thư Tỉnh ủy Lạng Sơn.
+- Xây dựng chính sách phải nhìn xa, trông rộng, nghĩ lớn, làm lớn để 'cởi trói' cho sản xuất kinh doanh bung ra, phục vụ ưu tiên cao nhất là thúc đẩy tăng trưởng.
+- Tai nạn liên hoàn giữa 3 phương tiện trên đường cao tốc Hà Nội - Hải Phòng làm 2 người bị thương, 1 phương tiện hư hỏng.
+- Sau khi Tuổi Trẻ Online phản ánh chim di cư bị hạ sát giữa rừng đặc dụng Rú Lịnh, kiểm lâm Quảng Trị đã kiểm tra, phát hiện một người đàn ông vào rừng đặt bẫy, tạm giữ xe máy và thu nhiều bẫy chim.
+- Thanh tra Chính phủ kết luận Bộ GD-ĐT buông lỏng công tác quản lý, để sai phạm trong hoạt động liên kết tổ chức thi cấp chứng chỉ năng lực ngoại ngữ diễn ra kéo dài, gây bức xúc dư luận xã hội.
+- Cơ quan chức năng tỉnh Quảng Ninh đang nỗ lực tìm kiếm hai người mất tích trong vụ chìm tàu chở khách ở khu vực Hòn Nét, vịnh Bái Tử Long.
+- Tương lai, siêu cảng Cần Giờ sẽ tạo việc làm cho khoảng 6.000 - 8.000 người tại cảng và hàng chục ngàn lao động ở các ngành dịch vụ hậu cần...
+- Công ty cổ phần Tập đoàn Cienco 4 đã huy động nhân lực, máy móc sửa chữa những điểm hư hỏng mặt 7 cây cầu trên quốc lộ 1 đoạn qua tỉnh Hà Tĩnh.
+- Tòa án nhân dân tỉnh Khánh Hòa đã ra quyết định mở thủ tục phá sản đối với Công ty TNHH một thành viên Đóng tàu Cam Ranh.
+- Ban Chỉ đạo Trung ương tổng kết nghị quyết 18 nêu cụ thể những nội dung chuẩn bị trình Bộ Chính trị, Ban Bí thư sau khi Trung ương chốt về tinh gọn bộ máy.
+- Việc sắp xếp, tinh gọn tổ chức bộ máy, phải tăng cường lãnh đạo, chỉ đạo, làm tốt công tác tư tưởng cho chính bản thân mình và chính cơ quan, đơn vị mình, góp phần tạo sự thống nhất trong toàn hệ thống.
+- Nhiều người dân nhận được cuộc gọi lạ xưng nhân viên điện lực yêu cầu nộp tiền điện vào tài khoản cá nhân, nếu không sẽ cắt điện.
+- Đến thời điểm này, không ít doanh nghiệp tuy gặp khó khăn nhưng vẫn cố gắng để duy trì khoản thưởng Tết, chăm lo cho người lao động.
+- Chi cục An toàn vệ sinh thực phẩm tỉnh Nghệ An đã lập đoàn kiểm tra, bước đầu tạm đình chỉ đơn vị cung cấp suất ăn nghi gây ngộ độc cho 84 công nhân.
+- Do ảnh hưởng của không khí lạnh tăng cường nên ngày hôm nay (7-12), thời tiết Hà Nội - nơi diễn ra concert Anh trai say hi có mưa nhỏ rải rác.
 - Xe bồn bê tông đang rẽ phải từ đường Võ Chí Công vào bãi xảy ra va chạm với xe máy do cô gái cầm lái khiến người này tử vong tại chỗ.
 - Ghi nhận của Tuổi Trẻ Online, sáng 7-12, nhiều quận ở TP.HCM đón mưa sớm. Dự báo, hôm nay thời tiết Nam Bộ trời nhiều mây, chiều tối mưa rào và dông.
 - Sở Giao thông vận tải TP.HCM thông báo điều chỉnh giao thông đi lại khu vực trung tâm phục vụ Giải marathon quốc tế TP.HCM Techcombank 2024.
@@ -1965,44 +2003,6 @@
 - Chiều 19-11, lực lượng chức năng TP Hội An đã đưa thi thể nam thanh niên nghi là người nước ngoài nổi lên trên sông Hoài về nhà tang lễ.
 - Bệnh sởi đang có dấu hiệu gia tăng tại Bình Thuận khi số ca mắc liên tục tăng thời gian gần đây.
 - Công an TP Đà Lạt xác định nguyên nhân tài xế xịt hơi cay vào du khách tại Đà Lạt là do mâu thuẫn tiền cước taxi.
-- Liên quan thông tin phản ánh xe ben tung hoành vùng ven TP.HCM, lãnh đạo công an một số địa phương cho rằng có tình trạng bố trí người canh chừng lực lượng cảnh sát giao thông để xe ben chạy đường cấm, giờ cấm.
-- Hội đồng nhân dân TP Hà Nội vừa quyết nghị sẽ cắt điện, nước với 8 loại công trình vi phạm từ ngày 1-1-2025. Quyết nghị chỉ rõ các yếu tố vi phạm từng loại hình.
-- Theo lãnh đạo Viện Quy hoạch thủy lợi Việt Nam, dự kiến năm 2025 sẽ nghiên cứu khả thi để đưa vào đầu tư xây dựng hai đập dâng Xuân Quan và Long Tử trên lưu vực sông Hồng đoạn qua Hà Nội.
-- Hãng xe Đức thành lập công ty mới về phân phối Mercedes-Benz Việt Nam (MBDV) nhưng chưa đi vào hoạt động. Hãng cũng không bình luận thêm việc có chuyển đổi kế hoạch từ bỏ lắp ráp tại Việt Nam sang hoàn toàn nhập khẩu.
-- Sở Tài nguyên và Môi trường TP.HCM vừa có văn bản trả lời Đoàn đại biểu Quốc hội TP.HCM về kiến nghị của Công ty TNHH Xử lý chất thải Việt Nam (VWS) về dự án đốt rác phát điện của đơn vị này.
-- Xung đột từ mùi hôi của các trang trại nuôi heo, gà đến hoạt động đầu tư cụm công nghiệp tại xã Đông Hà, huyện Đức Linh, Bình Thuận lại nóng lên thời gian qua.
-- Tại phiên phúc thẩm, Quân 'Idol' không nhận tội vận chuyển 10kg ma túy nhưng không được chấp nhận, tòa tuyên y án tử hình. Kết thúc vụ án, 4 bị cáo nhận án tử hình về tội vận chuyển trái phép chất ma túy.
-- Lực lượng chức năng Bộ tư lệnh Vùng Cảnh sát biển 4 tiếp tục phát hiện, bắt giữ tàu cá vận chuyển khoảng 60.000 lít dầu DO không rõ nguồn gốc trên vùng biển Tây Nam.
-- Trong khuôn khổ Hội nghị Thượng đỉnh G20 ở Brazil, Thủ tướng Phạm Minh Chính đã gặp hơn 20 lãnh đạo các nước và tổ chức quốc tế đến tham dự.
-- Người đàn ông say xỉn lái ô tô trên đường Kinh Dương Vương, quận 6 (TP.HCM), sau đó chửi bới người đi đường. Vụ việc được người dân quay clip, đăng tải mạng xã hội.
-- Thủ tướng Phạm Minh Chính mong muốn Tổng thống Mỹ Joe Biden dù trên cương vị nào cũng sẽ tiếp tục ủng hộ quan hệ song phương. Cùng ngày, ông gặp lãnh đạo Trung Quốc và nhiều nước, tổ chức quốc tế khác.
-- Ngoài kiến thức từ sách vở, các bạn đoàn viên, thanh niên tại Phú Yên đã có cơ hội xem những hình ảnh, tư liệu trực quan về những chuyến tàu không số làm nên Đường Hồ Chí Minh trên biển và gặp những nhân chứng sống đầy ý nghĩa.
-- Bằng việc tổ chức chơi biêu (chơi hụi) online, Phan Thị Lệ Thủy đã chiếm đoạt tiền biêu của hơn 40 bị hại với tổng số tiền hơn 3,5 tỉ đồng.
-- Tỉnh Thừa Thiên Huế đề nghị dừng dự án trồng, phục hồi san hô trên địa bàn vì chưa thể xây dựng định mức kinh tế kỹ thuật cho dự án đặc thù này.
-- Sáng 19-11, đoàn đại biểu Thành ủy, HĐND, UBND, Ủy ban MTTQ Việt Nam TP.HCM do Phó bí thư thường trực Thành ủy TP.HCM Nguyễn Hồ Hải dẫn đầu đã đến thăm và tri ân các nhà giáo tiêu biểu.
-- 14,1ha rừng tự nhiên trong diện tích giải phóng mặt bằng đấu giá không thành công khiến dự án nối đường Hồ Chí Minh nhánh đông với nhánh tây kéo dài, chờ đấu giá lại.
-- Để phòng chống bệnh sởi, thời gian qua 18 tỉnh thành có nguy cơ đã triển khai chiến dịch chích ngừa vắc xin cho trẻ từ 1-5 tuổi. Chiến dịch diễn ra khá thành công khi tỉ lệ trẻ được chích ngừa rất cao.
-- Trong quá trình góp ý về báo cáo nghiên cứu khả thi dự án 5 cửa ngõ, các chuyên gia và nhà đầu tư đã đề xuất những giải pháp để đảm bảo tính khả thi và đẩy nhanh tiến độ dự án, trong đó có câu chuyện giải phóng mặt bằng và vốn đầu tư.
-- Hà Nội sẽ trao tặng danh hiệu Công dân danh dự thủ đô cho cá nhân người nước ngoài tuân thủ pháp luật Việt Nam và có đóng góp đặc biệt trong xây dựng, phát triển, quản lý và bảo vệ thủ đô.
-- Tết quân - dân năm 2025 mừng Chôl Chnăm Thmây tại xã Bàn Thạch, huyện Giồng Riềng (Kiên Giang), địa phương hỗ trợ xây dựng 58 căn nhà, xây cầu và trao 10 suất học bổng cho học sinh nghèo dân tộc Khmer.
-- Nhiều địa phương tại Đồng bằng sông Cửu Long đã dành quỹ đất rất lớn để xây dựng nhà ở xã hội nhưng nhiều dự án vẫn nằm trên giấy, vì sao?
-- TP Hà Nội đang tổ chức thẩm định chủ trương đầu tư phục vụ đấu thầu lựa chọn nhà đầu tư đối với 4 khu nhà ở xã hội tập trung trên địa bàn huyện Đông Anh, Gia Lâm.
-- UBND tỉnh Cà Mau đã khởi công dự án di tích lịch sử chiến thắng Đầm Dơi, Cái Nước, Chà Là.
-- Triển lãm Quốc phòng quốc tế Việt Nam 2024 sẽ là cơ hội để quảng bá năng lực, tiềm lực công nghệ, vũ khí trang bị do công nghiệp quốc phòng Việt Nam sản xuất đến bạn bè quốc tế và nhân dân trong nước, tìm kiếm cơ hội xuất khẩu...
-- Nội dung trên trong công văn của UBND TP Hà Nội gửi các đơn vị liên quan về việc triển khai thực hiện đồng bộ, hiệu quả các giải pháp giải quyết việc ô nhiễm không khí tại thủ đô do Phó chủ tịch UBND TP Hà Nội Nguyễn Trọng Đông ký.
-- Tổ quân y của tàu cảnh sát biển 8021 vừa khâu 11 vết thương cho một ngư dân Kiên Giang khi gặp tai nạn lúc đánh cá. Hiện tình trạng sức khỏe của ngư dân đã ổn định và đang được đưa về bờ để tiếp tục chữa trị.
-- Hà Nội sẽ chi 460 tỉ để sửa chữa, nâng cấp, cải tạo gần 17km đê sông Bùi (đoạn qua huyện Chương Mỹ). Dự án được kỳ vọng sẽ chống ngập lụt cho hàng nghìn hộ dân sống trong "rốn lũ" của thủ đô.
-- Theo quy định mới, các cơ sở y tế được sử dụng toàn bộ các thuốc trong danh mục bảo hiểm y tế phù hợp với phạm vi hoạt động chuyên môn, điều trị mà không phân biệt hạng bệnh viện hay cấp chuyên môn kỹ thuật.
-- Cây dó bầu (hay còn gọi là cây trầm hương) là cây quý hiếm, tạo trầm kỳ nam. Tinh dầu của cây có giá trị kinh tế cao. Vườn quốc gia Phú Quốc hiện trồng bảo tồn nguồn gene cây này với tuổi đời hàng chục năm.
-- Sáng 19-11, Thường trực Tỉnh ủy Phú Yên tổ chức hội nghị công bố các quyết định của Ban Thường vụ Tỉnh ủy và chủ tịch UBND tỉnh về công tác cán bộ.
-- Dự thảo Luật Quản lý thuế sửa đổi bổ sung trách nhiệm khấu trừ, kê khai, nộp thuế thay cho người bán của sàn thương mại điện tử, kể cả sàn nước ngoài.
-- Cả 5 cửa ngõ tại TP.HCM đang đứng trước cơ hội được khơi thông với các dự án BOT có tổng vốn 60.000 tỉ đồng.
-- Tỉnh Phú Thọ huy động gần 100 người cùng 20 phương tiện, xuyên đêm tổ chức tìm kiếm 4 học sinh còn mất tích ở bãi sông Hồng, đoạn qua xã Hiền Quan, huyện Tam Nông.
-- Nhiều người thuê trọ đang phải trả tiền điện từ 3.800-5.000 đồng/kWh. Mức giá này được cho là 'giá thị trường'.
-- TP.HCM có khoảng 1.123 cây cầu. Trong đó 17 cây cầu sắt đã tồn tại hơn 50 năm, đang và đã được rà soát, thay thế để đảm bảo an toàn giao thông và phát triển hạ tầng đô thị.
-- Cán bộ hỗ trợ tư pháp thông báo trước phiên xét xử bị cáo Trương Văn Minh trong vụ án đánh nam sinh lớp 8, bị  sốt phát ban không đủ điều kiện để trích xuất tới tòa.
-- Dự báo bão số 9 (Man-yi) sẽ tiếp tục suy yếu nhanh, có thể tan trên vùng biển ngoài khơi các tỉnh miền Trung nên ít có khả năng bão đổ bộ vào đất liền Việt Nam.
-- Một số tin tức đáng chú ý: Nhiều tài xế ở TP.HCM phạm luật vì 'không thấy cảnh sát giao thông'; Người dân bắt được cá sấu 100kg; Nguyên nhân bệnh sởi tăng 'nóng' ở Đồng Nai...
 ![New](News.png)
 ## Nhịp sống số 
 - Máy tính lượng tử sẽ được tích hợp vào nền tảng đám mây điện toán lượng tử "Tianyan" để người dùng trên toàn thế giới có thể truy cập được.
