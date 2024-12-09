@@ -1,6 +1,11 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Ngày hội chuyển đổi số trong giáo dục ở quận 10, TP.HCM thu hút hơn 1.000 lượt học sinh, nhà giáo và cả phụ huynh tham dự.
+- Viện Nghiên cứu cao cấp về toán phối hợp Sở Giáo dục và Đào tạo TP.HCM, Trường đại học Khoa học tự nhiên TP.HCM tổ chức Ngày hội toán học mở.
+- Từng suýt rớt đại học, giờ đây Hoàng Linh trở thành thủ khoa đầu ra của Trường đại học Kiến trúc TP.HCM với đồ án tốt nghiệp ấn tượng.
+- Ngày hội Khoa học kỹ thuật - STEM ở quận Tân Bình trưng bày và giới thiệu nhiều sản phẩm của học sinh tiểu học, THCS.
+- Đó là Hoàng Văn Tú - sinh viên ngành tiếng Trung tại Trường cao đẳng Bách khoa Bách Việt (TP.HCM).
 - Xuất phát từ mục tiêu giúp các bạn yêu thích môn lịch sử, một học sinh lớp 9 Trường THCS Trần Văn Ơn, quận 1, TP.HCM đã quyết định làm game.
 - Việc xét tuyển sớm dẫn đến tình trạng các trường phải chuẩn bị công tác tuyển sinh từ đầu năm, học sinh "chạy đôn chạy đáo" làm thủ tục mà hiệu quả không cao.
 - Một giáo viên tại Gia Lai yếu kém năng lực chuyên môn đã xin nhà trường thuê 2 người dạy thay mình mà vẫn nhận đủ tiền lương, phụ cấp.
@@ -996,13 +1001,38 @@
 - Các trường công lập tại TP.HCM không biết làm sao khi Luật Đấu thầu yêu cầu phải... đấu thầu cả nguồn cung cấp thực phẩm cho bếp ăn trường tự nấu.
 - Lãnh đạo Đại học RMIT Việt Nam khẳng định vẫn được cấp phép hoạt động ở tất cả các cơ sở tại Việt Nam. Nhưng nhà trường đang tạm dừng tuyển sinh khóa mới tại cơ sở Hà Nội.
 - PGS.TS Phạm Quang Huy sẽ thôi chức phó trưởng ban đào tạo Đại học Kinh tế TP.HCM từ ngày 1-9 để chuyển sang công tác giảng dạy và nghiên cứu khoa học.
-- Huyện vùng cao, biên giới Quan Sơn (Thanh Hóa) vừa ra mắt Quỹ khuyến học - khuyến tài Hoa Ban, với tổng số tiền huy động được cho quỹ là hơn 1,7 tỉ đồng.
-- Tại buổi đối thoại với đại học Việt Nam, các tập đoàn công nghệ đưa ra nhiều giải pháp nâng cao chất lượng đào tạo, hỗ trợ sinh viên...
-- Toàn bộ 523 đơn đăng ký vào Trường tiểu học Tây Mỗ 3 của phụ huynh gửi Phòng Giáo dục và Đào tạo quận Nam Từ Liêm hôm 21-8 đều không được giải quyết.
-- Tất cả 180 trường tiểu học ở Singapore đều có lớp học năng khiếu dành cho các học sinh xuất sắc và giáo viên riêng để giảng dạy các lớp này.
-- Có những ông bố, bà mẹ nghĩ con mình là vàng, con thiên hạ là "rơm rác" nên luôn bênh con mình và cư xử thô bạo với con người khác.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Văn phòng Chính phủ vừa có kết luận của Thường trực Chính phủ về đề án phát triển hệ thống mạng lưới đường sắt đô thị tại TP Hà Nội và TP.HCM đến năm 2035.
+- Tại kỳ họp thứ 12 của HĐND TP.HCM khóa X, UBND TP.HCM đã có các tờ trình liên quan đến việc sắp xếp 80 phường thành 41 phường mới tại TP.HCM.
+- Nữ nạn nhân ở Đà Nẵng kể lại chiêu thức siêu 'trader' Mr. Hunter Lê Khắc Ngọ vừa bị khởi tố cùng Mr Pips Phó Đức Nam 'lùa gà' khiến bà mất trắng cả chục tỉ.
+- Kỳ họp thứ 20 HĐND TP.HCM sẽ diễn ra trong 2,5 ngày, từ ngày 9 đến 11-12, dự kiến xem xét, bàn thảo các chính sách phát triển kinh tế - xã hội cuối nhiệm kỳ.
+- Chiếc xe đầu kéo kéo theo container đang lưu thông trên tuyến quốc lộ ở Hà Tĩnh bất ngờ bốc cháy dữ dội. Nhận được tin báo, người dân và lực lượng chức năng nhanh chóng có mặt tại hiện trường hỗ trợ dập lửa.
+- Số ca bệnh sởi ở các tỉnh thành phía Nam đã tăng lên con số hàng ngàn, gấp nhiều lần so với các năm trước, khiến mạng lưới y tế nhiều tỉnh thành báo động.
+- Sáng 9-12, tại kỳ họp thứ 12 HĐND TP.HCM khóa X, UBND TP.HCM đã trình HĐND quyết định chủ trương đầu tư dự án xây dựng tượng đài Nam Bộ kháng chiến tại công viên 23-9, quận 1.
+- Con sốt cao, trên đường đưa đi bệnh viện cháu bé lên cơn co giật, người cha hốt hoảng nhờ cảnh sát giao thông và được giúp đỡ đưa vào cấp cứu kịp thời.
+- Một số tin tức đáng chú ý: Đại gia bất động sản Hải Phòng bị phạt nặng; PGBank chính thức có tổng giám đốc mới; Sắp khởi công cầu 220 tỉ nối Nhà hát dân ca quan họ Bắc Ninh với làng Vân...
+- Tuổi Trẻ đã có cuộc trao đổi với TS Trần Anh Tuấn, chủ tịch Hiệp hội Khoa học hành chính Việt Nam, nguyên thứ trưởng Bộ Nội vụ, xung quanh "cuộc cách mạng" tinh gọn tổ chức bộ máy trong hệ thống chính trị.
+- Giải thưởng năm 2024 được Ủy ban An toàn giao thông quốc gia đánh giá đã thu hút nhiều loạt bài có chất lượng cao, thể hiện đầu tư và công phu trong tác nghiệp. Báo Tuổi Trẻ đoạt giải nhất ở hạng mục báo điện tử và báo in.
+- Do không khí lạnh bao trùm nên hôm nay 9-12, thời tiết Bắc Bộ rét đậm, rét hại. Nam Bộ ngày nắng, có nơi mưa rào.
+- Nhóm 13 thanh thiếu niên Hà Tĩnh (người lớn nhất 24 tuổi, người nhỏ nhất 14 tuổi) mang hung khí vào Quảng Bình tìm đối thủ để giải quyết mâu thuẫn, bị công an kịp thời ngăn chặn.
+- Công an đã lấy lời khai nghi phạm giết bạn nhậu rồi chở xác ra nghĩa trang bằng xe lôi do mâu thuẫn trước đó.
+- Ngoài thành phố tỉnh lỵ Tuy Hòa hiện nay, Phú Yên sẽ có thêm thành phố mới Sông Cầu.
+- Bộ Giao thông vận tải đã lập hội đồng thẩm định báo cáo tiền khả thi dự án đường sắt Thủ Thiêm - Long Thành, được nghiên cứu với tốc độ 120km/h, chi phí đầu tư hơn 3,4 tỉ USD.
+- Nam thanh niên chạy xe máy trên đường Cây Trôm Mỹ Khánh, huyện Củ Chi, TP.HCM tông trúng cột điện tử vong, nghi vấn có người đuổi theo phía sau.
+- Sau gần 30 năm thu hồi đất để mở rộng quốc lộ 1, Nghệ An được Chính phủ chi 1.275 tỉ đồng để bồi thường cho người dân. Tuy nhiên, việc địa phương chi trả diễn ra chậm, buộc tỉnh phải có chỉ đạo nóng.
+- Nguyễn Anh Tuấn bị công an khởi tố với cáo buộc hiếp dâm bé gái 13 tuổi rồi dùng clip nóng đe dọa em.
+- Một trong những phần được mong chờ nhất tại triển lãm quốc phòng 2024 là màn bay chào mừng của các phi công lái tiêm kích Su-30MK2.
+- Du lịch cắm trại, tour đi đêm khám phá rừng hay tổ chức tiệc bên bãi biển còn giữ được nét đẹp hoang sơ ở Phú Quốc (Kiên Giang).
+- Chỉ sau 3 giờ nhận được tin báo, Công an phường Bến Nghé (quận 1, TP.HCM) đã bắt được người giật dây chuyền.
+- Trưa 8-12, Quân khu 7 và gia đình tổ chức lễ truy điệu và di quan 12 liệt sĩ trẻ tuổi hy sinh khi diễn tập về nơi an nghỉ cuối cùng.
+- Năm 2024 có vai trò rất quan trọng để Đồng Nai phấn đấu hoàn thành mục tiêu xây dựng nông thôn mới giai đoạn 2021 - 2025.
+- Đây là nhà máy ô tô điện VinFast thứ 2 của Tập đoàn Vingroup tại Việt Nam.
+- Quận Phú Nhuận (TP.HCM) huy động hơn 11,6 tỉ đồng từ cuộc đi bộ "Đồng hành chăm lo cho người dân khó khăn".
+- Tuần này thời tiết Bắc Bộ chịu chi phối của không khí lạnh nên trời rét, nhiệt độ giảm. Nam Bộ có lúc mưa to.
+- Những trận mưa rào vào các ngày đầu tháng 12-2024 đã ít nhiều ảnh hưởng đến bà con nông dân trồng hoa, kiểng nhiều tỉnh thành.
+- Đây là những cập nhật mới nhất từ phía Cục Quan hệ lao động và tiền lương (Bộ LĐ-TB&amp;XH).
+- Không chỉ là một phương tiện giao thông, metro mang theo hy vọng thay đổi văn hóa giao thông của người Việt.
 - Lễ tang trang trọng tiễn biệt 12 liệt sĩ diễn ra tại Nhà tang lễ Quốc gia phía Nam (TP.HCM) ngày 8-12 trong niềm tiếc thương vô hạn.
 - Khánh Hòa yêu cầu một doanh nghiệp cung cấp hồ sơ, tài khoản nhận tiền từ Tập đoàn Phúc Sơn liên quan các gói thầu dự án đang điều tra.
 - Sáng 8-12, Quân khu 7 tổ chức lễ tang trang trọng cho 12 liệt sĩ hy sinh trong diễn tập tác chiến phòng thủ tại Trường bắn Quốc gia khu vực 3.
@@ -1973,36 +2003,6 @@
 - Chủ tịch UBND TP Hà Nội Trần Sỹ Thanh sẽ làm trưởng Ban Chỉ đạo về thực hiện các biện pháp phòng, chống lãng phí TP Hà Nội.
 - Một phụ nữ khi thao tác trên Internet Banking thì chuyển khoản nhầm cho người lạ. Hành trình của công an phường ở Đà Nẵng giúp người phụ nữ thu hồi số tiền như thế nào?
 - Lực lượng cứu nạn, cứu hộ đã tìm được cả 5 thi thể học sinh trong vụ đuối nước xảy ra ở bãi sông Hồng đoạn qua xã Hiền Quan (Phú Thọ).
-- Dạy thêm học thêm cũng có những mặt tích cực, không phải giáo viên nào cũng xấu, ép học sinh học thêm.
-- Họ đến với nghề giáo từ nhiều ngả đường khác nhau. Dù với con đường nào thì đích đến của họ là nghề trồng người, tuy nhiều gian lao nhưng vô cùng ý nghĩa.
-- Nguyễn Văn Giỏi - phó giám đốc Công ty Nam Hào Kiệt - bị bắt với cáo buộc nghiệm thu khối lượng công trình xử lý sạt lở bờ sông Hậu gây thiệt hại cho Nhà nước.
-- Bộ trưởng Bộ Giáo dục và Đào tạo Nguyễn Kim Sơn đã giải trình ý kiến đại biểu liên quan chính sách tiền lương, phụ cấp của giáo viên tại dự Luật Nhà giáo.
-- Hai xe tải đang chạy trên đường ở xã Bình Chánh (huyện Bình Chánh) có biểu hiện lấn ép nhau, sau đó hai người trên xe đã xuống ẩu đả, đập bể kính xe của nhau.
-- Có diện tích rộng gần 600km², đảo Phú Quốc (nay là TP Phú Quốc, Kiên Giang) sở hữu địa hình, địa thế với cảnh núi non hùng vĩ, cây rừng và sông ngòi uốn lượn độc đáo cho riêng mình.
-- Theo chương trình, sáng nay 20-11, trong ngày làm việc đầu tiên của đợt 2 và cũng nhằm Ngày Nhà giáo Việt Nam, Quốc hội thảo luận tại hội trường về dự thảo Luật Nhà giáo.
-- Hôm nay (20-11), Tòa án nhân dân TP.HCM xét xử vụ án xảy ra tại Công ty TNHH thương mại vận tải, du lịch Xuyên Việt Oil và một số cơ quan, tổ chức liên quan. Phiên tòa dự kiến kéo dài đến ngày 5-12.
-- Tin tức đáng chú ý: Hôm nay Quốc hội họp đợt 2, thảo luận Luật Nhà giáo và đường sắt tốc độ cao Bắc - Nam; Hơn 700 bác sĩ đăng ký thực hành tại bệnh viện gắn liền với trạm y tế ở TP.HCM...
-- "Hộp mù" Baby Three không chỉ gây sốt trên các kênh bán hàng trực tuyến, gần đây trào lưu này đã tràn ngập trên các vỉa hè, thậm chí xuất hiện những xe máy, ô tô chất đầy "hộp mù" dừng bán ngay trên đường ở Đà Nẵng và TP.HCM.
-- Trong khi đang chơi đùa cùng nhóm bạn, một học sinh ở Huế bị cát vùi tử vong.
-- Hôm nay 20-11, bão số 9 suy yếu nhanh thành áp thấp nhiệt đới rồi tan trên biển. Trên đất liền, thời tiết hai miền Nam - Bắc ngày nắng, miền Trung mưa rào.
-- Chiều 19-11 (giờ Brazil), Thủ tướng Phạm Minh Chính và Phu nhân rời Rio de Janeiro (Brazil) để đến thủ đô Santo Domingo của Cộng hòa Dominica.
-- Thủ tướng Phạm Minh Chính khẳng định Việt Nam cam kết thực hiện phát thải ròng bằng 0 vào năm 2050, đồng thời đưa ra ba đề xuất với các nước G20 vì thế hệ tương lai.
-- Xe giường nằm 45 chỗ đang chạy thì bất ngờ phanh gấp dừng, đón khách giữa quốc lộ 26 rất nguy hiểm gây bức xúc.
-- Hai người bạn Thụy Sĩ, từng treo cờ Mặt trận Dân tộc giải phóng miền Nam Việt Nam trên chóp tháp nhà thờ Đức Bà Paris năm 1969, đã kết thúc chuyến thăm TP.HCM với nhiều cảm xúc sâu sắc.
-- Đóng hàng chục triệu đồng học lái xe tại một văn phòng đăng ký trên địa bàn quận 12, TP.HCM, sau hai năm trời nhiều người mới biết bị lừa.
-- Triều cường rằm tháng mười âm lịch dâng rất cao khiến đường đến trường của học sinh ở Bạc Liêu rất khó khăn. Nước cũng tràn qua nhiều ao tôm khiến bà con mất trắng.
-- Thủ tướng yêu cầu các lực lượng chức năng nỗ lực tìm kiếm các em học sinh còn mất tích ở bãi sông Hồng, chủ tịch các tỉnh, thành phố tăng cường công tác phòng, chống đuối nước đối với trẻ em, học sinh.
-- Ông Lại Văn Loan, viện trưởng Viện KSND tỉnh và đại tá Đặng Cao Đạt, chỉ huy trưởng BĐBP tỉnh, được Ban Bí thư chỉ định tham gia Ban chấp hành Đảng bộ tỉnh Bà Rịa - Vũng Tàu.
-- Tổng Bí thư Tô Lâm nêu rõ việc tinh gọn bộ máy cần phải có sự đoàn kết, quyết tâm cao, dũng cảm và cả sự hy sinh lợi ích cá nhân vì lợi ích chung của từng đảng viên, cán bộ.
-- Thanh tra Chính phủ kiến nghị Bộ Tài chính chỉ đạo, tổ chức kiểm điểm, xử lý trách nhiệm đối với các tổ chức, cá nhân có liên quan đến những tồn tại, thiếu sót, khuyết điểm trong giải quyết thủ tục hành chính, cung cấp dịch vụ công cho người dân.
-- Nhằm thay đổi nhận thức người lãnh lương hưu quen nhận tiền mặt, cán bộ bảo hiểm xã hội vừa tới tận nhà chia sẻ vừa đều đặn livestream tư vấn, trả lời câu hỏi.
-- Hoa hậu H'Hen Niê đã về quê nhà ở huyện Cư M'gar (Đắk Lắk) phối hợp với Tỉnh Đoàn Đắk Lắk trao thẻ bảo hiểm, khu vui chơi cho trẻ em.
-- Việc nâng cấp, mở rộng quốc lộ 1 và đường Hồ Chí Minh từ TP Cà Mau đến Đất Mũi cần thu xếp nguồn vốn gần 12.728 tỉ đồng để thực hiện.
-- Giá nước sinh hoạt tại tỉnh Tiền Giang sẽ tăng thêm 1.200 đồng mỗi khối trong kỳ hóa đơn tháng 11-2024, việc điều chỉnh giá nước mới sẽ áp dụng trực tiếp cho khoảng 270.000 khách hàng trên địa bàn tỉnh Tiền Giang.
-- Nhiều thầy cô và học sinh của một số điểm trường trên địa bàn tỉnh Cà Mau phải dạy và học trong tình trạng nước ngập, do triều cường dâng cao.
-- Chiều 19-11, lực lượng chức năng TP Hội An đã đưa thi thể nam thanh niên nghi là người nước ngoài nổi lên trên sông Hoài về nhà tang lễ.
-- Bệnh sởi đang có dấu hiệu gia tăng tại Bình Thuận khi số ca mắc liên tục tăng thời gian gần đây.
-- Công an TP Đà Lạt xác định nguyên nhân tài xế xịt hơi cay vào du khách tại Đà Lạt là do mâu thuẫn tiền cước taxi.
 ![New](News.png)
 ## Nhịp sống số 
 - Máy tính lượng tử sẽ được tích hợp vào nền tảng đám mây điện toán lượng tử "Tianyan" để người dùng trên toàn thế giới có thể truy cập được.
