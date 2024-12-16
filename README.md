@@ -1,6 +1,10 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Vụ việc tại Trường quốc tế Ngôi sao Sài Gòn (Saigon Star) đang thu hút sự chú ý của dư luận, đồng thời cũng đặt ra nhiều câu hỏi về lỗ hổng minh bạch thông tin.
+- Trường đại học Kinh tế - Tài chính TP.HCM (UEF) đã xây dựng chương trình đào tạo, đẩy mạnh hợp tác quốc tế để các bạn tiếp cận nền giáo dục phát triển, học tập xuyên quốc gia.
+- Trung Quốc thúc đẩy giáo dục trí tuệ nhân tạo (AI) ở cấp tiểu học và trung học giữa bối cảnh "chiến tranh công nghệ" diễn biến phức tạp và nhu cầu nhân tài AI tăng cao.
+- Trước thời điểm dư luận xôn xao về vụ việc cưỡng chế đất và phụ huynh đòi rút học phí, bà Võ Thị Phương Thảo - chủ Trường quốc tế Saigon Star - cũng đã bị Công an TP.HCM truy tìm từ tháng 1-2024.
 - Để giúp những quyển sách hay trong thư viện dễ dàng tiếp cận với sinh viên, một nhóm bạn trẻ Trường đại học Công nghệ TP.HCM (HUTECH) có sáng kiến giới thiệu sách trên TikTok.
 - Với diện tích 316km² và dân số khoảng 563.443 người nhưng năm 2023 quốc đảo Malta đã đón đến 3 triệu lượt khách du lịch. Điểm đến này đang trở thành lựa chọn hàng đầu của du khách Việt Nam khi muốn khám phá châu Âu.
 - Bộ Giáo dục và Đào tạo có công văn yêu cầu Đại học Huế tổ chức đánh giá lại nội dung luận án tiến sĩ của bà Lê Thị An Hòa được kết luận có lỗi đạo văn.
@@ -997,13 +1001,52 @@
 - Thăm học sinh Trường Hy Vọng tại Đà Nẵng, Thủ tướng Phạm Minh Chính mong các em được định hướng học những ngành như AI, chip bán dẫn.
 - Nhóm sinh viên tại TP.HCM đã chế tạo ra bọt rửa mặt chiết xuất từ lá đu đủ, được doanh nghiệp đầu tư 300 triệu đồng phát triển dự án.
 - Nhiều ngành có điểm chuẩn đợt 1 trên 27 điểm vẫn xét tuyển bổ sung. Trong khi đó có ngành điểm chuẩn đợt 2 tăng 8-10 điểm.
-- Từ nay đến năm 2030, Việt Nam sẽ đầu tư khoảng 26.000 tỉ đồng để đào tạo 50.000 kỹ sư bán dẫn. Và các trường đại học năm nay đồng loạt mở ngành thiết kế vi mạch, bán dẫn.
-- Những năm qua tại Đà Nẵng đã có hàng loạt ngôi trường mới có thiết kế đẹp ra đời. Những ngôi trường mang tính thẩm mỹ có tác dụng kích thích năng khiếu sáng tạo và cảm hứng học tập cho học sinh.
-- Ông Cao Thanh Bình, trưởng Ban Văn hóa xã hội (Hội đồng nhân dân TP.HCM), cho biết cơ quan này đã kết nối với cơ quan đồng cấp tại Hà Nội để phối hợp yêu cầu các cơ quan chức năng giải quyết cho bé N. đi học trở lại sau thời gian dài bé nghỉ học.
-- Các doanh nghiệp lĩnh vực vi mạch, bán dẫn trong khu vực đang có nhu cầu nhân lực rất lớn, nếu TP Đà Nẵng không có những chính sách thu hút nhân lực thì sẽ dễ chảy máu chất xám.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Khu đất Cảng Sài Gòn đề nghị làm dự án cảng tàu khách quốc tế Nhà Rồng - Khánh Hội đang vướng một dự án khác.
+- Vụ việc tại Trường quốc tế Ngôi sao Sài Gòn (Saigon Star) đang thu hút sự chú ý của dư luận, đồng thời cũng đặt ra nhiều câu hỏi về lỗ hổng minh bạch thông tin.
+- Việc kiểm định khí thải xe máy sẽ được áp dụng với xe có thời gian sản xuất trên 5 năm. Chủ xe phải mang xe đến cơ sở đăng kiểm để kiểm định.
+- Tuổi Trẻ có cuộc trao đổi với ông Lê Như Tiến - nguyên phó chủ nhiệm Ủy ban Văn hóa, Giáo dục của Quốc hội - xung quanh cuộc cách mạng tinh gọn bộ máy.
+- Lực lượng chức năng sẽ dùng mìn để phá khối đá nặng hơn 100 tấn đổ xuống đường đèo Khánh Lê (huyện Khánh Vĩnh, tỉnh Khánh Hòa).
+- Một số tin tức đáng chú ý: Ngân hàng đồng loạt tăng lãi suất; TP.HCM cao điểm xử phạt vi phạm giao thông, lấn chiếm vỉa hè; Phải đăng ký mới được bay flycam...
+- Hôm nay 16-12, thời tiết mưa to tập trung ở các tỉnh thành từ Đà Nẵng đến Bình Thuận. Bắc Bộ nắng nhưng rét, Nam Bộ còn mưa rào vài nơi.
+- Người đàn ông làm nghề thợ hồ cho biết sau khi xong công việc, chủ nhà mời ở lại uống bia. Sau đó người này say xỉn tự lái xe máy về, bị cảnh sát giao thông lập biên bản.
+- Một người đàn ông 55 tuổi ở huyện Ninh Hải (Ninh Thuận) trong lúc từ ruộng muối về nhà không may trượt chân rồi đuối nước thương tâm.
+- Tối 15-12, trên địa bàn TP Nha Trang (Khánh Hòa), các hồ chứa nước xả lũ kèm theo mưa lớn đã khiến nước lũ lên nhanh. Nhiều người dân phải hối hả dọn dẹp đồ đạc để tránh lụt ngay trong đêm.
+- Tối 15-12, ông Huỳnh Thanh Vương - chủ tịch UBND xã Phước Hòa (huyện Tuy Phước, tỉnh Bình Định) - xác nhận có hai học sinh ở xã này chết đuối vào chiều cùng ngày.
+- Hai học sinh lớp 4 ở huyện Duy Xuyên, Quảng Nam đi qua đoạn đường ngập nước lũ, rủ nhau lội xuống nước chơi thì chẳng may bị chết đuối.
+- Lực lượng chức năng hai tỉnh Lâm Đồng và Khánh Hòa hợp sức tiếp tế thức ăn và dọn dẹp hiện trường, đưa du khách ra khỏi đèo Khánh Lê (địa phận tỉnh Khánh Hòa) đang sạt lở.
+- Chiều 15-12, Thủ tướng Chính phủ Phạm Minh Chính đã kiểm tra dự án cao tốc Bắc - Nam, dự án thành phần Cần Thơ - Cà Mau, đồng thời chỉ đạo toàn bộ dự án phải hoàn thành cuối năm 2025.
+- Hai chiếc máy bay cường kích A-10 và một chiếc vận tải quân sự C-130J của Mỹ liên tiếp đáp xuống sân bay Gia Lâm, Hà Nội trong trưa, chiều 15-12.
+- Mưa lớn kéo dài đã khiến đất đá sạt lở, gây cản trở giao thông trên tuyến đường ven biển đẹp nhất Ninh Thuận. Ngoài ra còn có hơn 100 căn nhà ở các vùng trũng thấp của tỉnh này bị ngập.
+- Liên quan đến vụ sạt lở trên đèo Khánh Lê vào sáng nay, hiện có hơn 250 hành khách bị mắc kẹt, sức khỏe ổn định.
+- Phòng cảnh sát kinh tế Công an Đà Nẵng vừa phát hiện, tạm giữ số lượng thuốc lá điện tử và phụ kiện, tinh dầu đi kèm được xem là lớn nhất từ trước đến nay trên địa bàn thành phố.
+- Do mưa lớn nhiều ngày qua, để đảm bảo an toàn, UBND tỉnh Khánh Hòa đã tiến hành điều tiết 5 hồ chứa nước, vậy những địa phương nào của tỉnh này có nguy cơ ngập lụt?
+- Cú va chạm mạnh giữa hai xe khách trên quốc lộ 14 khiến 1 tài xế chết, 2 hành khách bị thương.
+- Điện lực Tuy Hòa (Phú Yên) đã khắc phục xong hệ thống đèn chiếu sáng phía nam cầu Hùng Vương sau phản ánh của Tuổi Trẻ Online.
+- Hiện lực lượng chức năng đang nỗ lực giải phóng đất đá sạt lở xuống đường đèo Khánh Lê nối 2 tỉnh Khánh Hòa và Lâm Đồng, nhưng chưa khẳng định chính xác thời điểm thông xe trở lại.
+- Những ngày này, không khí tại các ga metro số 1 sôi động hơn bởi nhiều người dân đến trải nghiệm.
+- Hai người đi xe máy bị người đàn ông đi xe máy khác ép xe ngã nhào xuống đường. Sau khi xảy ra vụ việc, người đàn ông không dừng lại mà tiếp tục di chuyển.
+- Cơ quan chức năng huyện Châu Đức, tỉnh Bà Rịa - Vũng Tàu đang điều tra vụ một chiếc ô tô con cán qua người một phụ nữ trước quán karaoke khiến người này bị thương.
+- Sau vụ cô gái lái ô tô tông gãy lan can cầu Đồng Nai rồi lao xuống sông tử vong, đoạn lan can này đã được đơn vị quản lý huy động công nhân lắp tạm bằng những cây tre, sơn xen kẽ màu đỏ, trắng.
+- Sau khi lên mạng tìm tòi, ba học sinh lớp 6 đã mua diêm về chế tạo pháo, không may pháo phát nổ. Cả ba bị thương phải nhập viện cấp cứu.
+- Thủ tướng Phạm Minh Chính cho biết chủ trương tinh gọn bộ máy được sự thống nhất cao trong Đảng,  nhân dân trong và ngoài nước. Việc tinh gọn bộ máy phải làm tích cực, không thể chần chừ.
+- Ngày 15-12, tại TP Pleiku (Gia Lai), Bộ Quốc phòng công bố quyết định giải thể Quân đoàn 3, Quân đoàn 4 và thành lập Quân đoàn 34.
+- Sâu trong Vườn quốc gia Kon Ka Kinh tại tỉnh Gia Lai, hàng ngàn cây pơ mu cổ thụ hùng dũng vươn mình giữa rừng già ở độ cao 1.400m so với mực nước biển.
+- UBND TP.HCM vừa có chỉ đạo về việc chuyển mục đích sử dụng đất sang đất ở của hộ gia đình, cá nhân tại các đồ án quy hoạch phân khu.
+- Trang fanpage của Phòng cảnh sát giao thông (Công an Đà Nẵng) vừa kêu gọi người dân nếu phát hiện tài xế sử dụng điện thoại trong khi lái xe hãy báo ngay cho cảnh sát giao thông.
+- Ngày 15-12, Công an Hà Nội ra quân đợt cao điểm bảo đảm trật tự an toàn giao thông dịp cuối năm, Tết Nguyên đán Ất Tỵ và các lễ hội đầu xuân năm 2025.
+- Cần phải xử lý nghiêm hành vi trộm cắp nắp cống, dây cáp ngầm... không thể coi đó là trộm cắp vặt.
+- TP.HCM có hơn 74.000 nhà trọ không đáp ứng tiêu chuẩn diện tích tối thiểu 4m² sàn/người với khoảng 185.000 người đang thuê.
+- Từ ngày 15-12 đến ngày 14-2, Công an TP.HCM sẽ thực hiện cao điểm tấn công, trấn áp các loại tội phạm, bảo đảm an ninh, trật tự dịp Tết Nguyên đán Ất Tỵ 2025.
+- Tấm sắt 'bốc hơi', tạo lỗ hổng lớn giữa cầu; Chim trời bị làm thịt bán ở vỉa hè; Xe ben ngang nhiên chạy ngược chiều vào giờ cao điểm… là những thông tin nổi bật bạn đọc Tuổi Trẻ Online cung cấp.
+- Sau nhiều năm rà soát, dự án đoạn 3 đường vành đai 2 dài 2,7km vẫn chưa thể tái khởi động vì còn vướng mắc.
+- Trước thời điểm dư luận xôn xao về vụ việc cưỡng chế đất và phụ huynh đòi rút học phí, bà Võ Thị Phương Thảo - chủ Trường quốc tế Saigon Star - cũng đã bị Công an TP.HCM truy tìm từ tháng 1-2024.
+- N., 22 tuổi, đang là học viên cao học, trên đường từ TP.HCM về nhà thì bất ngờ xe tông gãy lan can thành cầu, ô tô rơi xuống sông Đồng Nai khiến nạn nhân tử vong.
+- Lễ kỷ niệm 30 năm vịnh Hạ Long được UNESCO vinh danh là Di sản thiên nhiên thế giới vừa được tổ chức long trọng, ý nghĩa.
+- Do mưa lớn kéo dài trong nhiều ngày qua, sáng nay đèo Khánh Lê (tỉnh Khánh Hòa) đã bị sạt lở, giao thông ách tắc.
 - Tại Việt Nam, để khuyến sinh, một số địa phương đã có chính sách khen thưởng, hỗ trợ tiền mặt
+- Tuần này thời tiết cả nước có sự phân hóa rõ rệt, Bắc Bộ rét đậm, rét hại, Trung Bộ mưa to, còn Nam Bộ trời nắng, chiều tối mưa rào vài nơi.
 - Từ 1-1-2025, 41 phường mới tại TP.HCM sẽ đi vào hoạt động sau khi sắp xếp từ 80 phường. Việc sắp xếp lại bộ máy cơ sở nhằm mục tiêu xây dựng hệ thống chính trị tinh gọn, hoạt động hiệu lực, hiệu quả, tinh giản biên chế.
 - Một số tin tức đáng chú ý: Nhà đầu tư cá nhân đầu tư vào hơn 40% các đợt phát hành trái phiếu riêng lẻ; Không chịu công bố loạt báo cáo, một công ty bất động sản ở TP.HCM lĩnh phạt; Rao bán khoản nợ gần nghìn tỉ 'đại gia' xăng dầu Trung Linh Phát...
 - Đến 23h, lực lượng cứu nạn cứu hộ Công an tỉnh Đồng Nai và Bình Dương đã đưa được thi thể cô gái mắc kẹt trong ô tô rơi cầu Đồng Nai lên bờ và chuyển vào nhà xác để điều tra.
@@ -1960,49 +2003,6 @@
 - Ngày 28-11, Tổng Bí thư Tô Lâm đã trao huy hiệu 45 năm tuổi Đảng cho nguyên thường trực Ban Bí thư Trần Quốc Vượng.
 - Có thêm hàng chục người dân Vũng Tàu phải nhập viện vì ngộ độc thực phẩm nghi do ăn bánh mì. Bệnh viện Vũng Tàu đã phải huy động hết nhân lực, nguồn lực để chữa trị.
 - Một cửa hàng dịch vụ mai táng ở phường Phương Sài, TP Nha Trang (Khánh Hòa) cháy lớn, 4 người trong gia đình tử vong.
-- Phó thủ tướng, Bộ trưởng Bộ Tài chính Hồ Đức Phớc cho biết nếu Quốc hội đồng ý, sẽ áp mức thuế thu nhập doanh nghiệp với báo in và các loại hình báo chí khác là 10%.
-- Quốc hội đã thông qua nghị quyết thí điểm xử lý vật chứng, tài sản trong quá trình điều tra, truy tố, xét xử một số vụ việc, vụ án hình sự.
-- Sau hơn 1 tiếng 30 phút bay từ Phnom Penh, Quốc vương Campuchia Norodom Sihamoni đến Hà Nội sáng 28-11, bắt đầu chuyến thăm cấp nhà nước 2 ngày tới Việt Nam.
-- Siêu dự án Cocobay Đà Nẵng có tổng vốn đầu tư khoảng 11.000 tỉ đồng vẫn chưa tái khởi động.
-- Với Luật Sĩ quan quân đội nhân dân mới được thông qua, tuổi nghỉ hưu với sĩ quan theo bậc quân hàm từ cấp úy đến tướng tăng từ 1-5 tuổi so với hiện hành.
-- Lực lượng chức năng Bình Phước dùng xe cuốc đánh sập đường hầm của nhóm đào vàng trái phép.
-- Phương án khoanh và lùi trả nợ trái phiếu Bộ Tài chính đã ứng trả nợ cho Tổng công ty Đầu tư phát triển đường cao tốc Việt Nam chưa được đồng thuận, khiến việc huy động vốn mở rộng cao tốc TP.HCM - Long Thành - Dầu Giây gặp khó.
-- Vật thể lạ có dòng chữ China Buoy trôi dạt vào bờ biển Quảng Ngãi. Vật thể giống phao đo gió Lidar. Hiện bộ đội biên phòng đang neo giữ vật thể này để xác minh.
-- Dự án đường vành đai phía Đông TP Hà Tĩnh là một trong những dự án hạ tầng chiến lược của thành phố nhằm mục tiêu mở rộng không gian đô thị, tạo động lực phát triển kinh tế - xã hội của địa phương nói riêng và toàn tỉnh nói chung.
-- Đơn vị thi công sân khấu khai mạc, bế mạc Festival hoa Đà Lạt lần thứ X đã hoàn thiện các thủ tục đảm bảo an toàn.
-- Nên điều chỉnh thuế thu nhập cá nhân như đối với thuế thu nhập doanh nghiệp.
-- Công ty TNHH một thành viên Xổ số kiến thiết tỉnh Thừa Thiên Huế vừa từ chối trả thưởng một tờ vé số trúng giải đặc biệt vì tờ vé này bị rách một phần ở góc.
-- Nghịch lý này đang trở thành "quen thuộc" với nhiều bệnh nhân có thẻ bảo hiểm y tế (BHYT) khi đến các bệnh viện tuyến cuối ở TP.HCM để siêu âm, phẫu thuật.
-- Cầu Rạch Đỉa chính thức thông xe, rút ngắn thời gian đi lại giữa quận 7 và huyện Nhà Bè, góp phần giảm ùn tắc ở khu Nam TP.HCM.
-- Bộ Tài Nguyên - Môi trường vừa quyết định phê duyệt kết quả thẩm định báo cáo đánh giá tác động môi trường của dự án hồ chứa nước Ka Pét.
-- Nhiều hộ dân ở xã Quỳnh Lập, thị xã Hoàng Mai, Nghệ An đã chọn cách "xé rào" xây nhà trên đất quy hoạch treo khu công nghiệp đã 14 năm.
-- Vụ máy bay không người lái (drone) phun thuốc trừ sâu đụng trúng người gây tử vong xảy ra ở huyện Hòn Đất, Kiên Giang mới đây đã đặt ra vấn đề cần siết chặt quản lý đảm bảo an toàn, hạn chế rủi ro cho phương tiện này.
-- Đó không chỉ là cảm xúc của riêng thượng tá phi công tiêm kích Su30-MK2 Vũ Đức Hùng mà của tất cả các phi công khi mỗi lần bay trên bầu trời quê hương, đất nước với tràn ngập sự tự hào vì được là phi công của Không quân nhân dân Việt Nam.
-- Một số tin tức đáng chú ý: Quốc hội làm công tác nhân sự, xem xét nhiều nội dung quan trọng; Cấm xe vào làn ô tô đường Lê Lợi trong 2 tuần; TP.HCM tiêu hủy hàng loạt mỹ phẩm, dược phẩm sai phạm...
-- Quốc vương Campuchia Norodom Sihamoni đến Việt Nam hôm nay 28-11 trong chuyến thăm cấp nhà nước theo lời mời của Chủ tịch nước Lương Cường. Chuyến thăm Việt Nam lần này diễn ra đúng vào dịp tròn 20 năm ông lên ngôi vua.
-- Hôm nay 28-11, thời tiết Bắc Bộ vẫn rét với nền nhiệt thấp nhất từ 10-15 độ C. Mưa to ở Trung Bộ giảm, Nam Bộ ngày nắng.
-- Đến 22h30 ngày 27-11, cảnh sát giao thông vẫn đang giải quyết hiện trường vụ tai nạn giữa 2 xe tải trên cao tốc Phan Thiết - Dầu Giây.
-- Công an TP Vũng Tàu đang truy xuất nguồn gốc bánh mì, thịt heo, giò chả cung cấp cho một tiệm bánh mì sau khi hơn 200 người nhập viện do bị ngộ độc.
-- Một công ty logistics ở TP.HCM đã liên hệ với Bộ đội biên phòng tỉnh Quảng Ngãi nhận là chủ của ba bồn chứa trôi dạt vào bờ biển huyện Bình Sơn.
-- Trong lúc kiểm tra hệ thống phanh của xe khách giường nằm, một người bị xe đè tử vong.
-- Công an TP Buôn Ma Thuột, Đắk Lắk đang điều tra nguyên nhân một sinh viên Trường cao đẳng Đắk Lắk tử vong trong giờ học thực hành nối điện.
-- Chủ khách sạn xây vượt tầng ở TP Nha Trang phản ánh UBND phường Lộc Thọ tự ý bán tài sản của khách sạn khi cưỡng chế.
-- Chiều 27-11, Quốc hội đã nghe Thủ tướng trình tờ trình đề nghị phê chuẩn miễn nhiệm chức vụ bộ trưởng Bộ Tài chính và bộ trưởng Bộ Giao thông vận tải nhiệm kỳ 2021 - 2026.
-- Tổng Bí thư Tô Lâm nhấn mạnh Hà Nội cần tập trung làm tốt việc cải tạo các chung cư cũ, chuẩn bị sẵn sàng nguồn nhà ở xã hội, nhà ở tái định cư để phục vụ giải phóng mặt bằng triển khai các dự án lớn.
-- Ủy viên Bộ Chính trị, Trưởng Ban Tuyên giáo Trung ương Nguyễn Trọng Nghĩa thăm thuyền trưởng tàu không số, chiến sĩ bảo vệ bến Vũng Rô - những 'nhân chứng sống' làm nên huyền thoại đường Hồ Chí Minh trên biển.
-- Đường Đặng Thái Thân (phường 3, TP Đà Lạt) dẫn vào nhiều điểm du lịch đang bị lún bất thường. Một nửa mặt đường đổ xô về hướng vực sâu đến 20m.
-- UBND phường Nguyễn Thái Bình (quận 1, TP.HCM) kiểm tra, xác định bé gái bị xích chân không phải bị bạo hành.
-- Liên quan vụ trụ sở của tòa án cũ tại huyện Chư Sê, Gia Lai bất ngờ bị san bằng, địa phương cho biết đã cho dừng thi công công trình.
-- Lãnh đạo ba huyện vùng cao Sơn Động, Đình Lập và Ba Chẽ của ba tỉnh Đông Bắc chia sẻ kinh nghiệm trồng rừng bền vững, tăng giá trị, hướng xuất khẩu đi Nhật Bản.
-- Thủ tướng Phạm Minh Chính nhấn mạnh những thành tựu to lớn về khởi nghiệp sáng tạo sẽ góp phần đưa đất nước ta vững bước vào kỷ nguyên vươn mình, phát triển giàu mạnh, thịnh vượng.
-- Việc sử dụng lại các địa điểm xây dựng nhà máy điện hạt nhân tại Ninh Thuận trước đây đã được nghiên cứu nên rất thuận lợi, tiết kiệm thời gian và chi phí nghiên cứu, khảo sát, lựa chọn địa điểm.
-- Người phát ngôn Bộ Nội vụ Vũ Đăng Minh khẳng định các thông tin, hình ảnh đang lan truyền trên mạng xã hội về sáp nhập tỉnh, thành ở Việt Nam là 'không đúng'.
-- Dự án lò đốt rác thải Hội An hơn 25 tỉ đồng đã xây dựng, lắp đặt thiết bị, vận hành thử nghiệm từ năm 2016 nhưng đến nay vẫn chưa đưa vào hoạt động.
-- Khi giá cả bất động sản để ở ngày càng tăng vượt xa thu nhập, giấc mơ an cư của người dân ngày càng xa vời.
-- Chiều 27-11, tại phiên thảo luận ở hội trường về Luật Thuế tiêu thụ đặc biệt (sửa đổi), nhiều đại biểu Quốc hội đề nghị bỏ quy định mặt hàng điều hòa nhiệt độ vào diện chịu thuế tiêu thụ đặc biệt.
-- Tiếp thu ý kiến dư luận phản ánh, TP Vinh đã hủy bỏ văn bản tạm dừng tiếp nhận xem xét, giải quyết các thủ tục liên quan đến việc phân lô, tách thửa đất đai.
-- Dự án cầu bắc qua sông Gành Hào với tổng vốn đầu tư hơn 655 tỉ đồng nối hai tỉnh Cà Mau và Bạc Liêu dự kiến sẽ hợp long vào tháng 12, thông xe kỹ thuật trước Tết Nguyên đán 2025.
-- Rác thải chất đống, gây ô nhiễm môi trường trên phần mặt bằng trống để mở rộng đường Chu Văn An, quận Bình Thạnh, TP.HCM.
 ![New](News.png)
 ## Nhịp sống số 
 - Telegram có hệ thống mã hóa đầu cuối mạnh mẽ, giúp đảm bảo tính riêng tư cho các cuộc trò chuyện.
