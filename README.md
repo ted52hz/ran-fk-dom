@@ -1,6 +1,9 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Chiều 22-12, gần 200 học viên đến từ các cơ sở y tế, giáo dục và doanh nghiệp tham dự workshop ‘Phương pháp nghiên cứu khoa học và công bố quốc tế’.
+- Ngày 22-12, Thành ủy, Hội đồng nhân dân, Ủy ban nhân dân, Ủy ban Mặt trận Tổ quốc Việt Nam TP.HCM đã tổ chức hội nghị gặp gỡ trí thức năm 2024.
+- Tân bác sĩ Hồ Ngọc Lan Nhi trở thành người thứ ba trong gia đình theo học bác sĩ nội trú sản khoa.
 - Thay vì biến Chat GPT trở thành công cụ để học tốt hơn, một số sinh viên sao chép 'nguyên con' khiến thầy cô giáo dở khóc dở cười.
 - Hội đồng quản lý Quỹ Phát triển khoa học và công nghệ quốc gia (Nafosted) vừa công bố kết quả phê duyệt đề tài nghiên cứu cơ bản, đề tài Nafosted - SNSF do quỹ này tài trợ thực hiện từ năm 2025.
 - Trước sự phát triển của công nghệ, đặc biệt là trí tuệ nhân tạo (AI), lao động đang chưa đáp ứng đủ kỹ năng sẽ bị ảnh hưởng, các doanh nghiệp cũng đặt ra yêu cầu cao hơn với đội ngũ nhân lực.
@@ -998,11 +1001,43 @@
 - Sử dụng điện thoại để tìm kiếm thông tin phục vụ học tập là tốt, nhưng đừng để điện thoại biến học sinh thành "tù binh" của mạng xã hội và game.
 - Trong lễ khai giảng 5-9, nhiều trường học đã gửi đến học trò và cả giáo viên của mình những thông điệp ý nghĩa, cảm xúc cho năm học mới.
 - Ở cao nguyên đá Đồng Văn (Hà Giang), từ tờ mờ sáng trong sương sớm, người mẹ đưa con đến trường.
-- Hiệu trưởng Trường đại học Công nghệ thông tin (Đại học Quốc gia TP.HCM) nhắn nhủ tân sinh viên ‘đừng chìm đắm trong mạng xã hội, TikTok’.
-- Sở Giáo dục và Đào tạo tỉnh Bắc Giang cho học sinh nghỉ học ngày 7-9 để tránh siêu bão Yagi (bão số 3). TP Hải Phòng và tỉnh Quảng Ninh cũng có chỉ đạo cho học sinh nghỉ học để tránh bão.
-- Diễn viên Chi Bảo - người sáng lập quỹ Hiểu về trái tim - cho biết toàn bộ chi phí từ học phí, đồng phục, dụng cụ học tập, bảo hiểm y tế… đều được nhà trường tài trợ 100%.
 ![Edu](Edu.png)
 ## Thời Sự 
+- "Thôn kiểu mẫu" - xanh, sạch, đẹp, văn minh hiện đại và "làng hạnh phúc" - cuộc sống người dân ấm no về cả vật chất và tinh thần.
+- Sáng nay 23-12, thời tiết TP.HCM lạnh, nhiệt độ giảm mạnh, người dân cảm nhận được cái lạnh rõ rệt dù trời có nắng.
+- Sáng 23-12, xe buýt chạy trên đường Nơ Trang Long (quận Bình Thạnh, TP.HCM) bất ngờ lao qua làn đường ngược lại tông xe máy và xe đạp.
+- Dự báo trong ngày hôm nay (23-12), áp thấp nhiệt đới ở phía nam Biển Đông mạnh lên thành bão, cơn bão số 10 trong năm 2024.
+- Đứng bên kia cầu Phú Mỹ, nhìn sang phía phường Thạnh Mỹ Lợi (TP Thủ Đức, TP.HCM) là các thảm lúa vàng óng ả đang mùa thu hoạch. Đây cũng là dịp "biệt đội" cắt lúa thuê từ miệt dưới lên kiếm tiền ăn Tết.
+- Tin tức đáng chú ý: Thưởng Tết ở đâu cao nhất?; Mức sinh ở TP.HCM dự báo tăng nhẹ lên 1,4 con/phụ nữ nhưng vẫn ở mức rất thấp...
+- Hôm nay 23-12, thời tiết Nam Bộ nhiều mây, chiều có mưa. Bắc Bộ nắng ráo, còn Trung Bộ mưa to đến rất to.
+- Xe tải chở 18 tấn phân bón trên quốc lộ 14 hướng TP.HCM - Đắk Nông, khi đến thôn 8, xã Quảng Tín, huyện Đắk R'lấp (Đắk Nông) bất ngờ lao dốc, chìm dưới suối. Tài xế mắc kẹt trong cabin.
+- Chủ tịch Ủy ban Trung ương Mặt trận Tổ quốc Việt Nam Đỗ Văn Chiến cùng đoàn lãnh đạo đã đến thăm, chúc mừng Giáng sinh Tổng giám mục Nguyễn Năng và Hiệp sĩ Đại Thánh giá Lê Đức Thịnh.
+- Thứ trưởng Bộ Quốc phòng nhận định qua triển lãm quốc phòng quốc tế đã thấy công tác chuẩn bị rất toàn diện, triển khai thực hiện rất bài bản, chuyên nghiệp.
+- Cơ quan chức năng đã tìm thấy thi thể hai mẹ con ôm chặt nhau nhảy cầu xuống sông Krông Ana.
+- Bệnh viện Vũng Tàu cho biết trong 4 người nhập viện cấp cứu ngộ độc nghi do methanol vào tối 21-12, đến nay có một người đang hôn mê, tiên lượng nặng.
+- Nhiều người tiếc ngẩn ngơ, không hiểu vì sao hàng cây hoa sữa to lớn trước cổng Trường Trần Quốc Tuấn (TP Quảng Ngãi) bị đốn hạ.
+- Đây là nhiệm vụ trọng tâm của Trung tâm Cách mạng công nghiệp lần thứ 4 tại TP.HCM (HCMC C4IR) ngay trong năm 2025.
+- Dưới đây là chi tiết toàn bộ bảng lương công chức được áp dụng từ năm 2025. Bảng lương được tính theo mức lương cơ sở 2,34 triệu đồng/tháng.
+- Dịp lễ Noel và Tết dương lịch 2025, khách quốc tế và đặc biệt là khách nội địa nhộn nhịp trở lại đảo Phú Quốc (Kiên Giang).
+- Các đơn vị của Tổng cục Công nghiệp quốc phòng, Tập đoàn Công nghiệp - Viễn thông quân đội (Viettel) đã ký kết 16 hợp đồng.
+- Lúc 10h ngày 22-12, tuyến metro số 1 (Bến Thành - Suối Tiên) chính thức hoạt động, ghi nhận sự hưởng ứng mạnh mẽ từ người dân thành phố.
+- Sau phản ánh của Tuổi Trẻ, địa phương cùng đơn vị liên quan đã mở lại đèn chiếu sáng quảng trường để người dân và du khách đến vui chơi.
+- Ngày 22-12, Thành ủy, Hội đồng nhân dân, Ủy ban nhân dân, Ủy ban Mặt trận Tổ quốc Việt Nam TP.HCM đã tổ chức hội nghị gặp gỡ trí thức năm 2024.
+- Hội Nhà báo Việt Nam, báo Tuổi Trẻ và Ngân hàng Thương mại cổ phần Quân Đội đã bàn giao nhà tình nghĩa cho hộ gia đình bà Võ Thị Ri, là gia đình có công cách mạng đang khó khăn về nhà ở.
+- Thủ tướng Phạm Minh Chính đã đến dự lễ khánh thành khu tái định cư thôn Làng Nủ (xã Phúc Khánh, huyện Bảo Yên, tỉnh Lào Cai).
+- Bộ Quốc phòng thông báo triển lãm quốc phòng sẽ được kéo dài thời gian mở cửa một số gian hàng, mở cửa thêm một ngày đến hết 23-12.
+- UBND tỉnh Bà Rịa - Vũng Tàu vừa có quyết định về việc chi hỗ trợ tổ chức đón Tết Ất Tỵ 2025 với số tiền gần 300 tỉ đồng.
+- Vụ tai nạn liên hoàn giữa 3 xe tải trên tuyến quốc lộ 1 huyện Cam Lâm (Khánh Hòa) khiến 3 người bị thương nặng.
+- Đã có hàng chục vụ học sinh lên mạng học làm pháo rồi lén lút mua các hóa chất về làm pháo và gặp tai nạn rất thương tâm.
+- Theo Bệnh viện Bạch Mai, xét nghiệm độc chất cho thấy tất cả 14 bệnh nhân nhập viện đang được điều trị tại trung tâm chống độc đều cho kết quả âm tính với methanol và ethanol trong máu.
+- Bị phạt vì đứt niêm chì đồng hồ nước do chó cắn; Thản nhiên dừng, đậu dưới lòng đường quanh bệnh viện ở TP.HCM; "Xe mù" vẫn tung hoành...
+- Lúc 10h ngày 22-12, tất cả 14 ga của tuyến metro số 1 đồng loạt mở cửa. Đông đảo người dân mong muốn được trải nghiệm nên đã gây ra tình trạng quá tải.
+- Dự báo trong 24 giờ tới, áp thấp nhiệt đới di chuyển theo hướng Đông Bắc, sau đó là Tây Bắc, hướng về quần đảo Trường Sa.
+- Đây là những câu chuyện trở thành bài học từ những trải nghiệm nhớ đời của tài xế Trương Nhất Vương nhiều năm rong ruỗi bên vô lăng.
+- Ngay sau lễ khai trương metro số 1, đại biểu và người dân được tham quan, trải nghiệm toàn tuyến metro số 1 từ Bến Thành đến Suối Tiên.
+- Cơ quan điều tra xác định có 16 người tham gia hội nghị có dấu hiệu ngộ độc. Trong đó, có 2 người đã tử vong khi đang trên đường đến bệnh viện cấp cứu; 14 người khác đang cấp cứu điều trị.
+- Bộ Nội vụ đã có trả lời các đơn vị, địa phương xung quanh đề nghị bổ sung biên chế giáo viên năm học 2024 - 2025, và không áp dụng tinh giản biên chế cào bằng.
+- Tuần này Trung Bộ và Nam Bộ thời tiết có đợt mưa to; Bắc Bộ rét đậm rét hại, mưa rào.
 - Để metro số 1 trở thành hình mẫu giao thông công cộng của thành phố, việc xây dựng văn hóa đi tàu văn minh là điều hết sức cần thiết.
 - Tuyến metro số 1 đi vào vận hành không chỉ là bước tiến lớn trong việc phát triển hạ tầng giao thông công cộng mà còn là tiền đề quan trọng để thúc đẩy tiến độ cho tuyến metro số 2 (Bến Thành - Tham Lương).
 - Sáng nay 22-12, tuyến metro số 1 chính thức đi vào hoạt động, đánh dấu cột mốc lịch sử trong hành trình phát triển giao thông đô thị của TP.HCM.
@@ -1968,41 +2003,6 @@
 - Cao tốc Đồng Đăng - Trà Lĩnh đang được thi công đồng loạt trên toàn tuyến. Khi hoàn thành, thời gian từ Hà Nội lên công viên địa chất toàn cầu non nước Cao Bằng được rút ngắn chỉ còn khoảng 3 giờ 45 phút thay vì 6 giờ như hiện nay.
 - "Năm 2025 sẽ là năm tổ chức đại hội Đảng các cấp, Đại hội Đảng bộ tỉnh lần thứ XII và tinh gọn tổ chức bộ máy hoạt động hiệu lực, hiệu quả theo tinh thần chỉ đạo của Bộ Chính trị, Tổng Bí thư" - ông Lê Quốc Phong nói.
 - Người dân “tố” Ban quản lý rừng Kiên Giang ưu ái doanh nghiệp được đưa máy cuốc vào tiểu khu 34 để xử lý thực bì trồng lại tràm mới và trồng một số cây keo lai trên bờ bao, còn người dân xin không được.
-- Sáng 5-12, Chủ tịch nước Lương Cường cùng đoàn công tác Trung ương làm việc với Ban Thường vụ Tỉnh ủy Thanh Hóa về tình hình thực hiện nghị quyết đại hội lần thứ XIII của Đảng, nghị quyết đại hội Đảng bộ tỉnh lần thứ XIX nhiệm kỳ 2020- 2025.
-- Tỉ lệ chi cho đầu tư phát triển của tỉnh Bà Rịa - Vũng Tàu lên đến trên 60% trong tổng chi ngân sách.
-- UBND tỉnh Quảng Nam có tờ trình thông qua nghị quyết tán thành chủ trương thành lập thị trấn Tak Pỏ ở thủ phủ sâm Ngọc Linh Nam Trà My.
-- Ba huyện phía nam tỉnh Lâm Đồng đã được sáp nhập và ông Nguyễn Quý Mỵ được chỉ định làm bí thư Huyện ủy huyện Đạ Huoai (mới).
-- Đà Nẵng vừa có chỉ thị về quản lý đất đai trên địa bàn thành phố. Trong đó yêu cầu kiểm tra, thống kê đầy đủ 100% và đánh giá lại tình hình quản lý, sử dụng đất công ích (5%).
-- Bộ Quốc phòng đang lấy ý kiến về dự thảo tờ trình, dự thảo Luật Tình trạng khẩn cấp, trong đó đề xuất các biện pháp áp dụng trong tình trạng khẩn cấp.
-- Buổi gặp mặt các cán bộ cao cấp quân đội nghỉ hưu là dịp để tri ân công lao, chia sẻ kinh nghiệm và lan tỏa tinh thần 'Bộ đội Cụ Hồ' giữa các thế hệ.
-- Dịp cuối năm song hàng hóa, phương tiện qua cửa khẩu quốc tế Cầu Treo giảm mạnh. Nguyên nhân do đâu?
-- Sáng 5-12, HĐND TP Cần Thơ tổ chức họp báo về kỳ họp thường lệ cuối năm 2024 dự kiến diễn ra từ ngày 9 đến 12-12.
-- Tỉnh Quảng Trị và nhà đầu tư dự kiến khởi công băng tải than băng qua biên giới giữa hai nước Việt Nam - Lào dài hơn 6km, vốn đầu tư gần 1.500 tỉ đồng vào quý 1-2025.
-- Bộ Công Thương vẫn đang rà soát hồ sơ đăng ký hoạt động thương mại điện tử của Temu nên đã yêu cầu sàn này tạm dừng hoạt động.
-- Thời điểm cuộc chiến ác liệt để thống nhất nước nhà, ông Phạm Sơn Dương xin phép ba mình vào Nam chiến đấu.
-- Một chiếc xe tải lao xuống mố cầu cao gần 10m tuyến đường La Sơn - Hòa Liên (Đà Nẵng) vào rạng sáng nay.
-- Dự án sân bay Long Thành đang gấp rút để hoàn thành đúng hoặc vượt tiến độ nhưng các tuyến giao thông kết nối lại tỏ ra ì ạch, kéo dài gây nên nỗi lo lắng có sân bay mà lại thiếu đường, lãng phí thời gian và công sức.
-- Các nhà khoa học hàng đầu trong và ngoài nước đã cùng nhau chia sẻ, tìm câu trả lời cho những chủ đề nóng nhất về trí tuệ nhân tạo (AI) tại tọa đàm của Quỹ VinFuture chiều ngày 4-12.
-- Một chiếc xe tải chở than bị mất lái, lao xuống vực khi đang từ huyện A Lưới về TP Huế.
-- Chủ tịch Quốc hội Trần Thanh Mẫn đã ký ban hành các nghị quyết của Quốc hội và Ủy ban Thường vụ Quốc hội, trong đó có liên quan công tác nhân sự.
-- Do tranh cãi với khách, tài xế taxi đón khách ở sân bay Đà Nẵng yêu cầu khách rời khỏi xe. Dù xe chưa chạy nhưng tài xế yêu cầu khách rời khỏi xe và bấm vào nút "hoàn thành cuốc xe", còn nhắn tin chửi khách.
-- Tin tức đáng chú ý: Đường sắt bổ sung tàu, mở bán thêm vé Tết 2025, những chuyến nào còn vé?; Bàn cách giữ giá cà phê; Hàn Quốc gia hạn ân xá cho người cư trú bất hợp pháp tự nguyện về nước...
-- Hôm nay 5-12, thời tiết Bắc Bộ lạnh, Nam Bộ chiều tối vài nơi mưa to. Tại thành phố hoa Đà Lạt, trời đẹp ngày khai mạc Festival hoa năm 2024.
-- Hai học sinh chở nhau bằng xe máy đi trên quốc lộ 1 thì va chạm với xe đầu kéo. Hậu quả, một học sinh tử vong, em còn lại bị thương nặng.
-- Hải Phòng dự kiến hỗ trợ một lần 500 triệu đồng đối với giáo sư, 400 triệu đồng với phó giáo sư khi về dạy ở Đại học Hải Phòng.
-- Ngày 4-12, Bộ Quốc phòng thông tin ban đầu về vụ việc mất an toàn trong diễn tập tại Quân khu 7.
-- Khu kinh tế ven biển phía nam Hải Phòng có quy mô diện tích 20.000ha, nằm ở khu vực phía đông nam của TP Hải Phòng.
-- Theo lãnh đạo UBND phường An Phú Đông, quận 12, trên địa bàn không có cơ sở nuôi cá sấu, nên hiện chưa rõ con cá sấu này từ đâu ra.
-- Bí thư Hà Nội Bùi Thị Minh Hoài bày tỏ mong muốn như vậy khi phát biểu bế mạc hội nghị lần thứ 20, Ban Chấp hành Đảng bộ TP Hà Nội chiều 4-12.
-- Nguyên nhân sơ bộ ban đầu là do tài xế H.H.G. lái xe tải đi không đúng làn đường trên cao tốc Nội Bài - Lào Cai gây tai nạn, theo Cục Cảnh sát giao thông.
-- Chiều 4-12, Đại tướng Nguyễn Tân Cương, tổng tham mưu trưởng Quân đội nhân dân Việt Nam, đã có buổi làm việc với Quân khu 7 về đảm bảo cho lễ kỷ niệm 50 năm Ngày Giải phóng miền Nam thống nhất đất nước.
-- Liên quan vụ con suối đổi màu đỏ quạch bất thường ở Bình Phước, cơ quan chức năng đã kiểm tra nhưng vẫn chưa xác định được nguyên nhân.
-- Năng lượng mặt trời và những công nghệ mới, vật liệu bền vững được các nhà khoa học đánh giá cao khi bàn về vật liệu cho tương lai bền vững, tại cuộc tọa đàm do Quỹ VinFuture tổ chức ngày 4-12.
-- Những chú chó từng tham gia cứu hộ lũ quét tại Làng Nủ (Bảo Yên, Lào Cai) sẽ trình diễn trong lễ khai mạc Triển lãm quốc phòng quốc tế 2024.
-- Cầu Tân Vũ - Lạch Huyện 2 được Hải Phòng dự kiến xây bên trái cầu hiện có với tổng mức đầu tư 8.710 tỉ đồng.
-- Người dân ở TP Phú Quốc (Kiên Giang) vừa phát hiện một bé gái khoảng 1 tuổi và một bé trai khoảng 3 tuổi bị bỏ rơi gần Thiền viện Trúc Lâm chùa Hộ Quốc (ở xã Dương Tơ).
-- Mặc dù đạt tỉ lệ tiêm chủng cao nhưng số ca sởi tại Đồng Nai, Bình Dương, TP.HCM, Cà Mau đang gia tăng rất nhanh, một số trẻ tử vong do chưa tiêm vắc xin.
-- 11 tháng đầu năm 2024, kim ngạch xuất khẩu nông lâm thủy sản đạt gần 57 tỉ USD, vượt mục tiêu cả năm mà Thủ tướng giao cũng như ngành nông nghiệp đặt ra.
 ![New](News.png)
 ## Nhịp sống số 
 - Dịch vụ 5G của VinaPhone tập trung ở các khu vực trọng điểm về kinh tế xã hội tại 63 tỉnh thành, không kèm điều kiện đăng ký gói cước mới.
