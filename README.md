@@ -1,6 +1,11 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Kiên trì và bền bỉ trên từng bước tiến, năm 2024 chính là cột mốc rực rỡ  trên hành trình lan tỏa giá trị giáo dục hạnh phúc của Royal School.
+- Găng tay có khả năng đo lường chính xác chuyển động của từng ngón tay và lòng bàn tay, hỗ trợ tập vật lý trị liệu, phục hồi chức năng.
+- Việc sáp nhập Tổng cục Giáo dục nghề nghiệp vào Bộ Giáo dục và Đào tạo không chỉ là sự sắp xếp về mặt tổ chức mà còn là sự hội nhập về chức năng, nhiệm vụ và nguồn lực.
+- Là việc làm thêm phổ biến của sinh viên, tuy nhiên đằng sau công việc gia sư tưởng chừng nhẹ nhàng là vô số khó khăn.
+- Nhiều trường quốc tế tại Việt Nam đã thông báo mức học phí cho năm học 2025-2026 và bắt đầu khởi động các đợt tuyển sinh sớm.
 - Từ những chuyến đi học tập trải nghiệm thực tế, các cô cậu học trò không khỏi trân quý những thành quả lao động được làm ra từ chính đôi bàn tay của những người sản xuất.
 - Năm 2025, Trường đại học Luật TP.HCM dự kiến sẽ tăng mạnh chỉ tiêu tuyển sinh đại học chính quy, mở thêm tối thiểu 3 ngành mới các lĩnh vực kinh doanh và quản lý, pháp luật.
 - Theo hiệu trưởng nhà trường, hành động của cô giáo M. là sai, vi phạm quy định, giáo viên không được phép làm. Nhà trường đã tạm dừng việc đứng lớp của cô giáo M. một tuần.
@@ -996,13 +1001,38 @@
 - Thủ tướng Úc hé lộ lộ trình thông qua quy định về độ tuổi tối thiểu được tham gia mạng xã hội, khả năng cao trong khoảng 14 - 16 tuổi.
 - Trong nỗi bức xúc, một phụ huynh nói nếu giải quyết không ổn thỏa, sẽ trả lại giấy khen học sinh xuất sắc của con cho trường.
 - Dù thông báo đấu giá nhiều lần nhưng hai khu đất làm trường học không được doanh nghiệp quan tâm, nên phải điều chỉnh quy hoạch.
-- Sở Giáo dục và Đào tạo TP.HCM vừa có văn bản về tăng cường công tác quản lý các khoản thu trong lĩnh vực giáo dục, đào tạo; vận động tài trợ cho giáo dục và kinh phí hoạt động cha mẹ học sinh năm học 2024-2025.
-- Phó giáo sư Shannon Gramse (Đại học Alaska, Anchorage, Mỹ) vừa kết thúc gần ba tháng hè tại Việt Nam. Ông rong ruổi từ thành thị đến nông thôn chia sẻ nhiều kiến thức thú vị cho học sinh Việt Nam.
-- Sau khi bão Yagi (bão số 3) gây thiệt hại ở nhiều địa phương, mưa lũ lại tiếp tục ở một số tỉnh miền núi phía Bắc. Nhiều trường học vẫn chưa thể cho học sinh quay lại trường.
-- Ngay sau khi nghe tin cầu Phong Châu sập, hai nhà xe đã hợp sức huy động 3 xe chở hàng trăm học sinh đi đường vòng 50km đến trường...
-- Trường tiểu học Ninh Phụng (thị xã Ninh Hòa, tỉnh Khánh Hòa) chưa lấy ý kiến của người dân nhưng đã dồn học sinh của điểm trường này sang điểm trường khác, khiến phụ huynh bức xúc.
 ![Edu](Edu.png)
 ## Thời Sự 
+- TP.HCM sẽ cắt giảm 30% cơ quan chuyên môn thuộc UBND TP. Tuy nhiên với vai trò là siêu đô thị đặc biệt, TP.HCM đề xuất giữ lại một số cơ quan đặc thù.
+- Một nội dung đáng chú ý của nghị định 154 của Chính phủ có hiệu lực từ 10-1-2025 là quy định về nơi cư trú của người không có nơi thường trú, tạm trú.
+- Hôm nay 29-12, thời tiết Bắc Bộ vẫn lạnh đến rét, Nam Bộ mưa rào còn Trung Bộ mưa to.
+- Đại tá Nguyễn Tiến Trung, cục phó Cục An ninh kinh tế - Bộ Công an, được điều động, bổ nhiệm giữ chức giám đốc Công an tỉnh Lạng Sơn.
+- Lợi dụng đêm tối, 'cát tặc' ở sông Trà Khúc liên tục khai thác, mua bán trái phép. Việc ghe hút cát trái phép lộng hành diễn ra trong thời gian dài.
+- Xe đầu kéo mất lái lao xuống ruộng, tài xế bị mắc kẹt trong ca bin được lực lượng cảnh sát giải cứu kịp thời.
+- Theo nghị quyết của Ủy ban Thường vụ Quốc hội, các địa phương được bổ sung hơn 5.834 tỉ đồng thực hiện chính sách an sinh xã hội, chi trả chế độ giáo viên.
+- Hai xe máy va chạm với xe tải tại nút giao ngã tư Hùng Vương - Điện Biên Phủ (TP Tuy Hòa, Phú Yên) khiến hai phụ nữ thương vong.
+- Đà Nẵng hỗ trợ 1 triệu đồng cho người lao động không được về quê ăn Tết.
+- Trên đường đi làm ngang qua cánh đồng, một phụ nữ ở Quảng Nam phát hiện con rùa giống với rùa hộp trán vàng quý hiếm nên đã nhặt đem đến công an giao nộp.
+- Lãnh đạo Thành ủy TP.HCM đề nghị sau sáp nhập phường các đơn vị phải duy trì hoạt động để đảm bảo không làm gián đoạn công việc của các cá nhân và tổ chức, không ảnh hưởng đến đời sống người dân.
+- Cơ quan chức năng đánh giá đây là những hành vi nguy cơ rất cao gây ra tai nạn, do vậy mức phạt cần gia tăng để tạo tính răn đe tương xứng.
+- Bến phà Rạch Miễu được phục dựng và trưng bày tại giếng nước Mỹ Tho (TP Mỹ Tho, Tiền Giang).
+- Lãnh đạo UBND TP Rạch Giá, Kiên Giang xác nhận các cơ quan chức năng đang khám nghiệm hiện trường, khám nghiệm tử thi đang phân hủy trong phòng trọ tại phường Rạch Sỏi.
+- Hàng chục thanh thiếu niên trong diện từng vi phạm pháp luật nhưng chưa đến mức truy cứu trách nhiệm hình sự đã được đưa vào trải nghiệm trại giam Nghĩa An để cảnh báo việc phạm tội.
+- Các hộ dân tại phường Linh Xuân, TP Thủ Đức (TP.HCM) bày tỏ sự chưa đồng tình về giá bồi thường trong dự án xây dựng Đại học Quốc gia TP.HCM.
+- Chính phủ vừa ban hành nghị định số 170 quy định chi tiết về tổ chức chính quyền đô thị tại thành phố Đà Nẵng.
+- Tuyến đường trung tâm sầm uất ở Đà Nẵng đang được thi công và cử tri thắc mắc tại sao lại làm vào mùa mưa?
+- Người đàn ông 33 tuổi dùng xe máy chở 6 con tê tê quý hiếm trên 2 sọt nhựa thì bị công an phát hiện, bắt giữ khi đi qua một nghĩa địa lúc tối.
+- Dự thảo đề án tinh gọn bộ máy của hệ thống chính trị TP.HCM có đề xuất cho phép tiếp tục hoạt động của Sở An toàn thực phẩm TP.HCM.
+- Chính phủ Việt Nam đã cam kết giảm phát thải ròng bằng 0 vào năm 2050. Vậy làm gì để đạt được cam kết này tại vùng Đông Nam Bộ?
+- Thủ tướng nhấn mạnh trong phát biểu chỉ đạo Hội nghị tổng kết công tác năm 2024 và triển khai nhiệm vụ năm 2025 ngành kế hoạch và đầu tư, do bộ này tổ chức ngày 28-12 tại Hà Nội.
+- Dù hàng chục xe cơ giới, hàng trăm công nhân đội mưa thi công nhưng Tết này, quảng trường TP Quảng Ngãi không kịp đưa vào hoạt động, phục vụ người dân.
+- Chủ tịch UBND xã Quảng Hải (thị xã Ba Đồn, Quảng Bình) vừa bị kỷ luật khiển trách do vi phạm quy chế làm việc.
+- Bạn đọc thắc mắc liệu việc rào chắn vỉa hè quanh tòa nhà để hạn chế hàng rong, xe cộ leo lề có phù hợp quy định?
+- Việc sáp nhập Tổng cục Giáo dục nghề nghiệp vào Bộ Giáo dục và Đào tạo không chỉ là sự sắp xếp về mặt tổ chức mà còn là sự hội nhập về chức năng, nhiệm vụ và nguồn lực.
+- TP.HCM chấp hành nghiêm chủ trương, quan điểm, yêu cầu của Trung ương, đồng thời mạnh dạn đề xuất những kiến nghị phù hợp với đặc thù của TP khi tinh gọn bộ máy.
+- Bộ Quốc phòng đã có trả lời kiến nghị của cử tri tỉnh Hải Dương về bổ sung chế độ, chính sách đãi ngộ với lực lượng Quân đội nhân dân.
+- Thủ tướng Phạm Minh Chính ký quyết định 1669/QĐ-TTg ngày 27-12 điều động, bổ nhiệm ông Cao Huy, phó chủ nhiệm Văn phòng Chính phủ, giữ chức thứ trưởng Bộ Nội vụ.
+- Nhiều bạn đọc thắc mắc nếu không đi metro thì có được đón buýt kết nối metro hay không, số khác thì bất ngờ vì... cứ lên xe là được miễn phí.
 - Được khởi công vào tháng 6-2023, đến nay dự án vành đai 3 TP.HCM đã đạt 30% với 10 gói thầu chính và nhận được 99,8% mặt bằng.
 - Lực lượng cảnh sát phòng cháy chữa cháy Đồng Nai kịp thời giải cứu tài xế mắc kẹt trong cabin xe đông lạnh, sau khi đâm sập ki ốt ven đường.
 - Đang dịp cuối năm nhưng nhiều mặt bằng kinh doanh ở TP.HCM vẫn 'cửa đóng then cài'. Tại Hà Nội cũng ghi nhận nhiều mặt bằng còn trống.
@@ -1064,7 +1094,6 @@
 - Hôm nay 27-12, miền Trung vẫn mưa to đến rất to, miền Bắc đón thêm không khí lạnh, còn miền Nam nhiều mây, có nơi mưa rào.
 - Tối 26-12, đoàn tàu tuyến metro số 1 đã tạm dừng hoạt động trong thời gian ngắn 10 phút, liên quan đến việc kiểm tra quy trình vận hành.
 - Ủy ban Kiểm tra Thành ủy TP.HCM tập trung kiểm tra, giám sát việc tổ chức sắp xếp, tinh gọn bộ máy theo nghị quyết 18.
-- Đó là ý kiến của Chủ tịch UBND TP.HCM Phan Văn Mãi khi giao UBND quận 1 xây dựng kế hoạch khai thác các hoạt động trước chợ Bến Thành.
 - Dịp Tết dương lịch 2025 cùng nhiều sự kiện lớn cuối năm cận kề, nhiều người lo ngại tình trạng hàng rong ở phố đi bộ Nguyễn Huệ sẽ phức tạp. Cơ quan chức năng đã có kế hoạch gì giải quyết vấn đề này?
 - Thu phí ô tô vào trung tâm TP.HCM sẽ được triển khai sau khi hình thành, đưa vào khai thác các tuyến metro số 1, 2, 3, 4, 5, 6, 7.
 - Mục tiêu của dự án không chỉ xây dựng được một tuyến đường sắt tốc độ cao, mà còn phát triển ngành công nghiệp đường sắt tốc độ cao, đủ năng lực thi công, quản lý, vận hành, khai thác…
@@ -1974,35 +2003,6 @@
 - Chiều 10-12, UBND TP.HCM đã trình HĐND một đề án táo bạo nhằm phát triển đột phá mạng lưới metro, với mục tiêu hoàn thành 355km metro vào năm 2035 và 510km vào năm 2045.
 - Công an tỉnh Kiên Giang đã bắt ông Trần Minh Vũ - cựu phó chủ tịch UBND huyện Tân Hiệp - về tội 'lừa đảo chiếm đoạt tài sản'. Ông Vũ là người 'phù phép' biến giấy đất không còn giá trị thành giấy thật để chuyển nhượng.
 - Chủ tịch UBND TP.HCM Phan Văn Mãi cho biết TP.HCM đang tập trung cùng các bộ ngành tháo gỡ những vướng mắc dự án chống ngập 10.000 tỉ đồng ngay trong tháng 12-2024, để hoàn thành dự án vào năm sau.
-- Đầu năm 2024 đến nay, lực lượng Bộ tư lệnh Vùng Cảnh sát biển 4 bắt và tịch thu hơn 1,4 triệu lít dầu DO trên biển. Ngoài ra, đơn vị còn đấu tranh bắt giữ nhiều tàu vi phạm, góp phần bảo vệ chủ quyền biển đảo Tây Nam.
-- Khánh Hòa sáp nhập nhiều sở theo phương án sắp xếp tổ chức bộ máy khối chính quyền địa phương của tỉnh.
-- Vì sao cứ va quẹt trên đường là phải động tay động chân? Đường sá chật hẹp nhưng lòng người nên mở rộng.
-- Người dân cho biết nhiều ghế đá tại khu vực chung cư Tây Thạnh (quận Tân Phú, TP.HCM) bị bôi bẩn bởi sơn đen quảng cáo website cá cược.
-- Tại kỳ họp thứ 21 HĐND tỉnh Lâm Đồng, nhiều đại biểu đặt câu hỏi về tỉ lệ giải ngân đầu tư của tỉnh này hiện rất thấp.
-- Đề nghị được Phó thủ tướng, Bộ trưởng Bộ Ngoại giao Bùi Thanh Sơn nêu trong cuộc hội kiến Phó chủ tịch nước Trung Quốc Hàn Chính ngày 10-12 tại Bắc Kinh.
-- Với tỉ lệ 100% đại biểu tán thành, ông Phạm Đức Ấn, phó bí thư Tỉnh ủy, trúng cử chức vụ chủ tịch UBND tỉnh Quảng Ninh khóa XIV, nhiệm kỳ 2021-2026.
-- Cảng cá Nam Cửa Việt (Quảng Trị) còn 20 ngày là phải hoàn thành nhưng 18 hộ dân xã Triệu An (huyện Triệu Phong) ngăn cản thi công do nhà nứt nhưng chậm hỗ trợ, bồi thường.
-- Sáng 10-12, Quân khu 7 tổ chức triển lãm chuyên đề 'Quân đội anh hùng - Quốc phòng vững mạnh' tại Bảo tàng Chiến dịch Hồ Chí Minh (quận 1, TP.HCM).
-- Sáng 10-12, Hội nghị Ủy ban Trung ương Hội Liên hiệp thanh niên Việt Nam diễn ra tại Hà Nội với nhiều nội dung như thảo luận, cho ý kiến về dự thảo văn kiện, phương án nhân sự Hội Liên hiệp thanh niên Việt Nam cho Đại hội IX.
-- Ông Phạm Đức Ấn được điều động chỉ định làm phó bí thư Tỉnh ủy và giới thiệu bầu chủ tịch UBND tỉnh Quảng Ninh.
-- TP.HCM lên phương án dùng xe điện du lịch (loại 4 bánh) hoạt động ở khu vực trung tâm TP.HCM, sân bay Tân Sơn Nhất để kết nối với 3 ga ngầm tuyến metro số 1 là Bến Thành, Nhà hát Thành phố và Ba Son.
-- TP.HCM rất khó khăn trong việc triển khai tiếp tục các dự án thuộc khu Rạch Chiếc. Trong 21 dự án mà HĐND TP.HCM đã phê duyệt để kêu gọi đầu tư có 16 dự án thành phần nằm trong khu Rạch Chiếc.
-- Theo dự báo của Đài khí tượng thủy văn tỉnh Bến Tre, từ nay đến hết tháng 12-2024 sẽ có 2 đợt xâm nhập mặn trên các nhánh sông chính (sông Tiền, sông Hàm Luông, sông Cổ Chiên), độ mặn 1 phần ngàn sẽ lấn sâu vào đất liền khoảng 43km.
-- Sân bay Gia Bình là sân bay đầu tiên của lực lượng Công an nhân dân nhưng cũng được thiết kế lưỡng dụng, phục vụ phát triển kinh tế.
-- Liên quan đấu giá thanh lý tài sản tháo dỡ nhà làm việc công an xã và hội trường của một xã ở huyện Quế Sơn, Quảng Nam, giá khởi điểm chỉ 7 - 10 triệu đồng nhưng một phụ nữ đấu trúng giá mười mấy tỉ, lãnh đạo huyện này đã yêu cầu kiểm tra.
-- Dự báo từ nay đến cuối tuần ở miền Bắc có khả năng chịu ảnh hưởng của hai đợt gió mùa đông bắc nên ở vùng núi và trung du Bắc Bộ rét đậm, rét hại, còn ở miền Trung mưa lớn, có nơi trên 700mm.
-- Nguyên phó trưởng Ban thường trực Ban Tổ chức Trung ương Lê Quang Thưởng từ trần ngày 8-12, hưởng thọ 86 tuổi.
-- Thành phố Hoa Lư (Ninh Bình) được thành lập trên cơ sở nhập toàn bộ diện tích, dân số của huyện Hoa Lư và toàn bộ diện tích, dân số của thành phố Ninh Bình.
-- Nội dung trên nằm trong nghị quyết quy định mức tiền thưởng đối với học sinh thuộc các cơ sở giáo dục phổ thông và giáo dục thường xuyên đạt thành tích cao trong các cuộc thi, kỳ thi trong nước, quốc tế vừa được HĐND TP Hà Nội thông qua.
-- Để tăng trưởng GRDP lên 10% năm 2025, Chủ tịch UBND TP.HCM Phan Văn Mãi cho rằng TP.HCM cần thu hút 400.000 tỉ đồng đầu tư xã hội.
-- Bộ Giao thông vận tải đề nghị UBND tỉnh Bình Định tiếp tục nghiên cứu và bám sát quá trình xây dựng văn bản quy phạm pháp luật triển khai Luật Phòng không nhân dân để xây dựng đề án thí điểm taxi bay.
-- Với việc đứng trước nguy cơ bị truy thu gần 800 tỉ đồng tiền nợ thuê đất, Thảo cầm viên Sài Gòn có nguy cơ phải ngừng hoạt động vì không đủ kinh phí.
-- 'Sắp tới, đề án quản lý, khai thác và số hóa tài sản công sẽ đưa ra các kiến nghị, giải pháp để làm lành mạnh tình hình quản lý tài sản công, nhà đất công trên địa bàn TP.HCM'.
-- Phó chủ tịch Quốc hội Nguyễn Thị Thanh đề nghị cần có cơ chế, chính sách thật mạnh, vượt trội để khuyến khích cán bộ còn 2-3-4 năm sẵn sàng nghỉ, nhường chỗ cho cán bộ trẻ, đào tạo bài bản.
-- Sự kết hợp độc đáo giữa nước mắm nhĩ Nam Ô cô đặc cùng cà phê rang xay đã mang đến hương vị mới lạ cho thức uống vốn quen thuộc của người Việt Nam.
-- Những ngày này, trong câu chuyện bên bàn cà phê, các bạn trẻ tại TP.HCM rộn ràng bàn luận về việc tàu điện metro đi vào hoạt động.
-- Theo Chủ tịch Quốc hội Trần Thanh Mẫn, giữa tháng 2-2025 Trung ương họp và cuối tháng 2 sẽ họp Quốc hội bất thường để sửa một số luật liên quan tinh gọn bộ máy.
-- Cảnh "ao tù", cỏ dại, hoang phế tại 3 dự án án ngữ trên đất "kim cương" giữa trung tâm Đà Nẵng suốt hơn chục năm qua.
 ![New](News.png)
 ## Nhịp sống số 
 - Điện thoại realme C75 đang được mở bán đặc quyền tại Thế Giới Di Động chính là một "chiến binh" sẵn sàng đồng hành cùng bạn trong mọi hoàn cảnh.
