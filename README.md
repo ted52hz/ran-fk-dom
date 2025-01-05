@@ -1,6 +1,14 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Bộ Giáo dục và Đào tạo vừa ban hành thông tư quy định về dạy thêm, học thêm với nhiều điểm mới.
+- Những sinh viên là nhà sư sẽ khó đạt được danh hiệu 'Sinh viên 5 tốt' vì vướng tiêu chí 'thể lực tốt'.
+- Nhiều ý kiến ủng hộ việc 'cấm giáo viên dạy thêm tại nhà', nhưng cũng không ít băn khoăn.
+- Mỗi suất học bổng trị giá 10 triệu đồng, trao cho các thủ khoa đầu vào đại học ở các trường, ngành năm 2024.
+- Chương trình một ngày làm sinh viên luật của Trường đại học Luật TP.HCM thu hút hơn 400 học sinh THPT tại TP.HCM và các tỉnh lân cận hào hứng tham gia.
+- Dự án công ích sẽ cung cấp nhà ở miễn phí trong 7 ngày cho sinh viên mới tốt nghiệp tìm việc trong thời gian từ 14-11-2024 đến 30-6-2025.
+- Ông Thomas J. Vallely, một trong những người thúc đẩy thành lập Trường ĐH Fulbright Việt Nam, vừa được Tổng thống Joe Biden vinh danh với Huân chương Công dân tổng thống.
+- Đại học Quốc gia TP.HCM chính thức khởi động chuỗi chương trình hòa nhạc dành cho sinh viên với chủ đề 'Giao hưởng tuổi trẻ' năm 2025.
 - Trước những kỳ thi quan trọng sẽ là lần đầu tiên diễn ra theo Chương trình giáo dục phổ thông 2018, nhiều học sinh lớp 12 không khỏi lo lắng và tận dụng dịp Tết này để "nấu sử xôi kinh".
 - Năm 2025, Đại học Kinh tế quốc dân dự kiến tuyển sinh 73 mã ngành/chương trình với 89 chương trình đào tạo, và 3 phương thức tuyển sinh chính.
 - Một giáo viên Trường THPT Phan Ngọc Hiển (huyện Năm Căn, tỉnh Cà Mau) đã nhận 7 triệu đồng để dạy kèm thi lại cho một học sinh. Giáo viên bị nhà trường kỷ luật khiển trách.
@@ -993,17 +1001,52 @@
 - Để tránh những hệ lụy đau lòng xuất phát từ việc sử dụng mạng xã hội thiếu ý thức và yếu kỹ năng, gia đình - nhà trường - xã hội phải quyết liệt vào cuộc.
 - Từ hơn 300 thí sinh, cuộc thi học thuật cấp thành 'Hướng dẫn viên du lịch tiềm năng' đã tìm ra quán quân.
 - Không chỉ kêu gọi cán bộ, giảng viên ủng hộ ít nhất một ngày lương, trích tiền quỹ ra ủng hộ đồng bào vùng lũ, nhiều trường còn rà soát tổng số sinh viên trong trường bị ảnh hưởng bởi lũ lụt để lên phương án hỗ trợ.
-- Đây là một trong những mục tiêu trong mục tiêu hợp tác của Trường đại học Luật TP.HCM và UBND tỉnh Khánh Hòa.
-- Hiện có quá nhiều thông tin tư vấn, cách tổ chức khá giống nhau khiến cho học sinh 'ngộp'. Do vậy rất cần chương trình tư vấn tuyển sinh chất lượng.
-- Tổ chức giáo dục Ormiston Academies Trust sẽ tiên phong trong việc cấm học sinh sử dụng điện thoại thông minh (smartphone) trong trường học.
-- 'Bão lũ đang gây hậu quả vô cùng nghiêm trọng cho đồng bào các tỉnh phía Bắc. Nhìn thấy những hình ảnh đau xót, chúng tôi không thể đứng ngoài cuộc”, TS Phan Hồng Hải, hiệu trưởng Trường đại học Công nghiệp TP.HCM, chia sẻ.
-- GS.TS Đào Văn Đông được bổ nhiệm làm hiệu trưởng Trường đại học Thái Bình Dương kể từ năm học 2024-2025.
-- Giải thưởng khoa học và công nghệ dành cho giảng viên trẻ trong các cơ sở giáo dục đại học định kỳ tổ chức 3 năm một lần.
-- Bài báo "'Cấm học sinh sử dụng điện thoại trong trường' (Tuổi Trẻ ngày 13-9) thu hút sự quan tâm của dư luận.
-- Hàng loạt trường đại học sau các đợt xét tuyển bổ sung đến nay vẫn còn thiếu cả ngàn chỉ tiêu. Nhiều trường quyết định khép lại mùa tuyển sinh 2024 do cạn nguồn tuyển.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Phòng Cảnh sát giao thông Công an Hà Nội khẳng định thông tin 'thanh niên thu về 50 triệu đồng sau 1 ngày tố giác vi phạm giao thông' là sai sự thật.
+- Nghị định 168 tăng mức xử phạt đã thay đổi ý thức tham gia giao thông của nhiều người, qua ngã tư không còn chen vượt đèn đỏ.
+- Ngày 4-1, Thủ tướng đã dự và trao quyết định phê duyệt quy hoạch TP.HCM thời kỳ 2021 - 2030, tầm nhìn đến năm 2050 cho lãnh đạo TP.HCM.
+- Một số người biện minh hành vi đánh người của mình là do căng thẳng, áp lực cuộc sống. Tuy nhiên, không thể dùng nó như một lý do biện hộ cho hành vi bạo lực.
+- Một số tin tức đáng chú ý: Quy định mới liên quan niên hạn ô tô; Chứng khoán KIS Việt Nam có chủ tịch mới; Phạt Công ty Herbalife Việt Nam 205 triệu đồng...
+- Hôm nay 5-1, thời tiết cả nước tương đối ổn định, mưa giảm, nhiệt độ cũng giảm nhẹ.
+- Ngày 4-1, Trung tâm Kiểm soát bệnh tật tỉnh Đồng Nai cho biết trên địa bàn vừa ghi nhận một trường hợp bé gái 4 tuổi tử vong do bệnh ho gà.
+- Những sinh viên là nhà sư sẽ khó đạt được danh hiệu 'Sinh viên 5 tốt' vì vướng tiêu chí 'thể lực tốt'.
+- Hiệp hội Du lịch Nha Trang - Khánh Hòa vừa có văn bản đề xuất 'xử lý triệt để' đối với các loại ô tô, taxi và để xe khách du lịch trên 29 chỗ 'được lưu thông vào trung tâm TP Nha Trang trong khung giờ cao điểm'.
+- Thủ tướng Phạm Minh Chính vừa ký các quyết định phê chuẩn kết quả bầu, miễn nhiệm chức vụ chủ tịch UBND tỉnh Kiên Giang và Hà Giang.
+- 'Xuân biên phòng ấm lòng dân bản' năm 2025 đã mang lại cho người dân vùng biên giới TP Hà Tiên một cái Tết Nguyên đán Ất Tỵ ấm áp, no đủ.
+- Đây là thông tin Thủ tướng Phạm Minh Chính nêu ra tại hội nghị rà soát, tháo gỡ những dự án, công trình tồn đọng tại TP.HCM.
+- Trên đường đến trung tâm y tế, sản phụ Hồ Thị Léc trở dạ và được lái xe đồn biên phòng và chồng hỗ trợ sinh ngay trên xe của đơn vị.
+- Thủ tướng Chính phủ vừa có quyết định bổ sung hai tuyến cao tốc vào quy hoạch là Quảng Ngãi - Kon Tum và Cà Mau - Đất Mũi.
+- Trong chuyến công tác tại TP.HCM, Thủ tướng Phạm Minh Chính đã rà soát, cho ý kiến tháo gỡ khó khăn, vướng mắc liên quan đến dự án tại TP.HCM.
+- Đồn biên phòng Vĩnh Điều (huyện Giang Thành, Kiên Giang) vừa bắt quả tang nam thanh niên vận chuyển trái phép hàng cấm khoảng 15kg pháo.
+- Thủ tướng cho biết đã đề nghị tỉ phú Phạm Nhật Vượng xây dựng một hệ thống tàu điện ngầm từ trung tâm TP.HCM đến huyện Cần Giờ.
+- Khoảng 6 tháng nay, anh Huỳnh Ngọc Cường thường kéo xe hút đinh, cũng như nhặt ve chai dọc trên quốc lộ 1 từ TP.HCM về Long An.
+- Bộ Giao thông vận tải đề nghị UBND TP.HCM, Long An, Tiền Giang sớm có ý kiến về bộ trước ngày 8-1 để báo cáo Thủ tướng.
+- Hai người nhận là phóng viên báo dọa viết bài phản ánh vi phạm rồi ép doanh nghiệp phải ký hợp đồng tuyên truyền quảng cáo từ 55-95 triệu đồng.
+- Bộ trưởng Phạm Thị Thanh Trà yêu cầu rà soát, tinh giản biên chế sau khi hoàn thành việc hợp nhất Bộ Lao động - Thương binh và Xã hội với Bộ Nội vụ.
+- Thủ tướng bày tỏ điều cần quan tâm nhất là việc thực hiện quy hoạch để ra của cải vật chất, người dân phải được hưởng lợi từ việc thực hiện quy hoạch.
+- Đại tá Nguyễn Đức Hải, giám đốc Công an tỉnh Quảng Trị, được điều động làm giám đốc Công an tỉnh Đồng Nai.
+- Cán bộ, công chức, viên chức, người lao động trên địa bàn tỉnh Bạc Liêu sẽ được lãnh lương tháng 2 trước Tết Nguyên đán Ất Tỵ 2025.
+- Khi chờ đèn đỏ có được rẽ phải hay không? Rẽ phải trong trường hợp nào sẽ không vi phạm luật giao thông?
+- Con trăn gấm dài khoảng 4m, ước nặng gần 100kg được phát hiện ở bìa rừng Rạch Vẹm, xã Gành Dầu, TP Phú Quốc.
+- UBND TP.HCM tổ chức hội nghị công bố quy hoạch TP.HCM thời kỳ 2021-2030, tầm nhìn đến năm 2050 với sự tham dự của Thủ tướng Phạm Minh Chính.
+- Sau sắp xếp, tinh gọn bộ máy, Kiên Giang dư 6 giám đốc sở và hàng chục trưởng phòng.
+- Liên tiếp những vụ hành hung do mâu thuẫn khi va chạm nhẹ trên đường, vì đâu nên nỗi?
+- Sau khi va quẹt giao thông, nạn nhân đã bị Lê Văn Hiền đánh đập tới tấp dẫn đến dập não phải đi cấp cứu tại bệnh viện và đã tử vong. Nghi phạm đánh người đầu thú và bị tạm giữ.
+- Sáng 4-1, Lực lượng vũ trang TP.HCM đã được phong tặng danh hiệu Anh hùng Lực lượng vũ trang nhân dân lần 3.
+- 0h12 ngày 4-1, trực thăng mang số hiệu VN-8620 thuộc Binh đoàn 18 (Bộ Quốc phòng) bay cấp cứu quân nhân được chẩn đoán viêm màng não, tiên lượng nặng từ đảo An Bang, đã hạ cánh an toàn xuống Bệnh viện Quân y 175, TP.HCM.
+- UBND tỉnh Bắc Ninh đề xuất chuyển đổi sân bay Gia Bình thành cảng hàng không công suất quy hoạch dự kiến từ 1 - 3 triệu hành khách/năm, dự phòng mở rộng công suất khoảng 5 triệu hành khách/năm.
+- Bực tức việc mẹ ngủ, không chuẩn bị đồ ăn sáng cho mình, Khanh dùng dao đâm chết mẹ rồi chờ trời tối kéo thi thể ném xuống sông phi tang.
+- Cơ sở sản xuất ván lạng ở Bình Phước bị xử phạt gần 60 triệu đồng do sử dụng lao động nước ngoài trái phép.
+- Đại diện đội cảnh sát giao thông - trật tự Công an TP Thủ Đức cho biết vẫn chưa mời được chủ xe Audi 'chạy đến đâu đèn tín hiệu loạn xạ đến đó' lên làm việc nên không rõ clip trên có cắt ghép hay không.
+- Thanh tra An Giang xác định hàng loạt vi phạm pháp luật về đầu tư công và dự án khu dân cư và chuyển hồ sơ sang công an để điều tra.
+- Tại dự thảo Luật Tổ chức Chính phủ (sửa đổi), Bộ Nội vụ đề xuất thiết kế theo hướng phân định và khái quát hóa các nhóm nhiệm vụ của Thủ tướng.
+- Thủ tướng Phạm Minh Chính yêu cầu các bộ ngành, địa phương không coi trung tâm tài chính là công việc của riêng TP.HCM và Đà Nẵng mà là việc chung của đất nước, toàn hệ thống phải cùng làm, cùng phát triển.
+- Nhiều chuyên gia khẳng định đây là thời điểm lý tưởng để đưa TP.HCM thành trung tâm tài chính toàn cầu. Tất nhiên, để thực hiện kế hoạch này còn nhiều việc phải làm.
+- TP.HCM đặt mục tiêu đến năm 2035 sẽ có 7 tuyến metro có chiều dài 355km. Bên cạnh cơ chế và chính sách đặc thù, cần thêm giải pháp giúp tối ưu hóa hiệu quả và giảm trở ngại trong quá trình xây dựng.
+- Không ít đoạn sông Đáy ở Hà Nội bị ô nhiễm cực độ, GS Vũ Trọng Hồng đề nghị lắp đặt ngay bơm thuyền để cứu dòng sông.
+- UBND tỉnh Khánh Hòa vừa có phương án sắp xếp các cơ quan trực thuộc, gồm có tên các sở sau khi hợp nhất và hướng sắp xếp nhân sự lãnh đạo các đơn vị sáp nhập, hợp nhất.
+- TP.HCM đang đứng trước cơ hội lịch sử để trở thành trung tâm tài chính quốc tế - một giấc mơ được ấp ủ hơn 20 năm với sự ủng hộ từ Bộ Chính trị, mở ra triển vọng mới cho sự phát triển kinh tế không chỉ của thành phố mà còn của cả Việt Nam.
+- Phòng cảnh sát giao thông Công an Hà Nội khẳng định thông tin 'thanh niên thu về 50 triệu đồng sau 1 ngày tố giác vi phạm giao thông' là sai sự thật.
 - Ngày 4-1, Thủ tướng Phạm Minh Chính dự lễ công bố xây dựng Trung tâm tài chính khu vực và quốc tế tại Việt Nam; công bố quy hoạch TP.HCM.
 - Tin tức đáng chú ý: Gần Tết số vụ lừa đảo trực tuyến tăng mạnh; Hà Nội nhiều nhà tái định cư hoang phế; TP.HCM tăng cường kiểm tra nhà ở kết hợp sản xuất kinh doanh...
 - Hôm nay 4-1, thời tiết Bắc Bộ ngày nắng, trời lạnh. Trung Bộ mưa rào, Nam Bộ có mây, mưa rào và dông vài nơi.
@@ -1960,51 +2003,9 @@
 - Diễn biến này theo đúng lộ trình mà UBND TP.HCM đặt ra trong quyết định Ban hành giá dịch vụ thoát nước và xử lý nước thải trên địa bàn TP giai đoạn 2021 - 2025.
 - Sở Y tế TP.HCM cho biết đã xử phạt và cho vào danh sách 'đen' nhiều phòng khám có hành vi vi phạm.
 - Khu đất Cảng Sài Gòn đề nghị làm dự án cảng tàu khách quốc tế Nhà Rồng - Khánh Hội đang vướng một dự án khác.
-- Vụ việc tại Trường quốc tế Ngôi sao Sài Gòn (Saigon Star) đang thu hút sự chú ý của dư luận, đồng thời cũng đặt ra nhiều câu hỏi về lỗ hổng minh bạch thông tin.
-- Việc kiểm định khí thải xe máy sẽ được áp dụng với xe có thời gian sản xuất trên 5 năm. Chủ xe phải mang xe đến cơ sở đăng kiểm để kiểm định.
-- Tuổi Trẻ có cuộc trao đổi với ông Lê Như Tiến - nguyên phó chủ nhiệm Ủy ban Văn hóa, Giáo dục của Quốc hội - xung quanh cuộc cách mạng tinh gọn bộ máy.
-- Lực lượng chức năng sẽ dùng mìn để phá khối đá nặng hơn 100 tấn đổ xuống đường đèo Khánh Lê (huyện Khánh Vĩnh, tỉnh Khánh Hòa).
-- Một số tin tức đáng chú ý: Ngân hàng đồng loạt tăng lãi suất; TP.HCM cao điểm xử phạt vi phạm giao thông, lấn chiếm vỉa hè; Phải đăng ký mới được bay flycam...
-- Hôm nay 16-12, thời tiết mưa to tập trung ở các tỉnh thành từ Đà Nẵng đến Bình Thuận. Bắc Bộ nắng nhưng rét, Nam Bộ còn mưa rào vài nơi.
-- Người đàn ông làm nghề thợ hồ cho biết sau khi xong công việc, chủ nhà mời ở lại uống bia. Sau đó người này say xỉn tự lái xe máy về, bị cảnh sát giao thông lập biên bản.
-- Một người đàn ông 55 tuổi ở huyện Ninh Hải (Ninh Thuận) trong lúc từ ruộng muối về nhà không may trượt chân rồi đuối nước thương tâm.
-- Tối 15-12, trên địa bàn TP Nha Trang (Khánh Hòa), các hồ chứa nước xả lũ kèm theo mưa lớn đã khiến nước lũ lên nhanh. Nhiều người dân phải hối hả dọn dẹp đồ đạc để tránh lụt ngay trong đêm.
-- Tối 15-12, ông Huỳnh Thanh Vương - chủ tịch UBND xã Phước Hòa (huyện Tuy Phước, tỉnh Bình Định) - xác nhận có hai học sinh ở xã này chết đuối vào chiều cùng ngày.
-- Hai học sinh lớp 4 ở huyện Duy Xuyên, Quảng Nam đi qua đoạn đường ngập nước lũ, rủ nhau lội xuống nước chơi thì chẳng may bị chết đuối.
-- Lực lượng chức năng hai tỉnh Lâm Đồng và Khánh Hòa hợp sức tiếp tế thức ăn và dọn dẹp hiện trường, đưa du khách ra khỏi đèo Khánh Lê (địa phận tỉnh Khánh Hòa) đang sạt lở.
-- Chiều 15-12, Thủ tướng Chính phủ Phạm Minh Chính đã kiểm tra dự án cao tốc Bắc - Nam, dự án thành phần Cần Thơ - Cà Mau, đồng thời chỉ đạo toàn bộ dự án phải hoàn thành cuối năm 2025.
-- Hai chiếc máy bay cường kích A-10 và một chiếc vận tải quân sự C-130J của Mỹ liên tiếp đáp xuống sân bay Gia Lâm, Hà Nội trong trưa, chiều 15-12.
-- Mưa lớn kéo dài đã khiến đất đá sạt lở, gây cản trở giao thông trên tuyến đường ven biển đẹp nhất Ninh Thuận. Ngoài ra còn có hơn 100 căn nhà ở các vùng trũng thấp của tỉnh này bị ngập.
-- Liên quan đến vụ sạt lở trên đèo Khánh Lê vào sáng nay, hiện có hơn 250 hành khách bị mắc kẹt, sức khỏe ổn định.
-- Phòng cảnh sát kinh tế Công an Đà Nẵng vừa phát hiện, tạm giữ số lượng thuốc lá điện tử và phụ kiện, tinh dầu đi kèm được xem là lớn nhất từ trước đến nay trên địa bàn thành phố.
-- Do mưa lớn nhiều ngày qua, để đảm bảo an toàn, UBND tỉnh Khánh Hòa đã tiến hành điều tiết 5 hồ chứa nước, vậy những địa phương nào của tỉnh này có nguy cơ ngập lụt?
-- Cú va chạm mạnh giữa hai xe khách trên quốc lộ 14 khiến 1 tài xế chết, 2 hành khách bị thương.
-- Điện lực Tuy Hòa (Phú Yên) đã khắc phục xong hệ thống đèn chiếu sáng phía nam cầu Hùng Vương sau phản ánh của Tuổi Trẻ Online.
-- Hiện lực lượng chức năng đang nỗ lực giải phóng đất đá sạt lở xuống đường đèo Khánh Lê nối 2 tỉnh Khánh Hòa và Lâm Đồng, nhưng chưa khẳng định chính xác thời điểm thông xe trở lại.
-- Những ngày này, không khí tại các ga metro số 1 sôi động hơn bởi nhiều người dân đến trải nghiệm.
-- Hai người đi xe máy bị người đàn ông đi xe máy khác ép xe ngã nhào xuống đường. Sau khi xảy ra vụ việc, người đàn ông không dừng lại mà tiếp tục di chuyển.
-- Cơ quan chức năng huyện Châu Đức, tỉnh Bà Rịa - Vũng Tàu đang điều tra vụ một chiếc ô tô con cán qua người một phụ nữ trước quán karaoke khiến người này bị thương.
-- Sau vụ cô gái lái ô tô tông gãy lan can cầu Đồng Nai rồi lao xuống sông tử vong, đoạn lan can này đã được đơn vị quản lý huy động công nhân lắp tạm bằng những cây tre, sơn xen kẽ màu đỏ, trắng.
-- Sau khi lên mạng tìm tòi, ba học sinh lớp 6 đã mua diêm về chế tạo pháo, không may pháo phát nổ. Cả ba bị thương phải nhập viện cấp cứu.
-- Thủ tướng Phạm Minh Chính cho biết chủ trương tinh gọn bộ máy được sự thống nhất cao trong Đảng,  nhân dân trong và ngoài nước. Việc tinh gọn bộ máy phải làm tích cực, không thể chần chừ.
-- Ngày 15-12, tại TP Pleiku (Gia Lai), Bộ Quốc phòng công bố quyết định giải thể Quân đoàn 3, Quân đoàn 4 và thành lập Quân đoàn 34.
-- Sâu trong Vườn quốc gia Kon Ka Kinh tại tỉnh Gia Lai, hàng ngàn cây pơ mu cổ thụ hùng dũng vươn mình giữa rừng già ở độ cao 1.400m so với mực nước biển.
-- UBND TP.HCM vừa có chỉ đạo về việc chuyển mục đích sử dụng đất sang đất ở của hộ gia đình, cá nhân tại các đồ án quy hoạch phân khu.
-- Trang fanpage của Phòng cảnh sát giao thông (Công an Đà Nẵng) vừa kêu gọi người dân nếu phát hiện tài xế sử dụng điện thoại trong khi lái xe hãy báo ngay cho cảnh sát giao thông.
-- Ngày 15-12, Công an Hà Nội ra quân đợt cao điểm bảo đảm trật tự an toàn giao thông dịp cuối năm, Tết Nguyên đán Ất Tỵ và các lễ hội đầu xuân năm 2025.
-- Cần phải xử lý nghiêm hành vi trộm cắp nắp cống, dây cáp ngầm... không thể coi đó là trộm cắp vặt.
-- TP.HCM có hơn 74.000 nhà trọ không đáp ứng tiêu chuẩn diện tích tối thiểu 4m² sàn/người với khoảng 185.000 người đang thuê.
-- Từ ngày 15-12 đến ngày 14-2, Công an TP.HCM sẽ thực hiện cao điểm tấn công, trấn áp các loại tội phạm, bảo đảm an ninh, trật tự dịp Tết Nguyên đán Ất Tỵ 2025.
-- Tấm sắt 'bốc hơi', tạo lỗ hổng lớn giữa cầu; Chim trời bị làm thịt bán ở vỉa hè; Xe ben ngang nhiên chạy ngược chiều vào giờ cao điểm… là những thông tin nổi bật bạn đọc Tuổi Trẻ Online cung cấp.
-- Sau nhiều năm rà soát, dự án đoạn 3 đường vành đai 2 dài 2,7km vẫn chưa thể tái khởi động vì còn vướng mắc.
-- Trước thời điểm dư luận xôn xao về vụ việc cưỡng chế đất và phụ huynh đòi rút học phí, bà Võ Thị Phương Thảo - chủ Trường quốc tế Saigon Star - cũng đã bị Công an TP.HCM truy tìm từ tháng 1-2024.
-- N., 22 tuổi, đang là học viên cao học, trên đường từ TP.HCM về nhà thì bất ngờ xe tông gãy lan can thành cầu, ô tô rơi xuống sông Đồng Nai khiến nạn nhân tử vong.
-- Lễ kỷ niệm 30 năm vịnh Hạ Long được UNESCO vinh danh là Di sản thiên nhiên thế giới vừa được tổ chức long trọng, ý nghĩa.
-- Do mưa lớn kéo dài trong nhiều ngày qua, sáng nay đèo Khánh Lê (tỉnh Khánh Hòa) đã bị sạt lở, giao thông ách tắc.
-- Tại Việt Nam, để khuyến sinh, một số địa phương đã có chính sách khen thưởng, hỗ trợ tiền mặt
-- Tuần này thời tiết cả nước có sự phân hóa rõ rệt, Bắc Bộ rét đậm, rét hại, Trung Bộ mưa to, còn Nam Bộ trời nắng, chiều tối mưa rào vài nơi.
 ![New](News.png)
 ## Nhịp sống số 
+- Ngày 3-1, Google thông báo đã thanh toán 100 triệu CAD (tương đương 69 triệu USD) cho các cơ quan báo chí Canada để sử dụng nội dung thông tin trên nền tảng này.
 - Điện thoại realme C75 đang được mở bán đặc quyền tại Thế Giới Di Động chính là một "chiến binh" sẵn sàng đồng hành cùng bạn trong mọi hoàn cảnh.
 - Trong số 10 sự kiện công nghệ thông tin và truyền thông tiêu biểu nhất năm 2024, các sự kiện liên quan bán dẫn, viễn thông chiếm vị trí nổi bật.
 - Báo Tuổi Trẻ vừa chính thức đưa vào hoạt động tòa soạn chuyển đổi số theo phong cách hiện đại, đa năng và sáng tạo.
@@ -3003,5 +3004,4 @@
 - TTO - Apple gần như chắc chắn sẽ trình làng phiên bản HĐH mới iOS 12 tại hội nghị các nhà phát triển thường niên WWDC ngày 4-6 (giờ Mỹ).
 - TTO - Trong thập kỷ qua, Facebook đã hợp tác chia sẻ dữ liệu người dùng với ít nhất 60 nhà sản xuất thiết bị điện tử như Apple, Amazon, BlackBerry, Microsoft và Samsung.
 - TTO - Facebook thực sự không muốn là công ty truyền thông khi vừa tuyên bố sẽ gỡ bỏ phần nội dung tin tức nổi bật (Trending) trên trang của họ từ tuần tới.
-- TTO - Nếu bạn là người ít có thói quen kiểm tra điện thoại trước khi rời khỏi các nơi mình đã viếng thăm thì bạn nên chuẩn bị tinh thần lúc thiết bị “bốc hơi”. Tuy nhiên, bạn cũng đừng băn khoăn nếu đủ nhanh để thực hiện các bước đơn giản sau đây.
 ![life](Life.png)
