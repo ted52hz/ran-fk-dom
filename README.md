@@ -1,6 +1,11 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Mùa tư vấn tuyển sinh - hướng nghiệp 2025 sẽ chính thức bắt đầu với bảy chương trình tại sáu địa phương trong thứ bảy và chủ nhật tuần này.
+- Với nhiều hoạt động giao lưu cho học sinh, giáo viên sau kỳ thi, các thí sinh tranh tài giải toán trên máy tính cầm tay cấp TP.HCM đã có một kỳ thi đầy thư giãn.
+- Sinh viên xếp hàng dài, đợi cả tiếng đồng hồ để được xin chữ thư pháp tại Ngày hội Học sinh, sinh viên toàn quốc (Connect Fest 2025).
+- Vụ trưởng Vụ Giáo dục đại học cho rằng xét tuyển sớm chỉ có lợi cho thí sinh yếu, còn các thí sinh giỏi không cần phương thức xét tuyển này.
+- Năm 2025 Trường đại học Tài chính - Marketing sẽ mở thêm 3 ngành mới, nhưng không tăng chỉ tiêu tuyển sinh.
 - Bộ Giáo dục và Đào tạo vừa ban hành thông tư quy định về dạy thêm, học thêm với nhiều điểm mới.
 - Những sinh viên là nhà sư sẽ khó đạt được danh hiệu 'Sinh viên 5 tốt' vì vướng tiêu chí 'thể lực tốt'.
 - Nhiều ý kiến ủng hộ việc 'cấm giáo viên dạy thêm tại nhà', nhưng cũng không ít băn khoăn.
@@ -996,13 +1001,43 @@
 - Đến chiều 16-9, tổng số tiền mà hệ thống Trường Ngô Thời Nhiệm quyên góp ủng hộ đồng bào miền Bắc được là 1.221.880.000 đồng.
 - Đã ghi nhận 52 học sinh, trẻ em bị tử vong, 3 học sinh bị mất tích, 3 giáo viên tử vong, 1 giáo viên mất tích, do bão số 3 và hoàn lưu bão.
 - Tại hội nghị tổng kết năm học 2023-2024, Sở Giáo dục và Đào tạo TP.HCM quyết định thí điểm đưa tiếng Anh thành ngôn ngữ dạy học thứ hai trong nhà trường.
-- Trường đại học Công nghiệp TP.HCM vừa tuyển chọn và ký hợp đồng đưa 39 sinh viên thực tập hưởng lương tại Nhật Bản trong vòng 1 năm.
-- Đoàn Việt Nam còn giành thêm 3 chứng chỉ nghề xuất sắc trong kỳ thi Kỹ năng nghề thế giới (WorldSkills) năm nay.
-- Để tránh những hệ lụy đau lòng xuất phát từ việc sử dụng mạng xã hội thiếu ý thức và yếu kỹ năng, gia đình - nhà trường - xã hội phải quyết liệt vào cuộc.
-- Từ hơn 300 thí sinh, cuộc thi học thuật cấp thành 'Hướng dẫn viên du lịch tiềm năng' đã tìm ra quán quân.
-- Không chỉ kêu gọi cán bộ, giảng viên ủng hộ ít nhất một ngày lương, trích tiền quỹ ra ủng hộ đồng bào vùng lũ, nhiều trường còn rà soát tổng số sinh viên trong trường bị ảnh hưởng bởi lũ lụt để lên phương án hỗ trợ.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Kết quả xổ số vé bóc của Công ty TNHH MTV Xổ số kiến thiết Thừa Thiên Huế thường xuyên xuất hiện số trùng ở giải hai chữ số.
+- Một số tin tức đáng chú ý: Gần nửa triệu lượt khách đi metro số 1; Công ty may vừa bị phạt vì 'bố làm chủ tịch, con là tổng giám đốc' báo lãi kỷ lục; Sếp FLC Faros rời ghế sau 2 tháng...
+- Hôm nay 6-1, không khí lạnh chi phối thời tiết cả nước khiến miền Bắc, miền Trung rét, miền Nam mát mẻ.
+- Chủ tịch Quốc hội Trần Thanh Mẫn tin tưởng các nhà báo tiếp tục phát huy lòng yêu nghề với tâm sáng, bút sắc, trí bền, đồng hành cùng Quốc hội.
+- Tổng Bí thư Tô Lâm cùng nhiều lãnh đạo, nguyên lãnh đạo Đảng, Nhà nước và các địa phương dự kỷ niệm 50 năm Ngày giải phóng Phước Long, Bình Phước.
+- Nam thanh niên sử dụng các số điện thoại là sim tứ quý và hay đăng lên mạng xã hội những hình ảnh về cuộc sống sang chảnh để phục vụ hành vi lừa đảo.
+- Công an quận Tân Phú và quận Gò Vấp tạm giữ hai người có hành vi côn đồ, gây xôn xao mạng xã hội mấy ngày qua.
+- UBND huyện Sơn Tịnh, Quảng Ngãi thông báo lên phương án cưỡng chế để thu hồi khu đất khiến dự án cầu Trà Khúc 3 'đứng bánh'.
+- Các bộ, ngành, địa phương giảm tối thiểu 20% công chức, viên chức hưởng lương từ ngân sách nhà nước để giảm biên chế theo phương án sắp xếp, tinh gọn bộ máy.
+- Đón những lời động viên, thăm hỏi và những phần quà Tết, chiến sĩ Mai Minh Chiến cùng các đồng đội 
+đang canh giữ biển trời Tổ quốc trên đảo Hòn Đốc vui mừng, hạnh phúc như được đón Tết ở nhà.
+- Không khí tại Nhà văn hóa Thanh niên (quận 1, TP.HCM) như 'bùng cháy' khi hàng trăm người đổ về hò reo, xem trực tiếp trận chung kết lượt về ASEAN Cup 2025 giữa đội tuyển Việt Nam và Thái Lan tối 5-1.
+- 4 ngày áp dụng nghị định 168, Công an TP.HCM đã xử phạt 6.106 trường hợp vi phạm, trong đó có 225 người vượt đèn đỏ.
+- 'Không được vì cảm xúc cá nhân mà gây ra mâu thuẫn xã hội, không vì thiếu kiềm chế mà gây ra hậu quả nghiêm trọng'.
+- Chiều 5-1, Tổng Bí thư Tô Lâm và Đoàn công tác trung ương đã đến thăm và làm việc tại Công an tỉnh Bình Phước.
+- Công an TP.HCM đã khởi tố 5 vụ án/17 bị can về các tội mua bán, tàng trữ trái phép chất độc; thu giữ gần 9,5 tấn xyanua, 420kg axit trong năm 2024.
+- Các đơn vị của Công an TP.HCM triển khai 100% quân số ứng trực, xử lý các trường hợp quá khích, lợi dụng sự kiện chung kết ASEAN Cup 2024 gây rối, đảm bảo tình hình an ninh trật tự.
+- Tuyến đường 822B sẽ 'kéo gần' vùng biên giới Đức Huệ, Long An với TP.HCM, kết nối với cả vùng Đông - Tây Nam Bộ qua các tuyến đường Hồ Chí Minh, quốc lộ N2.
+- Ngày 5-1, Tàu CSB 6009 thuộc Hải đội 421, Hải đoàn 42, Bộ tư lệnh Vùng Cảnh sát biển 4 vượt đường biển thực hiện nhiệm vụ trực sẵn sàng chiến đấu tuần tra, kiểm soát, chống khai thác IUU dịp Tết Nguyên đán Ất Tỵ năm 2025.
+- Một người đàn ông bị UBND phường xử phạt vì đổ rác thải, xà bần không đúng nơi quy định.
+- Người đàn ông đánh đập dã man một học sinh lớp 7 trên địa bàn xã Nhơn Hội, TP Quy Nhơn, Bình Định bị camera quay lại đang được công an xã mời làm việc.
+- Khi hành khách lên xe và thông báo điểm đến, tài xế sẽ nhập thông tin vào ứng dụng. Giá cước chuyến đi được thông báo, khách đồng ý số tiền này sẽ hiện trên màn hình hiển thị cước phí.
+- Một số người đến các ngã tư thường có 'thói quen' rẽ phải khi đèn đỏ mà không hay biết mình đã vi phạm.
+- Ngày 5-1, Tổng Bí thư Tô Lâm đã đến thăm, chúc Tết nguyên Chủ tịch nước Nguyễn Minh Triết tại nhà riêng ở tỉnh Bình Dương.
+- Chuyên gia pháp lý cho hay "thợ săn tiền thưởng" đi soi lỗi vi phạm giao thông không nên coi là "một nghề" kiếm tiền dễ.
+- Mạng xã hội đang lan truyền đoạn clip ghi lại cảnh người đàn ông đi xe máy chặn đầu ô tô rồi hùng hổ dùng vật cứng đập bể kính.
+- Ngày 5-1, Ban Quản lý dự án 85 tổ chức lễ hợp long cầu Đại Ngãi 2 nối liền huyện Cù Lao Dung với huyện Long Phú (Sóc Trăng).
+- Cầu tầng của nhà ga T3 Tân Sơn Nhất - hạng mục quan trọng giúp kết nối giao thông phía trước nhà ga - đã dần thành hình.
+- Cột đèn điện nằm giữa tim đường tại xã Đức Ninh (TP Đồng Hới, Quảng Bình) đã được tháo dỡ sau phản ánh trên Tuổi Trẻ Online.
+- Theo nội dung vụ án, bà V. trình bày do có quan hệ thân tình nên tháng 11-2019 bà cho ông K. vay mượn số tiền 10,5 tỉ đồng.
+- Thời tiết Nam Bộ sắp có một đợt nhiệt độ giảm mạnh, không khí sẽ mát mẻ, se lạnh như đợt trước Giáng sinh.
+- Tuần này, Bắc Bộ và Trung Bộ đón đợt không khí lạnh mới, trời rét. Nam Bộ nhiều mây, ngày nắng.
+- Nghĩ rằng anh Long nhìn khó chịu, sẽ hãm hại mình nên Sang đi lấy dao giết bạn tại trung tâm cai nghiện ma túy tự nguyện.
+- Một nhân viên cứu hộ của khu nghỉ dưỡng ở Đà Nẵng khi ra biển cứu người đuối nước thì mất tích trên biển.
+- Đám cháy bùng phát tại cửa hàng chăm sóc, bán thú cưng trên đường Nơ Trang Long (quận Bình Thạnh, TP.HCM) khiến 3 người nhập viện.
 - Nghị định 168 tăng mức xử phạt đã thay đổi ý thức tham gia giao thông của nhiều người, qua ngã tư không còn chen vượt đèn đỏ.
 - Ngày 4-1, Thủ tướng đã dự và trao quyết định phê duyệt quy hoạch TP.HCM thời kỳ 2021 - 2030, tầm nhìn đến năm 2050 cho lãnh đạo TP.HCM.
 - Một số người biện minh hành vi đánh người của mình là do căng thẳng, áp lực cuộc sống. Tuy nhiên, không thể dùng nó như một lý do biện hộ cho hành vi bạo lực.
@@ -1969,40 +2004,6 @@
 - Đoàn đại biểu TP.HCM do Bí thư Thành ủy TP.HCM làm trưởng đoàn đến thăm và chúc mừng cộng đồng Công giáo nhân dịp Giáng sinh và Tết dương lịch.
 - Hạn mặn mùa khô 2024-2025 dự báo có xu thế tăng nhanh và xâm nhập sâu vào nội đồng.
 - Chủ hụi bị khởi tố, bắt giam sau khi phiên tòa xét xử tranh chấp dân sự và phát hiện có dấu hiệu của tội phạm lừa đảo chiếm đoạt tài sản.
-- Đại diện Công an TP.HCM cho biết cơ quan công an sẽ điều chỉnh, tách, gộp thông tin lưu trú của người dân trực tiếp trên hệ thống.
-- Lực lượng chức năng đã phá thành công khối đá nặng hơn 100 tấn rơi xuống đèo Khánh Lê, dự kiến trưa mai sẽ thông xe đèo này.
-- Phát biểu tại Hội nghị báo chí năm 2024, Trưởng Ban Tuyên giáo Trung ương Nguyễn Trọng Nghĩa đề nghị báo chí tập trung tuyên truyền, góp phần tạo lan tỏa động lực để đưa đất nước bước vào kỷ nguyên mới.
-- Bộ Công an cho biết thông tư 73/2024 có hiệu lực từ 1-1-2025, quy định về nội dung kiểm tra của cảnh sát giao thông khi dừng phương tiện.
-- Nước sinh hoạt trong bể chứa một số chung cư có những chỉ tiêu không đạt theo quy định (thông số clo dư, coliform tổng số, E.coli...).
-- Hơn 2.200 cán bộ, chiến sĩ của Binh chủng Đặc công, với nòng cốt từ một số đơn vị như Trường Sĩ quan Đặc công, Lữ đoàn Đặc công bộ 113, Lữ đoàn Đặc công biệt động 1 sẽ có màn phô diễn đặc biệt tinh nhuệ tại lễ khai mạc triển lãm quốc phòng.
-- TP.HCM đã bắt đầu cấp phép nhập khẩu thuốc đáp ứng nhu cầu điều trị đặc biệt, giải quyết vấn đề khó khăn trong nhập khẩu thuốc hiếm, thuốc dùng trường hợp khẩn cấp.
-- Năm 2024, loạt dự án giao thông lớn ở TP.HCM đã có sự chuyển mình mạnh mẽ. Nhiều dự án được khởi công và hiện nay một số sắp về đích.
-- Tổng Bí thư Tô Lâm nêu rõ phải làm tốt công tác tham mưu, sắp xếp tinh gọn tổ chức bộ máy của hệ thống chính trị gắn với cơ cấu lại đội ngũ cán bộ.
-- Nhiều tỉnh thành có báo cáo nhanh tình hình thưởng Tết năm 2025, vẫn chưa có nơi nào thưởng Tết lên tới hàng tỉ đồng như năm 2024 Giáp Thìn.
-- Đột kích quán bar Diamond Club ở TP Tam Kỳ, Quảng Nam trong đêm, lực lượng công an xác định 12 người có hành vi mua bán, tổ chức sử dụng trái phép chất ma túy.
-- Cơ quan công an bắt quả tang một chủ tịch UBND phường ở Bắc Giang vì nhận hối lộ ngay tại phòng làm việc.
-- Công an huyện Tri Tôn, tỉnh An Giang đã bắt tạm giam tài xế Đoàn Đức Vinh (28 tuổi, ngụ huyện Vĩnh Thạnh, TP Cần Thơ) do lái xe tải làm sập cầu.
-- Liên quan vụ ô tô tông nhiều xe máy trên cầu Tân Lý, Cơ quan cảnh sát điều tra Công an thị xã La Gi đã tạm giữ hình sự tài xế Lê Hưng Lợi.
-- Sau chừng 7 tháng thông xe, tuyến đường vành đai phía tây Đà Nẵng (có tổng vốn đầu tư khoảng 1.500 tỉ đồng) lại tiếp tục sạt lở.
-- Thường trực Ban Bí thư Trần Cẩm Tú cho biết việc sắp xếp, tinh gọn bộ máy đang là việc cấp bách, làm càng sớm càng có  lợi cho dân cho nước.
-- Ngày 16-12, nhiều tài xế ô tô không chú ý biển báo hoặc cố tình dừng sai quy định khu vực xung quanh Bệnh viện Từ Dũ bị cảnh sát giao thông lập biên bản.
-- Movenpick Central - dự án khách sạn 5 sao siêu sang tại TP Đồng Hới (Quảng Bình) bị thu hồi đất đã cấp vì nợ thuế gần 100 tỉ đồng.
-- Trong mấy ngày qua, liên tiếp nhiều vụ ẩu đả, đánh người trên đường diễn ra tại nhiều nơi khiến dư luận bức xúc.
-- Sáng 16-12, một người Trung Quốc đã bị trục xuất về nước theo quy định.
-- Nam thanh niên vừa chạy xe máy vừa nằm trên yên xe 'biểu diễn' bị cảnh sát giao thông - trật tự Công an quận 1 lập biên bản xử lý.
-- Nhiều phụ huynh rất lo lắng khi thấy con mình hút thuốc, dù đã nhắc nhở, thậm chí dùng biện pháp mạnh nhưng vẫn vô tác dụng.
-- Trong lúc bơi ghe thả lưới bắt cá trên sông thì bị lật ghe, hai mẹ con ở TP Tam Kỳ, Quảng Nam bị chết đuối.
-- Tài xế hành hung người đi xe máy trước cổng Bệnh viện Từ Dũ (quận 1, TP.HCM) đã được lực lượng chức năng mời lên làm việc, xử lý.
-- Tại TP.HCM ngày có thêm nhiều người tự nguyện giao động vật hoang dã cho cơ quan kiểm lâm, mong muốn chúng được thả về môi trường tự nhiên.
-- Ngày 16-12, Tổng Bí thư Tô Lâm dự và phát biểu chỉ đạo tại hội nghị toàn quốc tổng kết công tác tổ chức xây dựng Đảng năm 2024, triển khai nhiệm vụ năm 2025.
-- Từ tháng 8-2024 đến nay, hai chị em ở TP Tam Kỳ, Quảng Nam đã cho vay lãi nặng với lãi suất từ 120 - 360%/năm với tổng số tiền cho vay 2,4 tỉ đồng.
-- Thông tin từ Bộ Giao thông vận tải cho biết Cục trưởng Cục Hàng không Việt Nam Đinh Việt Thắng xin nghỉ hưu trước tuổi là vì lý do sức khỏe.
-- Không khí lạnh đã tràn tới Nam Bộ, thời tiết TP.HCM và toàn miền Nam sẽ giảm mưa, nhiệt độ giảm.
-- Khi dừng đèn đỏ, tài xế xe tải bất ngờ bị một người đàn ông đấm, đá tới tấp bất chấp đứa trẻ ngồi ghế bên cạnh khóc thét.
-- Vụ tai nạn xảy ra đêm 15-12 trên cầu Tân Lý, thị xã La Gi, tỉnh Bình Thuận khiến một nạn nhân chạy xe máy rơi xuống sông Dinh.
-- Diễn biến này theo đúng lộ trình mà UBND TP.HCM đặt ra trong quyết định Ban hành giá dịch vụ thoát nước và xử lý nước thải trên địa bàn TP giai đoạn 2021 - 2025.
-- Sở Y tế TP.HCM cho biết đã xử phạt và cho vào danh sách 'đen' nhiều phòng khám có hành vi vi phạm.
-- Khu đất Cảng Sài Gòn đề nghị làm dự án cảng tàu khách quốc tế Nhà Rồng - Khánh Hội đang vướng một dự án khác.
 ![New](News.png)
 ## Nhịp sống số 
 - Ngày 3-1, Google thông báo đã thanh toán 100 triệu CAD (tương đương 69 triệu USD) cho các cơ quan báo chí Canada để sử dụng nội dung thông tin trên nền tảng này.
