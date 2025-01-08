@@ -1,6 +1,19 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Những năm gần đây, dư luận xã hội nghi ngờ kết quả học tập của học sinh phổ thông khi số lượng điểm cao rất phổ biến.
+- Các dãy phòng học Trường THCS Đỉnh Bàn xây dựng đã lâu, hiện xuống cấp nhưng không được sửa gây lo lắng, bất an cho thầy và trò, nhất là những ngày mưa lớn, gió to.
+- Trong 80 trưởng và phó phòng mới được bổ nhiệm ở một trường đại học đào tạo về ngành y, có đến gần 30 người hiện đang là giám đốc, phó giám đốc bệnh viện tại TP.HCM.
+- Hiệu trưởng Trường tiểu học Nghĩa Thuận (Quảng Ngãi) chỉ đạo thu sai quy định, bị phụ huynh tố cáo và nhận kỷ luật khiển trách vừa được bổ nhiệm lại, tiếp tục làm hiệu trưởng trường này.
+- 3 trường THCS đầu tiên ở TP Thủ Đức, TP.HCM công bố kế hoạch tuyển sinh lớp 6 năm học 2025-2026.
+- Hơn 1.000 học sinh tham gia hội thao giáo dục quốc phòng và an ninh tại Trường THPT chuyên năng khiếu TDTT Nguyễn Thị Định.
+- Ngày hội Tự tin vào lớp 10 năm 2025 do báo Tuổi Trẻ phối hợp Sở GD-ĐT TP.HCM, Sở LĐ-TB&amp;XH TP.HCM, Sở GD-ĐT Hà Nội tổ chức ngày 23-2 và 9-3-2025.
+- Thanh tra tỉnh Kiên Giang phát hiện Trường cao đẳng nghề Kiên Giang lập khống chứng từ, thu chi sai gần 20 tỉ đồng. Đồng thời, kiến nghị chuyển hồ sơ vụ việc có dấu hiệu phạm tội sang cơ quan điều tra.
+- Hình thức thi IELTS trên giấy chính thức sẽ bị 'khai tử' ở Việt Nam từ sau ngày 29-3-2025, chỉ còn duy nhất hình thức thi trên máy tính.
+- HĐND TP.HCM đã có quyết định miễn học phí cho học sinh THCS năm học 2024-2025. Vậy khi nào chúng tôi được hoàn trả học phí những tháng đầu năm học đã đóng?
+- Hiệu trưởng Trường đại học Quản lý và Công nghệ TP.HCM (UMT) vừa ban hành quyết định tạm đình chỉ công việc và chức vụ đối với TS Nguyễn Trà Giang - viện trưởng Viện Khoa học và quản lý thể dục thể thao UMT.
+- Hiệu trưởng Trường THCS Lê Văn Tám, huyện Chư Prông (Gia Lai) bị kỷ luật cách chức do nhiều vi phạm trong công tác, tự ý bỏ trường.
+- Nhiều sinh viên Trường đại học Công Thương TP.HCM phản ánh mức thu học phí môn giáo dục quốc phòng và an ninh của trường quá cao so với các trường khác.
 - Mùa tư vấn tuyển sinh - hướng nghiệp 2025 sẽ chính thức bắt đầu với bảy chương trình tại sáu địa phương trong thứ bảy và chủ nhật tuần này.
 - Với nhiều hoạt động giao lưu cho học sinh, giáo viên sau kỳ thi, các thí sinh tranh tài giải toán trên máy tính cầm tay cấp TP.HCM đã có một kỳ thi đầy thư giãn.
 - Sinh viên xếp hàng dài, đợi cả tiếng đồng hồ để được xin chữ thư pháp tại Ngày hội Học sinh, sinh viên toàn quốc (Connect Fest 2025).
@@ -988,21 +1001,94 @@
 - Hàng trăm học sinh ở Trường tiểu học Quang Kim, Bát Xát, Lào Cai mất sách vở vì không kịp chạy lũ. Những ngày đầu tiên đi học trở lại, nhiều chiếc ba lô nhẹ bâng vì thiếu sách vở.
 - Nhiều thí sinh đạt điểm cao trong kỳ thi Tốt nghiệp THPT năm 2024 đã đến với Đại học (ĐH) Duy Tân để tìm hiểu trong năm 2024 này.
 - Nhà giáo Nguyễn Xuân Khang, chủ tịch hội đồng Trường phổ thông liên cấp Marie Curie (Hà Nội), quyết định trường sẽ nhận nuôi những trẻ em từ 15 tuổi trở xuống ở thôn Làng Nủ.
-- Để luyện áp lực thời gian, căng thẳng như thi thật, thí sinh thi Kỹ năng nghề thế giới (WorldSkills) tìm đối thủ thi đấu online hoặc sang Áo, Hàn Quốc để nâng cao tay nghề.
-- Bộ Giáo dục và Đào tạo đề nghị các trường ưu tiên miễn, giảm học phí và có hỗ trợ phù hợp với hoàn cảnh của từng sinh viên.
-- Sở Giáo dục và Đào tạo TP.HCM quyết định thí điểm đưa tiếng Anh thành ngôn ngữ dạy học thứ hai trong nhà trường.
-- Sau những ngày nỗ lực khắc phục hậu quả của bão lũ số 3, học sinh nhiều địa phương miền Bắc đã dần trở lại trường lớp trong nỗ lực của địa phương và các thầy cô giáo.
-- Nhiếp ảnh gia Hồ Trung Lâm là người đoạt giải cao nhất tại cuộc thi The ASEAN SX Photo Contest 2024 với chủ đề ASEAN Biodiversity (Đa dạng sinh học ASEAN), do Hiệp hội Nhiếp ảnh Hoàng gia Thái Lan tổ chức.
-- Với không gian xanh mát và bền vững, Victoria School - Nam Sài Gòn đã giành Giải thưởng Kiến trúc Quốc tế.
-- Hải Phòng cấm vận động phụ huynh tài trợ sau bão số 3, cũng như lợi dụng danh nghĩa Ban đại diện cha mẹ học sinh để thu các khoản thu ngoài quy định.
-- Công an huyện Krông Búk, tỉnh Đắk Lắk đã triệu tập, ra quyết định tạm giữ hình sự phụ huynh lùi xe bán tải khiến một học sinh lớp 2 tử vong.
-- Chiều 16-9, đại diện Công ty Dai-ichi Life Việt Nam đã đến báo Tuổi Trẻ trao 500 triệu đồng cho chương trình Tiếp sức đến trường 2024.
-- Gần 100 học sinh khu vực thôn Làng Nủ đã có mặt tại Trường tiểu học và trung học cơ sở Phúc Khánh (Bảo Yên, Lào Cai) tập trung và học tập trở lại.
-- Đến chiều 16-9, tổng số tiền mà hệ thống Trường Ngô Thời Nhiệm quyên góp ủng hộ đồng bào miền Bắc được là 1.221.880.000 đồng.
-- Đã ghi nhận 52 học sinh, trẻ em bị tử vong, 3 học sinh bị mất tích, 3 giáo viên tử vong, 1 giáo viên mất tích, do bão số 3 và hoàn lưu bão.
-- Tại hội nghị tổng kết năm học 2023-2024, Sở Giáo dục và Đào tạo TP.HCM quyết định thí điểm đưa tiếng Anh thành ngôn ngữ dạy học thứ hai trong nhà trường.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Chính phủ đặt ra chủ đề của năm 2025 là 'Kỷ cương trách nhiệm; chủ động kịp thời; tinh gọn hiệu quả; tăng tốc bứt phá'.
+- Thời điểm cuối năm, lại thêm hàng loạt công trình đào đường, rào chắn mọc lên nhiều nơi từ trung tâm đến ngoại thành TP.HCM.
+- Người dân phát hiện lửa phát ra từ ngôi nhà ở TP Tam Kỳ, Quảng Nam, trong đó có thi thể của hai vợ chồng.
+- Sau khi mua bảo hiểm nhân thọ một thời gian, khách hàng chẳng may bị mất do tai nạn giao thông. Thế nhưng doanh nghiệp bảo hiểm tìm mọi cách để từ chối chi trả quyền lợi bảo hiểm, thậm chí còn dọa nhờ pháp luật can thiệp để xử lý.
+- Một số tin tức đáng chú ý: Cổ đông ngoại rút khỏi taxi Vinasun; Diễn biến lạ với cổ phiếu công ty ô tô sắp bán xe điện giá dưới 150 triệu đồng; 'Cháy' vé xe khách về nhiều tỉnh miền Trung cao điểm Tết Nguyên đán...
+- Khối không khí lạnh rất mạnh đang tràn về và sắp tác động tới thời tiết Bắc Bộ, Trung Bộ trời nắng, Nam Bộ nhiều mây, sáng sớm lạnh.
+- Khi nghe cảnh sát thông báo mức phạt về lỗi đi xe lên vỉa hè, tài xế xe ôm công nghệ nói "bủn rủn hết chân tay và không dám tái phạm thêm lần nữa", vì số tiền này gần bằng nửa tháng thu nhập.
+- Tổng Bí thư Tô Lâm tiếp ông Nicholas Berggruen, chủ tịch Công ty đầu tư Berggruen Holdings và Viện Berggruen (Mỹ) và bà Nguyễn Thị Liên Hằng, giám đốc Viện nghiên cứu Đông Á Weatherhead, Đại học Columbia.
+- Có bảo hiểm nhân thọ, nhưng gần 9 năm qua, cả gia đình phải nai lưng gồng gánh để chị Thêm điều trị tai nạn chấn thương sọ não.
+- Ngày 7-1, thông tin từ Huyện ủy Lang Chánh (Thanh Hóa) cho biết đến nay huyện miền núi này có 1 thường vụ Huyện ủy, 3 huyện ủy viên và 3 cán bộ khác tự nguyện xin nghỉ hưu trước tuổi, để tinh gọn bộ máy.
+- Chính phủ và các bộ, ngành tập trung quản lý nhà nước, xây dựng chiến lược, quy hoạch, chính sách, luật pháp, xây dựng các công cụ kiểm tra, giám sát việc thực thi pháp luật.
+- Theo nghị quyết của Ủy ban Thường vụ Quốc hội, hai cơ quan gồm Viện Nghiên cứu lập pháp và Truyền hình Quốc hội Việt Nam kết thúc hoạt động từ ngày 15-1.
+- Quá trình bố trí, sắp xếp tinh gọn tổ chức bộ máy phải công tâm, khách quan, sử dụng những cán bộ có năng lực thật sự nổi trội, uy tín cao.
+- Công an Phú Yên vừa triệt phá đường dây cho vay nặng lãi, cá độ online hơn 100 tỉ đồng.
+- Chiều 7-1, tại trụ sở Phòng PC07, trung tá Nguyễn Chí Thành - Anh hùng Lực lượng vũ trang nhân dân  - đã được công bố và trao quyết định điều động, bổ nhiệm làm phó trưởng Phòng PC07.
+- Chuyến tàu chở hàng bình ổn giá hôm nay đã cặp bến cảng xã đảo Tiên Hải (TP Hà Tiên, Kiên Giang). Dân trên đảo này hào hứng lựa mua nhiều món đồ để chuẩn bị đón Tết Nguyên đán Ất Tỵ năm 2025.
+- Công ty TNHH Văn hóa - Sáng tạo Trí Việt (First News) đang lập vi bằng và khẳng định chuẩn bị khởi kiện sàn thương mại điện tử Shopee Việt Nam.
+- Các dãy phòng học Trường THCS Đỉnh Bàn xây dựng đã lâu, hiện xuống cấp nhưng không được sửa gây lo lắng, bất an cho thầy và trò, nhất là những ngày mưa lớn, gió to.
+- Cảnh sát giao thông TP.HCM thông tin về việc phân luồng, tổ chức giao thông phục vụ diễn tập cháy, nổ và tổ chức thoát nạn, chữa cháy, cứu nạn, cứu hộ.
+- Các loại bim bim được đổ xuống sàn nhà két bẩn dầu mỡ, phòng pha chế phụ gia sản phẩm mất vệ sinh an toàn thực phẩm. Thậm chí, trong xưởng sản xuất phát hiện cả xác chuột chết đã bốc mùi.
+- UBND TP.HCM vừa có văn bản yêu cầu tăng cường kiểm soát ô nhiễm, cải thiện chất lượng môi trường khu vực giáp ranh TP.HCM và tỉnh Bình Dương.
+- Chủ tịch nước Lương Cường trao quyết định bổ nhiệm phó viện trưởng Viện Kiểm sát nhân dân tối cao với ông Nguyễn Đức Thái, Trần Hải Quân.
+- Đó là kết luận của Chủ tịch UBND TP.HCM Phan Văn Mãi tại cuộc họp sắp xếp, tinh gọn tổ chức bộ máy cơ quan nhà nước thuộc TP.HCM.
+- Ông Cấn Đình Tài và Nguyễn Hoàng Anh được bổ nhiệm làm trợ lý ủy viên Bộ Chính trị, Chủ tịch nước  Lương Cường.
+- Sau vụ doanh nghiệp trúng đấu giá mỏ cát 370 tỉ đồng, chính quyền thị xã Điện Bàn, Quảng Nam vừa có quyết định hủy kết quả phiên đấu giá này.
+- Xe máy vẫn vô tư rẽ phải khi đèn đỏ dù mức phạt đã tăng cao, gây khó cho người đi bộ khi băng qua đường.
+- Sở Y tế TP.HCM thông tin, vi rút HMPV tại Trung Quốc không phải là vi rút mới, đây là một trong những tác nhân gây viêm hô hấp ở trẻ em trong các năm 2023 và 2024.
+- Sau 20 năm thành lập và phát triển, báo điện tử Tiền Phong (Tiền Phong Online) đặt ra mục tiêu trở thành tờ báo 'dẫn dắt thông tin'.
+- Tình trạng 'xe dù, bến cóc' không chỉ hoạt động bát nháo tại cây xăng, quán nước... ven quốc lộ ở TP.HCM mà còn diễn ra phức tạp tại bãi xe, chưa được các ngành chức năng xử lý dứt điểm, gây bức xúc.
+- Thứ trưởng Bộ Tài nguyên và Môi trường Lê Công Thành cho biết vấn đề ô nhiễm không khí ở Hà Nội, Chính phủ và TP đã có giải pháp, nhưng đây là vấn đề cần được giám sát.
+- Siêu đô thị TP.HCM nơi có hàng loạt vấn đề nóng, từ chuyện dân sinh đến các quyết sách táo bạo. Sự 'xắn tay' vào cuộc của mặt trận trong từng vấn đề là yếu tố then chốt đảm bảo mọi kế hoạch 'thuận lòng dân, vì dân'.
+- Dự kiến kỳ họp bất thường lần thứ 9 của Quốc hội (tháng 2-2025) sẽ xem xét, thông qua các nội dung cấp thiết nhằm thực hiện sắp xếp, tinh gọn bộ máy.
+- Sáng 7-1, báo Nhân Dân phối hợp với Công ty cổ phần Xây dựng Coteccons tổ chức chương trình 'Xây Tết 2025', trao tặng hàng ngàn phần quà Tết cho công nhân, người lao động trên địa bàn TP Đà Nẵng.
+- Bộ Tư lệnh Vùng 4 Hải quân đã tổ chức lễ đón nhận danh hiệu Anh hùng Lực lượng vũ trang nhân dân.
+- Cơ bản hoàn thành phương án hợp nhất, sáp nhập các bộ, cơ quan và phương án sắp xếp tổ chức, bộ máy bên trong của các bộ, cơ quan.
+- Chủ tịch UBND tỉnh Đắk Nông khẳng định đang hoàn thiện các thủ tục để khởi công cao tốc Gia Nghĩa - Chơn Thành vào tháng 9-2025.
+- Giám đốc xổ số Quảng Bình cho rằng những cặp số lặp nhau liên tục là chuyện xác suất bình thường, chuyên gia xác suất thống kê tính ra tỉ lệ tương đương 3/10.000.000.
+- Dừng xe cán vạch mà không thể lùi có bị phạt không? Báo tin vi phạm cho ai, như thế nào để được nhận tiền?... Đại diện Cục Cảnh sát giao thông giải đáp trên tuoitre.vn sáng 7-1.
+- Ngày 6-1, lực lượng Đội cảnh sát giao thông - trật tự Công an TP Thủ Đức (TP.HCM) lập chốt ở đường Võ Văn Ngân, đoạn trước Nhà Thiếu nhi TP Thủ Đức, xử lý vi phạm giao thông theo nghị định 168/2024.
+- Nhiều người thắc mắc vì sao hình ảnh vi phạm giao thông từ người dân cung cấp vẫn bị xử phạt dù thiết bị không có tem kiểm định như thiết bị chuyên dụng.
+- TP.HCM đang chuyển mình mạnh mẽ với hàng loạt dự án trọng điểm. Trong hành trình ấy, vai trò của Mặt trận Tổ quốc Việt Nam TP.HCM được khẳng định qua việc giám sát, phản biện, vận động và tạo sự đồng thuận từ người dân.
+- Thành phố Hội An đề xuất miễn phí tham quan khu phố cổ đối với đại biểu đến từ các địa phương trong nước và nước ngoài có ký kết hoặc có mối quan hệ hợp tác, giao lưu với thành phố và tỉnh.
+- Tin tức đáng chú ý: Xử lý nghiêm xe biển xanh, xe cứu thương vi phạm giao thông; TP.HCM yêu cầu bến xe, tàu niêm yết và bán đúng giá vé Tết Nguyên đán...
+- Hôm nay 7-1, thời tiết cả nước ổn định, ban ngày trời nắng đẹp, đêm và sáng sớm lạnh tới rét.
+- Hiệu trưởng Trường đại học Quản lý và Công nghệ TP.HCM (UMT) vừa ban hành quyết định tạm đình chỉ công việc và chức vụ đối với TS Nguyễn Trà Giang - viện trưởng Viện Khoa học và quản lý thể dục thể thao UMT.
+- Lào là quốc gia đầu tiên Thủ tướng Phạm Minh Chính đến thăm trong năm 2025. Năm ngoái, trao đổi đoàn giữa hai nước hết sức sôi động.
+- Chủ tịch Bạc Liêu Phạm Văn Thiều kêu gọi cán bộ, đảng viên và người dân chấp hành pháp luật về giao thông, đồng thời lên án, tố giác, cung cấp thông tin vi phạm trật tự an toàn giao thông đến cơ quan chức năng.
+- V.B.C. (20 tuổi, trú huyện Thăng Bình, tỉnh Quảng Nam) bị xử phạt về hành vi xúc phạm dân tộc, danh nhân, anh hùng dân tộc nhưng chưa đến mức truy cứu trách nhiệm hình sự, với số tiền 30 triệu đồng.
+- Ông Hoàng Minh Tuấn, chủ tịch kiêm giám đốc Công ty Xổ số kiến thiết Quảng Bình, cho rằng những cặp số lặp nhau liên tục là chuyện xác suất bình thường.
+- Liên quan đến vụ "Lạ lùng 2 biển báo tốc độ tối đa 20km/h trên đường đô thị ở Nha Trang, không biết ai cắm" mà Tuổi Trẻ Online đã phản ánh, Phòng Quản lý đô thị TP Nha Trang (tỉnh Khánh Hòa) trả lời do Công ty cổ phần Đầu tư VCN cắm.
+- Thanh tra TP Nha Trang (Khánh Hòa) đề nghị chuyển hồ sơ vụ chủ một khách sạn ở Nha Trang tố lực lượng cưỡng chế tự ý bán tài sản sau cưỡng chế sang cơ quan điều tra, nhưng 'lãnh đạo TP chỉ đạo rà soát kỹ lưỡng lần nữa, đảm bảo chặt chẽ hồ sơ'.
+- UBND TP.HCM vừa có quyết định thành lập Ban chỉ đạo sắp xếp tổ chức bộ máy cơ quan nhà nước thuộc TP.HCM, do Chủ tịch UBND TP Phan Văn Mãi làm trưởng ban.
+- Báo cáo Thủ tướng, Bộ Giao thông vận tải nhận định có nhiều khó khăn trong việc xây dựng kế hoạch hoàn thành dự án thành phần 3 sân bay Long Thành trước 31-12-2025.
+- Ngày 6-1, Thủ tướng Chính phủ có các quyết định bổ nhiệm ba trợ lý Thủ tướng, phó thủ tướng và hai phó tổng tham mưu trưởng Quân đội nhân dân Việt Nam.
+- Đại tá Vũ Văn Đấu - phó cục trưởng Cục Cảnh sát điều tra tội phạm về trật tự xã hội - được phân công công tác và giữ chức vụ giám đốc Công an tỉnh Quảng Trị.
+- UBND tỉnh Bà Rịa - Vũng Tàu ban hành kế hoạch sắp xếp, tinh gọn bộ máy. Theo đó, có nhiều đơn vị sự nghiệp tại tỉnh này phải giải thể, cổ phần hóa, xã hội hóa.
+- Thủ tướng trao tặng Huân chương Lao động hạng nhất cho tuyển bóng đá Việt Nam và Huân chương Lao động hạng ba cho các cá nhân đội tuyển.
+- Hiệu trưởng Trường THCS Lê Văn Tám, huyện Chư Prông (Gia Lai) bị kỷ luật cách chức do nhiều vi phạm trong công tác, tự ý bỏ trường.
+- Ông Lê Hùng Sơn cho hay hiện kết dư quỹ bảo hiểm thất nghiệp khoảng 63.000 tỉ đồng - đủ chi bảo hiểm thất nghiệp cho viên chức tinh gọn bộ máy.
+- Triều cường trong những ngày tới trên địa bàn tỉnh Bến Tre sẽ vượt mức báo động 3 từ 4 - 7cm.
+- Người đang mang thai, nghỉ thai sản, đang nuôi con dưới 36 tháng tuổi, nếu không tự nguyện sẽ chưa xem xét tinh gọn bộ máy.
+- Trung tâm Kiểm soát bệnh tật (CDC) tỉnh Đắk Lắk cho biết trên địa bàn tỉnh vừa xảy ra vụ cháu bé 11 tuổi tử vong nghi bị chó dại cắn đầu tiên trong năm 2025.
+- Các địa phương quanh mỏ sắt Thạch Khê do vướng quy hoạch dẫn đến không được đầu tư. Nay địa phương muốn có cơ chế mới để thu hút đầu tư.
+- Tại buổi làm việc của Tổng Bí thư Tô Lâm và tỉnh Gia Lai, lãnh đạo các tập đoàn Thaco, Sun Group đã chia sẻ thông tin về việc đầu tư vào Tây Nguyên.
+- Theo dự Luật Công nghiệp công nghệ số, việc phân loại, nội dung quản lý tài sản số, cung ứng dịch vụ tài sản số sẽ thực hiện theo quy định của Chính phủ.
+- Ủng hộ Thủ tướng gợi ý làm tàu điện ngầm đến Cần Giờ, nhiều người ước sớm đi metro ngắm rừng ngập mặn.
+- Chiếc ô tô 7 chỗ đang chạy trên phố Nguyễn Phong Sắc (Hà Nội) bất ngờ vọt ga, tông hai cô gái văng xuống đường rồi đâm vào một ô tô đang đỗ trên vỉa hè.
+- Người đàn ông đánh đập 1 nam sinh lớp 7 ở Quy Nhơn (Bình Định) nói rằng ông nóng nảy nên có hành động không đúng và rất hối hận.
+- Chương trình đón đội tuyển bóng đá Việt Nam sẽ diễn ra vào chiều 6-1 với điểm nhấn là lễ diễu hành rước cúp vô địch ASEAN Cup 2024.
+- Kết quả khảo sát sơ bộ mức sống dân cư năm 2024 vừa được Tổng cục Thống kê công bố cho thấy thu nhập và đời sống của hộ dân cư năm qua được cải thiện.
+- Làm việc với tỉnh Gia Lai, Tổng Bí thư Tô Lâm đề nghị địa phương nhanh chóng khắc phục các khó khăn để vươn lên phát triển cùng đất nước.
+- Cùng vợ chạy xe trên phố, phát hiện ngôi nhà đang bốc cháy, không ngại nguy hiểm, một cán bộ ở Văn phòng HĐND và UBND TP Buôn Ma Thuột đã lao vào, cứu được hai trẻ nhỏ ở tầng 2.
+- Việt Nam đã có nhà máy đầu tiên sản xuất sinh phẩm từ huyết tương đặt tại Khu công nghệ cao (TP.HCM).
+- Nhiều sinh viên Trường đại học Công Thương TP.HCM phản ánh mức thu học phí môn giáo dục quốc phòng và an ninh của trường quá cao so với các trường khác.
+- Cầm túi quà Tết trên tay, người dân có hoàn cảnh khó khăn ở các quận Phú Nhuận, Bình Thạnh, Gò Vấp (TP.HCM) không giấu được sự xúc động.
+- Nhóm dân văn phòng đang ngồi ăn trưa, uống nước trà trên vỉa hè, bỗng bọc ni lông dơ theo gió ở đâu bay quấn vào mình.
+- Lăng chúa Nguyễn Phúc Khoát bị đào trộm mộ phần, nghi để trộm kho báu, cổ vật. Trung tâm Bảo tồn di tích cố đô Huế cho biết đã nắm và có báo cáo sự việc.
+- Tốc độ tăng GDP năm 2024 đạt 7,09%, nâng quy mô GDP nền kinh tế lên mức 11.512 ngàn tỉ đồng.
+- Số lượng hành khách đi metro số 1 trong hai tuần đầu đã tăng 300% so với kế hoạch ban đầu. Dịp Tết dương lịch, số lượt hành khách lên đến 275.144 lượt/ngày.
+- Phó chủ tịch Quốc hội đề nghị Bộ Công an cần phối hợp các cấp, ngành kiểm tra điều kiện kỹ thuật tín hiệu đèn, 'không để người dân bị oan'.
+- Từ ngày 1-7-2026, người tham gia bảo hiểm y tế (BHYT) khám chữa bệnh ngoại trú không đúng tuyến (không đúng cơ sở đăng ký BHYT ban đầu) tại bệnh viện tuyến tỉnh, trung ương sẽ được quỹ BHYT thanh toán 50% mức hưởng.
+- Trong lúc đo đạc để thực hiện chủ trương chuyển đổi ruộng đất, một bí thư chi bộ thôn ở Hà Tĩnh bị người cùng làng chém dẫn đến nhập viện.
+- Không chỉ góp ngân sách nhiều nhất cả nước, người dân TP.HCM còn đi đầu, đóng góp rất lớn khi cả nước cần chung tay.
+- Năm 2024, thêm một năm nữa TP.HCM vượt thu ngân sách, dẫn đầu cả nước về số ngân sách nộp về trung ương.
+- Chủ tịch Quốc hội Trần Thanh Mẫn lưu ý khối lượng công việc năm 2025 rất lớn, và trước mắt cần dồn sức cho kỳ họp bất thường dự kiến vào tháng 2-2025.
+- Đến 8h15 ngày 6-1, khu vực cầu Rạch Miễu vẫn kẹt xe nặng, vụ kẹt xe bắt đầu xảy ra từ khoảng gần 4h cùng ngày.
 - Kết quả xổ số vé bóc của Công ty TNHH MTV Xổ số kiến thiết Thừa Thiên Huế thường xuyên xuất hiện số trùng ở giải hai chữ số.
 - Một số tin tức đáng chú ý: Gần nửa triệu lượt khách đi metro số 1; Công ty may vừa bị phạt vì 'bố làm chủ tịch, con là tổng giám đốc' báo lãi kỷ lục; Sếp FLC Faros rời ghế sau 2 tháng...
 - Hôm nay 6-1, không khí lạnh chi phối thời tiết cả nước khiến miền Bắc, miền Trung rét, miền Nam mát mẻ.
@@ -1918,92 +2004,6 @@
 - Bốn mẫu tem thiết kế theo phong cách đồ họa trong bộ tem đặc biệt về "các chú bộ đội" được phát hành nhân dịp kỷ niệm 80 năm Ngày thành lập Quân đội nhân dân Việt Nam.
 - Năm 2025, Liên doanh Việt - Nga Vietsovpetro sẽ tiếp tục tinh gọn, tái cấu trúc, tái cơ cấu bộ máy.
 - Nhóm này đăng lên mạng xã hội rao bán các loại iPhone đời mới giá chỉ từ 1,5 - 3 triệu đồng. Nhưng sau đó lại lấy điện thoại cũ, hỏng gửi cho khách.
-- Các tỉnh miền Tây đang khẩn trương thực hiện chủ trương tinh gọn bộ máy. Theo kế hoạch, có sở sau sáp nhập sẽ có 6-7 phó giám đốc sở.
-- Văn phòng Chính phủ vừa có thông báo kết luận của Phó thủ tướng Chính phủ Trần Hồng Hà yêu cầu Bộ Giao thông vận tải khẩn trương triển khai các bước tiếp theo để có thể khởi công dự án mở rộng cao tốc TP.HCM - Trung Lương - Mỹ Thuận trong quý 2-2025.
-- Sáng 18-12, tại trụ sở Bộ Quốc phòng, Đại tướng Phan Văn Giang, bộ trưởng Bộ Quốc phòng, đã chủ trì lễ đón và hội đàm với Thượng tướng Khamliang Outhakaysone, bộ trưởng Bộ Quốc phòng Lào, trong khuôn khổ chuyến thăm chính thức Việt Nam.
-- Không có giấy phép hoạt động khám chữa bệnh nhưng một cơ sở cắt tóc gội đầu vẫn điều trị viêm mũi, viêm xoang với giá 'trên trời'.
-- Công an TP Huế (Thừa Thiên Huế) vừa phá tụ điểm đánh bạc qua mạng bằng hình thức xóc đĩa online.
-- Chị Phạm Thị Thu Thảo - nữ lái tàu đầu tiên của tàu điện tuyến metro số 1 - đã chia sẻ những cảm nhận của mình.
-- T. là chủ của chuỗi 7 cửa hàng chuyên kinh doanh thuốc lá, bánh kẹo, thực phẩm… ở Đà Nẵng đã bị bắt để điều tra về hành vi buôn bán hàng cấm.
-- Năm 2024, Công an TP.HCM đã xử lý 3.174 vụ án với 7.975 đối tượng về ma túy, tăng 49,5% số vụ và 75,8% số đối tượng so với cùng kỳ năm 2023.
-- Nhiều địa phương vừa công bố mức thưởng Tết dương lịch và Tết Nguyên đán 2025 của doanh nghiệp, mức tăng cao hơn năm ngoái.
-- Bộ Quốc phòng đã trả lời kiến nghị cử tri tỉnh Tiền Giang gửi đến liên quan chế tài, giải pháp quản lý chặt chẽ máy bay không người lái, thiết bị bay siêu nhẹ.
-- Tàu du thuyền AIDA Stella (quốc tịch Ý) chở hơn 2.000 khách quốc tế hôm nay đã đến cảng Dương Đông (ở phường Dương Đông, TP Phú Quốc, Kiên Giang).
-- Khu Quản lý đường bộ III vừa có văn bản đề nghị công bố quyết định tình huống khẩn cấp về thiên tai trên đèo Khánh Lê thuộc quốc lộ 27C.
-- Một xe chở gỗ lao xuống vực khi chạy trên đèo A Co của huyện A Lưới, tỉnh Thừa Thiên Huế. Đây là vụ tai nạn xe lao xuống vực thứ 2 trong tháng xảy ra ở huyện này.
-- Đó là khẳng định của thiếu tướng HỒ SỸ HẬU, nguyên cục trưởng Cục Kinh tế (Bộ Quốc phòng), trước sự quan tâm của nhân dân tới quân đội và quốc phòng.
-- Tình trạng dồn ứ giao thông, thường xuyên kẹt xe trước cổng nhiều bệnh viện trên địa bàn TP.HCM hiện nay khiến người bệnh khó khăn vất vả khi đón xe ra vào bệnh viện.
-- Một số tin tức đáng chú ý: Khối ngoại rút ròng gần 90.000 tỉ đồng trên thị trường chứng khoán Việt; Công ty chứng khoán thuộc 'họ' FLC thay kế toán trưởng 4 lần trong hơn 1 năm; Dịch sởi tại TP.HCM tiếp tục tăng, trên 300 ca mắc/tuần...
-- Hôm nay 18-12, thời tiết Bắc Bộ nhiệt độ bắt đầu tăng dần lên. Trung Bộ vài nơi mưa to, Nam Bộ sáng mát mẻ.
-- Bùi Văn Hoàng Anh bị tạm giữ hình sự liên quan vụ tấn công tài xế xe tải trên đường ĐT 741 (Bình Phước) khiến dư luận bức xúc.
-- Lần đầu tiên Nga đưa xe Typhoon-K MRAP với tên lửa Kornet-EM cũng như xe chiến đấu bộ binh BMP-3 với giáp tăng cường ra giới thiệu bên ngoài lãnh thổ, các loại khí tài này đã xuất hiện tại Triển lãm quốc phòng quốc tế Việt Nam 2024.
-- Nhiều bạn đọc bình luận về sự việc học sinh Trường tiểu học Bùi Thị Xuân (quận Liên Chiểu, TP Đà Nẵng) phải cởi áo ấm ngồi giữa sân dưới thời tiết 20 độ để dự một hoạt động chuyên đề.
-- Sở Giao thông vận tải TP.HCM vừa thông tin 17 tuyến buýt điện kết nối metro số 1 sẽ chính thức lăn bánh vào ngày 20-12, trước 2 ngày so với tuyến tàu điện đầu tiên của thành phố.
-- Đoàn lãnh đạo TP.HCM đã đến thăm, chúc mừng Giáng sinh và năm mới đến các chức sắc Công giáo, Tin Lành tiêu biểu, ghi nhận sự đóng góp của họ trong công tác xây dựng khối đại đoàn kết toàn dân.
-- Hàng loạt khí tài quân sự của Việt Nam - những sản phẩm của nền tự chủ công nghiệp quốc phòng thuộc 77 đơn vị thành viên Tổng cục Công nghiệp quốc phòng - đã xuất hiện ấn tượng trước thềm Triển lãm quốc phòng quốc tế 2024.
-- Chủ tịch Quốc hội Trần Thanh Mẫn lưu ý việc sắp xếp đơn vị hành chính tại tỉnh Bắc Giang cần gắn chặt với tinh gọn bộ máy.
-- Tài xế xe đầu kéo đang kiểm tra phía sau xe thì bị xe nâng lùi lại cán trúng tử vong tại chỗ. Lực lượng chức năng đang điều tra nguyên nhân.
-- Tiếp tục hoàn thiện chính sách khuyến khích đối với các trường hợp nghỉ việc ngay sau khi sắp xếp, tổ chức bộ máy, phù hợp với điều kiện, hoàn cảnh của đất nước.
-- Hà Văn Nhãn tự nhận là 'cò lúa' để giúp ông K. đặt cọc thu mua lúa, nhưng sau đó quay ra lừa đảo, chiếm đoạt tiền.
-- Thủ tướng Phạm Minh Chính vừa ký quyết định số 1579 ngày 17-12 thành lập Ban Chỉ đạo phòng, chống lãng phí.
-- Chủ tịch UBND TP.HCM Phan Văn Mãi định hướng xây dựng chính sách bồi thường, hỗ trợ nhà trên và ven kênh rạch theo giá thị trường đối với nhà, đất đủ điều kiện.
-- Khi có đầy đủ mặt bằng, các mũi thi công cao tốc Biên Hòa - Vũng Tàu sẽ được triển khai liên tục và vẫn đảm bảo tiến độ khi sân bay Long Thành cất cánh trong năm 2026.
-- Ngoài gây ra những gánh nặng bệnh tật, hút thuốc lá còn làm tăng gánh nặng cho nền kinh tế đất nước và gánh nặng xã hội.
-- Ngày 17-12, buổi tổng duyệt khai mạc Triển lãm quốc phòng quốc tế Việt Nam 2024 được Bộ Quốc phòng tổ chức, một trong những điểm nổi bật của buổi lễ chính là hình ảnh 61 nữ quân nhân của khối quân nhạc Quân đội nhân dân Việt Nam.
-- Ngày 17-12, Công an quận Liên Chiểu (Đà Nẵng) đã bắt giữ nghi phạm giả danh công an để lừa đảo chiếm đoạt tài sản.
-- Sở Y tế TP.HCM cho biết hiện nay tại Cảng hàng không quốc tế Tân Sơn Nhất (TP.HCM) không có đường bay thẳng từ Cộng hòa dân chủ Congo, nơi đang xảy ra dịch lạ.
-- Tổng 150 chiếc xe buýt điện kết nối metro số 1 đã hoàn thành “cập bến” ở TP.HCM, sau thời gian vận chuyển từ nhà máy tại Huế.
-- Dự án metro Nam Thăng Long - Trần Hưng Đạo của TP Hà Nội được Thủ tướng điều chỉnh chủ trương với thời hạn hoàn thành vào năm 2029. Chủ đầu tư dự kiến thi công từ năm 2025.
-- Đây là những dự kiến đã được Bộ Y tế đưa vào nghị định hướng dẫn thi hành Luật Dược sửa đổi (vừa được Quốc hội thông qua cuối tháng 11 vừa qua).
-- Việc nhà đầu tư, nhà thầu làm trạm dừng nghỉ cao tốc Phan Thiết - Dầu Giây khi chưa có thỏa thuận cấp phép thi công, đấu nối đường tạm từ trạm ra tuyến chính gây nguy cơ mất an toàn giao thông.
-- Liên quan đến vụ hai vợ chồng tại Quảng Bình bị phạt hành chính vì xúc phạm danh dự nhân phẩm của nhau, vậy xúc phạm đến mức nào sẽ bị phạt?
-- Diễn đàn Mekong Connect là dịp để các tỉnh thành phát triển tài nguyên bản địa và kinh tế địa phương thông qua liên kết vùng trong bối cảnh cạnh tranh mới.
-- Nếu không quyết liệt kiểm định khí thải xe máy sẽ khó phát triển giao thông bền vững, nâng cao chất lượng sống người dân.
-- Văn phòng Chính phủ vừa truyền đạt ý kiến của Thủ tướng Chính phủ về việc khẩn trương gỡ vướng cho dự án ngăn triều 10.000 tỉ đồng.
-- Cầu đi bộ qua sông Sài Gòn có thiết kế đặc biệt, mô phỏng lại hình dáng một chiếc lá dừa nước trôi nhẹ trên sông.
-- Ban Bí thư Trung ương Đảng đã có chủ trương đồng ý để Chủ tịch UBND tỉnh Hòa Bình Bùi Văn Khánh được nghỉ hưu trước tuổi.
-- Thứ trưởng Bộ Y tế Nguyễn Trí Thức nhấn mạnh xây dựng y tế xanh là nhiệm vụ rất quan trọng với ngành y đến năm 2030.
-- Chính phủ còn 13 bộ, 4 cơ quan ngang bộ, giảm 5 bộ và 3 cơ quan trực thuộc Chính phủ.
-- Phó thủ tướng thường trực Nguyễn Hòa Bình chủ trì cuộc họp với lãnh đạo các bộ, ngành chức năng, TP.HCM và Đà Nẵng.
-- Trong quá trình dọn dẹp đất đá ở đèo Khánh Lê trên quốc lộ 27C, lực lượng chức năng phải xử lý thêm 4 khối đá lớn nặng hơn 300 tấn.
-- Đề xuất mới quy định người lao động bị sa thải không được hưởng trợ cấp thất nghiệp có thể gây bất lợi cho người lao động.
-- Chỉ huy trưởng, cán bộ kỹ thuật… có bằng cấp đầy đủ nhưng trường đại học cấp bằng lại không biết họ là ai.
-- Công an TP Phú Quốc và Tổ 108 Công an tỉnh Kiên Giang vừa bắt Võ Minh Tường (21 tuổi) liên quan vụ án giết người.
-- Trên toàn cầu, TP.HCM xếp thứ 111 trong số 1.000 thành phố có hệ sinh thái khởi nghiệp đổi mới sáng tạo tốt nhất.
-- Mặt đường quốc lộ 14B qua huyện Hòa Vang (Đà Nẵng) hư hỏng nặng với chi chít ổ voi, ổ gà, khiến việc đi lại của người dân gặp khó khăn.
-- Sau 2 năm kể từ khi dự án nâng cấp, mở rộng quốc lộ 9 bị World Bank cắt vốn do chậm tiến độ, tỉnh Quảng Trị yêu cầu các đơn vị làm rõ trách nhiệm.
-- Sáng 17-12, Bộ Quốc phòng đã có buổi tổng duyệt lễ khai mạc Triển lãm Quốc phòng quốc tế Việt Nam 2024.
-- Dự án vành đai 4 TP.HCM là một công trình mang tính chiến lược, thúc đẩy sự phát triển đột phá cho vùng Đông Nam Bộ.
-- Khoảng 100 người ở Lai Châu được huy động, xuyên đêm tìm bé gái 2 tuổi đi lạc (mất tích) sau khi tan học về nhà.
-- Đó là nhấn mạnh của Phó thủ tướng Trần Hồng Hà khi làm việc với Bộ Xây dựng, Bộ Giao thông vận tải về phương án hợp nhất hai bộ.
-- Tăng cường công tác kiểm dịch y tế tại sân bay quốc tế Nội Bài, theo dõi chặt chẽ tình hình dịch bệnh trên thế giới, tại Việt Nam và Hà Nội.
-- Sở Giao thông vận tải vừa báo cáo UBND TP.HCM về đầu tư xây dựng tạm bến thủy tiếp giáp khu đất nhà ga Ba Son của tuyến metro số 1.
-- Ngày 17-12, Tổng cục Quản lý thị trường đã tổ chức hội nghị tổng kết công tác năm 2024 và triển khai nhiệm vụ năm 2025.
-- Sáng 17-12, Tổng công ty Điện lực TP.HCM tổ chức lễ gắn biển công trình “Cải tạo trạm biến áp 110kV Chợ Lớn”.
-- Báo Tuổi Trẻ cùng nhà tài trợ đã trao 200 suất học bổng "Gieo mầm tri thức" cho học trò Cà Mau, tiếp bước các em đến trường.
-- Giám đốc Sở Tài nguyên và Môi trường TP.HCM cho rằng việc sắp xếp bộ máy và giảm đầu mối giúp tối ưu hóa hiệu quả công việc.
-- Không chỉ dừng lại ở khuyến khích sinh đủ hai con, mà còn phải hỗ trợ nhiều hơn cho các gia đình sinh thêm con thứ ba.
-- Xe máy trên 5 tuổi phải kiểm định khí thải định kỳ. Cơ quan chức năng đã tính toán giải pháp gì để tránh nguy cơ ùn tắc tại cơ sở kiểm định.
-- Công an đã mời người hành hung tài xế xe tải khi dừng đèn đỏ trên đường ĐT 741 (Bình Phước) lên làm việc.
-- Đại tướng Phan Văn Giang, bộ trưởng Bộ Quốc phòng, hội đàm với Trung tướng Khrenin Viktor Gennadievich, bộ trưởng quốc phòng Belarus.
-- Cơ quan chức năng vừa bắt khẩn cấp tài xế ô tô đánh người trước cổng Bệnh viện Từ Dũ, TP.HCM. Xử phạt hành vi này ra sao mới đủ răn đe?
-- Sở Giao thông vận tải TP.HCM đề xuất bố trí vốn để đầu tư dự án tại một số vòng xoay, nút giao thông phức tạp.
-- "Khi đứng trước cơ hội làm giàu dễ dàng, hãy tỉnh táo tự hỏi có gì bất bình thường không, cơ sở nào kiếm nhiều tiền vậy và vì sao lãi vậy lại mời tôi?".
-- Theo thông tư 47/2024 của Bộ GTVT, chủ mô tô, xe máy sản xuất từ 5 năm trở lên bắt buộc phải mang xe đi kiểm định khí thải từ 1-1-2025.
-- Từ khi xây dựng nông thôn mới, người dân thay đổi tư duy, chuyển sang mô hình đa canh, đa con nên đời sống dần khá lên.
-- Tội cố ý gây thương tích hoặc gây tổn hại cho sức khỏe của người khác theo điều 134 Bộ luật Hình sự có thể bị phạt tù từ 6 tháng đến 3 năm.
-- Sáng sớm 17-12, tại TP.HCM nhiệt độ xuống thấp chỉ còn 21 độ C, đi ngoài đường mọi người có cảm giác mát mẻ, se lạnh hiếm hoi.
-- Theo thông báo mới nhất từ ban tổ chức Triển lãm Quốc phòng quốc tế Việt Nam 2024, người dân có thể vào tham quan triển lãm từ 9h ngày 21-12, sớm hơn lịch ban đầu là 13h30.
-- Tin tức đáng chú ý: Đề nghị xử lý việc lấn chiếm quanh ga metro số 1; Việt Nam sẽ có 6 bệnh viện ngang tầm quốc tế; Sửa quy định về thẩm quyền của cảnh sát môi trường...
-- Hôm nay 17-12, thời tiết Bắc Bộ tiếp tục rét, Trung Bộ mưa to đã giảm, Nam Bộ hửng nắng, sáng mát mẻ, trời mù.
-- Tổng Bí thư Tô Lâm yêu cầu Quân ủy Trung ương đặc biệt quan tâm lãnh đạo xây dựng Đảng bộ Quân đội trong sạch, vững mạnh, gương mẫu, tiêu biểu.
-- Do không biết đường và có nguy cơ gặp cảnh ùn tắc, tài xế đã liên hệ tổ cảnh sát giao thông để được hỗ trợ đưa một bé trai đến Bệnh viện Nhi trung ương.
-- Triều cường tháng mười một âm lịch đạt đỉnh, gây ngập kéo dài vào giờ tan tầm tại một số tuyến đường ở TP.HCM khiến người dân chật vật.
-- Sau khi sáp nhập, tinh gọn bộ máy, dự kiến số đầu mối các cơ quan của Quốc hội, cơ quan thuộc Ủy ban Thường vụ Quốc hội sẽ giảm gần 36%.
-- Xe máy cũ không biển số (xe mù), trong đó có những xe cũ nát chở hàng cồng kềnh, vẫn chạy trên nhiều con đường ở TP.HCM.
-- Đoàn đại biểu TP.HCM do Bí thư Thành ủy TP.HCM làm trưởng đoàn đến thăm và chúc mừng cộng đồng Công giáo nhân dịp Giáng sinh và Tết dương lịch.
-- Hạn mặn mùa khô 2024-2025 dự báo có xu thế tăng nhanh và xâm nhập sâu vào nội đồng.
-- Chủ hụi bị khởi tố, bắt giam sau khi phiên tòa xét xử tranh chấp dân sự và phát hiện có dấu hiệu của tội phạm lừa đảo chiếm đoạt tài sản.
 ![New](News.png)
 ## Nhịp sống số 
 - Ngày 3-1, Google thông báo đã thanh toán 100 triệu CAD (tương đương 69 triệu USD) cho các cơ quan báo chí Canada để sử dụng nội dung thông tin trên nền tảng này.
