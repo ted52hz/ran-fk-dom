@@ -1,8 +1,16 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
-- TS Trần Hoàng Dũng - giáo sư trợ lý tại Đại học Nebraska-Lincoln (Mỹ), được trao giải nhất SIU Prize Computer Science với những đóng góp xuất sắc trong lĩnh vực hệ thống thực - ảo tự học.
-- Học sinh thích thú khi gặp chú chó robot biết thả tim, cùng vẽ tranh, mở quà 'túi mù'… trong chương trình tư vấn tuyển sinh đang diễn ra tại Đà Nẵng.
+- Năm 2025, Trường đại học Y Hà Nội dự kiến sẽ mở thêm 2 ngành đào tạo mới, gồm ngành công tác xã hội và ngành kỹ thuật hình ảnh y học.
+- Đây là chia sẻ của Bộ trưởng Bộ Giáo dục và Đào tạo Nguyễn Kim Sơn tại lễ công bố quyết định của Thủ tướng Chính phủ chuyển Trường đại học Kinh tế quốc dân thành Đại học Kinh tế quốc dân sáng 12-1.
+- Vượt qua hơn 25.000 thí sinh, một sinh viên đã nhận được giải thưởng tiền mặt trị giá 1 tỉ đồng từ chương trình thực tế về quản lý tài chính cá nhân.
+- Nhiều học sinh ở Gia Lai lo tỉ lệ đậu tốt nghiệp THPT và đại học quá cao sẽ ảnh hưởng đến cơ hội tìm việc, lo sáp nhập sẽ kéo giảm nhu cầu nhân lực...
+- Học ngành sư phạm ngoại ngữ có nhiều cơ hội việc làm không; Học ngành gì khi Đà Nẵng sắp lập khu thương mại tự do... Học sinh thắc mắc khi đến Chương trình tư vấn tuyển sinh - hướng nghiệp tại Đà Nẵng sáng 12-1.
+- Đề thi tốt nghiệp có dễ hơn khi siết dạy thêm? Cơ hội việc làm các ngành ra sao khi nhiều nơi đang tinh gọn?... Học sinh băn khoăn tại Chương trình tư vấn tuyển sinh - hướng nghiệp diễn ra ở Thanh Hóa.
+- Học liên ngành, sinh viên ra trường có thể tiếp cận nhiều vị trí công việc khác nhau, có thêm nhiều kỹ năng về đổi mới sáng tạo, phân tích dữ liệu.
+- Nhiều băn khoăn, thắc mắc của thí sinh, phụ huynh về tuyển sinh đại học năm nay đã được đại diện Vụ Giáo dục đại học giải đáp cặn kẽ trong bốn buổi tư vấn đầu tiên của Chương trình tư vấn tuyển sinh - hướng nghiệp 2025.
+- TS Trần Hoàng Dũng - giáo sư trợ lý tại Đại học Nebraska-Lincoln (Mỹ) - được trao giải nhất SIU Prize Computer Science với những đóng góp xuất sắc trong lĩnh vực hệ thống thực - ảo tự học.
+- Học sinh thích thú khi gặp chú chó robot biết thả tim, được mở quà 'túi mù'… trong chương trình tư vấn tuyển sinh đang diễn ra tại Đà Nẵng sáng nay 12-1.
 - Chiều 11-1, Viện phát triển nguồn lực xã hội Phương Nam (Viện Phương Nam) ký kết thỏa thuận hợp tác với Trường đại học Khoa học, Đại học Huế.
 - Nhiều học sinh tỏ ra lo lắng với thông tin đề thi tốt nghiệp THPT năm 2025 sẽ khó hơn năm trước. Đại diện Bộ Giáo dục và Đào tạo đã ‘mách nước” cách học, ôn tập và làm tốt bài thi này.
 - Nhiều thí sinh thắc mắc những ngành học nào ở miền Trung đang 'hot', có nhu cầu nhân lực cao để chọn học và tăng cơ hội việc làm sau khi ra trường.
@@ -993,17 +1001,46 @@
 - 'Bạn không học được, cần bằng đã có người thi hộ. Người thật, thi thật, nói không với chứng chỉ giả. Bảo hành kết quả trọn đời, không đạt hoàn 200% phí'. Đó là một trong những kiểu mời chào hấp dẫn có trên mạng xã hội.
 - Thấy nguy cơ sạt lở đất đá vào ký túc xá rất cao, cô giáo Bùi Thị Châm buông đũa bữa cơm trưa chạy lên ký túc xá gọi học sinh đi sơ tán. 10 phút sau, đất đá đổ xuống ầm ầm, 3 phòng bị phá nát.
 - Do mưa lũ kéo dài nhiều ngày qua làm sạt lở đất đá vào khu ký túc xá, chiều 22-9, chính quyền xã Trung Lý, huyện Mường Lát và nhà trường đã di dời khẩn cấp 214 học sinh đến nơi an toàn.
-- Quả đồi sau Trường tiểu học Quang Trung (huyện Đạ Tẻh, tỉnh Lâm Đồng) đã lở lói, đất đá tràn tứ tung, nguy cơ sạt lở, uy hiếp sự an toàn gần 600 học sinh.
-- Kình ngư Hán Quang Thoại (35 tuổi, vận động viên Para Games) dành thời gian dạy bơi và lịch sử miễn phí cho trẻ mồ côi ở mái ấm.
-- Việc phải làm sao có môi trường nói tiếng Anh ngay trong nhà trường, rồi ở mức cao hơn là ở ngoài xã hội là vấn đề còn bỏ ngỏ.
-- Việc tổ chức quá nhiều cuộc thi học thuật, kỹ năng, đã và đang trở thành vấn đề gây tranh cãi.
-- Sách giáo khoa cũng là thứ được nhiều cá nhân, các nhóm thiện nguyện tính đến trong danh mục hàng cứu trợ gửi đến các địa phương vùng bị bão lũ.
-- Sau giờ học, nam sinh lớp 11 Trường THPT Bù Đăng ra khỏi trường thì bị một học sinh cùng trường và bạn đánh gây chấn thương, gãy 4 chiếc răng.
-- Chủ tịch hội đồng trường và hiệu trưởng Trường đại học Kinh Bắc (Bắc Ninh) phát hiện con dấu pháp nhân của trường không còn ở nơi lưu trữ.
-- Ngày 21-9, Chủ tịch UBND huyện Châu Đức (tỉnh Bà Rịa - Vũng Tàu) cho biết huyện đã có quyết định thanh tra toàn diện Trường mầm non Ánh Dương.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Học sinh thích thú khi gặp chú chó robot biết thả tim, cùng vẽ tranh, mở quà 'túi mù'… trong chương trình tư vấn tuyển sinh đang diễn ra tại Đà Nẵng.
+- Chủ bãi xe 39 làm trên đất lúa ở quận Bình Tân vừa bị Chủ tịch UBND TP.HCM xử phạt và buộc nộp lại số lợi bất hợp pháp tổng cộng hơn 13,6 tỉ.
+- Xe hơi Mercedes băng qua đường rồi bất ngờ lao xuống biển ở TP Nha Trang, thời điểm xảy ra sự việc trên xe có 5 người.
+- Sáng 13-1, Tổng Bí thư Tô Lâm cùng nhiều lãnh đạo dự hội nghị toàn quốc về đột phá phát triển khoa học, công nghệ, đổi mới sáng tạo và chuyển đổi số quốc gia.
+- Va chạm xảy ra giữa ô tô tải và xe máy đi cùng chiều ở đường dẫn lên cầu Nhật Tân (Đông Anh, Hà Nội). Cú tông khiến xe máy biến dạng, 3 người tử vong.
+- Sáng 13-1, thời tiết Nam Bộ lạnh nhất từ đầu mùa, TP.HCM có nhiệt độ giảm xuống mức khoảng 19 độ C.
+- Người dân ở TP.HCM tất bật chuẩn bị hành trình về quê đón Tết. Những ngày qua, nhiều lực lượng đang dồn sức phục vụ bà con đi lại thuận tiện nhất có thể.
+- Chịu ảnh hưởng của không khí lạnh mạnh nhất từ đầu mùa, sáng sớm nay (13-1), nhiệt độ tại Hà Nội xuống 7,3 độ C, thấp nhất từ đầu mùa đông.
+- Một chiếc xe tải chở lá dong lao vào cửa hàng tạp hóa bên đường khiến 6 người chết ở huyện Kỳ Sơn, Nghệ An.
+- Cảnh sát giao thông sẽ rà soát tổng thể hệ thống đèn tín hiệu, từ đó kiến nghị thay thể, sửa chữa những cụm đèn hư hỏng. Mục tiêu là người dân đi lại được thông suốt; việc xử lý vi phạm chính xác, đúng hành vi.
+- Tin tức đáng chú ý: Bộ Tài chính nghiêm cấm biếu, tặng quà Tết cho lãnh đạo dưới mọi hình thức; Toàn quốc còn khoảng 240.000 căn nhà tạm, nhà dột nát, cần tập trung hỗ trợ năm 2025; Tân An là thành phố đầu tiên đạt chuẩn đô thị văn minh...
+- Hôm nay 13-1, nhiệt độ Bắc Bộ xuống rất thấp, thời tiết rét đậm rét hại. Miền Nam sáng sớm trời lạnh kèm gió, miền Trung mưa vài nơi.
+- Nhiều sở vẫn giữ nguyên tên gọi theo định hướng sắp xếp của Trung ương khi thực hiện sắp xếp, tinh gọn bộ máy.
+- Lực lượng của Phòng Cảnh sát giao thông Quảng Nam vừa phát hiện một vụ vận chuyển 16 xe mô tô và một ô tô không rõ nguồn gốc trên tuyến đường Hồ Chí Minh.
+- Nhân dịp Tết Ất Tỵ năm 2025, Phó bí thư Thành ủy, Chủ tịch MTTQ Việt Nam TP.HCM Nguyễn Phước Lộc đã đến thăm, chúc Tết người cao tuổi và trẻ mồ côi tại quận 3.
+- Thủ tướng phê bình Bộ Xây dựng, Bộ Tài chính và 9 tỉnh, thành phố chậm trễ ban hành văn bản hướng dẫn, kế hoạch hành động phục vụ công tác xóa nhà tạm, nhà dột nát.
+- Chợ quê Bến Nhứt có vị trí cặp sông Cái Bé (huyện Giồng Riềng, Kiên Giang) và mở bán ngày thứ bảy, chủ nhật của tuần.
+- Người đàn ông ở TP Long Xuyên, tỉnh An Giang lười lao động nên đã đi cướp vé số của người già rồi đem bán lấy tiền tiêu xài.
+- Một phiên chợ đặc biệt dành cho người nghèo ở vùng biên giới Nậm Pồ (Điện Biên) có đủ mặt hàng thiết yếu cho bà con sắm Tết không mất tiền.
+- Nhiều người cho biết việc bắt xe Grab tại TP.HCM gặp nhiều khó khăn những ngày qua, nhiều thời điểm không thể đặt xe.
+- Theo Cục Cảnh sát giao thông, nghị định 168 có hiệu lực phù hợp với quy định của Luật Ban hành văn bản quy phạm pháp luật.
+- Trước khi bị công an bắt giữ cùng với số lượng lớn ma túy, Mùa Bá Vừ được biết đến là một chủ tịch xã trẻ, nhiệt tình ở địa phương.
+- Sở Giao thông vận tải TP.HCM cho biết sẽ có buổi họp để đánh giá lại tình hình giao thông TP những ngày qua, cũng như phương hướng tổ chức lại giao thông, đèn tín hiệu giao thông tốt nhất.
+- Sáng 12-1, tại khuôn viên Bệnh viện Chợ Rẫy, các bệnh nhân, thân nhân được cắt tóc, gội đầu, chụp ảnh, nhận quà Tết để đón năm mới.
+- Đại diện Cục Cảnh sát giao thông (Bộ Công an) cho biết các cơ quan đang phối hợp để xây dựng văn bản hướng dẫn chi tiết về cơ chế, mức hỗ trợ báo tin vi phạm giao thông.
+- Nhiều người bức xúc khi xem clip một người đàn ông hái hoa công viên tại Nha Trang, khi bị nhắc nhở đã lấy kiếm ra hù dọa.
+- Sáng 12-1, TP.HCM tổ chức lễ phát động kêu gọi người dân trở thành công dân số để kết nối nhanh chóng với chính quyền, thông qua ứng dụng Công dân số.
+- Sáng nay 12-1, nhiều nơi ở Nam Bộ nhiệt độ giảm mạnh, trời lạnh kèm theo gió khiến nhiều người dân cảm thấy thích thú.
+- Chủ tịch Quốc hội Trần Thanh Mẫn thăm hỏi và tặng quà Tết cho nhiều hộ gia đình chính sách, người nghèo, công nhân có hoàn cảnh khó khăn tại Hậu Giang.
+- Chiếc ghe cá đang neo ở khu vực Bến Đá, phường 5, Vũng Tàu bất ngờ bốc cháy, hư hỏng nặng.
+- Kéo dài 74km từ Đà Nẵng hướng lên các tỉnh Tây Nguyên, quốc lộ 14B đoạn qua Quảng Nam đang nát bấy khiến xe cộ phải bò từng đoạn.
+- Truyền thống tặng quà Tết của người Việt xưa nay ngày càng bị nhiều người biến tướng thành tệ nạn xấu xí.
+- Sáng 12-1, băng giá bao phủ trên các đỉnh núi cao của Tây Bắc như Tà Xùa (Yên Bái), Lảo Thẩn (Lào Cai).
+- Tuần này thời tiết Bắc Bộ vẫn rét đậm do không khí lạnh, Trung Bộ có đợt mưa to, Nam Bộ ngày nắng.
+- Những ngày qua, tình trạng chạy xe leo vỉa hè đã giảm đáng kể. Tuy nhiên, vỉa hè vẫn chưa thật sự thông thoáng vì hàng rong vẫn bát nháo lấn chiếm.
+- Những ngày cuối năm, lượng xe cộ đi lại tăng cao. Bên cạnh đó, nghị định 168 thay đổi ý thức người dân rất tích cực nhưng việc không được rẽ phải khi đèn đỏ cũng khiến dòng xe ùn ứ.
+- Luật không quy định xe cộ phải 'vượt đèn đỏ' để nhường đường cho xe ưu tiên. Vậy xử lý thế nào trong tình huống này?
+- Cháy rừng phòng hộ ở Phú Quốc trong đêm, ước thiệt hại khoảng 5.000m².
+- Bộ Nội vụ đã đề xuất mốc thời gian cụ thể hoàn thành các nhiệm vụ liên quan tinh gọn bộ máy của các bộ, ngành, cơ quan thuộc Chính phủ.
 - Tin tức đáng chú ý: Đề xuất bổ sung Chính phủ được ban hành nghị quyết quy phạm để giải quyết các vấn đề cấp bách; Lại thêm sếp Thuduc House từ nhiệm; Gần Tết ô nhiễm ở TP.HCM tăng...
 - Hôm nay 12-1, không khí lạnh chi phối toàn bộ thời tiết nước ta, miền Bắc rét đậm rét hại, miền Trung mưa rét, miền Nam sáng sớm se lạnh.
 - Du lịch Phú Yên những năm qua được sự quảng bá hiệu quả của các bộ phim ăn khách. Tỉnh đang hướng đến là 'đại phim trường' thu hút nhiều đoàn làm phim.
@@ -1967,43 +2004,6 @@
 - Sở Thông tin và Truyền thông TP.HCM phát động cuộc thi tìm kiếm nhà sáng tạo nội dung, chủ đề 'Chạm đến tương lai cùng metro'.
 - Do ảnh hưởng của vùng áp thấp ở nam Biển Đông kết hợp với không khí lạnh nên từ ngày 23 đến 26-12, ở Trung Trung Bộ và Nam Trung Bộ có mưa to đến rất to.
 - Bệnh viện Bạch Mai vừa có thông tin về tình hình sức khỏe của 4 nạn nhân vụ cháy quán cà phê trên đường Phạm Văn Đồng (Hà Nội).
-- Cơ quan cảnh sát điều tra Công an TP Hà Nội đã phối hợp Cảnh sát Interpol ra quyết định truy nã quốc tế đối với Mr. Hunter Lê Khắc Ngọ.
-- 2 người tử vong và 14 người nhập viện nghi do ngộ độc, sau khi tham dự sự kiện tại một trung tâm hội nghị ở phường Phúc Lợi (quận Long Biên, Hà Nội).
-- Từ năm 2025, Đà Nẵng sẽ đầu tư mạnh vào việc điều tiết nước tại sân bay Đà Nẵng để chống ngập cho trung tâm thành phố.
-- Lãnh đạo Thành ủy TP.HCM nhấn mạnh sự đóng góp của Bộ Tư lệnh TP.HCM với sự phát triển của TP.HCM, tin tưởng đơn vị sẽ tiếp tục làm tốt việc tham mưu trong các nhiệm vụ sắp tới.
-- Dự kiến, tổ chức công đoàn sẽ xây dựng các khu nhà ở công nhân ở các tỉnh đông lao động như Bắc Giang, Hưng Yên…
-- Theo thông tin từ ban tổ chức Triển lãm quốc phòng quốc tế Việt Nam 2024, bắt đầu từ 9h ngày mai 21-12, người dân có thể vào tham quan triển lãm tại sân bay Gia Lâm, Long Biên, Hà Nội.
-- Công an TP Huế (tỉnh Thừa Thiên Huế) vừa phát hiện và ngăn chặn một cơ sở trồng giá đỗ bằng hóa chất.
-- Dịp Giáng sinh 2024, miền Bắc rét, khu vực Trung và Nam Trung Bộ, các tỉnh Tây Nguyên có khả năng xảy ra mưa, còn Nam Bộ có mưa rào và dông.
-- Tại buổi họp báo của UBND TP Đà Nẵng ngày 20-12, lãnh đạo Sở Xây dựng Đà Nẵng đã trả lời câu hỏi của phóng viên liên quan đến siêu dự án Cocobay.
-- Tính đến nay, Quân đội nhân dân Việt Nam đã có 11 Bộ trưởng Bộ Quốc phòng.
-- Giám đốc Sở Giao thông vận tải TP.HCM Trần Quang Lâm nhấn mạnh cần chuẩn bị kỹ để triển khai nhanh 5 dự án BOT mở rộng cửa ngõ TP.HCM tại hội nghị chiều 20-12.
-- Luật Sĩ quan Quân đội nhân dân Việt Nam mới giao Chính phủ quy định tiêu chí, tiêu chuẩn để xét thăng quân hàm sĩ quan cấp tướng vượt bậc.
-- Chiều 20-12, tại trụ sở Tập đoàn Công nghiệp cao su Việt Nam (Q.3, TP.HCM) đã diễn ra buổi họp mặt báo chí và trao giải Giải báo chí viết về ngành cao su Việt Nam lần IV - năm 2024.
-- Bộ Nội vụ nêu rõ nhiệm vụ đặc biệt quan trọng năm 2025 của toàn ngành là triển khai thực hiện hợp nhất với Bộ Lao động - Thương binh và Xã hội.
-- Ngành y tế tỉnh Thái Nguyên đang làm rõ hai ca ngộ độc nghi ngờ do độc chất xảy ra tại xóm Kim Bảng, xã Tân Khánh, huyện Phú Bình.
-- Nhiều nhà vườn ở tỉnh Kiên Giang, An Giang đang tất bật chăm sóc hoa Tết chuẩn bị cho một vụ hoa xuân rực rỡ, nhưng cùng với đó cũng là những nỗi lo.
-- Theo quyết định mới, bảng giá đất hiện hành sẽ được điều chỉnh và tiếp tục có hiệu lực áp dụng từ ngày 1-1-2020 đến ngày 31-12-2025.
-- Lãnh đạo Thành ủy TP.HCM cho rằng trong sự phát triển của TP.HCM luôn có sự quan tâm, hỗ trợ và đóng góp quan trọng từ Quân khu 7.
-- Thứ trưởng Đỗ Xuân Tuyên cho hay theo quy định mới, trong một số trường hợp, người bị bệnh hiếm, bệnh hiểm nghèo được lên thẳng tuyến trên.
-- Đường Trần Hưng Đạo, thành phố Phú Quốc thời gian gần đây quá tải khi xe ô tô có lúc đậu hàng dài dưới lòng đường chờ đón khách. Thành phố sẽ làm gì?
-- UBND tỉnh Khánh Hòa ra công điện khẩn để người dân chủ động ứng phó mưa lớn trong những ngày sắp tới.
-- Sau 1 ngày được giặm vá, các ổ gà trên quốc lộ 1 đoạn từ TP Quảng Ngãi đến thị trấn La Hà lại 'hiện nguyên hình'.
-- Sau bài viết 'Cô giáo tình nguyện ngày ngày đưa trò tới lớp' đăng trên Tuổi Trẻ Online, cả cô và trò được bí thư Huyện ủy Hòa Vang (TP Đà Nẵng) tuyên dương và trao hỗ trợ.
-- Bộ Y tế đã trình Chính phủ đề án đề xuất cơ chế đặc thù để sớm đưa Bệnh viện Việt Đức, Bạch Mai cơ sở 2 hoạt động vào năm 2025.
-- UBND TP Hà Nội quyết định bắn pháo hoa ở 5 điểm chào Tết dương lịch 2025 và 30 điểm bắn chào Tết Nguyên đán Ất Tỵ.
-- Ngày 20-12, Tỉnh ủy Phú Yên tổ chức Hội nghị lần thứ 18 (đợt 2) lấy ý kiến góp ý dự thảo (lần 1) văn kiện Đại hội Đảng bộ tỉnh Phú Yên lần thứ XVIII, và công bố quyết định của Ban Bí thư Trung ương Đảng về công tác cán bộ.
-- Xây cầu cạn là giải pháp tốt nhất, rẻ nhất để khắc phục tình trạng thiếu cát sông, đất đắp nền cao tốc tại Đồng bằng sông Cửu Long?
-- Quảng Trị giao các sở, địa phương rà soát lại các trụ điện gió trồng sai vị trí nhưng không liên quan rừng phòng hộ thì điều chỉnh quy hoạch sử dụng đất, với trụ trong đất rừng phòng hộ thì khắc phục thiết sót.
-- Theo các chuyên gia, với mục tiêu đánh giá công tâm, xem xét việc kiểm soát quyền lực nhà nước đang là vấn đề quan trọng và cấp thiết trong bối cảnh Việt Nam hiện nay.
-- Có nhiều người lớn tuổi vẫn không ngừng học hỏi, tìm hiểu các công nghệ mới. Như mẹ tôi, đã 75 tuổi cũng bắt đầu mua sắm trên mạng và 'chốt đơn' không thua kém gì giới trẻ.
-- Đại diện Bộ Ngoại giao khẳng định tinh gọn bộ máy không ảnh hưởng tới thực hiện các thủ tục và quy trình đầu tư tại Việt Nam.
-- Một phó bí thư đảng ủy xã ở huyện Mường Chà, Điện Biên sẽ được trợ cấp gần 400 triệu sau khi nghỉ việc do tinh giản biên chế.
-- Cảnh sát giao thông TP.HCM hỗ trợ vận chuyển an toàn hai giác mạc, một lá gan, hai quả thận để ghép cho bệnh nhân đang chờ.
-- Một chủ quán nhậu thịt chó, mèo ở Bà Rịa - Vũng Tàu đã tử vong vì bệnh dại. Trong khi đó nhiều người khác cũng bị chó thả rông, vô chủ, nghi dại cắn.
-- Triển khai công tác dân vận phải quan tâm các chỉ số tăng trưởng phát triển của TP, bởi mọi chỉ tiêu dù nhỏ cũng tác động rất lớn đến kinh tế - xã hội TP và sự thụ hưởng của nhân dân.
-- Đó là khẳng định của lãnh đạo Đà Nẵng về sai phạm tại dự án tổ hợp khách sạn Mường Thanh - căn hộ cao cấp Sơn Trà.
-- Sau khi hoán đổi, 2 lô đất này sẽ được TP Đà Nẵng sử dụng phục vụ cho dự án nâng cấp và cải tạo công viên 29-3.
 ![New](News.png)
 ## Nhịp sống số 
 - Ngày 3-1, Google thông báo đã thanh toán 100 triệu CAD (tương đương 69 triệu USD) cho các cơ quan báo chí Canada để sử dụng nội dung thông tin trên nền tảng này.
