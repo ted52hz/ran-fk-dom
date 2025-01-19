@@ -1,6 +1,19 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Trường THPT chuyên Lê Hồng Phong (TP.HCM) dẫn đầu bảng xếp hạng các Trường THPT kỳ thi học sinh giỏi quốc gia năm học 2024-2025.
+- Có những phụ huynh muốn con luôn phải giỏi, phải hơn người, con làm bài điểm 9 thì hỏi: 'Thế học sinh cao điểm nhất lớp là mấy điểm?'...
+- Tối 18-1, Trường THPT Nguyễn Thị Minh Khai (quận 3, TP.HCM) đã tổ chức đêm nhạc hội Tuổi Hồng lần thứ 29 với dàn sao khủng, thu hút hơn 4.000 khán giả tham gia.
+- Nhiều học sinh tại quận Gò Vấp, TP.HCM đã cùng cha mẹ đến học gói bánh chưng, bánh tét để cảm nhận không khí Tết Nguyên đán đang đến thật gần.
+- Nhiều sinh viên quốc tế thích thú khi tự tay viết thư pháp, gói bánh chưng, chơi các trò chơi dân gian, ăn tất niên và tìm hiểu Tết Việt.
+- Tại buổi ra mắt cuốn sách 'Dạy con trong hạnh phúc' ngày 18-1, tác giả Bùi Gia Hiếu đã khuyên các phụ huynh không nên cho con xem TikTok.
+- Khi còn giữ chức vụ hiệu trưởng Trường đại học Sư phạm Huế, ông Lê Anh Phương (giám đốc Đại học Huế) cùng cấp dưới đã chiếm đoạt của sinh viên hơn 2,6 tỉ đồng.
+- 400 học sinh có hoàn cảnh đặc biệt tại TP.HCM sẽ được cấp học bổng học tập toàn diện, bền vững, bắt đầu từ năm 2025.
+- Chiều 18-1, kỳ thi đánh giá tư duy đợt 1 của Đại học Bách khoa Hà Nội chính thức diễn ra. Đợt thi này có khoảng 14.000 thí sinh dự thi, đây cũng là đợt thi khởi động cho mùa xét tuyển đại học năm 2025 trên cả nước.
+- Ngày 18-1, Bộ Giáo dục và Đào tạo công bố kết quả chấm thi chọn học sinh giỏi quốc gia năm 2025.
+- Sáng 18-1, Trường THPT Lê Quý Đôn (quận 3, TP.HCM) đã tổ chức lễ kỷ niệm 150 năm thành lập trường.
+- Ông Lê Anh Phương, giám đốc Đại học Huế, vừa bị Công an TP Huế khởi tố, bắt tạm giam để điều tra về tội lạm dụng chức vụ, quyền hạn chiếm đoạt tài sản.
+- Bị các đối tượng lừa đảo thao túng và đe dọa, sinh viên một trường đại học ở TP.HCM nhiều lần xin gia đình chuyển khoản 1,1 tỉ đồng.
 - Bộ trưởng Bộ Giáo dục và Đào tạo Nguyễn Kim Sơn đã có trả lời về đề nghị quan tâm điều chỉnh hệ số lương của giáo viên mầm non cũng như có chế độ với cô nuôi.
 - Một chương trình nhiều sách giáo khoa được áp dụng khi triển khai Chương trình giáo dục phổ thông 2018.
 - Gia sư là một trong những công việc phổ biến của sinh viên để kiếm thêm thu nhập. Khi các nền tảng dạy từ xa trở nên phổ biến, nhiều gia sư cũng dạy online, nhưng lại gặp phải tình trạng éo le: bị quỵt tiền.
@@ -988,23 +1001,36 @@
 - "Chiếc xe đạp cũ mà hai chị em hằng ngày đi học bị mái tôn rơi vào làm hư hỏng, không còn đi được nữa. Em mong có chiếc xe đạp mới để hai chị em đèo nhau đi học".
 - Liên quan đến những thông tin học sinh tại điểm trường Màng Mủ ăn cơm gừng chấm muối, huyện Mù Cang Chải (Yên Bái) vừa có báo cáo sự việc lên UBND tỉnh Yên Bái.
 - Ông Nguyễn Viết Hiển, giám đốc Sở Giáo dục và Đào tạo Thái Bình, bị cách chức vì liên quan đến sai phạm trong công tác tổ chức thi tuyển sinh vào lớp 10 THPT năm học 2024 - 2025.
-- Ông Lê Hoài Nam, phó giám đốc Sở Giáo dục và Đào tạo TP.HCM, nhận xét như vậy về một số mặt còn tồn tại của không ít trung tâm ngoại ngữ, tin học tại TP.HCM hiện nay.
-- Cô giáo Bùi Thị Châm - giáo viên Trường Phổ thông dân tộc bán trú THCS Trung Lý, huyện Mường Lát - vừa được giám đốc Sở Giáo dục và Đào tạo Thanh Hóa khen thưởng vì giúp học sinh tránh sạt lở đất.
-- Năm học 2024 - 2025 mới bắt đầu, hàng loạt giáo viên tại Đắk Lắk bỗng thành "con nợ" do cấp trên chi sai phụ cấp ưu đãi.
-- Một trường tiểu học cấp giấy khen cho học sinh đóng góp ủng hộ vùng ảnh hưởng bão lũ từ 100.000 đồng trở lên gây xôn xao dư luận.
-- Thực tế cho thấy thời gian qua nhiều trường tiểu học và trung học ở TP.HCM và nhiều địa phương đã có những đổi mới trong dự giờ.
-- Mới đây một phụ huynh ở Hà Nội lên mạng xã hội bày tỏ bức xúc vì phải đến trường của con để trực nhật sau 17h.
-- Phu nhân Ngô Phương Ly như hòa cùng các em học sinh của Trường tiểu học Võ Thị Thắng ở Cuba. Có giây phút bà như nghẹn ngào, ôm chầm một em học sinh và dặn dò cố gắng học tập.
-- Báo Tuổi Trẻ phối hợp với Tỉnh đoàn Lạng Sơn trao 150 suất học bổng 'Ngăn dòng bỏ học'  cho học sinh bị ảnh hưởng bởi bão số 3 tại huyện Tràng Định và Văn Lãng.
-- 4 trường quốc tế ở TP.HCM và Long An đã phát động và thực hiện 'Tuần lễ sẻ chia', hướng về người dân bị ảnh hưởng bởi bão lũ.
-- Một số phụ huynh tại TP Thủ Đức phản ánh nhà trường kêu gọi ủng hộ để chi trả phụ cấp tháng 8 cho bảo mẫu.
-- Tỉnh Quảng Nam dự kiến sẽ dùng ngân sách khoảng 158 tỉ đồng hỗ trợ học phí cho trẻ mầm non, học sinh phổ thông đang học tại các cơ sở giáo dục mầm non, cơ sở giáo dục phổ thông công lập và tư thục trong hai năm học.
-- "Với các em học sinh ủng hộ đồng bào miền Bắc bị thiệt hại do bão lũ thì bao nhiêu cũng quý, một đồng cũng quý, vì đó là tấm lòng!".
-- Trả lời phỏng vấn Tuổi Trẻ, GS AARON VOON-YEW THEAN - hiệu trưởng ĐH Quốc gia Singapore - nhận định nhiều trường đại học Việt Nam đang đổi mới chương trình khá tốt theo phương châm hướng về sinh viên.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Theo nghị định 168/2024, với hành vi vi phạm đi sai làn đường, gây tai nạn tài xế xe ô tô có thể bị phạt tới 22 triệu đồng, xe máy 14 triệu đồng.
+- Khoảng 6h sáng bầu trời bị bao phủ bởi lớp mù dày đặc. Hầu như các tòa nhà cao tầng đều "biến mất" trong lớp mù này.
+- Ngôi nhà xảy ra cháy có 2 tầng trong đó tầng 1 có lò ấp trứng gà vịt, tầng 2 sử dụng để ngủ với kết cấu bê tông cốt thép. Vụ việc làm 2 người tử vong.
+- Tin tức đáng chú ý: Doanh nghiệp kiến nghị đơn giản thủ tục đổi đăng ký xe, điều chỉnh thời gian làm việc của tài xế khi thực hiện Luật Trật tự, an toàn giao thông đường bộ; 7 khuyến cáo khi mua thực phẩm dịp Tết Nguyên đán...
+- Hôm nay 19-1, thời tiết cả nước không biến chuyển quá nhiều, miền Bắc duy trì lạnh rét, miền Nam sáng sớm se lạnh, miền Trung mưa rào nhẹ.
+- Tổng Bí thư Tô Lâm yêu cầu công an xã cần thường xuyên duy trì mối quan hệ gắn bó mật thiết với nhân dân, quan tâm, chăm lo, giải quyết kịp thời vướng mắc, tâm tư chính đáng của nhân dân.
+- Đơn giản hóa thủ tục đầu tư, tạo điều kiện thuận lợi cho doanh nhân kiều bào khởi nghiệp, kinh doanh và tăng cường đối thoại hơn nữa là những yếu tố sẽ giúp TP.HCM thu hút được sự đóng góp của kiều bào.
+- Theo Thanh tra tỉnh Khánh Hòa, Công ty cổ phần Sông Đà Nha Trang không thực hiện đúng chỉ đạo của tỉnh về giải quyết cho 233 khách hàng mua 'nhà trên giấy' tại dự án khu dân cư Cồn Tân Lập, TP Nha Trang.
+- Các điện/thư mừng của lãnh đạo cấp cao Việt Nam và Trung Quốc nhấn mạnh tình cảm giữa hai nước suốt 75 năm qua, cùng sự ưu tiên của mỗi nước với quan hệ song phương.
+- Chiều 18-1, phường 14, quận 10, TP.HCM tổ chức chương trình bữa cơm 'Xuân gắn kết - Tết nghĩa tình' chào mừng xuân Ất Tỵ năm 2025.
+- Trưa 18-1, Thủ tướng Phạm Minh Chính kết thúc tốt đẹp chuyến thăm Ba Lan và đến Cộng hòa Czech không lâu sau đó, bắt đầu chuyến thăm chính thức 3 ngày.
+- Một đường dây đánh bạc 'khủng' vừa bị lực lượng công an triệt phá, 9 người bị khởi tố cùng nhiều tang vật bị tịch thu để phục vụ điều tra.
+- Nhiều ý kiến cho rằng để tiết kiệm, chỉ lắp biển cấm rẽ phải tại nơi không cho rẽ, còn lại là 'mặc định' được rẽ.
+- Công an đang xác minh đoạn clip ghi lại cảnh tài xế xe con vượt ẩu, va chạm với xe đi trước còn hung hăng đánh người khiến dư luận phẫn nộ ở Huế.
+- Hơn 50 cán bộ, chiến sĩ được lựa chọn từ công an 10 tỉnh, thành phố tham gia lớp huấn luyện nâng cao nghiệp vụ chữa cháy và cứu nạn, cứu hộ đặc biệt tinh nhuệ của Bộ Công an.
+- Có nhiều góp ý để giảm kẹt xe ở TP.HCM, trong đó nổi bật là ủng hộ mở rộng lối rẽ phải tại các giao lộ.
+- Hỏa hoạn tại xưởng sản xuất vật dụng trang trí Tết trên đường số 13, phường Bình Hưng Hòa A, quận Bình Tân, TP.HCM khiến nhiều tài sản bị thiêu rụi.
+- Ông Trần Tiến Dũng - thứ trưởng Bộ Tư pháp - được Bộ Chính trị điều động, chỉ định giữ chức Bí thư Tỉnh ủy Vĩnh Long, nhiệm kỳ 2020-2025.
+- Một xe tang lễ tông vào chiếc xe máy đang dừng đèn đỏ ở huyện Đô Lương, Nghệ An, khiến hai vợ chồng sắp cưới thương vong.
+- Doanh thu công nghiệp công nghệ số của Việt Nam năm 2024 đạt 152 tỉ USD, trong đó xuất khẩu điện thoại di động thứ 2 thế giới, linh kiện máy tính thứ 5, thiết bị máy tính thứ 6, gia công phần mềm thứ 7, thiết bị linh kiện điện tử thứ 8 thế giới.
+- Sáng 18-1, Thành ủy TP.HCM tổ chức gặp gỡ cán bộ Mặt trận Tổ quốc Việt Nam và các đoàn thể nhân dân tiêu biểu trên địa bàn TP, nhân dịp Tết Nguyên đán Ất Tỵ năm 2025.
+- Ngày 18-1, người dân vẫn tiếp tục đến các nhà máy xay xát, công ty xuất khẩu gạo để mua gạo về dự trữ, thậm chí nhiều người còn dùng xe tải chở gạo đến các vùng sâu, vùng xa để bán cho người dân.
+- Sở Giao thông vận tải TP.HCM vừa thông báo điều chỉnh cập nhật lịch chạy metro số 1, bắt đầu từ ngày 24-1 (tức 25 tháng chạp) đến 2-2 (mùng 5 Tết).
+- 600 phần quà Tết cho người nghèo, công nhân, người lao động có hoàn cảnh khó khăn tại Khánh Hòa được Phó chủ tịch Quốc hội Nguyễn Khắc Định và cơ quan chức năng trao tặng.
+- Trưởng Ban Tuyên giáo Trung ương Nguyễn Trọng Nghĩa thăm và tặng quà, nhân dịp Tết Nguyên đán Ất Tỵ năm 2025, tại tỉnh Tiền Giang và Long An.
+- Từ tối qua đến sáng 18-1, trên nhiều trang mạng xã hội đang chia sẻ hình ảnh, clip nhiều người tập trung theo dõi vụ việc liên quan một nghi phạm dùng dao đâm người gây xôn xao dư luận.
 - Bộ trưởng Bộ Giáo dục và Đào tạo Nguyễn Kim Sơn đã có trả lời về đề nghị quan tâm điều chỉnh hệ số lương của giáo viên mầm non cũng như có chế độ với cô nuôi.
-- Ông Nguyễn Hồ Hải được điều động, chỉ định giữ chức bí thư Tỉnh ủy Cà Mau thay ông Nguyễn Tiến Hải giữ chức Bí thư Tỉnh ủy Kiên Giang.
+- Ông Nguyễn Hồ Hải được điều động, chỉ định giữ chức Bí thư Tỉnh ủy Cà Mau thay ông Nguyễn Tiến Hải giữ chức Bí thư Tỉnh ủy Kiên Giang.
 - Tin tức đáng chú ý: Nam Bộ đối mặt triều cường ngay mùng 1 Tết; Giá tôm khô cao kỷ lục; Số ca sởi tại TP.HCM tăng cao nhất từ năm 2024 đến nay...
 - Chủ tịch Thượng viện Ba Lan khẳng định cơ quan lập pháp này ủng hộ việc phê chuẩn Hiệp định Bảo hộ đầu tư EU - Việt Nam (EVIPA).
 - Hôm nay 18-1, thời tiết hai miền Nam - Bắc tương đối ổn định, trong khi đó miền Trung có mưa rào.
@@ -1978,32 +2004,6 @@
 - Bốn người là lãnh đạo các ban, ngành được Ban Bí thư chỉ định tham gia Ban Chấp hành Đảng bộ tỉnh Lâm Đồng nhiệm kỳ 2020 - 2025.
 - Ngày 27-12, Tỉnh ủy Đồng Nai đã tổ chức hội nghị triển khai các quyết định về công tác cán bộ.
 - Bí thư Bà Rịa - Vũng Tàu yêu cầu tinh gọn bộ máy phải giữ được người thiết tha cống hiến, người tài giỏi, không bố trí người thân quen.
-- Sở Y tế tiếp tục xác minh, làm rõ các sai phạm tại các cơ sở Dong Yang (quận Tân Bình), BB Beauty và VHAN (quận 10).
-- Hội nghị công bố các quyết định tổ chức với sự tham gia của Bí thư Tỉnh ủy Bình Dương Nguyễn Văn Lợi và Chủ tịch UBND tỉnh Võ Văn Minh.
-- Đôi vợ chồng trẻ dự định giữa tháng sau sẽ về quê ăn Tết cùng gia đình nhưng không may gặp nạn trong vụ cháy nhà trọ tại Thủ Đức (TP.HCM).
-- Bộ trưởng Đào Ngọc Dung đã có thông tin mới về tiến độ công việc hợp nhất giữa Bộ Lao động - Thương binh và Xã hội với Bộ Nội vụ.
-- Sáng 27-12, Ban Chấp hành Đảng bộ tỉnh Bắc Giang tổ chức hội nghị lần thứ 23, bầu chức danh phó bí thư Tỉnh ủy nhiệm kỳ 2020-2025.
-- Hàng loạt chủ dự án có biệt thự, căn hộ du lịch trên đất ở Khánh Hòa không khai báo để quản lý, thu thuế.
-- Ngày 27-12, Tổng cục Hải quan triển khai thi công xây dựng công trình trụ sở hải quan tại sân bay Long Thành.
-- Ngày 27-12, Phòng Cảnh sát giao thông Công an Đà Nẵng cho biết đã truy vết và xử lý lái xe trộn bê tông gây ra sự việc trên.
-- Chiếc xe khách chở 200kg nội tạng bốc mùi hôi thối trên đường ra Bắc để tiêu thụ thì bị cảnh sát giao thông Công an tỉnh Hà Tĩnh phát hiện.
-- Một số đơn vị ở Sơn La, Bắc Giang, Bà Rịa - Vũng Tàu... đã tổ chức các kỳ kiểm tra sát hạch đội ngũ cán bộ, công chức, viên chức.
-- Lễ tang Đại tướng Nguyễn Quyết, nguyên phó chủ tịch Hội đồng Nhà nước (nay là phó chủ tịch nước), được tổ chức trọng thể tại Nhà tang lễ Quốc gia.
-- Tỉnh cho rằng cả hai đã hy sinh khi cứu người, cứu tài sản của dân nên đề nghị bộ xem xét, trình Thủ tướng cấp bằng Tổ quốc ghi công.
-- Hai nạn nhân thiệt mạng được xác định là đôi vợ chồng mới cưới nhau được một năm, từ Thái Bình vào TP.HCM lập nghiệp.
-- 3 người đàn ông chạy xe máy tông vào dải phân cách ở Nha Trang, tử vong tại chỗ.
-- Vợ chồng Hạnh xây dựng hình ảnh công ty của mình chuyên kinh doanh bất động sản, sở hữu nhiều bất động sản, dự án trên cả nước.
-- Người dùng mạng xã hội lan truyền những hình ảnh ánh sáng xanh trên bầu trời Bình Định, Phú Yên và gọi đó là cực quang.
-- Một số tin tức đáng chú ý: 100% bộ, ngành, địa phương đã hoàn thành phê duyệt đề án vị trí việc làm; Đại hội đồng cổ đông bất thường của FLC Faros bất thành; Nợ nhiều nghìn tỉ tiền trái phiếu, công ty bầu Đức vừa có động thái mới...
-- Hôm nay 27-12, miền Trung vẫn mưa to đến rất to, miền Bắc đón thêm không khí lạnh, còn miền Nam nhiều mây, có nơi mưa rào.
-- Tối 26-12, đoàn tàu tuyến metro số 1 đã tạm dừng hoạt động trong thời gian ngắn 10 phút, liên quan đến việc kiểm tra quy trình vận hành.
-- Ủy ban Kiểm tra Thành ủy TP.HCM tập trung kiểm tra, giám sát việc tổ chức sắp xếp, tinh gọn bộ máy theo nghị quyết 18.
-- Dịp Tết dương lịch 2025 cùng nhiều sự kiện lớn cuối năm cận kề, nhiều người lo ngại tình trạng hàng rong ở phố đi bộ Nguyễn Huệ sẽ phức tạp. Cơ quan chức năng đã có kế hoạch gì giải quyết vấn đề này?
-- Thu phí ô tô vào trung tâm TP.HCM sẽ được triển khai sau khi hình thành, đưa vào khai thác các tuyến metro số 1, 2, 3, 4, 5, 6, 7.
-- Mục tiêu của dự án không chỉ xây dựng được một tuyến đường sắt tốc độ cao, mà còn phát triển ngành công nghiệp đường sắt tốc độ cao, đủ năng lực thi công, quản lý, vận hành, khai thác…
-- Sở Nội vụ Quảng Trị đã đề xuất triển khai sát hạch định kỳ để đánh giá năng lực cán bộ công chức, viên chức, thay vì phương pháp bình bầu nặng cảm tính như lâu nay.
-- TP.HCM đang có rất nhiều dự án quy mô rất lớn đang nằm chờ, ví dụ trong vụ án SCB, Vạn Thịnh Phát. Phải tháo gỡ khó khăn, giải quyết kịp thời mới có được nguồn vốn cho đầu tư phát triển.
-- Một hài cốt liệt sĩ được tìm thấy trong vườn nhà dân cùng di vật như bình tông, xẻng bộ binh và chiếc bút máy khắc chữ Hồng Xuyến.
 ![New](News.png)
 ## Nhịp sống số 
 - Theo đề xuất của chính phủ nhằm đối phó nạn tin tặc hoành hành tại Anh, các trường học, cơ quan y tế quốc gia (NHS) và hội đồng địa phương sẽ bị cấm trả tiền chuộc khi bị tấn công mạng.
