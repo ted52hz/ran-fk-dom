@@ -1,9 +1,13 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
-- Trường THPT chuyên Lê Hồng Phong (TP.HCM) dẫn đầu bảng xếp hạng các Trường THPT kỳ thi học sinh giỏi quốc gia năm học 2024-2025.
+- Giáo dục về gốc rễ, văn hóa là chìa khóa để thế hệ trẻ Việt Nam tự tin hội nhập quốc tế, tự hào giữ vững bản sắc dân tộc.
+- Lê Quý Huân, chàng trai đoạt giải nhất quốc gia môn sinh, mơ điều chế vắc xin ngừa ung thư.
+- Hầu hết học sinh đạt giải học sinh giỏi quốc gia ở các tỉnh phía Bắc đến từ trường chuyên. Ở phía Nam, học sinh trường thường đạt giải không ít.
+- Có nhiều quan điểm khác nhau liên quan đến trường hợp sinh viên và gia đình bị lừa đảo qua mạng 1,1 tỉ đồng.
+- Trường THPT chuyên Lê Hồng Phong (TP.HCM) dẫn đầu bảng xếp hạng các trường THPT kỳ thi học sinh giỏi quốc gia năm học 2024-2025.
 - Có những phụ huynh muốn con luôn phải giỏi, phải hơn người, con làm bài điểm 9 thì hỏi: 'Thế học sinh cao điểm nhất lớp là mấy điểm?'...
-- Tối 18-1, Trường THPT Nguyễn Thị Minh Khai (quận 3, TP.HCM) đã tổ chức đêm nhạc hội Tuổi Hồng lần thứ 29 với dàn sao khủng, thu hút hơn 4.000 khán giả tham gia.
+- Tối 18-1, Trường THPT Nguyễn Thị Minh Khai (quận 3, TP.HCM) đã tổ chức đêm nhạc hội Tuổi Hồng lần thứ 29 với dàn sao khủng, thu hút 4.000 khán giả tham gia.
 - Nhiều học sinh tại quận Gò Vấp, TP.HCM đã cùng cha mẹ đến học gói bánh chưng, bánh tét để cảm nhận không khí Tết Nguyên đán đang đến thật gần.
 - Nhiều sinh viên quốc tế thích thú khi tự tay viết thư pháp, gói bánh chưng, chơi các trò chơi dân gian, ăn tất niên và tìm hiểu Tết Việt.
 - Tại buổi ra mắt cuốn sách 'Dạy con trong hạnh phúc' ngày 18-1, tác giả Bùi Gia Hiếu đã khuyên các phụ huynh không nên cho con xem TikTok.
@@ -997,14 +1001,49 @@
 - Hơn 35 triệu đồng là tấm lòng thầy trò và phụ huynh của Trường THCS-THPT Thái Bình gửi đến đồng bào miền Bắc bị ảnh hưởng bởi bão lũ.
 - Hai nữ sinh Trường THPT Nguyễn Thị Minh Khai (quận 3, TP.HCM) đã làm hai hộp thư tại trường, để những bạn gặp vướng mắc tâm lý có thể gửi thư chia sẻ.
 - Cô bạn thân của tôi đi họp phụ huynh cho con về và “khoe” vừa rời cuộc họp về đến nhà là được đưa vào 3 nhóm Zalo khác nhau.
-- Vì sao rất nhiều trường THPT tại TP.HCM chọn phương án thuê máy lạnh bằng phương thức xã hội hóa thay vì vận động phụ huynh góp tiền để mua?
-- "Chiếc xe đạp cũ mà hai chị em hằng ngày đi học bị mái tôn rơi vào làm hư hỏng, không còn đi được nữa. Em mong có chiếc xe đạp mới để hai chị em đèo nhau đi học".
-- Liên quan đến những thông tin học sinh tại điểm trường Màng Mủ ăn cơm gừng chấm muối, huyện Mù Cang Chải (Yên Bái) vừa có báo cáo sự việc lên UBND tỉnh Yên Bái.
-- Ông Nguyễn Viết Hiển, giám đốc Sở Giáo dục và Đào tạo Thái Bình, bị cách chức vì liên quan đến sai phạm trong công tác tổ chức thi tuyển sinh vào lớp 10 THPT năm học 2024 - 2025.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Sở Tài nguyên và Môi trường hướng dẫn Mercedes- Benz Việt Nam để gia hạn thuê đất sau khi công ty này được UBND TP.HCM gia hạn đầu tư.
+- Dù cá sấu là động vật có bản năng hoang dã nguy hiểm, việc nuôi cần phải đăng ký, thế nhưng một số người vẫn phớt lờ.
+- Tin tức đáng chú ý: Lưu ý khi đi cao tốc TP.HCM - Long Thành - Dầu Giây dịp Tết; 224.000 tỉ đồng trái phiếu đáo hạn năm 2025; Gần 2.000 công nhân Bình Dương được đưa về Tết miễn phí...
+- Căn nhà trên đường Trần Bình Trọng (quận Bình Thạnh, TP.HCM) bất ngờ bốc cháy trong đêm, nhiều tài sản bị thiêu rụi.
+- Hôm nay 20-1, thời tiết Bắc Bộ vẫn duy trì nhiệt độ thấp, trời rét. Nam Bộ không khí lạnh yếu dần nên trời nắng hơn, nhiệt độ tăng.
+- Phó bí thư Thành ủy Nguyễn Phước Lộc đến thăm, chúc Tết đại lão hòa thượng Thích Trí Quảng, trưởng lão hòa thượng Thích Đức Nghiệp nhân dịp Tết Ất Tỵ 2025.
+- Đi cắt cỏ cho bò những ngày cận Tết, hai vợ chồng lật xuồng chết đuối để lại hai đứa con thơ khiến bà con lối xóm ngậm ngùi, xót xa.
+- Cục Đường bộ đề xuất trước mắt thu phí 6 tuyến cao tốc thuộc sở hữu toàn dân do Nhà nước đại diện chủ sở hữu.
+- Bộ Kế hoạch và Đầu tư vừa có văn bản gửi UBND TP.HCM về thẩm định báo cáo nghiên cứu tiền khả thi dự án metro số 5 - giai đoạn 1 (ngã tư Bảy Hiền - cầu Sài Gòn).
+- Có nên mặc định cho phép xe rẽ phải tại các giao lộ TP.HCM hay không đang là chủ đề được nhiều bạn đọc quan tâm.
+- Kiều bào về dự Xuân quê hương tin tưởng sâu sắc vào tương lai phát triển của đất nước, mong muốn đóng góp để hiện thực hóa khát vọng phát triển đất nước trong kỷ nguyên vươn mình của dân tộc.
+- Những ngày qua việc bắt xe công nghệ Grab, Be... gặp khó khăn. Có người đợi cả tiếng mới có xe.
+- Dự ngày hội “Xuân đoàn kết - Tết nghĩa tình” tại huyện Củ Chi, Chủ tịch HĐND TP.HCM Nguyễn Thị Lệ cho rằng đây là cơ hội để gắn kết tình làng nghĩa xóm, xây dựng cộng đồng văn minh, giàu bản sắc văn hóa.
+- Bộ Công Thương vừa có tờ trình đề nghị xây dựng Luật Thương mại điện tử, nhấn mạnh sự cần thiết tăng cường quản lý, giám sát, kiểm soát chủ thể tham gia giao dịch.
+- Thủ tướng bổ nhiệm ông Trịnh Mạnh Linh - trợ lý Thủ tướng Chính phủ - giữ chức phó chủ nhiệm Văn phòng Chính phủ.
+- Khi đoàn tàu hỏa lao tới gần, gác chắn chưa được kéo ra khiến nhiều người đi qua đoạn giao nhau giữa đường sắt và đường bộ ở Huế hoảng hốt.
+- Ngôi nhà 3 tầng ở phố Bạch Đằng (quận Hoàn Kiếm, Hà Nội) cháy, nhiều khói, khí độc, khiến một người chết trong sáng nay 19-1.
+- Cứ vào tiết lập xuân, người dân xã Xuân Lộc, thị xã Sông Cầu (Phú Yên) lại kéo nhau lên các ngọn núi trên đỉnh Cù Mông hái trà Mã Dọ.
+- Camera giao thông trực tuyến giúp người dân theo dõi sát tình hình kẹt xe, hỗ trợ tính toán đường đi phù hợp.
+- Nhiều người trên chiếc xe khách trong vụ tai nạn liên hoàn ở quốc lộ 1 xảy ra sáng 19-1 đã được chuyển đến bệnh viện để điều trị.
+- Cảng vụ hàng không miền Nam đề nghị triển khai việc trung chuyển khách từ sân bay Tân Sơn Nhất ra các địa điểm phù hợp.
+- Một thuyền đánh cá trên biển Nha Trang bị sóng lớn đánh chìm khiến 1 ngư dân mất tích.
+- Trưởng Ban Tuyên giáo Trung ương Nguyễn Trọng Nghĩa thăm và tặng quà, nhân dịp Tết Ất Tỵ 2025 tại tỉnh Tiền Giang.
+- Ông Quản Minh Cường - phó bí thư Tỉnh ủy Đồng Nai - được điều động, chỉ định làm bí thư Tỉnh ủy Cao Bằng.
+- Nhiều ô tô tranh nhau lấn làn xe máy trên các tuyến đường khiến tình trạng ùn tắc tại TP.HCM thêm nghiêm trọng.
+- Từ ngày 1-1-2025, công an xã được xử lý vi phạm khi nào? Các lỗi vi phạm mà công an xã được xử lý với xe máy là những lỗi nào?
+- Hầu hết học sinh đạt giải học sinh giỏi quốc gia ở các tỉnh phía Bắc đến từ trường chuyên. Ở phía Nam, học sinh trường thường đạt giải không ít.
+- Chủ tịch nước và Phu nhân cùng kiều bào dâng hương tại điện Kính Thiên, thả cá chép tiễn ông Công, ông Táo.
+- Sáng 19-1, hàng trăm bệnh nhân đã giam gia phiên chợ Tết 0 đồng tại Bệnh viện TP Thủ Đức (TP.HCM).
+- Huỳnh Chí Tâm chạy xe máy, không vượt qua xe tải được nên bực tức đã cúp đầu xe tải rồi đập phá xe.
+- Bạn đọc phản ánh vấn đề liên quan trật tự an toàn giao thông như đèn xanh còn 5 giây nhiều người không dám chạy; ô tô đậu chiếm lòng đường…
+- Sở Giao thông vận tải vừa có văn bản phản hồi Vingroup về đề xuất phương án đầu tư tuyến metro kết nối trung tâm TP.HCM đi huyện Cần Giờ.
+- Khi vai trò giao thương của chợ nổi ở miền Tây sông nước ngày càng nhạt nhòa, sự còn - mất của nó đang được đặt ra cấp thiết.
+- Dự kiến dịp Tết này, tuyến cao tốc Bắc - Nam từ Hà Nội đến TP.HCM sẽ có 12 trạm dừng nghỉ.
+- Hà Nội, TP.HCM khẩn trương nghiên cứu, xây dựng phương án mô hình tổ hợp báo chí - truyền thông hoặc tập đoàn báo chí - truyền thông.
+- Vụ tai nạn liên hoàn giữa xe tải, xe khách và xe container trên quốc lộ 1 qua thị xã Ninh Hòa, tỉnh Khánh Hòa làm 1 người thiệt mạng, 8 người bị thương nặng.
+- Nhiều đoạn quốc lộ được đặt tên các nhà lãnh đạo như Tổng Bí thư Đỗ Mười, Lê Khả Phiêu, Chủ tịch nước Lê Đức Anh, Thủ tướng Phan Văn Khải...
+- Vụ tai nạn liên hoàn giữa 4 ô tô trên đại lộ Thăng Long khiến giao thông hướng về nội thành ùn tắc kéo dài sáng 19-1.
 - Theo nghị định 168/2024, với hành vi vi phạm đi sai làn đường, gây tai nạn tài xế xe ô tô có thể bị phạt tới 22 triệu đồng, xe máy 14 triệu đồng.
 - Khoảng 6h sáng bầu trời bị bao phủ bởi lớp mù dày đặc. Hầu như các tòa nhà cao tầng đều "biến mất" trong lớp mù này.
+- Tuần này từ miền Bắc trở vào miền Trung trời mưa rét và có đợt không khí lạnh tràn về, miền Nam nắng ráo.
 - Ngôi nhà xảy ra cháy có 2 tầng trong đó tầng 1 có lò ấp trứng gà vịt, tầng 2 sử dụng để ngủ với kết cấu bê tông cốt thép. Vụ việc làm 2 người tử vong.
 - Tin tức đáng chú ý: Doanh nghiệp kiến nghị đơn giản thủ tục đổi đăng ký xe, điều chỉnh thời gian làm việc của tài xế khi thực hiện Luật Trật tự, an toàn giao thông đường bộ; 7 khuyến cáo khi mua thực phẩm dịp Tết Nguyên đán...
 - Hôm nay 19-1, thời tiết cả nước không biến chuyển quá nhiều, miền Bắc duy trì lạnh rét, miền Nam sáng sớm se lạnh, miền Trung mưa rào nhẹ.
@@ -1012,7 +1051,7 @@
 - Đơn giản hóa thủ tục đầu tư, tạo điều kiện thuận lợi cho doanh nhân kiều bào khởi nghiệp, kinh doanh và tăng cường đối thoại hơn nữa là những yếu tố sẽ giúp TP.HCM thu hút được sự đóng góp của kiều bào.
 - Theo Thanh tra tỉnh Khánh Hòa, Công ty cổ phần Sông Đà Nha Trang không thực hiện đúng chỉ đạo của tỉnh về giải quyết cho 233 khách hàng mua 'nhà trên giấy' tại dự án khu dân cư Cồn Tân Lập, TP Nha Trang.
 - Các điện/thư mừng của lãnh đạo cấp cao Việt Nam và Trung Quốc nhấn mạnh tình cảm giữa hai nước suốt 75 năm qua, cùng sự ưu tiên của mỗi nước với quan hệ song phương.
-- Chiều 18-1, phường 14, quận 10, TP.HCM tổ chức chương trình bữa cơm 'Xuân gắn kết - Tết nghĩa tình' chào mừng xuân Ất Tỵ năm 2025.
+- Hưởng ứng phát động của Mặt trận tổ quốc Việt Nam Tp.HCM, chiều 18-1, phường 14, quận 10, TP.HCM tổ chức chương trình bữa cơm 'Xuân gắn kết - Tết nghĩa tình' chào mừng xuân Ất Tỵ năm 2025.
 - Trưa 18-1, Thủ tướng Phạm Minh Chính kết thúc tốt đẹp chuyến thăm Ba Lan và đến Cộng hòa Czech không lâu sau đó, bắt đầu chuyến thăm chính thức 3 ngày.
 - Một đường dây đánh bạc 'khủng' vừa bị lực lượng công an triệt phá, 9 người bị khởi tố cùng nhiều tang vật bị tịch thu để phục vụ điều tra.
 - Nhiều ý kiến cho rằng để tiết kiệm, chỉ lắp biển cấm rẽ phải tại nơi không cho rẽ, còn lại là 'mặc định' được rẽ.
@@ -1965,45 +2004,6 @@
 - Nhiều bạn đọc thắc mắc nếu không đi metro thì có được đón buýt kết nối metro hay không, số khác thì bất ngờ vì... cứ lên xe là được miễn phí.
 - Được khởi công vào tháng 6-2023, đến nay dự án vành đai 3 TP.HCM đã đạt 30% với 10 gói thầu chính và nhận được 99,8% mặt bằng.
 - Lực lượng cảnh sát phòng cháy chữa cháy Đồng Nai kịp thời giải cứu tài xế mắc kẹt trong cabin xe đông lạnh, sau khi đâm sập ki ốt ven đường.
-- Đang dịp cuối năm nhưng nhiều mặt bằng kinh doanh ở TP.HCM vẫn 'cửa đóng then cài'. Tại Hà Nội cũng ghi nhận nhiều mặt bằng còn trống.
-- Một số tin tức đáng chú ý: Quy định mới về đăng ký thường trú, tạm trú; Lập 2 bãi xe tạm gần ga Bến Thành; Đề xuất mở rộng địa điểm cấm hút thuốc lá...
-- Hôm nay 28-12, miền Trung vẫn còn mưa to đến rất to, miền Nam mưa rào do các nhiễu động thời tiết gây ra.
-- Lực lượng công an thu 9 mẫu chả tại cơ sở sản xuất chả gửi cơ quan chức năng tiến hành kiểm định thì cho kết quả cả 9 mẫu đều phát hiện hàn the (natri borat).
-- Cơn mưa lớn kèm sấm chớp bất ngờ đổ xuống khiến nhiều tuyến đường ở thành phố Biên Hòa (Đồng Nai) chìm trong nước.
-- Thừa ủy quyền, Đại tướng Lương Tam Quang đã trao quyết định của Chủ tịch nước thăng cấp bậc hàm từ thiếu tướng lên trung tướng đối với ông Nguyễn Ngọc Lâm, thứ trưởng Bộ Công an.
-- Chiều 27-12, Bộ Quốc phòng tổ chức trao quyết định của Chủ tịch nước cho sĩ quan làm nhiệm vụ gìn giữ hòa bình Liên hợp quốc.
-- Chiều 27-12, cơn mưa lớn trút xuống nhiều nơi tại TP.HCM, các đoàn tàu tuyến metro số 1 đã tạm dừng hoạt động để đổi chế độ vận hành bằng tay, đảm bảo an toàn.
-- Chỉ còn 4 ngày nữa, 41 phường mới tại TP.HCM sẽ đi vào hoạt động sau khi sáp nhập từ 80 phường. Hiện cán bộ, công chức của các phường đang tất bật dọn dẹp, di chuyển, sắp xếp để ổn định nơi làm việc mới.
-- Chủ tịch UBND TP.HCM Phan Văn Mãi cho biết đề án phát triển 355km hệ thống đường sắt đô thị TP.HCM đến năm 2035 vừa được Bộ Chính trị thông qua.
-- Chiều tối 27-12, cả TP.HCM xảy ra mưa dông, nhiều nơi mưa lớn và sét đánh.
-- Hơn 44.000 bao thuốc lá hiệu Jet, Hero nhập lậu được tỉnh Quảng Trị tịch thu trong năm 2024, bị tiêu hủy bằng các biện pháp đốt, chôn lấp.
-- 'Ngày 26-12 có 7 con sếu đầu đỏ bay về phân khu A5 Vườn quốc gia Tràm Chim 'thám thính'. Đầu tháng 3 có 4 con sếu về, một tín hiệu đáng mừng cho thấy môi trường đã dần hồi phục theo hướng tốt' - TS Trần Triết cho hay.
-- Lực lượng chức năng đã kiểm tra việc cơi nới ban công trái phép trên tầng 41-42 Mường Thanh Luxury (phường Lộc Thọ, TP Nha Trang).
-- Chủ tịch nước Lương Cường đã trao quyết định thăng cấp bậc hàm từ trung tướng lên thượng tướng đối với Thứ trưởng Bộ Công an Lê Quốc Hùng.
-- Công ty TNHH MTV Đường sắt đô thị số 1 thông tin về việc triển khai lại hệ thống thanh toán không chạm thu soát vé tự động trên tuyến metro số 1 (Bến Thành - Suối Tiên) từ ngày 2-1-2025.
-- Công an TP Phú Quốc đang điều tra hành vi 3 người nước ngoài lừa đảo bằng thủ đoạn đổi tiền USD giả, mua hàng hóa.
-- Sau sáp nhập, bộ hợp nhất hai bộ Xây dựng và Giao thông vận tải sẽ có tên mới là Bộ Xây dựng và giao thông, số đơn vị trực thuộc bộ hợp nhất còn 24 - 27 đơn vị, giảm 35 - 41% số đầu mối so với trước khi sáp nhập.
-- Trưa nay thời tiết TP.HCM có mưa dông nhiều nơi kèm theo gió, vùng mưa đang mở rộng ra nhiều nơi, do đâu đang mùa khô lại có mưa?
-- Dự án 94 Lò Đúc bỏ hoang nhiều năm được các cử tri quan tâm, đặt câu hỏi cho các đại biểu HĐND TP Hà Nội - đơn vị bầu cử số 4.
-- Ngoài hỗ trợ các cặp vợ chồng sinh đủ 2 con, ngành y tế TP.HCM đang gấp rút trình nghị quyết đặc thù về hỗ trợ một số chi phí khác.
-- Bạn đọc Tuổi Trẻ Online bày tỏ bất bình khi chủ cơ sở trồng giá bằng hóa chất độc hại ở Huế chỉ bị phạt tiền.
-- Hai người giới thiệu là phóng viên, đến yêu cầu một chủ mỏ cát tại Quảng Bình đưa 50 triệu đồng để không viết bài. Khi nhận tiền, cả hai bị bắt giữ.
-- Văn phòng UBND TP.HCM tổ chức hội nghị tổng kết công tác văn phòng 2024 và hội nghị cán bộ, công chức văn phòng nhân dân TP.HCM 2025.
-- 6-Benzylaminopurine là một loại hóa chất kích thích tăng trưởng cấm dùng trong sản xuất thực phẩm vì có mức độ nguy hại lớn.
-- Hà Nội đặt mục tiêu trồng mới thêm 700.000 cây xanh trong năm 2025, góp phần hoàn thành mục tiêu trồng 1 tỉ cây xanh giai đoạn 2021-2025.
-- Sau khi metro số 1 hoạt động, TP.HCM có thêm động lực để đầu tư đồng loạt 355km metro, dự kiến hoàn thành trong 10 năm.
-- Đầu tháng 12-2024 đến nay, ngư dân các xã ven biển ở Ninh Thuận vui như hội vì “trúng đậm” tôm hùm con.
-- PGS.TS Phan Thanh Bình, nguyên ủy viên Ủy ban Thường vụ Quốc hội, phát biểu tại hội thảo do Học viện Cán bộ TP.HCM tổ chức sáng 27-12.
-- Tàu cá bị sóng đánh chìm ở Ninh Thuận, 11 người được cứu, riêng con trai chủ tàu 12 tuổi chết khi cấp cứu tại bệnh viện.
-- Người dân TP Buôn Ma Thuột khóc ròng vì đường Phan Huy Chú thành sình lầy do thi công dang dở.
-- Trưa 27-12, hỏa hoạn xảy ra tại khu vực sơn, đánh bóng xe gara ô tô khu Đìa Đừng xã Song Phượng.
-- Sau gần ba năm đưa vào khai thác, cầu Ba Son đang được lắp đặt hệ thống chiếu sáng mỹ thuật.
-- Sáng 27-12, Cổng thông tin điện tử Chính phủ tổ chức tọa đàm "Kỷ nguyên vươn mình của dân tộc - Cơ hội và thách thức”.
-- Một cây hoa sữa lớn đổ giữa đường phố tại trung tâm TP Quy Nhơn (Bình Định) trong mưa, đè trúng một người đàn ông đang chạy xe máy.
-- Cầu Tân Kỳ Tân Quý ở quận Bình Tân (TP.HCM) sẽ thông xe vào ngày 15-1-2025, còn cầu Bà Hom thông xe sau đó 5 ngày.
-- Bốn người là lãnh đạo các ban, ngành được Ban Bí thư chỉ định tham gia Ban Chấp hành Đảng bộ tỉnh Lâm Đồng nhiệm kỳ 2020 - 2025.
-- Ngày 27-12, Tỉnh ủy Đồng Nai đã tổ chức hội nghị triển khai các quyết định về công tác cán bộ.
-- Bí thư Bà Rịa - Vũng Tàu yêu cầu tinh gọn bộ máy phải giữ được người thiết tha cống hiến, người tài giỏi, không bố trí người thân quen.
 ![New](News.png)
 ## Nhịp sống số 
 - Theo đề xuất của chính phủ nhằm đối phó nạn tin tặc hoành hành tại Anh, các trường học, cơ quan y tế quốc gia (NHS) và hội đồng địa phương sẽ bị cấm trả tiền chuộc khi bị tấn công mạng.
