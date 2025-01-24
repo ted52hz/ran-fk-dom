@@ -1,6 +1,13 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Thủ khoa kỳ thi đánh giá tư duy đợt 1 năm 2025 của Đại học Bách khoa Hà Nội thuộc về thí sinh đến từ Trường THPT chuyên Bắc Ninh.
+- Người cha hy sinh trong lúc làm nhiệm vụ khi Cao Diễm Quỳnh đang học lớp 4. Vượt qua cú sốc đầu đời, Quỳnh quyết tâm, nỗ lực để học tập tốt.
+- Năm qua, sinh viên ngành Khoa học máy tính của Trường Đại học Quốc tế Sài Gòn (SIU) đạt nhiều giải thưởng tại các cuộc thi học thuật và nghiên cứu.
+- Học sinh giúp ba mẹ chuẩn bị đón Tết, đi chơi với gia đình cũng là bài tập Tết. Đó là cách nhiều trường giao bài tập cho học sinh dịp Tết cổ truyền năm nay.
+- Trong một năm thực hiện chỉ thị của Thủ tướng Chính phủ, Nghệ An đã lập biên bản xử phạt hành chính gần 9 tỉ đồng liên quan việc học sinh vi phạm giao thông.
+- Với bảng thành tích học thuật ấn tượng, đồng thời là thủ lĩnh ‘Sports President’, Nguyễn Khang (lớp 12/12 cơ sở Cộng Hòa) đã trúng tuyển vào 2 trường đại học danh tiếng.
+- Lớp học của thầy Tuấn được ngăn làm hai: một bên cho trẻ lớp 1 học, bên kia cho trẻ mầm non chơi, tập vẽ, tập tô chữ… Trong giờ học, thầy hết chạy bên này lại sang bên kia...
 - Theo Bộ Giáo dục và Đào tạo, đa số các trường trung học phổ thông chưa có giáo viên môn nghệ thuật (âm nhạc, mỹ thuật) để học sinh lựa chọn môn học.
 - Học sinh say mê tìm hiểu những nét văn hóa đặc sắc của các dân tộc trong lễ hội xuân mang tên 'Sắc màu văn hóa dân tộc', do Trường trung học thực hành Đại học Sư phạm TP.HCM tổ chức ngày 22-1.
 - Năm 2025, Trường đại học Ngoại thương cơ bản giữ ổn định các phương thức tuyển sinh như năm 2024 và chỉ điều chỉnh một số chi tiết nhỏ để phù hợp với quy chế tuyển sinh đại học năm 2025.
@@ -994,15 +1001,61 @@
 - Sau sự việc, Phòng Giáo dục và Đào tạo huyện Thanh Oai yêu cầu học sinh không nhận đồ ăn, thức uống từ người lạ.
 - Trong khuôn khổ chuyến thăm cấp Nhà nước tới Mông Cổ, sáng 1-10, Tổng Bí thư, Chủ tịch nước Tô Lâm cùng Đoàn đại biểu cấp cao Việt Nam đã đến thăm Trường liên cấp số 14 mang tên Chủ tịch Hồ Chí Minh tại thủ đô Ulan Bator.
 - Sáng 1-10, ông Võ Cao Long - trưởng Phòng Giáo dục và Đào tạo quận 1, TP.HCM - chính thức cung cấp thông tin cho báo chí liên quan đến vụ việc cô giáo 'xin hỗ trợ mua laptop' xảy ra tại Trường tiểu học Chương Dương.
-- Tại huyện miền núi Tương Dương, Nghệ An xảy ra một trận lũ ống trong đêm làm cô lập 4 bản và bùn đất gây ngập một trường học.
-- Tại Việt Nam, việc trường trung cấp đón sinh viên quốc tế đến học tập, trao đổi khá hiếm, nhất là sinh viên đại học.
-- Để nâng cao chuỗi giá trị các ngành công nghiệp, công nghệ, cần nguồn nhân lực có trình độ đại học, kỹ năng chuyên sâu và bằng cấp về STEM.
-- Giảng viên tại nhiều trường đại học Mỹ 'sốc' khi nhận ra sinh viên ngày càng lười đọc. Nhưng rồi họ cũng nhanh chóng 'thích nghi'.
-- Ngày 30-9, tại Trường Victoria Shool - Nam Sài Gòn diễn ra lễ khai mạc vòng chung kết STEAM For Girls - STEAM Xanh cho nữ sinh 2024.
-- Tỉnh Yên Bái quyết định miễn 100% học phí năm học 2024-2025 cho trẻ em mầm non, học sinh, học viên trên địa bàn tỉnh.
-- Làm sao để không còn "hội chứng" sợ đi họp phụ huynh vì tình trạng lạm thu quỹ trường, quỹ lớp?
 ![Edu](Edu.png)
 ## Thời Sự 
+- Sáng 24-1 (tức ngày 25 tháng Chạp) hàng ngàn xe máy, ô tô bị ùn ứ tại hai đầu đường dẫn lên cầu Rạch Miễu.
+- Cầu phao Phong Châu (tỉnh Phú Thọ) duy trì hoạt động xuyên đêm giao thừa để phục vụ người dân vui xuân, đón Tết Ất Tỵ.
+- Việc công bố các quyết định liên quan đến sắp xếp, tinh gọn bộ máy cấp tỉnh, huyện sẽ được thực hiện từ ngày 18 đến 20-2-2025.
+- Mùa xuân đang gõ cửa mọi nhà, Tuổi Trẻ ghi lại những dòng thời sự và suy nghĩ từ quý bạn đọc, cùng nhìn lại những thay đổi trong năm qua và cùng hướng về năm mới, mong chờ những thành tựu mới trong năm 2025.
+- Tin tức đáng chú ý: Ngân hàng rao bán 400 khoản nợ vay tiêu dùng cận Tết; Cách 'né' kẹt xe khi về miền Tây; Hôm nay khai mạc Hội hoa xuân TP.HCM...
+- Rạng sáng 24-1, cao tốc TP.HCM - Long Thành - Dầu Giây - Phan Thiết kẹt xe kéo dài. CSGT đã điều tiết một phần phương tiện sang quốc lộ 1 để giải tỏa, đến 6h sáng nay xe cộ đã có thể lưu thông bình thường.
+- Hôm nay 24-1, thời tiết Bắc Bộ duy trì rét dù trời có nắng, Nam Bộ sáng sớm se mát nhưng về trưa trời oi nóng.
+- Từ 23-1 (24 tháng chạp), nhiều người dân bắt đầu từ TP.HCM về quê nên tại một số tuyến đường, cửa ngõ thành phố bắt đầu đông hơn. Trên các đoạn tuyến cao tốc, xe cộ cũng bắt đầu đông hơn nhưng nhìn chung vẫn còn "dễ thở".
+- Cầu truyền hình trực tuyến từ đất liền đến huyện đảo Trường Sa với những lời chúc, lời thăm hỏi thân tình của lãnh đạo tỉnh Khánh Hòa, làm cho khoảng cách giữa đảo xa với đất liền như gần hơn.
+- Tối 23-1, cả trăm xe rác không vào bãi rác Đa Phước được gây ra ùn ứ kéo dài, nguy cơ rác thải TP.HCM trong ngày không kịp xử lý.
+- Ông Bùi Văn Nghiêm, nguyên bí thư Tỉnh ủy Vĩnh Long, được Bộ Chính trị điều động, bổ nhiệm giữ chức phó trưởng Ban Nội chính Trung ương.
+- Công an tỉnh An Giang phối hợp cùng Ủy ban Mặt trận Tổ quốc Việt Nam tỉnh An Giang mở phiên chợ 0 đồng và trao 600 phần quà để người dân khó khăn ăn Tết.
+- Trung ương Đảng đã đồng ý cho ông Dương Văn An, cựu bí thư Tỉnh ủy Vĩnh Phúc, thôi chức ủy viên Trung ương Đảng khóa XIII.
+- Đại diện Phòng cảnh sát giao thông TP.HCM cho biết khi người dân phát hiện đèn tín hiệu giao thông gặp sự cố, hãy gọi điện báo ngay cho cảnh sát giao thông qua số điện thoại dán trên tủ điều khiển.
+- Đến thời điểm này, tuyến cao tốc Quảng Ngãi - Đà Nẵng vẫn thông thoáng dù lượng xe lưu thông có tăng so với bình thường.
+- Ban Chấp hành Trung ương Đảng đã bầu ông Trần Lưu Quang, ủy viên Trung ương Đảng, trưởng Ban Kinh tế Trung ương, giữ chức ủy viên Ban Bí thư khóa XIII.
+- Ban Chấp hành Trung ương đã bầu bổ sung ông Nguyễn Duy Ngọc giữ chức ủy viên Bộ Chính trị, chủ nhiệm Ủy ban Kiểm tra Trung ương.
+- Dù Tết Nguyên đán đã cận kề, song vì các công việc đặc biệt quan trọng của Đảng cần triển khai ngay, nên Bộ Chính trị quyết định triệu tập Hội nghị Trung ương vào thời điểm này.
+- Những ngày cận Tết Nguyên đán Ất Tỵ, thị trường đào đá, đào rừng ở chợ hoa tại thành phố Vinh, Nghệ An trầm lắng bởi thưa vắng khách hỏi mua.
+- Dịp Tết, sự thay đổi trong nếp sinh hoạt và thời tiết khiến trẻ nhỏ dễ gặp phải các vấn đề sức khỏe, đặc biệt là rối loạn tiêu hóa và nhiễm khuẩn đường hô hấp.
+- Những chuyến xe nghĩa tình rời Bệnh viện Đà Nẵng đã đưa 150 người bệnh khó khăn cùng thân nhân về quê đón Tết.
+- Tài xế lái xe tải đi ngược chiều trên quốc lộ 1 qua Quảng Bình bị người dân quay clip. Tài xế vừa bị phạt 19 triệu đồng, trừ 4 điểm trên giấy phép lái xe.
+- Bà 'Đậu Thanh Tâm' bị bắt tạm giam với cáo buộc đăng tải một số video clip với thông tin bịa đặt kêu gọi, kích động người dân phản đối nghị định 168.
+- Nhờ sự hướng dẫn của điều phối viên Trung tấm Cấp cứu 115 (TP.HCM), mẹ con sản phụ sinh non tại Đồng Nai đã vượt qua giai đoạn nguy kịch.
+- Giám đốc Công an Đà Nẵng đã có những chia sẻ liên quan đường dây rửa tiền có quy mô lớn nhất từ trước đến nay vừa bị triệt phá.
+- Cận Tết, lưu lượng xe cộ trên quốc lộ 1 đoạn qua các tỉnh Khánh Hòa, Phú Yên, Bình Định tăng cao. Hiện các địa phương này đã lên phương án giảm kẹt xe, cũng như đảm bảo an toàn giao thông.
+- Không tổ chức hội đồng nhân dân cấp xã, phường, kể cả hội đồng nhân dân cấp quận đem lại nhiều lợi ích.
+- Tổng Bí thư Tô Lâm cho biết Bộ Chính trị sẽ trình Trung ương phương án kiện toàn Ủy ban Kiểm tra Trung ương, bổ sung ủy viên Bộ Chính trị, Ban Bí thư.
+- Xe buýt trung chuyển hành khách tại sân bay Tân Sơn Nhất trong dịp Tết Nguyên đán 2025 được niêm yết thông tin song ngữ Việt - Anh 'Xe trung chuyển miễn phí đi ra đường Hồng Hà, Bạch Đằng'.
+- Do ảnh hưởng của không khí lạnh, ở Bắc Bộ và Bắc Trung Bộ, từ chiều và đêm 26-1 (27 Tết) trời rét đậm, vùng núi rét hại, vùng núi cao có khả năng xảy ra băng giá, sương muối.
+- Tỉnh Khánh Hòa vừa giao Sở Tài nguyên và Môi trường chuẩn bị để đối thoại với 2 doanh nghiệp bị sở đề nghị thu hồi đất dự án tại TP Nha Trang, lý do 10 năm trước đây tỉnh cho thuê đất 'không đúng đối tượng' .
+- Ngày 23-1, Mặt trận Tổ quốc Việt Nam TP.HCM phối hợp với Trung tâm Chuyển đổi số, Thành Đoàn, Hội Liên hiệp phụ nữ và Liên đoàn Lao động TP tổ chức hội nghị ký kết triển khai ứng dụng 'Công dân số TP.HCM'.
+- Tân Sơn Nhất khai thác 1.000 chuyến bay với 130.000 lượt khách trong ngày 23-1 (24 tháng chạp). Nhà ga chật ních người, khách xếp hàng dài chờ gửi hành lý, thấp thỏm lo trễ chuyến bay.
+- Nhận hối lộ 2 bụi sim cảnh và 5 triệu đồng để giải quyết nhanh hồ sơ đất đai trái quy định, nhân viên Chi nhánh Văn phòng Đăng ký đất đai ở Quảng Nam bị bắt giam.
+- Trưa 23-1, hai đoạn cao tốc Bến Lức - Long Thành qua huyện Bình Chánh (TP.HCM) và huyện Nhơn Trạch (Đồng Nai) đã thông xe.
+- Ngày 23-1, Tổng Bí thư Tô Lâm đã trao Huân chương Hồ Chí Minh tặng nguyên Thường trực Ban Bí thư Đinh Thế Huynh vì đã có công lao to lớn, đặc biệt xuất sắc trong sự nghiệp cách mạng của Đảng, dân tộc.
+- Mỗi chiếc xe máy chở 5 - 7 buồng chuối có giá bán trên dưới 1 triệu đồng ở chợ chuối Tân Long (Quảng Trị), giúp người nông dân có cái Tết thêm ấm êm, sung túc.
+- Nam TikToker tự nhận mình đang xuyên không vào thế giới khác tại sân bay Đồng Hới để câu view, câu like. Người này đã bị Công an Quảng Bình triệu tập.
+- Bộ Công an được giao chủ động hướng dẫn công an cấp tỉnh triển khai đề án sắp xếp công an cấp huyện, hoàn thiện chức năng, nhiệm vụ, quyền hạn công an cấp tỉnh.
+- Theo Ban Quản lý dự án đầu tư xây dựng công trình giao thông tỉnh Đồng Tháp, tiến độ dự án cao tốc Cao Lãnh - An Hữu đạt khoảng 55%, đã đưa về công trường 1,34 triệu m³ cát, nhưng chưa đạt kế hoạch năm 2024.
+- Các cửa khẩu ở khu vực tỉnh Lạng Sơn sẽ tạm dừng thông quan hàng hóa với Trung Quốc trong dịp Tết Nguyên đán Ất Tỵ 2025.
+- Tại nút giao thông Ngã Ba Trong (thị xã Ninh Hòa, Khánh Hòa), hàng ngàn chiếc xe từ các tỉnh thành phía Nam đổ về theo tuyến quốc lộ 1 hướng Nam - Bắc đã bị ùn ứ vì thời gian lưu thông đèn xanh ngắn nhưng thời gian dừng đèn đỏ lại dài.
+- Đại sứ các nước Canada, New Zealand, Na Uy và Thụy Sĩ tại Việt Nam cùng hòa giọng, gửi lời chúc mừng Tết Ất Tỵ 2025.
+- Hai tuyến cao tốc Nội Bài - Lào Cai và Cầu Giẽ - Ninh Bình được đề xuất mở rộng bằng nguồn vốn đầu tư công để kịp tiến độ khởi công trong năm 2025.
+- Trong chuyến ra khơi dịp cuối năm, nhóm ngư dân ở Hà Tĩnh trúng đậm mẻ cá cơm có trọng lượng khoảng 100 tấn, thu về nguồn tiền đáng kể đón Tết.
+- Ngày 23-1, Công an Đà Nẵng cho biết Phòng cảnh sát kinh tế vừa tống đạt các quyết định khởi tố, bắt tạm giam nữ giám đốc để điều tra về tội in, phát hành, mua bán trái phép hóa đơn; trốn thuế. Ngoài người này còn có hai đồng phạm liên quan.
+- Sáng 23-1, đoàn đại biểu lãnh đạo, nguyên lãnh đạo Đảng, Nhà nước đã đặt vòng hoa, vào Lăng viếng Chủ tịch Hồ Chí Minh, dâng hương tưởng niệm anh hùng liệt sĩ.
+- Giữa đêm khuya, một xe khách chạy hướng Bắc - Nam đã bất ngờ lao vào nhà dân ở TP Đồng Hới (Quảng Bình) khiến ít nhất 2 người trên xe bị thương, một phần nhà dân bị đổ sập.
+- UBND tỉnh Tiền Giang vừa chấp thuận cho mỏ Hòa Hưng - 5, mỏ Vàm Cái Thia và mỏ Hòa Khánh - 1 được tiếp tục khai thác cát để cung cấp cho dự án đường vành đai 3 TP.HCM.
+- Khai ban đầu với cơ quan điều tra, các nghi can trong nhóm phía người phụ nữ đặt hàng qua sàn Shopee nói do bức xúc nhất thời. Cả hai phía đều đã có nhậu từ trước.
+- Chủ yếu người dân mua sắm hàng hóa thiết yếu của những ngày Tết, chuẩn bị đi du lịch.
+- Ngày 23-1, ông Lê Xuân Hiền - giám đốc Đài Khí tượng thủy văn tỉnh Kiên Giang - thông tin dự báo xâm nhập mặn khu vực tỉnh Kiên Giang từ ngày 21 đến 31-1. Đáng chú ý, cảnh báo nước mặn 4‰ sẽ xâm nhập sâu vào nội đồng.
+- Chia sẻ các yếu tố để ASEAN thành công trong kỷ nguyên thông minh, Thủ tướng Phạm Minh Chính cũng nêu bật quyết tâm của Việt Nam để vững bước trong kỷ nguyên này.
 - Bộ Xây dựng đang trình Thủ tướng việc tổ chức hội nghị thúc đẩy nhà ở xã hội và thị trường bất động sản phát triển lành mạnh, bền vững.
 - Tết này, những hộ dân cuối cùng của ấp đảo Thiềng Liềng, xã đảo Thạnh An sẽ được dùng điện từ lưới điện quốc gia, thoát cảnh chập chờn sau nhiều thập kỷ.
 - Ngày 23-1, nhiều gia đình bắt đầu về quê các tỉnh miền Trung, miền Bắc ăn Tết 2025, lượng xe di chuyển lên cao tốc Phan Thiết - Dầu Giây và TP.HCM - Long Thành tăng đột biến, gây kẹt xe kéo dài từ sáng sớm.
@@ -1951,59 +2004,6 @@
 - Sau khi hoàn thành căn nhà, nam thợ hồ được chủ nhà mời ở lại nhậu. Khi ra về, thợ hồ này bị cảnh sát giao thông TP Thủ Đức kiểm tra, lập biên bản, trừ 10 điểm giấy phép lái xe.
 - Người cung cấp thông tin vi phạm hành chính về trật tự an toàn giao thông được hỗ trợ tối đa 5 triệu đồng/vụ việc.
 - Công an quận 1 (TP.HCM) đã bắt hai vợ chồng đánh người trên đường Lê Duẩn tối 31-12 để điều tra hành vi "gây rối trật tự công cộng".
-- Từ 1-1-2025, Luật Trật tự an toàn giao thông đường bộ 2024 có hiệu lực, quy định về tín hiệu đèn giao thông có một số khác biệt so với trước.
-- Trong hai ngày qua, nhiều tài xế taxi điện Nam Thắng ở Cà Mau đã đình công để phản đối những chính sách được cho là không thỏa đáng của công ty.
-- Anh B., 38 tuổi, ngụ TP Bến Cát, tỉnh Bình Dương, bị đánh giữa giao lộ khiến anh nguy kịch, phải nhập viện. Vụ đánh người nghi mâu thuẫn sau va quẹt giao thông.
-- Ông Đinh Minh Cảnh (làm nghề chạy xe ôm), có nhiều năm tự nguyện hút đinh trên quốc lộ 1 đoạn qua huyện Bình Chánh, TP.HCM, cho biết số vật nhọn hút được vào dịp Tết dương lịch 2025 giảm so với trước, theo ông đây là tín hiệu đáng mừng.
-- Ngày 1-1, HĐND huyện Long Đất, tỉnh Bà Rịa - Vũng Tàu đã tổ chức kỳ họp thứ nhất để kiện toàn bộ máy hoạt động. Trong khi đó, Thủ tướng Chính phủ đã ký nghị quyết thành lập TP Phú Mỹ cũng thuộc tỉnh này, trên cơ sở của thị xã cùng tên.
-- Bộ Y tế vừa ban hành danh mục 62 bệnh hiếm, bệnh hiểm nghèo không cần giấy chuyển viện, người bệnh vẫn được hưởng 100% mức hưởng bảo hiểm y tế.
-- Chủ tịch tỉnh Kon Tum đến hiện trường chỉ đạo tìm kiếm và yêu cầu chủ đầu tư thủy điện Đăk Mi 1 chăm lo chế độ tốt cho các nạn nhân.
-- Metro số 1 đã chính thức ghi nhận mốc hơn 1 triệu lượt khách chỉ sau thời gian ngắn vận hành. Trong ngày đầu năm mới, ga Bến Thành trở nên nhộn nhịp hơn bao giờ hết, thu hút đông đảo người dân và du khách tham quan, trải nghiệm.
-- Cảnh sát giao thông Hà Nội sử dụng camera nghiệp vụ để ghi hình tài xế vượt đèn đỏ, sau đó in ảnh và cho tài xế xác nhận.
-- Dù là ngày nghỉ Tết dương lịch nhưng lượng khách đến Vũng Tàu thưa vắng. Trong khi đó công trình chỉnh trang Bãi Sau trị giá ngàn tỉ có nhiều công nhân tất bật thi công.
-- Toàn bộ diện tích tự nhiên 82,87km² và dân số 101.272 người của huyện Đông Sơn nhập vào TP Thanh Hóa từ ngày 1-1-2025.
-- Lực lượng cứu nạn tìm thấy nhiều bộ phận cơ thể nạn nhân trong vụ sập giàn giáo thủy điện Đăk Mi 1 (Kon Tum).
-- Chủ tịch Quốc hội Trần Thanh Mẫn ký một số nghị quyết của Ủy ban Thường vụ Quốc hội về công tác nhân sự và việc chuẩn bị công việc liên quan tinh gọn bộ máy.
-- Ngày đầu áp dụng nghị định 168, cảnh sát giao thông đã lập biên bản một số trường hợp vượt đèn đỏ, chạy ngược chiều... với mức xử phạt mới.
-- Trong ngày đầu năm 2025, hàng trăm công nhân vẫn miệt mài thi công tại các gói thầu thuộc dự án cầu Rạch Miễu 2, nối hai tỉnh Tiền Giang và Bến Tre, tất cả vì mục tiêu chung: đưa dự án về đích đúng hẹn.
-- Cuộc cách mạng trong tinh gọn bộ máy được kỳ vọng trở thành cơ sở quan trọng trong việc đưa khu vực kinh tế tư nhân trở thành đội quân tiên phong để khai thác các không gian tăng trưởng mới.
-- Năm 2024 ghi nhiều dấu ấn trong sự nghiệp xây dựng và phát triển đất nước, là năm có những chuyển động mạnh mẽ, tích cực.
-- Không khí xuân đang lan tỏa khắp tàu Trường Sa 02 và Trường Sa 21. Nhiều phần quà Tết Ất Tỵ gửi trao chân tình của đất liền đã được chuyển lên tàu để khởi hành ngay ngày đầu tiên của năm mới 2025.
-- Ông Hoàng Hải, cục trưởng Cục Giám định nhà nước về chất lượng công trình xây dựng, Bộ Xây dựng, vừa ký văn bản khẩn lập đoàn công tác kiểm tra, xác định nguyên nhân sự cố sập giàn giáo thủy điện Đăk Mi 1.
-- Từ hôm nay 1-1-2025, thành phố Huế trực thuộc trung ương chính thức được thành lập theo nghị quyết 175 của Quốc hội.
-- An Giang khẩn trương xây dựng các đề án sắp xếp, tinh gọn bộ máy từ tỉnh đến cơ sở, bảo đảm sự tinh gọn, hiệu quả.
-- Chính quyền TP Thủy Nguyên thuộc TP Hải Phòng chính thức vận hành từ hôm nay 1-1-2025.
-- "Đổi mới, sáng tạo, tăng tốc, bứt phá, đưa đất nước vững bước tiến vào Kỷ nguyên vươn mình, phát triển giàu mạnh, văn minh, thịnh vượng của dân tộc".
-- Sau khi sắp xếp, tinh gọn bộ máy, cơ quan Trung ương Hội Liên hiệp phụ nữ Việt Nam giảm 5 đầu mối cấp vụ, từ 15 đầu mối xuống 10 đầu mối.
-- Với 6 triệu kiều bào, Việt Nam đang sở hữu một “mỏ vàng” trí tuệ chưa được khai thác hết.
-- Việc Quốc hội quyết định chủ trương đầu tư dự án đường sắt tốc độ cao trục Bắc - Nam và khởi động lại dự án điện hạt nhân Ninh Thuận lọt top 10 sự kiện 2024.
-- Sinh viên xuất sắc vào công chức được hưởng lương khởi điểm 13,7 triệu đồng, còn nhà khoa học, chuyên gia đầu ngành được bổ nhiệm chuyên viên cao cấp hoặc tương đương hưởng lương hơn 58 triệu đồng/tháng.
-- TP.HCM vừa công bố 10 dấu ấn nổi bật của TP.HCM năm 2024 ở các lĩnh vực: chính trị; kinh tế; chuyển đổi số và cải cách hành chính; giao thông, đô thị; quốc phòng, an ninh; văn hóa, xã hội.
-- Đúng 0h ngày 1-1-2025, Bệnh viện Từ Dũ đón 7 công dân nhí chào đời, gồm 4 bé trai và 3 bé gái. Trong đó, 5 bé sinh thường và 2 bé sinh mổ.
-- Tin tức đáng chú ý: Cán bộ không tái cử, tái bổ nhiệm được trợ cấp 5 tháng lương/năm nghỉ sớm; TP.HCM: Hơn 1,1 triệu người dân tích hợp hồ sơ sức khỏe điện tử trên VNeID; 109.000 giỏ hoa bày tại đường hoa Nguyễn Huệ Tết này.
-- Hôm nay 1-1, ngày đầu năm 2025, thời tiết hai miền Bắc và Nam vẫn tương đối tốt, riêng Trung Bộ có nơi mưa vừa.
-- Cảnh sát mặc thường phục tìm hiểu những bãi xe quanh hồ Gươm thu tiền gấp nhiều lần so với quy định và sai vị trí, sau đó lập biên bản xử phạt, đêm 31-12.
-- Đại diện Cục Cảnh sát giao thông cho biết trường hợp người dân bị lập biên bản xử phạt chưa thỏa đáng do đèn tín hiệu trục trặc, họ có quyền khiếu nại theo quy định. Lực lượng cảnh sát giao thông chắc chắn sẽ có sự đối chiếu, xem xét.
-- Thủ tướng Chính phủ gửi lời thăm hỏi ân cần, chia buồn sâu sắc nhất đến các gia đình, thân nhân người bị nạn trong vụ sập giàn giáo thủy điện Đăk Mi 1.
-- Tổng Bí thư Tô Lâm yêu cầu kiên quyết không để lọt vào cấp ủy khóa mới những cán bộ tham nhũng, lãng phí, tiêu cực, kê khai tài sản không trung thực.
-- Chiều cuối năm 31-12, nút giao An Phú (TP.HCM) đông nghịt xe cộ. Dòng xe nối dài gần 4km từ đường dẫn vào cao tốc TP.HCM - Long Thành - Dầu Giây, khiến giao thông khu vực này trở nên căng thẳng hơn.
-- Sau hơn 10 ngày điều trị, 19 người ngộ độc sau bữa tiệc liên hoan tại quận Long Biên, Hà Nội được cấp cứu tại Bệnh viện Bạch Mai đã có 14 bệnh nhân được ra viện. Còn 5 bệnh nhân có tổn thương não, phổi vẫn đang được điều trị tích cực.
-- Thời khắc chuyển giao sang năm 2025, nhiều sự kiện âm nhạc, bắn pháo hoa được tổ chức trên khắp cả nước thu hút hàng triệu người dân ra đường hòa mình vào không khí chào đón năm mới 2025 với đầy niềm vui và hy vọng.
-- Ngày 31-12, Công an phường Hiệp Bình Chánh (Công an TP Thủ Đức) đã mời người phụ nữ hành hung nhân viên gác chắn lên làm việc, lấy lời khai.
-- Chính phủ thông qua 3 nghị định về chính sách thu hút, trọng dụng nhân tài, chế độ chính sách với cán bộ thôi việc, chế độ với cán bộ, công chức ảnh hưởng do tinh gọn bộ máy.
-- Ngày 31-12, Ban Bồi thường giải phóng mặt bằng TP Thủ Đức (TP.HCM) triển khai chi trả bồi thường cho các hộ dân có nhà đất bị ảnh hưởng dự án vành đai 2 TP.HCM.
-- Ngày 31-12, Sở Lao động, Thương binh và Xã hội tỉnh Bình Định cho hay vừa có báo cáo gửi Cục Quan hệ lao động và Tiền lương (Bộ Lao động, Thương binh và Xã hội) về tiền lương, thưởng Tết của các doanh nghiệp trên địa bàn.
-- Bảo hiểm xã hội tỉnh Khánh Hòa sẽ chi trả gộp chung một lần, trước Tết, tiền lương hưu, trợ cấp cả 2 tháng đầu năm 2025 cho tất cả những người được hưởng vào các ngày tới.
-- Theo ông Đặng Văn Dũng, Tổng Bí thư Tô Lâm đã yêu cầu thanh tra dự án Bệnh viện Bạch Mai, Việt Đức cơ sở 2 tại Hà Nam và kết luận trước ngày 31-3-2025.
-- Để bảo đảm trật tự an toàn giao thông phục vụ tổ chức bắn pháo hoa đón chào năm mới 2025, Sở Giao thông vận tải TP.HCM cho biết sẽ cấm xe trên 20 tuyến đường ở trung tâm thành phố.
-- Hiện trường vụ sập giàn giáo công trình đập thủy điện Đăk Mi 1 là một đống hỗn độn với nhiều tảng đá, bê tông lớn.
-- Ngày cuối cùng của năm 2024, công trường dự án cao tốc Bắc - Nam ghi nhận nhà thầu đang tích cực đôn đốc công nhân thi công dự án. Thậm chí có kế hoạch 'gác lễ' đẩy nhanh thi công để dự án hoàn thành kịp tiến độ.
-- Chiều 31-12, Ban Tuyên giáo Thành ủy Hà Nội đã ký, ban hành công văn hỏa tốc công bố 10 sự kiện, vấn đề nổi bật, tiêu biểu của thủ đô Hà Nội trong năm 2024.
-- Năm 2024, có hơn 92% người dân và tổ chức hài lòng và rất hài lòng với việc giải quyết các thủ tục hành chính ở Ninh Thuận.
-- Ngày 31-12 đánh dấu ngày thứ 10 tuyến metro số 1 chạy chính thức, cũng là ngày cuối năm 2024. Không khí sôi động tiếp tục diễn ra tại các nhà ga.
-- Bà Bình - nhân viên gác chắn tàu - cho biết người phụ nữ dùng nắm đấm để nói chuyện dẫn đến gây thương tích cho bà.
-- Theo người phát ngôn Bộ Công an, liên quan vụ án tại Công ty Vàng bạc đá quý Sài Gòn (SJC), đến nay đã khởi tố 6 người về 2 tội danh.
-- Một cột đèn điện nằm ngay giữa tim đường dân sinh đã gần một năm qua nhưng cơ quan chức năng vẫn như “không nghe, không thấy”.
 ![New](News.png)
 ## Nhịp sống số 
 - Hiệp hội An ninh mạng quốc gia vừa công bố thành lập Liên minh ứng phó, khắc phục sự cố an ninh mạng quốc gia.
