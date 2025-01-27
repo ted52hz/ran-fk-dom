@@ -1,6 +1,7 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Sau 4 năm khuyết chức vụ hiệu trưởng, Trường đại học Sư phạm kỹ thuật TP.HCM vừa có hiệu trưởng được Bộ Giáo dục và Đào tạo công nhận.
 - Theo đó, các giáo viên vui mừng, phấn khởi khi vừa được nhận tiền thưởng vào dịp Tết, với số tiền lớn theo nghị định 73 của Chính phủ.
 - Đoàn Thành Nhân, lớp 10 chuyên tin Trường Phổ thông Năng khiếu, tặng tiền thưởng của mình cho các em học sinh trường cũ.
 - Học sinh Trường Quốc tế Á Châu (Asian School) đạt hai giải Nhì và ba giải Ba tại Cuộc thi Khoa học Kỹ thuật cấp thành phố.
@@ -1000,9 +1001,31 @@
 - Ngoài khu đô thị Đại học Quốc gia TP.HCM đã hoạt động, TP.HCM còn có ba dự án khu đô thị đại học và giáo dục tập trung.
 - Liên quan vụ việc phụ huynh xông vào trường đánh học sinh lớp 8, nhà trường đã kỷ luật 3 học sinh tham gia đánh nhau.
 - Kết quả điều tra gian lận khoa học về một giáo sư y khoa nổi tiếng của Đại học California tại San Diego (UCSD, Mỹ) đang gây rúng động giới y khoa toàn cầu.
-- Chủ trương đưa tiếng Anh thành ngôn ngữ thứ hai trong trường học là chủ trương đúng đắn, phù hợp với điều kiện Việt Nam trong bối cảnh toàn cầu hóa. Nhưng chủ trương này sẽ gặp không ít thách thức cần được hóa giải.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Bộ Nội vụ đã có tờ trình gửi Chính phủ đề xuất cơ cấu tổ chức của Chính phủ nhiệm kỳ 2021 - 2026 gồm 14 bộ và 3 cơ quan ngang bộ.
+- Năm 1975, tôi đang học tiếng Đức tại Đại học Ngoại ngữ Hà Nội để chuẩn bị đi học luật ở CHDC Đức. Sáng 30-4-1975, chúng tôi vào lớp học, tin quân giải phóng sắp vào đến Sài Gòn vang lên khắp phố phường Hà Nội.
+- Hôm nay 27-1 (28 tháng chạp), nhiệt độ Bắc Bộ xuống rất thấp, Trung Bộ mưa to, Nam Bộ thời tiết nhiều mây, có lúc mưa rào.
+- Buổi tổng duyệt chương trình nghệ thuật "Rực rỡ Thăng Long" tại quảng trường Mỹ Đình tối 26-1 bị gián đoạn bởi drone rơi khiến đám cỏ trong khuôn viên trường đua F1 bốc cháy, UBND quận Nam Từ Liêm (Hà Nội) nói gì?
+- Một đường dây tội phạm lừa đảo, rửa tiền quy mô quốc tế vừa bị cảnh sát hình sự Đà Nẵng triệt phá. Đường dây này đã lừa khoảng 800 nạn nhân với tổng số tiền gần 1.800 tỉ đồng.
+- UBND Hà Nội vừa có tờ trình dự thảo nghị quyết quy định mức tiền phạt đối với một số hành vi vi phạm hành chính trong lĩnh vực giao thông đường bộ trên địa bàn thành phố.
+- Những ngày giáp Tết, Chủ tịch Quốc hội Trần Thanh Mẫn đến thăm, tặng 500 phần quà cho người dân tại thành phố Cần Thơ.
+- Dự án cao tốc TP.HCM - Thủ Dầu Một - Chơn Thành là cao tốc nối TP.HCM và Bình Dương có quy mô hơn 8.833 tỉ đồng đã có nhà đầu tư, chuẩn bị khởi công.
+- Chỉ hơn một năm trước, đôi bờ sông Sài Gòn qua trung tâm TP.HCM vẫn còn bên hiện đại, bên bờ lau lách mà giờ đây hoa đã nở, đèn rực sáng, nhạc đã hòa ca đón xuân về.
+- Sau khi ông Lê Văn Nhẫn (ngụ huyện Bình Chánh, TP.HCM) bắt được một con kỳ đà vân tại vườn gần nhà thì có người trả giá tiền triệu nhưng ông không bán mà giao cho kiểm lâm chăm sóc cứu hộ.
+- Những phạm nhân cùng ăn bữa cơm tất niên có bánh chưng, dưa hành muối… đều mong muốn cải tạo tốt, sớm về sum vầy bên gia đình.
+- Sáng 26-1, Thủ tướng Phạm Minh Chính đã đến thăm, chúc Tết, làm việc và tặng quà cho gia đình chính sách, hộ nghèo, công nhân lao động trên địa bàn huyện Ngọc Lặc (tỉnh Thanh Hóa).
+- Bệnh viện Hữu nghị Đa khoa Nghệ An thay đổi công năng của tầng hầm từ gara để xe thành kho chứa hồ sơ mà chưa được cơ quan có thẩm quyền phê duyệt.
+- Những ngày cuối năm, tiết trời Hà Nội trở lạnh, có hôm 12-16 độ C kèm mưa phùn, nhưng nhiều công nhân vẫn hí hửng vì sắp được về nhà thăm con, chúc Tết ông bà.
+- Tết Ất Tỵ, người dân khu vực dự án điện hạt nhân Ninh Thuận 1 và 2 như có thêm niềm vui mới. Mọi người, mọi nhà đều rộn ràng đón Tết vui tươi hơn mọi năm.
+- Những thông tin nổi bật tuần qua bạn đọc cung cấp, Tuổi Trẻ Online đã nhanh chóng triển khai thành tin bài: Shipper bị chấm điểm xấu, công ty giao hàng phạt 500.000 đồng có đúng luật; Dựng nêu đón Tết, 5 người bị điện giật.
+- Quà nhỏ nhưng chứa đựng tình cảm của cán bộ, chiến sĩ Hải đoàn 42, Bộ Tư lệnh Vùng cảnh sát biển 4 mong muốn gửi đến bà con nghèo ở vùng đất cuối cùng Tổ quốc vui xuân đón Tết.
+- Đi bar chơi, cô gái 18 tuổi tại Quảng Bình bị một chùm tia laser ở quán bar chiếu vào mắt, dẫn đến xuất huyết nhiều vị trí trong mắt, nguy cơ mất thị lực.
+- Sáng 26-1 (27 Tết), Liên đoàn Lao động TP.HCM tổ chức chương trình 'Lãnh đạo Đảng, Nhà nước thăm, tặng quà công nhân, lao động dịp Tết Nguyên đán Ất Tỵ 2025' cho hơn 200 gia đình công nhân.
+- Theo nghị định 168, mức xử phạt vi phạm nồng độ cồn cao nhất với tài xế ô tô là 40 triệu, xe máy là 10 triệu đồng và còn bị trừ điểm, tước bằng lái.
+- Theo Tổng liên đoàn Lao động Việt Nam, tiền lương, thưởng Tết đều tăng so với năm ngoái và chi chăm lo cho đoàn viên, lao động hơn 4.700 tỉ đồng.
+- Nam sinh cấp 2 ở Đồng Nai bị giập nát hai bàn tay, chấn thương mắt nặng do chế pháo nổ tại nhà.
+- Những ngày qua mạng xã hội lan truyền clip ghi lại cảnh một nam thanh niên hít xà đơn phản cảm trên chuyến tàu metro số 1 Bến Thành - Suối Tiên. Ngày 26-1, công ty vận hành đề nghị công an vào cuộc.
 - Thủ tướng Chính phủ mới có chỉ thị về các giải pháp cấp bách tăng cường công tác kiểm soát và xử lý ô nhiễm môi trường nước một số lưu vực sông, trong đó yêu cầu nghiêm túc xử lý ô nhiễm trên kênh thủy lợi Bắc Hưng Hải.
 - Tết Nguyên đán Ất Tỵ, thời tiết Bắc Bộ và Trung Bộ chịu sự chi phối của không khí lạnh mạnh, Nam Bộ ngày nắng.
 - Dự thảo nghị quyết trình Quốc hội đề xuất thí điểm nhiều cơ chế, chính sách đặc thù, đặc biệt phát triển đường sắt đô thị ở TP.HCM.
@@ -1981,29 +2004,6 @@
 - Hôm nay 4-1, thời tiết Bắc Bộ ngày nắng, trời lạnh. Trung Bộ mưa rào, Nam Bộ có mây, mưa rào và dông vài nơi.
 - Tài xế N.V.Q. lái ô tô đi ngược chiều trên đường cao tốc Nội Bài - Lào Cai. Theo nghị định 168/2024, hành vi này bị xử phạt 35 triệu đồng, trừ 10 điểm giấy phép lái xe.
 - Cảnh sát lập biên bản vi phạm đối với tài xế ô tô biển xanh về hành vi chở người trên nóc xe. Mức phạt 4-6 triệu đồng và trừ 6 điểm bằng lái.
-- Lần tăng giá nước sau 10 năm cố định, đối với hộ dân Đà Nẵng vẫn định mức nước thành 3 khung giá từ 1m3 - 10m3 đầu tiên, từ 11m3 - 30m3, từ 31m3 trở lên.
-- Sau 3 ngày nghị định tăng tiền phạt vi phạm giao thông có hiệu lực, tại TP.HCM vẫn có nhiều người 'vô tư' vi phạm.
-- Bộ Tư lệnh TP.HCM cho biết sẽ có 160 nữ dân quân tham gia huấn luyện duyệt binh diễu hành kỷ niệm 50 năm Ngày giải phóng miền Nam thống nhất đất nước 30-4 sắp tới.
-- Tỉnh Khánh Hòa vừa giao các sở, UBND TP Nha Trang kiểm tra lại hồ sơ, tính pháp lý, thực tế triển khai cùng các tồn tại, vi phạm tại dự án biệt thự có loại 'đất lạ' ở xã Phước Đồng, TP Nha Trang.
-- Đoạn clip ghi lại cảnh chiếc Audi chạy qua thì đèn tín hiệu giao thông lập tức nhảy loạn xạ, sau đó chuyển sang xanh.
-- Ông Nguyễn Văn Thành, giám đốc Sở Khoa học và Công nghệ tỉnh Quảng Ngãi, có đơn xin nghỉ hưu trước tuổi.
-- Phó trưởng Phòng Dân tộc huyện Trần Văn Thời, Cà Mau vừa bị công an bắt tạm giam vì có hành động sàm sỡ với nữ sinh khi được nhờ sửa ống nước.
-- Từ sáng đến chiều 3-1, kết quả chất lượng không khí tại Hà Nội đều cho mức xấu, rất xấu và cảnh báo đỏ, cảnh báo tím.
-- Tại phiên họp lần thứ 41, dự kiến Ủy ban Thường vụ Quốc hội sẽ cho ý kiến việc chuẩn bị kỳ họp bất thường lần thứ 9 (tháng 2-2025) liên quan tinh gọn bộ máy.
-- Thiếu tướng Đặng Hồng Đức - ủy viên Đảng ủy Công an Trung ương, chánh Văn phòng Bộ Công an - vừa được bổ nhiệm giữ chức thứ trưởng Bộ Công an.
-- Làng nghề làm trống Bắc Thai đã có tuổi đời hơn trăm năm những ngày này nhộn nhịp hẳn khi Tết cận kề, đây là thủ phủ làm trống duy nhất ở Hà Tĩnh đang giữ gìn nghề truyền thống của cha ông để lại.
-- Bảo đảm an ninh năng lượng quốc gia trong kỷ nguyên mới, kỷ nguyên chuyển đổi số, phát triển công nghệ cao - kỷ nguyên vươn mình của dân tộc với yêu cầu là nhiệm vụ chính trị đặc biệt quan trọng.
-- Từ năm 2025 người có bằng lái xe tích hợp bằng lái mô tô và ô tô bị tước bằng lái xe máy vẫn đổi được bằng lái ô tô khi đến hạn, thay vì phải chờ đến khi được trả bằng lái như trước đây.
-- Chủ tịch nước Lương Cường đồng ý kéo dài thời gian công tác, giữ nguyên chức vụ phó chánh án Tòa án nhân dân tối cao đến ngày 1-3-2026 với ông Nguyễn Trí Tuệ.
-- Trung tâm hành chính huyện Long Điền, tỉnh Bà Rịa - Vũng Tàu có trị giá đầu tư gần 345 tỉ đồng. Từ 1-1, cơ sở này dôi dư khi huyện này và huyện Đất Đỏ được sáp nhập làm một, thành huyện Long Đất.
-- Nhiều loại giấy tờ tùy thân như chứng minh nhân dân, thẻ bảo hiểm y tế, giấy phép lái xe, giấy đăng ký xe được một người bày bán trên vỉa hè ở quận Tân Phú (TP.HCM) với giá vài chục ngàn đến 100.000 đồng/giấy.
-- Nhìn nhận thực trạng bộ máy đang có 'chỗ thừa chỗ thiếu', các chuyên gia cho rằng một thành phố có nhiều yếu tố đặc thù như TP.HCM thì cần có những bộ máy đặc thù để vận hành.
-- Bà H. rơi xuống giếng sâu 25m, bị thương nặng từ trưa 2-1. Đến trưa nay (3-1), công an mới nhận được tin báo và lập tức cứu nạn nhân đưa đi cấp cứu.
-- Trưởng Phòng công chứng số 2 có trụ sở tại thị xã Bình Minh, tỉnh Vĩnh Long bị bắt do liên quan đến một đường dây đưa và nhận hối lộ.
-- Bộ Giáo dục và Đào tạo đánh giá mô hình phân hiệu đại học có nhiều ưu điểm nổi trội, giúp địa phương vừa đào tạo nguồn nhân lực, vừa tiết kiệm kinh phí.
-- Đến 2030, 22 quận huyện, TP Thủ Đức, TP.HCM sẽ phát triển chia thành 3 tiểu vùng đô thị với 10 trục giao thông chính kết nối các tiểu vùng, phân vùng.
-- Anh T. (ngụ Hà Tĩnh) bị kẻ gian dụ dỗ sang Campuchia làm việc, song bị cưỡng bức lao động, bị đánh đập và muốn trở về nước phải nộp 160 triệu đồng tiền chuộc.
-- Một người đàn ông đeo khẩu trang, đi vào khoa lão của Bệnh viện Đa khoa tỉnh Bình Định, tự xưng phó giám đốc bệnh viện, lừa đảo bệnh nhân và người nhà đưa tiền để truyền máu, truyền dịch và cho thuốc bổ.
 ![New](News.png)
 ## Nhịp sống số 
 - Hiệp hội An ninh mạng quốc gia vừa công bố thành lập Liên minh ứng phó, khắc phục sự cố an ninh mạng quốc gia.
