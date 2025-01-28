@@ -1,6 +1,8 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Khi kinh tế toàn cầu đang thay đổi nhanh chóng cùng sự phát triển của công nghệ, AI, hầu hết lĩnh vực nghề nghiệp đều phải linh hoạt cải tiến để thích ứng.
+- Lần đầu đến Việt Nam giảng dạy, cô Hong Ha Young (người Hàn Quốc) được sinh viên mời về quê ở Bình Thuận đón Tết Nguyên đán cùng với gia đình.
 - Sau 4 năm khuyết chức vụ hiệu trưởng, Trường đại học Sư phạm kỹ thuật TP.HCM vừa có hiệu trưởng được Bộ Giáo dục và Đào tạo công nhận.
 - Theo đó, các giáo viên vui mừng, phấn khởi khi vừa được nhận tiền thưởng vào dịp Tết, với số tiền lớn theo nghị định 73 của Chính phủ.
 - Đoàn Thành Nhân, lớp 10 chuyên tin Trường Phổ thông Năng khiếu, tặng tiền thưởng của mình cho các em học sinh trường cũ.
@@ -999,10 +1001,42 @@
 - Sau một ngày ra quân cao điểm xử lý học sinh vi phạm, cảnh sát giao thông toàn TP.HCM đã xử phạt 296 em vi phạm.
 - Mạng xã hội lan truyền bài viết, kèm hình ảnh một nam sinh có hành động thân mật với một cô gái tại bàn giáo viên và cho rằng cô gái trong clip là giáo viên.
 - Ngoài khu đô thị Đại học Quốc gia TP.HCM đã hoạt động, TP.HCM còn có ba dự án khu đô thị đại học và giáo dục tập trung.
-- Liên quan vụ việc phụ huynh xông vào trường đánh học sinh lớp 8, nhà trường đã kỷ luật 3 học sinh tham gia đánh nhau.
-- Kết quả điều tra gian lận khoa học về một giáo sư y khoa nổi tiếng của Đại học California tại San Diego (UCSD, Mỹ) đang gây rúng động giới y khoa toàn cầu.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Phần trình diễn ánh sáng bằng drone trong chương trình nghệ thuật "Rực rỡ Thăng Long" bị dừng để đảm bảo sự thành công của chương trình.
+- Hôm nay 28-1 (29 Tết), không khí lạnh đã tràn tới phương Nam, thời tiết cả nước bị chi phối bởi hình thái này.
+- Chiều 28 Tết, bí thư Tỉnh ủy Quảng Ngãi đến công trường cao tốc Quảng Ngãi - Hoài Nhơn thăm hỏi, động viên những công nhân làm việc xuyên Tết.
+- Đường hoa nghệ thuật Cần Thơ chính thức mở cửa từ tối nay (27-1) và kéo dài đến mùng 6 Tết. Điểm nhấn của đường hoa là đôi rắn kết thành hình trái tim tình yêu.
+- Tối 27-1, Đường hoa Nguyễn Huệ tại trung tâm TP.HCM chính thức khai mạc, chào đón hàng ngàn lượt khách đến du xuân sớm.
+- Viện Kiểm sát nhân dân tỉnh Bắc Ninh vừa có thông tin về thủ đoạn của đường dây lừa đảo giả công an liên quan đến hơn 13.000 bị hại với số tiền gần 1.000 tỉ đồng.
+- Bệnh viện Bạch Mai (Hà Nội) vừa thông báo 23 bệnh nhi trong vụ ngộ độc do uống nhầm thuốc diệt chuột ở tỉnh Tuyên Quang đã được xuất viện.
+- Chiều tối 27-1 (28 Tết), Thủ tướng Phạm Minh Chính đã tới dâng hương cố Thủ tướng Chính phủ Phạm Văn Đồng và chúc Tết gia đình cố Thủ tướng tại Hà Nội.
+- Chiều 27-1 (tức 28 Tết), tại ga Hà Nội, Thủ tướng Chính phủ Phạm Minh Chính chúc Tết, kiểm tra công tác ứng trực phục vụ hành khách dịp Tết.
+- Bộ Công an đang lấy ý kiến các cơ quan, tổ chức, cá nhân về dự thảo quyết định của Thủ tướng ban hành danh mục dữ liệu quan trọng, dữ liệu cốt lõi.
+- Với lỗi điều khiển ô tô đi ngược chiều tại đoạn đường một chiều (đường dẫn vào cao tốc Mai Sơn - quốc lộ 45), tài xế T.Đ.T. bị phạt 19 triệu đồng và trừ 4 điểm bằng lái.
+- Ngày 27-1, tức 28 tháng chạp - ngày thứ 3 của kỳ nghỉ Tết Nguyên đán Ất Tỵ, toàn quốc xảy ra 52 vụ tai nạn giao thông, làm thiệt mạng 26 người, bị thương 36 người. Trong số vụ vi phạm giao thông, vi phạm nồng độ cồn và tốc độ vẫn còn cao.
+- Trước thềm Tết Ất Tỵ 2025, Phó bí thư Thành ủy TP.HCM Nguyễn Phước Lộc đã đến thăm Hiệp sĩ Đại thánh giá Lê Đức Thịnh, GS.BS Nguyễn Thị Ngọc Phượng, nhà nghiên cứu Nguyễn Đình Tư, linh mục Giuse Đào Nguyên Vũ.
+- Lãnh đạo Công an tỉnh Phú Yên cho hay vừa ra quyết định khởi tố vụ án, khởi tố bị can đối với Triệu Văn Hương (39 tuổi, trú thôn Chư Blôi, xã Ea Bar, huyện Sông Hinh) về tội tàng trữ trái phép vũ khí quân dụng.
+- Lịch vận hành sàn nhạc nước ở quảng trường 29-3 Đà Nẵng như thế nào là điều nhiều người dân và du khách quan tâm.
+- Cận Tết, sân bay Tân Sơn Nhất (TP.HCM) trở nên quá tải, không ít người đã rơi vào tình trạng mệt mỏi khi đến nơi mới biết chuyến bay bị lùi giờ.
+- Nhiều xe máy khi đổ đèo Hải Vân đã bị trượt ngã, có trường hợp bị gãy ngón tay do vệt dầu loang trên đường.
+- Bộ Giao thông vận tải được giao chủ trì nghiên cứu kiến nghị đầu tư mở rộng tuyến đường kết nối  Bình Phước với Đồng Nai qua cầu Mã Đà.
+- Trong lúc băng qua đường sắt đoạn qua thôn Liên Trì 2 (xã Bình Kiến, TP Tuy Hòa, (Phú Yên), người đàn ông bị tàu hỏa tông tử vong.
+- Thủ tướng yêu cầu tuyệt đối không để xảy ra tình trạng người dân ốm vì rét mà không tiếp cận được dịch vụ y tế và chữa trị.
+- Hàng ngàn công nhân tại nhiều tỉnh thành đăng ký đi làm dịp nghỉ Tết Nguyên đán 2025 có thể nhận hơn 300% tiền lương so với ngày thường.
+- Ngày 26 đến 27-1, tại thành phố Phú Quốc (tỉnh Kiên Giang), Bộ tư lệnh  Vùng Cảnh sát biển 4 tổ chức hội thi bánh chưng xanh nhân dịp Tết Nguyên đán Ất Tỵ 2025.
+- Theo đại diện các bến xe tại TP.HCM, Tết năm nay lượng khách tăng đều hơn các năm trước đó, thậm chí vượt kế hoạch đề ra.
+- Sáng 27-1, Thủ tướng Phạm Minh Chính tới thăm, kiểm tra công tác ứng trực và chúc Tết cán bộ, chiến sĩ một số đơn vị công an, quân đội.
+- Các công đoạn kiểm tra cuối của Đường hoa Nguyễn Huệ đang được gấp rút thực hiện để đường hoa sẵn sàng mở cửa đón người dân thành phố và du khách tối nay.
+- Nhiều ngày qua, người dân TP Hà Tiên không có hoặc có rất ít nước sạch vào những ngày giáp Tết.
+- Hai cơ sở giết mổ lợn ở Thái Bình đã mua lợn nhiễm dịch bệnh về giết mổ bán cho người dân.
+- Tỉnh Bắc Ninh vừa trao thưởng nóng cho các tập thể triệt phá đường dây lừa đảo xuyên biên giới sử dụng công nghệ cao để lừa hơn 13.000 người.
+- Việc tiêu thụ quá nhiều thực phẩm giàu calo và đường có thể gây ra tình trạng tăng cân, vậy làm sao để kiểm soát calo những ngày Tết?
+- Đây là Tết Nguyên đán thứ ba liên tiếp, trụ sở UBND tỉnh Sóc Trăng được trang trí đẹp với nhiều tiểu cảnh bắt mắt để người dân vào tham quan, chụp hình.
+- Đường nối Trần Quốc Hoàn, đường Dương Quảng Hàm, cầu Bà Hom đã lần lượt được thông xe, giúp người dân có thêm sự lựa chọn đi lại dịp Tết.
+- Chiếc ô tô hiệu Toyota tông liên hoàn vào 2 xe máy rồi lao tiếp vào chiếc ô tô màu đỏ đi cùng chiều phía trước trước cổng chợ hoa Quảng An.
+- Vụ án mạng nghiêm trọng xảy ra tại huyện Diễn Châu, Nghệ An. Một đôi nam nữ bị người bạn cũ đâm chết trong đêm 27 Tết.
+- Mọi nẻo đường TP.HCM đã rộn ràng không khí Tết, công trường vành đai 3 đoạn qua TP Thủ Đức vẫn duy trì nhịp độ làm việc.
 - Bộ Nội vụ đã có tờ trình gửi Chính phủ đề xuất cơ cấu tổ chức của Chính phủ nhiệm kỳ 2021 - 2026 gồm 14 bộ và 3 cơ quan ngang bộ.
 - Năm 1975, tôi đang học tiếng Đức tại Đại học Ngoại ngữ Hà Nội để chuẩn bị đi học luật ở CHDC Đức. Sáng 30-4-1975, chúng tôi vào lớp học, tin quân giải phóng sắp vào đến Sài Gòn vang lên khắp phố phường Hà Nội.
 - Hôm nay 27-1 (28 tháng chạp), nhiệt độ Bắc Bộ xuống rất thấp, Trung Bộ mưa to, Nam Bộ thời tiết nhiều mây, có lúc mưa rào.
@@ -1970,40 +2004,6 @@
 - Thủ tướng Chính phủ vừa có quyết định bổ sung hai tuyến cao tốc vào quy hoạch là Quảng Ngãi - Kon Tum và Cà Mau - Đất Mũi.
 - Trong chuyến công tác tại TP.HCM, Thủ tướng Phạm Minh Chính đã rà soát, cho ý kiến tháo gỡ khó khăn, vướng mắc liên quan đến dự án tại TP.HCM.
 - Đồn biên phòng Vĩnh Điều (huyện Giang Thành, Kiên Giang) vừa bắt quả tang nam thanh niên vận chuyển trái phép hàng cấm khoảng 15kg pháo.
-- Thủ tướng cho biết đã đề nghị tỉ phú Phạm Nhật Vượng xây dựng một hệ thống tàu điện ngầm từ trung tâm TP.HCM đến huyện Cần Giờ.
-- Khoảng 6 tháng nay, anh Huỳnh Ngọc Cường thường kéo xe hút đinh, cũng như nhặt ve chai dọc trên quốc lộ 1 từ TP.HCM về Long An.
-- Bộ Giao thông vận tải đề nghị UBND TP.HCM, Long An, Tiền Giang sớm có ý kiến về bộ trước ngày 8-1 để báo cáo Thủ tướng.
-- Hai người nhận là phóng viên báo dọa viết bài phản ánh vi phạm rồi ép doanh nghiệp phải ký hợp đồng tuyên truyền quảng cáo từ 55-95 triệu đồng.
-- Bộ trưởng Phạm Thị Thanh Trà yêu cầu rà soát, tinh giản biên chế sau khi hoàn thành việc hợp nhất Bộ Lao động - Thương binh và Xã hội với Bộ Nội vụ.
-- Thủ tướng bày tỏ điều cần quan tâm nhất là việc thực hiện quy hoạch để ra của cải vật chất, người dân phải được hưởng lợi từ việc thực hiện quy hoạch.
-- Đại tá Nguyễn Đức Hải, giám đốc Công an tỉnh Quảng Trị, được điều động làm giám đốc Công an tỉnh Đồng Nai.
-- Cán bộ, công chức, viên chức, người lao động trên địa bàn tỉnh Bạc Liêu sẽ được lãnh lương tháng 2 trước Tết Nguyên đán Ất Tỵ 2025.
-- Khi chờ đèn đỏ có được rẽ phải hay không? Rẽ phải trong trường hợp nào sẽ không vi phạm luật giao thông?
-- Con trăn gấm dài khoảng 4m, ước nặng gần 100kg được phát hiện ở bìa rừng Rạch Vẹm, xã Gành Dầu, TP Phú Quốc.
-- UBND TP.HCM tổ chức hội nghị công bố quy hoạch TP.HCM thời kỳ 2021-2030, tầm nhìn đến năm 2050 với sự tham dự của Thủ tướng Phạm Minh Chính.
-- Sau sắp xếp, tinh gọn bộ máy, Kiên Giang dư 6 giám đốc sở và hàng chục trưởng phòng.
-- Liên tiếp những vụ hành hung do mâu thuẫn khi va chạm nhẹ trên đường, vì đâu nên nỗi?
-- Sau khi va quẹt giao thông, nạn nhân đã bị Lê Văn Hiền đánh đập tới tấp dẫn đến dập não phải đi cấp cứu tại bệnh viện và đã tử vong. Nghi phạm đánh người đầu thú và bị tạm giữ.
-- Sáng 4-1, Lực lượng vũ trang TP.HCM đã được phong tặng danh hiệu Anh hùng Lực lượng vũ trang nhân dân lần 3.
-- 0h12 ngày 4-1, trực thăng mang số hiệu VN-8620 thuộc Binh đoàn 18 (Bộ Quốc phòng) bay cấp cứu quân nhân được chẩn đoán viêm màng não, tiên lượng nặng từ đảo An Bang, đã hạ cánh an toàn xuống Bệnh viện Quân y 175, TP.HCM.
-- UBND tỉnh Bắc Ninh đề xuất chuyển đổi sân bay Gia Bình thành cảng hàng không công suất quy hoạch dự kiến từ 1 - 3 triệu hành khách/năm, dự phòng mở rộng công suất khoảng 5 triệu hành khách/năm.
-- Bực tức việc mẹ ngủ, không chuẩn bị đồ ăn sáng cho mình, Khanh dùng dao đâm chết mẹ rồi chờ trời tối kéo thi thể ném xuống sông phi tang.
-- Cơ sở sản xuất ván lạng ở Bình Phước bị xử phạt gần 60 triệu đồng do sử dụng lao động nước ngoài trái phép.
-- Đại diện đội cảnh sát giao thông - trật tự Công an TP Thủ Đức cho biết vẫn chưa mời được chủ xe Audi 'chạy đến đâu đèn tín hiệu loạn xạ đến đó' lên làm việc nên không rõ clip trên có cắt ghép hay không.
-- Thanh tra An Giang xác định hàng loạt vi phạm pháp luật về đầu tư công và dự án khu dân cư và chuyển hồ sơ sang công an để điều tra.
-- Tại dự thảo Luật Tổ chức Chính phủ (sửa đổi), Bộ Nội vụ đề xuất thiết kế theo hướng phân định và khái quát hóa các nhóm nhiệm vụ của Thủ tướng.
-- Thủ tướng Phạm Minh Chính yêu cầu các bộ ngành, địa phương không coi trung tâm tài chính là công việc của riêng TP.HCM và Đà Nẵng mà là việc chung của đất nước, toàn hệ thống phải cùng làm, cùng phát triển.
-- Nhiều chuyên gia khẳng định đây là thời điểm lý tưởng để đưa TP.HCM thành trung tâm tài chính toàn cầu. Tất nhiên, để thực hiện kế hoạch này còn nhiều việc phải làm.
-- TP.HCM đặt mục tiêu đến năm 2035 sẽ có 7 tuyến metro có chiều dài 355km. Bên cạnh cơ chế và chính sách đặc thù, cần thêm giải pháp giúp tối ưu hóa hiệu quả và giảm trở ngại trong quá trình xây dựng.
-- Không ít đoạn sông Đáy ở Hà Nội bị ô nhiễm cực độ, GS Vũ Trọng Hồng đề nghị lắp đặt ngay bơm thuyền để cứu dòng sông.
-- UBND tỉnh Khánh Hòa vừa có phương án sắp xếp các cơ quan trực thuộc, gồm có tên các sở sau khi hợp nhất và hướng sắp xếp nhân sự lãnh đạo các đơn vị sáp nhập, hợp nhất.
-- TP.HCM đang đứng trước cơ hội lịch sử để trở thành trung tâm tài chính quốc tế - một giấc mơ được ấp ủ hơn 20 năm với sự ủng hộ từ Bộ Chính trị, mở ra triển vọng mới cho sự phát triển kinh tế không chỉ của thành phố mà còn của cả Việt Nam.
-- Phòng cảnh sát giao thông Công an Hà Nội khẳng định thông tin 'thanh niên thu về 50 triệu đồng sau 1 ngày tố giác vi phạm giao thông' là sai sự thật.
-- Ngày 4-1, Thủ tướng Phạm Minh Chính dự lễ công bố xây dựng Trung tâm tài chính khu vực và quốc tế tại Việt Nam; công bố quy hoạch TP.HCM.
-- Tin tức đáng chú ý: Gần Tết số vụ lừa đảo trực tuyến tăng mạnh; Hà Nội nhiều nhà tái định cư hoang phế; TP.HCM tăng cường kiểm tra nhà ở kết hợp sản xuất kinh doanh...
-- Hôm nay 4-1, thời tiết Bắc Bộ ngày nắng, trời lạnh. Trung Bộ mưa rào, Nam Bộ có mây, mưa rào và dông vài nơi.
-- Tài xế N.V.Q. lái ô tô đi ngược chiều trên đường cao tốc Nội Bài - Lào Cai. Theo nghị định 168/2024, hành vi này bị xử phạt 35 triệu đồng, trừ 10 điểm giấy phép lái xe.
-- Cảnh sát lập biên bản vi phạm đối với tài xế ô tô biển xanh về hành vi chở người trên nóc xe. Mức phạt 4-6 triệu đồng và trừ 6 điểm bằng lái.
 ![New](News.png)
 ## Nhịp sống số 
 - Hiệp hội An ninh mạng quốc gia vừa công bố thành lập Liên minh ứng phó, khắc phục sự cố an ninh mạng quốc gia.
