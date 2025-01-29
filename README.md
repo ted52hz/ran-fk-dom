@@ -1,6 +1,7 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Thay đổi cách nghĩ, cách ăn Tết, chơi Tết... sẽ khiến Tết đến nhẹ nhàng hơn, bắt đầu từ chính chúng ta.
 - Khi kinh tế toàn cầu đang thay đổi nhanh chóng cùng sự phát triển của công nghệ, AI, hầu hết lĩnh vực nghề nghiệp đều phải linh hoạt cải tiến để thích ứng.
 - Lần đầu đến Việt Nam giảng dạy, cô Hong Ha Young (người Hàn Quốc) được sinh viên mời về quê ở Bình Thuận đón Tết Nguyên đán cùng với gia đình.
 - Sau 4 năm khuyết chức vụ hiệu trưởng, Trường đại học Sư phạm kỹ thuật TP.HCM vừa có hiệu trưởng được Bộ Giáo dục và Đào tạo công nhận.
@@ -1000,9 +1001,38 @@
 - Sở Giáo dục và Đào tạo TP.HCM vừa công bố đề tham khảo thi tuyển sinh lớp 10 năm 2025.
 - Sau một ngày ra quân cao điểm xử lý học sinh vi phạm, cảnh sát giao thông toàn TP.HCM đã xử phạt 296 em vi phạm.
 - Mạng xã hội lan truyền bài viết, kèm hình ảnh một nam sinh có hành động thân mật với một cô gái tại bàn giáo viên và cho rằng cô gái trong clip là giáo viên.
-- Ngoài khu đô thị Đại học Quốc gia TP.HCM đã hoạt động, TP.HCM còn có ba dự án khu đô thị đại học và giáo dục tập trung.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Tuổi Trẻ Online dẫn thông tin dự báo thời tiết một số điểm du lịch trên cả nước trong ngày mùng 1 Tết Ất Tỵ, để người dẫn theo dõi và có kế hoạch du xuân phù hợp.
+- Ngày mùng 1 Tết Ất Tỵ (29-1), nhiều người dân có mặt tại quảng trường Ba Đình từ sớm, đem theo niềm tự hào dân tộc và mong ước bình an, dự lễ chào cờ đầu tiên của năm mới Ất Tỵ.
+- Công an xã Vĩnh Thái nỗ lực tìm lại chủ nhân 1,5 triệu đồng gói trong tờ giấy vở và có bài đăng về hoàn cảnh éo le của người phụ nữ nghèo trong khi cả xã hội đang đón Tết. Trong đêm giao thừa, cộng đồng mạng đã chung tay lì xì hơn 100 triệu đồng.
+- Khách đến Phú Quốc đợt này được trải nghiệm các điểm tham quan không khí Tết quê, góc chợ nổi, ngồi thúng để khám phá nét đẹp sông Cửa Cạn và đời sống của người dân Phú Quốc.
+- Sau màn pháo hoa giao thừa tầm cao tại TP.HCM, rác thải lại nhếch nhác dọc các tuyến đường xung quanh bến Bạch Đằng và dọc hai bên Đường hoa Nguyễn Huệ.
+- Phó chủ tịch thường trực UBND TP.HCM Dương Ngọc Hải đến thăm hỏi, động viên các hộ dân trong vụ cháy lớn trên đường Trần Đình Xu, quận 1.
+- Hôm nay 29-1 (mùng 1 Tết), thời tiết ba miền chịu sự chi phối của không khí lạnh, Bắc Bộ rét đậm rét hại, Trung Bộ rét và mưa nhẹ, Nam Bộ sáng lạnh.
+- Tối 28-1, Bộ Tư lệnh Vùng 4 hải quân tổ chức chúc Tết trực tuyến từ Sở chỉ huy vùng đến 7 điểm cầu tại các đảo thuộc quần đảo Trường Sa và các tàu đang trực tại khu vực quần đảo này.
+- Thay mặt lãnh đạo Đảng, Nhà nước, Chủ tịch nước Lương Cường đã thân ái gửi lời chúc Tết tới toàn thể đồng bào, đồng chí và chiến sĩ cả nước, cộng đồng người Việt Nam ở nước ngoài.
+- Bí thư Thành ủy TP.HCM Nguyễn Văn Nên cùng đoàn đại biểu Thành ủy, HĐND, UBND, Ủy ban Mặt trận Tổ quốc Việt Nam TP.HCM thăm, động viên các đơn vị trực Tết và trực sẵn sàng chiến đấu.
+- Đi trên 'Chuyến tàu xuân' Tết Ất Tỵ 2025, hành khách được chơi các trò chơi dân gian, bốc thăm trúng thưởng, vẽ tranh cùng họa sĩ...
+- Chiều 28-1 (tức 29 Tết), Tổng Bí thư Tô Lâm đã đến thăm, kiểm tra, chúc Tết hai đơn vị thuộc công an, quân đội và thành phố Hà Nội.
+- 0h sáng, pháo hoa rực rỡ thắp sáng bầu trời các vùng miền cả nước, mang theo những ước vọng về một năm mới bình an, sung túc, nhà nhà yên vui.
+- Với dự báo tình hình thế giới và khu vực sẽ tiếp tục có nhiều biến động, nhiều vấn đề được đặt ra đối với công tác biên giới lãnh thổ Việt Nam trong năm 2025.
+- Trại rắn Đồng Tâm 2 Phú Quốc ở xã Dương Tơ (TP Phú Quốc, tỉnh Kiên Giang) những ngày cận Tết Nguyên đán Ất Tỵ năm 2025 nhộn nhịp khách du lịch trong và ngoài nước đến tham quan và xem rắn hổ mang chúa nặng 17kg, dài khoảng 4m.
+- Đó là Đảng bộ các cơ quan đảng Trung ương; Đảng bộ Quốc hội; Đảng bộ Chính phủ; Đảng bộ Mặt trận Tổ quốc, các đoàn thể trung ương trực thuộc Ban Chấp hành Trung ương.
+- Ngọn lửa bùng lên dữ dội thiêu rụi nhiều căn nhà ở quận 1, TP.HCM. Nhiều người tháo chạy ra ngoài, nhiều tài sản bị thiêu rụi.
+- Ở vùng núi cao Quảng Ngãi xa xưa từng có loài sâm dành để cung tiến vua chúa. Qua thời gian, loài sâm này bị bào mòn và gần như mất dấu.
+- So với cùng kỳ, số tai nạn giao thông trong ngày 29 Tết năm nay giảm 35 vụ, giảm 23 người chết và giảm 48 nạn nhân bị thương.
+- Tại dự án cao tốc Cần Thơ - Hậu Giang - Cà Mau dài 110 km có 2.881 công nhân, kỹ sư làm việc và đa số các nhà thầu tổ chức làm xuyên Tết Nguyên đán 2025 trên công trường.
+- Cách đất liền hàng trăm hải lý, có nơi rất gần các đảo của nước bạn Philippines, Tết Nguyên đán của quân và dân ở quần đảo Trường Sa vẫn mang hơi ấm, không khí, hương vị cổ truyền của dân tộc.
+- Giá đào, quất giảm nửa giá hoặc 1/3 giá vẫn ít người mua. Nhiều nhà vườn dọn hàng sớm, về nhà đón Tết.
+- Vụ cháy ngày 29 Tết không gây thiệt hại về người nhưng đã thiêu rụi 2 ô tô và gần 500m² nhà xưởng tại quận Nam Từ Liêm, Hà Nội.
+- Dự kiến ngày 30-4 sẽ hợp long biên cầu chính cầu Rạch Miễu 2, trước ngày 30-10 sẽ hoàn thành cầu chính và hoàn thành toàn bộ dự án.
+- Sáng 29 Tết, rất nhiều người dân đã đến quảng trường 24-3 TP Tam Kỳ để chụp hình, "check-in" cặp linh vật rắn vàng Quảng Nam đang nổi rần rần trên mạng.
+- Sáng 28-1 (tức 29 âm lịch) những chuyến xe "0 đồng" cuối cùng lăn bánh tại Bệnh viện Đa khoa tỉnh Phú Yên đưa những hành khách là bệnh nhân về quê ăn Tết.
+- Bộ Nội vụ đã đề xuất có một số điểm mới về nhiệm vụ, quyền hạn của chủ tịch UBND cấp tỉnh, chủ tịch  UBND cấp huyện.
+- Nhấn mạnh sự phát triển của quan hệ song phương, người phát ngôn Điện Kremlin Dmitry Peskov cho biết Nga rất mong chờ đón Tổng Bí thư Tô Lâm đến kỷ niệm 80 năm Chiến thắng Vệ quốc vào tháng 5 tới.
+- Lúc 12h15 trưa 29 Tết, ghi nhận của phóng viên Tuổi Trẻ Online tại chợ hoa Tết công viên Gia Định (quận Phú Nhuận, TP.HCM) vẫn tấp nập người mua kẻ bán.
+- Trong đêm giao thừa Tết Ất Tỵ 2025, thời tiết tại Hà Nội và các tỉnh miền Bắc rét đậm với nền nhiệt phổ biến 10-13 độ C. Các tỉnh Nam Bộ và TP.HCM không mưa, đêm và sáng sớm trời se lạnh.
 - Phần trình diễn ánh sáng bằng drone trong chương trình nghệ thuật "Rực rỡ Thăng Long" bị dừng để đảm bảo sự thành công của chương trình.
 - Hôm nay 28-1 (29 Tết), không khí lạnh đã tràn tới phương Nam, thời tiết cả nước bị chi phối bởi hình thái này.
 - Chiều 28 Tết, bí thư Tỉnh ủy Quảng Ngãi đến công trường cao tốc Quảng Ngãi - Hoài Nhơn thăm hỏi, động viên những công nhân làm việc xuyên Tết.
@@ -1974,36 +2004,6 @@
 - Tuyến đường 822B sẽ 'kéo gần' vùng biên giới Đức Huệ, Long An với TP.HCM, kết nối với cả vùng Đông - Tây Nam Bộ qua các tuyến đường Hồ Chí Minh, quốc lộ N2.
 - Ngày 5-1, Tàu CSB 6009 thuộc Hải đội 421, Hải đoàn 42, Bộ tư lệnh Vùng Cảnh sát biển 4 vượt đường biển thực hiện nhiệm vụ trực sẵn sàng chiến đấu tuần tra, kiểm soát, chống khai thác IUU dịp Tết Nguyên đán Ất Tỵ năm 2025.
 - Một người đàn ông bị UBND phường xử phạt vì đổ rác thải, xà bần không đúng nơi quy định.
-- Người đàn ông đánh đập dã man một học sinh lớp 7 trên địa bàn xã Nhơn Hội, TP Quy Nhơn, Bình Định bị camera quay lại đang được công an xã mời làm việc.
-- Khi hành khách lên xe và thông báo điểm đến, tài xế sẽ nhập thông tin vào ứng dụng. Giá cước chuyến đi được thông báo, khách đồng ý số tiền này sẽ hiện trên màn hình hiển thị cước phí.
-- Một số người đến các ngã tư thường có 'thói quen' rẽ phải khi đèn đỏ mà không hay biết mình đã vi phạm.
-- Ngày 5-1, Tổng Bí thư Tô Lâm đã đến thăm, chúc Tết nguyên Chủ tịch nước Nguyễn Minh Triết tại nhà riêng ở tỉnh Bình Dương.
-- Chuyên gia pháp lý cho hay "thợ săn tiền thưởng" đi soi lỗi vi phạm giao thông không nên coi là "một nghề" kiếm tiền dễ.
-- Mạng xã hội đang lan truyền đoạn clip ghi lại cảnh người đàn ông đi xe máy chặn đầu ô tô rồi hùng hổ dùng vật cứng đập bể kính.
-- Ngày 5-1, Ban Quản lý dự án 85 tổ chức lễ hợp long cầu Đại Ngãi 2 nối liền huyện Cù Lao Dung với huyện Long Phú (Sóc Trăng).
-- Cầu tầng của nhà ga T3 Tân Sơn Nhất - hạng mục quan trọng giúp kết nối giao thông phía trước nhà ga - đã dần thành hình.
-- Cột đèn điện nằm giữa tim đường tại xã Đức Ninh (TP Đồng Hới, Quảng Bình) đã được tháo dỡ sau phản ánh trên Tuổi Trẻ Online.
-- Theo nội dung vụ án, bà V. trình bày do có quan hệ thân tình nên tháng 11-2019 bà cho ông K. vay mượn số tiền 10,5 tỉ đồng.
-- Thời tiết Nam Bộ sắp có một đợt nhiệt độ giảm mạnh, không khí sẽ mát mẻ, se lạnh như đợt trước Giáng sinh.
-- Tuần này, Bắc Bộ và Trung Bộ đón đợt không khí lạnh mới, trời rét. Nam Bộ nhiều mây, ngày nắng.
-- Nghĩ rằng anh Long nhìn khó chịu, sẽ hãm hại mình nên Sang đi lấy dao giết bạn tại trung tâm cai nghiện ma túy tự nguyện.
-- Một nhân viên cứu hộ của khu nghỉ dưỡng ở Đà Nẵng khi ra biển cứu người đuối nước thì mất tích trên biển.
-- Đám cháy bùng phát tại cửa hàng chăm sóc, bán thú cưng trên đường Nơ Trang Long (quận Bình Thạnh, TP.HCM) khiến 3 người nhập viện.
-- Nghị định 168 tăng mức xử phạt đã thay đổi ý thức tham gia giao thông của nhiều người, qua ngã tư không còn chen vượt đèn đỏ.
-- Ngày 4-1, Thủ tướng đã dự và trao quyết định phê duyệt quy hoạch TP.HCM thời kỳ 2021 - 2030, tầm nhìn đến năm 2050 cho lãnh đạo TP.HCM.
-- Một số người biện minh hành vi đánh người của mình là do căng thẳng, áp lực cuộc sống. Tuy nhiên, không thể dùng nó như một lý do biện hộ cho hành vi bạo lực.
-- Một số tin tức đáng chú ý: Quy định mới liên quan niên hạn ô tô; Chứng khoán KIS Việt Nam có chủ tịch mới; Ủy ban Cạnh tranh Quốc gia vừa công bố kết quả thanh tra, kiểm tra hoạt động bán hàng đa cấp của nhiều công ty đa cấp lớn tại Việt Nam...
-- Hôm nay 5-1, thời tiết cả nước tương đối ổn định, mưa giảm, nhiệt độ cũng giảm nhẹ.
-- Ngày 4-1, Trung tâm Kiểm soát bệnh tật tỉnh Đồng Nai cho biết trên địa bàn vừa ghi nhận một trường hợp bé gái 4 tuổi tử vong do bệnh ho gà.
-- Những sinh viên là nhà sư sẽ khó đạt được danh hiệu 'Sinh viên 5 tốt' vì vướng tiêu chí 'thể lực tốt'.
-- Hiệp hội Du lịch Nha Trang - Khánh Hòa vừa có văn bản đề xuất 'xử lý triệt để' đối với các loại ô tô, taxi và để xe khách du lịch trên 29 chỗ 'được lưu thông vào trung tâm TP Nha Trang trong khung giờ cao điểm'.
-- Thủ tướng Phạm Minh Chính vừa ký các quyết định phê chuẩn kết quả bầu, miễn nhiệm chức vụ chủ tịch UBND tỉnh Kiên Giang và Hà Giang.
-- 'Xuân biên phòng ấm lòng dân bản' năm 2025 đã mang lại cho người dân vùng biên giới TP Hà Tiên một cái Tết Nguyên đán Ất Tỵ ấm áp, no đủ.
-- Đây là thông tin Thủ tướng Phạm Minh Chính nêu ra tại hội nghị rà soát, tháo gỡ những dự án, công trình tồn đọng tại TP.HCM.
-- Trên đường đến trung tâm y tế, sản phụ Hồ Thị Léc trở dạ và được lái xe đồn biên phòng và chồng hỗ trợ sinh ngay trên xe của đơn vị.
-- Thủ tướng Chính phủ vừa có quyết định bổ sung hai tuyến cao tốc vào quy hoạch là Quảng Ngãi - Kon Tum và Cà Mau - Đất Mũi.
-- Trong chuyến công tác tại TP.HCM, Thủ tướng Phạm Minh Chính đã rà soát, cho ý kiến tháo gỡ khó khăn, vướng mắc liên quan đến dự án tại TP.HCM.
-- Đồn biên phòng Vĩnh Điều (huyện Giang Thành, Kiên Giang) vừa bắt quả tang nam thanh niên vận chuyển trái phép hàng cấm khoảng 15kg pháo.
 ![New](News.png)
 ## Nhịp sống số 
 - Hiệp hội An ninh mạng quốc gia vừa công bố thành lập Liên minh ứng phó, khắc phục sự cố an ninh mạng quốc gia.
