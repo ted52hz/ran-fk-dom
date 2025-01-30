@@ -1,6 +1,9 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Trong kỷ nguyên số, marketing là ngành học dẫn đầu xu hướng, mở ra vô vàn cơ hội cho những bạn trẻ yêu thích sáng tạo và mong muốn khẳng định bản thân trên thị trường toàn cầu.
+- Dùng đam mê viết truyện và sở thích lặn biển như một phép ẩn dụ để kể về hành trình khám phá bản thân, khắc chế hội chứng tăng động giảm chú ý, Lâm Uyên chinh phục Đại học Dartmouth với học bổng khoảng 8,5 tỉ đồng cho 4 năm.
+- Cử tri đề nghị Bộ Giáo dục và Đào tạo xem xét điều chỉnh việc dạy môn tích hợp ở bậc THCS để đảm bảo tính hiệu quả trong hoạt động dạy học, đồng bộ với chương trình giáo dục cấp THPT.
 - Thay đổi cách nghĩ, cách ăn Tết, chơi Tết... sẽ khiến Tết đến nhẹ nhàng hơn, bắt đầu từ chính chúng ta.
 - Khi kinh tế toàn cầu đang thay đổi nhanh chóng cùng sự phát triển của công nghệ, AI, hầu hết lĩnh vực nghề nghiệp đều phải linh hoạt cải tiến để thích ứng.
 - Lần đầu đến Việt Nam giảng dạy, cô Hong Ha Young (người Hàn Quốc) được sinh viên mời về quê ở Bình Thuận đón Tết Nguyên đán cùng với gia đình.
@@ -998,15 +1001,30 @@
 - Các khách mời của tọa đàm 'Đưa tiếng Anh trở thành ngôn ngữ thứ 2 trong trường học: Làm gì để vượt thách thức?' đã dành thời gian phân tích về thuận lợi, khó khăn, thách thức và tìm ra các giải pháp để thực hiện chủ trương này.
 - Ngày 2-10, ông Đào Đức Tuấn - giám đốc Sở Giáo dục và Đào tạo tỉnh Bình Định - cho biết sở đã chấn chỉnh việc 2 trường học vận động thu tiền sai nguyên tắc.
 - Liên quan vụ 'nam sinh thân mật với cô giáo trên bục giảng', hiện cô giáo này đã bị nhà trường tạm đình chỉ công tác trong thời gian giải quyết sự việc.
-- Sở Giáo dục và Đào tạo TP.HCM vừa công bố đề tham khảo thi tuyển sinh lớp 10 năm 2025.
-- Sau một ngày ra quân cao điểm xử lý học sinh vi phạm, cảnh sát giao thông toàn TP.HCM đã xử phạt 296 em vi phạm.
-- Mạng xã hội lan truyền bài viết, kèm hình ảnh một nam sinh có hành động thân mật với một cô gái tại bàn giáo viên và cho rằng cô gái trong clip là giáo viên.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Sáng nay mùng 2 Tết Ất Ty, Nam Bộ và TP.HCM tiếp tục chịu sự chi phối của không khí lạnh do đó trời se lạnh, có nơi dưới 19 độ C.
+- Đối với ngư dân, chuyến biển đánh bắt xuyên Tết thường có thời tiết thuận lợi, trúng nhiều tôm, cá. Bởi vậy, hầu hết các ngư dân đều xác định ăn Tết trên biển để có tiền trang trải trong những ngày đầu năm.
+- Hôm nay 30-1 (mùng 2 Tết), thời tiết Bắc Bộ mưa phùn vài nơi, Trung Bộ mưa nhẹ, Nam Bộ sáng lạnh, trưa nắng.
+- Bộ Y tế đề xuất xây dựng Luật Dân số, trong đó cho phép lao động nữ khi sinh con thứ 2 được kéo dài thời gian nghỉ thai sản từ 6 tháng lên 7 tháng.
+- Sau khi phát hiện vứt nhầm túi nhẫn kim cương trị giá hơn 1 tỉ đồng, chủ nhân túi hàng đã chạy theo xe rác lên bãi rác Khánh Sơn ở Đà Nẵng để tìm lại.
+- Hải đoàn 42, Bộ tư lệnh Vùng Cảnh sát biển 4 nô nức đón Tết với hoạt động bắt vịt, đẩy gậy, nhảy bao bố; còn lính đảo xa Hòn Chuối gói bánh chưng, giao lưu văn nghệ làm nên nét đẹp văn hóa ngày Tết.
+- Cục Cảnh sát giao thông (Bộ Công an) vừa có báo cáo sơ bộ tình hình trật tự an toàn giao thông trong ngày 29-1 (mùng 1 Tết Ất Tỵ).
+- Theo thông lệ, trong ngày mùng 1 Tết, các đảo thuộc quần đảo Trường Sa đồng loạt tổ chức lễ thượng cờ chào đón năm mới với cảm xúc rất đặc biệt.
+- Không còn dòng xe cộ đông đúc, tiếng còi inh ỏi và nhịp sống hối hả, sáng mùng 1 Tết, TP.HCM bình yên đến lạ.
+- Trưa mùng 1 Tết Ất Tỵ, bầu trời Hà Nội bắt đầu hửng nắng, phố phường Hà Nội nhộp nhịp. Quanh khu vực hồ Hoàn Kiếm, người người trong váy áo xúng xính du xuân, cùng nhau ngắm nhìn phố phường được trang hoàng rực rỡ.
+- Trong năm 2025, người dân khu vực cửa ngõ TP.HCM sẽ được thăm khám tại 3 bệnh viện xây mới với kinh phí đầu tư hàng nghìn tỉ đồng.
+- Cử tri đề nghị Bộ Giáo dục và Đào tạo xem xét điều chỉnh việc dạy môn tích hợp ở bậc THCS để đảm bảo tính hiệu quả trong hoạt động dạy học, đồng bộ với chương trình giáo dục cấp THPT.
+- Bộ trưởng Bộ Nội vụ Phạm Thị Thanh Trà chia sẻ bà từng 'mất ăn, mất ngủ' khi bắt tay vào xây dựng phương án sắp xếp, tinh gọn tổ chức bộ máy của Chính phủ.
+- Tết xa gia đình, những người lính hải quân vẫn lạc quan, yêu đời, vững vàng canh giữ biển trời Tổ quốc.
+- Mùng 1 Tết Ất Tỵ, dù thời tiết giá lạnh từ sáng sớm nhưng dòng người vẫn nườm nượp đổ về Phủ Tây Hồ, chùa Trấn Quốc và một số ngôi chùa khác tại Hà Nội để lễ bái, cầu tài lộc, bình an.
+- Nơi xảy ra cháy nhà có diện tích khoảng 46m² với quy mô 5 tầng. Cảnh sát đã giải cứu 3 người gồm 2 người lớn và 1 trẻ  ra ngoài.
+- Khi mọi nhà sum vầy đón Tết, trên công trường vành đai 3 TP.HCM, các công nhân vẫn hăng say làm việc.
+- Trong đêm giao thừa Tết Ất Tỵ 2025 xảy ra vụ cháy lớn tại Công ty TNHH giầy Venus Việt Nam, ở xã Hà Bình, huyện Hà Trung, tỉnh Thanh Hóa. Vụ cháy không gây thiệt hại về người.
 - Tuổi Trẻ Online dẫn thông tin dự báo thời tiết một số điểm du lịch trên cả nước trong ngày mùng 1 Tết Ất Tỵ, để người dẫn theo dõi và có kế hoạch du xuân phù hợp.
 - Ngày mùng 1 Tết Ất Tỵ (29-1), nhiều người dân có mặt tại quảng trường Ba Đình từ sớm, đem theo niềm tự hào dân tộc và mong ước bình an, dự lễ chào cờ đầu tiên của năm mới Ất Tỵ.
 - Công an xã Vĩnh Thái nỗ lực tìm lại chủ nhân 1,5 triệu đồng gói trong tờ giấy vở và có bài đăng về hoàn cảnh éo le của người phụ nữ nghèo trong khi cả xã hội đang đón Tết. Trong đêm giao thừa, cộng đồng mạng đã chung tay lì xì hơn 100 triệu đồng.
-- Khách đến Phú Quốc đợt này được trải nghiệm các điểm tham quan không khí Tết quê, góc chợ nổi, ngồi thúng để khám phá nét đẹp sông Cửa Cạn và đời sống của người dân Phú Quốc.
+- Ông Steven (du khách Mỹ) cho biết rằng ông cảm thấy rất thích thú khi người Việt đón Tết cổ truyền. Nơi đâu cũng tràn ngập sắc màu.
 - Sau màn pháo hoa giao thừa tầm cao tại TP.HCM, rác thải lại nhếch nhác dọc các tuyến đường xung quanh bến Bạch Đằng và dọc hai bên Đường hoa Nguyễn Huệ.
 - Phó chủ tịch thường trực UBND TP.HCM Dương Ngọc Hải đến thăm hỏi, động viên các hộ dân trong vụ cháy lớn trên đường Trần Đình Xu, quận 1.
 - Hôm nay 29-1 (mùng 1 Tết), thời tiết ba miền chịu sự chi phối của không khí lạnh, Bắc Bộ rét đậm rét hại, Trung Bộ rét và mưa nhẹ, Nam Bộ sáng lạnh.
@@ -1985,25 +2003,6 @@
 - Chủ tịch Quốc hội Trần Thanh Mẫn lưu ý khối lượng công việc năm 2025 rất lớn, và trước mắt cần dồn sức cho kỳ họp bất thường dự kiến vào tháng 2-2025.
 - Đến 8h15 ngày 6-1, khu vực cầu Rạch Miễu vẫn kẹt xe nặng, vụ kẹt xe bắt đầu xảy ra từ khoảng gần 4h cùng ngày.
 - Kết quả xổ số vé bóc của Công ty TNHH MTV Xổ số kiến thiết Thừa Thiên Huế thường xuyên xuất hiện số trùng ở giải hai chữ số.
-- Một số tin tức đáng chú ý: Gần nửa triệu lượt khách đi metro số 1; Công ty may vừa bị phạt vì 'bố làm chủ tịch, con là tổng giám đốc' báo lãi kỷ lục; Sếp FLC Faros rời ghế sau 2 tháng...
-- Hôm nay 6-1, không khí lạnh chi phối thời tiết cả nước khiến miền Bắc, miền Trung rét, miền Nam mát mẻ.
-- Chủ tịch Quốc hội Trần Thanh Mẫn tin tưởng các nhà báo tiếp tục phát huy lòng yêu nghề với tâm sáng, bút sắc, trí bền, đồng hành cùng Quốc hội.
-- Tổng Bí thư Tô Lâm cùng nhiều lãnh đạo, nguyên lãnh đạo Đảng, Nhà nước và các địa phương dự kỷ niệm 50 năm Ngày giải phóng Phước Long, Bình Phước.
-- Nam thanh niên sử dụng các số điện thoại là sim tứ quý và hay đăng lên mạng xã hội những hình ảnh về cuộc sống sang chảnh để phục vụ hành vi lừa đảo.
-- Công an quận Tân Phú và quận Gò Vấp tạm giữ hai người có hành vi côn đồ, gây xôn xao mạng xã hội mấy ngày qua.
-- UBND huyện Sơn Tịnh, Quảng Ngãi thông báo lên phương án cưỡng chế để thu hồi khu đất khiến dự án cầu Trà Khúc 3 'đứng bánh'.
-- Các bộ, ngành, địa phương giảm tối thiểu 20% công chức, viên chức hưởng lương từ ngân sách nhà nước để giảm biên chế theo phương án sắp xếp, tinh gọn bộ máy.
-- Đón những lời động viên, thăm hỏi và những phần quà Tết, chiến sĩ Mai Minh Chiến cùng các đồng đội 
-đang canh giữ biển trời Tổ quốc trên đảo Hòn Đốc vui mừng, hạnh phúc như được đón Tết ở nhà.
-- Không khí tại Nhà văn hóa Thanh niên (quận 1, TP.HCM) như 'bùng cháy' khi hàng trăm người đổ về hò reo, xem trực tiếp trận chung kết lượt về ASEAN Cup 2025 giữa đội tuyển Việt Nam và Thái Lan tối 5-1.
-- 4 ngày áp dụng nghị định 168, Công an TP.HCM đã xử phạt 6.106 trường hợp vi phạm, trong đó có 225 người vượt đèn đỏ.
-- 'Không được vì cảm xúc cá nhân mà gây ra mâu thuẫn xã hội, không vì thiếu kiềm chế mà gây ra hậu quả nghiêm trọng'.
-- Chiều 5-1, Tổng Bí thư Tô Lâm và Đoàn công tác trung ương đã đến thăm và làm việc tại Công an tỉnh Bình Phước.
-- Công an TP.HCM đã khởi tố 5 vụ án/17 bị can về các tội mua bán, tàng trữ trái phép chất độc; thu giữ gần 9,5 tấn xyanua, 420kg axit trong năm 2024.
-- Các đơn vị của Công an TP.HCM triển khai 100% quân số ứng trực, xử lý các trường hợp quá khích, lợi dụng sự kiện chung kết ASEAN Cup 2024 gây rối, đảm bảo tình hình an ninh trật tự.
-- Tuyến đường 822B sẽ 'kéo gần' vùng biên giới Đức Huệ, Long An với TP.HCM, kết nối với cả vùng Đông - Tây Nam Bộ qua các tuyến đường Hồ Chí Minh, quốc lộ N2.
-- Ngày 5-1, Tàu CSB 6009 thuộc Hải đội 421, Hải đoàn 42, Bộ tư lệnh Vùng Cảnh sát biển 4 vượt đường biển thực hiện nhiệm vụ trực sẵn sàng chiến đấu tuần tra, kiểm soát, chống khai thác IUU dịp Tết Nguyên đán Ất Tỵ năm 2025.
-- Một người đàn ông bị UBND phường xử phạt vì đổ rác thải, xà bần không đúng nơi quy định.
 ![New](News.png)
 ## Nhịp sống số 
 - Hiệp hội An ninh mạng quốc gia vừa công bố thành lập Liên minh ứng phó, khắc phục sự cố an ninh mạng quốc gia.
