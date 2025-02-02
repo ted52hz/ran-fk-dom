@@ -1003,6 +1003,33 @@
 - Để lo cho hoạt động của lớp, các thầy cô càng phải giữ kẽ, giữ quy chế, giữ lòng tự trọng của nghề giáo.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Chính quyền địa phương ở Vũng Tàu đang xác minh thông tin do một tài khoản mạng xã hội ẩn danh đăng với nội dung 4 con sò điệp với giá hơn 1,4 triệu đồng
+- Trong lúc cắt cỏ bằng máy, người đàn ông ở Quảng Ngãi bị dây kẽm văng găm xuyên ngực, thủng phổi.
+- Sáng 2-2 (mùng 5 Tết) xảy ra vụ tai nạn liên hoàn giữa 3 xe khách giường nằm trên cao tốc Cam Lâm - Vĩnh Hảo. Lực lượng chức năng đã xử lý hiện trường, tránh ùn ứ kéo dài.
+- Hôm nay 2-2, thời tiết Bắc Bộ tiếp tục đón thêm đợt không khí lạnh tăng cường. Nam Bộ ngày nắng, sáng sớm lạnh.
+- Khu mộ Đại tướng Võ Nguyên Giáp có quy định giờ viếng, giờ đóng cửa nhưng nhiều người không biết, nên phải đành tiếc nuối quay về.
+- Bộ Văn hóa, Thể thao và Du lịch cho hay một số chính sách với vận động viên, huấn luyện viên đến thời điểm hiện nay còn thấp, nhất là liên quan đến tiền lương.
+- Đến 19h45 tối 1-2 (mùng 4 Tết Ất Tỵ), hàng ngàn ô tô nhích từng chút trên cao tốc Cam Lâm - Vĩnh Hảo đoạn qua hầm Núi Vung (Ninh Thuận).
+- Quốc lộ 1 qua Quảng Bình kẹt cứng kéo dài gần chục cây số ở phía bắc cầu Gianh, vì hàng ngàn xe trở lại các tỉnh phía Nam.
+- Lần thứ 3 đến thị sát cầu Nhơn Trạch kết nối TP.HCM với Đồng Nai, Thủ tướng động viên công nhân làm việc xuyên Tết và đốc thúc tiến độ triển khai dự án.
+- Không khí lạnh tăng cường xuống miền Bắc gây mưa, rét từ đêm 2-2 (mùng 5 Tết), sau đó mở rộng vào khu vực miền Trung.
+- Phà tạm Rạch Miễu đã huy động 4 chiếc phà loại 100 tấn để chở khách nhưng vẫn không thể kịp quay đầu chở hết lượng xe, khiến bến phà bị kẹt xe kéo dài, cầu Rạch Miễu cũng trong tình trạng tương tự.
+- Các tỉnh thành đã chi trả đầy đủ, kịp thời trợ cấp xã hội cho các đối tượng bảo trợ xã hội tại cộng đồng trong kỳ trả gộp 2 tháng đầu năm 2025.
+- Đây là yêu cầu của Thủ tướng Phạm Minh Chính tại buổi thị sát cầu Nhơn Trạch, thuộc dự án đường vành đai 3 TP.HCM chiều mùng 4 Tết.
+- Tiền lì xì nên để cho con giữ hay cha mẹ giữ hộ? Đây là vấn đề mà nhiều người quan tâm và được các chuyên gia tài chính trao đổi, gợi mở cách ứng xử với tiền lì xì tại phố sách Hà Nội vào sáng 1-2, tức mùng 4 Tết Ất Tỵ.
+- Ngày 1-2 (tức mùng 4 Tết) những đoàn xe nối đuôi nhau lên cao tốc La Sơn - Hòa Liên hướng vào các tỉnh phía Nam tăng đột biến.
+- Chiều 1-2 (mùng 4 Tết), dù chưa phải ngày cuối của nghỉ Tết, lượng xe đổ về Hà Nội tăng vọt khiến cửa ngõ thành phố ùn tắc kéo dài.
+- Một cụ ông ở Nghệ An năm nay đã 112 tuổi vẫn chống gậy tới nhà văn hóa thôn để nhận bằng chúc thọ. Trên mạng xã hội, nhiều bạn trẻ 'xin vía' sống thọ như cụ.
+- Chiều mùng 4 Tết 2025, hàng ngàn người dân từ các tỉnh miền Bắc, miền Trung quay trở lại TP.HCM làm việc, học tập... khiến cao tốc Dầu Giây - Phan Thiết và TP.HCM - Long Thành - Dầu Giây ùn ứ kéo dài.
+- Dự báo trong tháng 2-2025 (tháng giêng), không khí lạnh tiếp tục tác động đến nước ta, nhất là nửa cuối tháng không khí lạnh khả năng hoạt động mạnh hơn và gây nhiều ngày rét đậm, rét hại.
+- Ông Lương Minh Phúc - giám đốc Ban Quản lý dự án đầu tư xây dựng các công trình giao thông TP.HCM - cho biết một số đoạn đường vành đai 3 TP.HCM sẽ được thông xe vào năm 2025.
+- Hàng ngàn ô tô từ các tỉnh phía Bắc đã chọn khởi hành sớm vào phía Nam để tránh tắc đường.
+- Trưa 1-2, Thủ tướng Chính phủ Phạm Minh Chính đã đến công trường sân bay Long Thành chúc Tết, động viên công nhân và các nhà thầu đang thi công.
+- Kết quả khảo sát cho thấy cao tốc TP.HCM - Mộc Bài có 4 nhà đầu tư quan tâm, trong đó có 2 nhà đầu tư nước ngoài.
+- Anh Minh đi chơi Tết rồi nhặt được ví da chứa hơn 21 triệu đồng tiền mặt nên giao nộp Công an xã Vĩnh Tú (Quảng Trị) để tìm trả lại người mất. Sau 30 phút phát loa thông báo, công an xã xác minh và trả lại người mất.
+- Nhà ga nội địa sân bay Tân Sơn Nhất bắt đầu ghi nhận lượng khách quay trở lại sau Tết đông đúc. Taxi, xe công nghệ ở sân bay được yêu cầu tăng 25% số lượng xe để đáp ứng nhu cầu khách.
+- Những ngày nghỉ Tết, nhiều du khách đã chọn đến hải đăng Đại Lãnh (thị xã Đông Hòa, Phú Yên) để khám phá ngọn hải đăng cổ và đón những ánh bình minh đầu tiên trên đất liền.
+- Cao tốc TP.HCM - Thủ Dầu Một - Chơn Thành là tuyến cao tốc đầu tiên kết nối TP.HCM và Bình Dương, Bình Phước, Tây Nguyên đã chính thức khởi công ngày đầu năm.
 - Sau khi dự lễ khởi công cao tốc TP.HCM - Thủ Dầu Một - Chơn Thành, Thủ tướng tiếp tục thị sát hàng loạt dự án quan trọng ở vùng Đông Nam Bộ.
 - Hôm nay 1-2 (mùng 4 Tết), thời tiết các tỉnh Bắc Bộ mưa phùn, trong khi đó từ Đà Nẵng trở vào Nam Bộ trời ít mưa, ngày nắng.
 - Chủ tịch UBND phường Bách Khoa (quận Hai Bà Trưng, Hà Nội) Hoàng Thị Tuyết Lan cho biết đã yêu cầu đình chỉ hoạt động quán bún riêu bán 1,2 triệu đồng 3 bát bún ngày mùng 1 Tết.
@@ -1976,35 +2003,9 @@
 - Các dãy phòng học Trường THCS Đỉnh Bàn xây dựng đã lâu, hiện xuống cấp nhưng không được sửa gây lo lắng, bất an cho thầy và trò, nhất là những ngày mưa lớn, gió to.
 - Cảnh sát giao thông TP.HCM thông tin về việc phân luồng, tổ chức giao thông phục vụ diễn tập cháy, nổ và tổ chức thoát nạn, chữa cháy, cứu nạn, cứu hộ.
 - Các loại bim bim được đổ xuống sàn nhà két bẩn dầu mỡ, phòng pha chế phụ gia sản phẩm mất vệ sinh an toàn thực phẩm. Thậm chí, trong xưởng sản xuất phát hiện cả xác chuột chết đã bốc mùi.
-- UBND TP.HCM vừa có văn bản yêu cầu tăng cường kiểm soát ô nhiễm, cải thiện chất lượng môi trường khu vực giáp ranh TP.HCM và tỉnh Bình Dương.
-- Chủ tịch nước Lương Cường trao quyết định bổ nhiệm phó viện trưởng Viện Kiểm sát nhân dân tối cao với ông Nguyễn Đức Thái, Trần Hải Quân.
-- Đó là kết luận của Chủ tịch UBND TP.HCM Phan Văn Mãi tại cuộc họp sắp xếp, tinh gọn tổ chức bộ máy cơ quan nhà nước thuộc TP.HCM.
-- Ông Cấn Đình Tài và Nguyễn Hoàng Anh được bổ nhiệm làm trợ lý ủy viên Bộ Chính trị, Chủ tịch nước  Lương Cường.
-- Sau vụ doanh nghiệp trúng đấu giá mỏ cát 370 tỉ đồng, chính quyền thị xã Điện Bàn, Quảng Nam vừa có quyết định hủy kết quả phiên đấu giá này.
-- Xe máy vẫn vô tư rẽ phải khi đèn đỏ dù mức phạt đã tăng cao, gây khó cho người đi bộ khi băng qua đường.
-- Sở Y tế TP.HCM thông tin, vi rút HMPV tại Trung Quốc không phải là vi rút mới, đây là một trong những tác nhân gây viêm hô hấp ở trẻ em trong các năm 2023 và 2024.
-- Sau 20 năm thành lập và phát triển, báo điện tử Tiền Phong (Tiền Phong Online) đặt ra mục tiêu trở thành tờ báo 'dẫn dắt thông tin'.
-- Tình trạng 'xe dù, bến cóc' không chỉ hoạt động bát nháo tại cây xăng, quán nước... ven quốc lộ ở TP.HCM mà còn diễn ra phức tạp tại bãi xe, chưa được các ngành chức năng xử lý dứt điểm, gây bức xúc.
-- Thứ trưởng Bộ Tài nguyên và Môi trường Lê Công Thành cho biết vấn đề ô nhiễm không khí ở Hà Nội, Chính phủ và TP đã có giải pháp, nhưng đây là vấn đề cần được giám sát.
-- Siêu đô thị TP.HCM nơi có hàng loạt vấn đề nóng, từ chuyện dân sinh đến các quyết sách táo bạo. Sự 'xắn tay' vào cuộc của mặt trận trong từng vấn đề là yếu tố then chốt đảm bảo mọi kế hoạch 'thuận lòng dân, vì dân'.
-- Dự kiến kỳ họp bất thường lần thứ 9 của Quốc hội (tháng 2-2025) sẽ xem xét, thông qua các nội dung cấp thiết nhằm thực hiện sắp xếp, tinh gọn bộ máy.
-- Sáng 7-1, báo Nhân Dân phối hợp với Công ty cổ phần Xây dựng Coteccons tổ chức chương trình 'Xây Tết 2025', trao tặng hàng ngàn phần quà Tết cho công nhân, người lao động trên địa bàn TP Đà Nẵng.
-- Bộ Tư lệnh Vùng 4 Hải quân đã tổ chức lễ đón nhận danh hiệu Anh hùng Lực lượng vũ trang nhân dân.
-- Cơ bản hoàn thành phương án hợp nhất, sáp nhập các bộ, cơ quan và phương án sắp xếp tổ chức, bộ máy bên trong của các bộ, cơ quan.
-- Chủ tịch UBND tỉnh Đắk Nông khẳng định đang hoàn thiện các thủ tục để khởi công cao tốc Gia Nghĩa - Chơn Thành vào tháng 9-2025.
-- Giám đốc xổ số Quảng Bình cho rằng những cặp số lặp nhau liên tục là chuyện xác suất bình thường, chuyên gia xác suất thống kê tính ra tỉ lệ tương đương 3/10.000.000.
-- Dừng xe cán vạch mà không thể lùi có bị phạt không? Báo tin vi phạm cho ai, như thế nào để được nhận tiền?... Đại diện Cục Cảnh sát giao thông giải đáp trên tuoitre.vn sáng 7-1.
-- Ngày 6-1, lực lượng Đội cảnh sát giao thông - trật tự Công an TP Thủ Đức (TP.HCM) lập chốt ở đường Võ Văn Ngân, đoạn trước Nhà Thiếu nhi TP Thủ Đức, xử lý vi phạm giao thông theo nghị định 168/2024.
-- Nhiều người thắc mắc vì sao hình ảnh vi phạm giao thông từ người dân cung cấp vẫn bị xử phạt dù thiết bị không có tem kiểm định như thiết bị chuyên dụng.
-- TP.HCM đang chuyển mình mạnh mẽ với hàng loạt dự án trọng điểm. Trong hành trình ấy, vai trò của Mặt trận Tổ quốc Việt Nam TP.HCM được khẳng định qua việc giám sát, phản biện, vận động và tạo sự đồng thuận từ người dân.
-- Thành phố Hội An đề xuất miễn phí tham quan khu phố cổ đối với đại biểu đến từ các địa phương trong nước và nước ngoài có ký kết hoặc có mối quan hệ hợp tác, giao lưu với thành phố và tỉnh.
-- Tin tức đáng chú ý: Xử lý nghiêm xe biển xanh, xe cứu thương vi phạm giao thông; TP.HCM yêu cầu bến xe, tàu niêm yết và bán đúng giá vé Tết Nguyên đán...
-- Hôm nay 7-1, thời tiết cả nước ổn định, ban ngày trời nắng đẹp, đêm và sáng sớm lạnh tới rét.
-- Hiệu trưởng Trường đại học Quản lý và Công nghệ TP.HCM (UMT) vừa ban hành quyết định tạm đình chỉ công việc và chức vụ đối với TS Nguyễn Trà Giang - viện trưởng Viện Khoa học và quản lý thể dục thể thao UMT.
-- Lào là quốc gia đầu tiên Thủ tướng Phạm Minh Chính đến thăm trong năm 2025. Năm ngoái, trao đổi đoàn giữa hai nước hết sức sôi động.
-- Chủ tịch Bạc Liêu Phạm Văn Thiều kêu gọi cán bộ, đảng viên và người dân chấp hành pháp luật về giao thông, đồng thời lên án, tố giác, cung cấp thông tin vi phạm trật tự an toàn giao thông đến cơ quan chức năng.
 ![New](News.png)
 ## Nhịp sống số 
+- Ngày 31-1, Tổng thống Mỹ Donald Trump đã gặp ông Jensen Huang, giám đốc điều hành (CEO) của tập đoàn công nghệ hàng đầu thế giới Nvidia, tại Nhà Trắng.
 - Nút 'Think' và sự ra mắt của 'o3 mini' hứa hẹn sẽ cải thiện đáng kể khả năng lập luận và phản hồi thông minh của ChatGPT.
 - Hiệp hội An ninh mạng quốc gia vừa công bố thành lập Liên minh ứng phó, khắc phục sự cố an ninh mạng quốc gia.
 - Theo đề xuất của chính phủ nhằm đối phó nạn tin tặc hoành hành tại Anh, các trường học, cơ quan y tế quốc gia (NHS) và hội đồng địa phương sẽ bị cấm trả tiền chuộc khi bị tấn công mạng.
@@ -3003,5 +3004,4 @@
 - TTO - Các nhà nghiên cứu từ Đại học Princeton và Đại học Purdue đã chứng minh rằng các tín hiệu siêu âm có thể được sử dụng để gây thiệt hại cho ổ cứng bằng cách khai thác một hiện tượng vật lý gọi là cộng hưởng âm thanh.
 - TTO – Ngoài những yếu tố như máy ảnh, vi xử lý, bộ nhớ, thì liệu màu sắc phải chăng là một yếu tố đóng góp lớn đến quyết định mua sản phẩm của người dùng?
 - Đất nước vừa được Mỹ dỡ bỏ cấm vận từ cuối năm 2016 trở thành mỏ vàng cho các doanh nghiệp khi tìm kiếm một thị trường rộng lớn, đầy tiềm năng cả về sản phẩm lẫn dịch vụ, trong đó có Tập đoàn Viettel.
-- TTO - Theo một chuyên gia hàng đầu về trí tuệ nhân tạo (AI), các nhà nghiên cứu về công nghệ này phần lớn đã dừng việc chế tạo các loại máy có khả năng suy nghĩ như người.
 ![life](Life.png)
