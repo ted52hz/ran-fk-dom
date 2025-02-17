@@ -1,6 +1,10 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Từ khóa học TOEIC đến IELTS, từ VSTEP đến cả thi tốt nghiệp THPT, không khó để bắt gặp những quảng cáo "bao" đầu ra cho người học tiếng Anh chỉ trong một thời gian ngắn.
+- Nhiều ý kiến cho rằng phụ huynh, trung tâm phải cùng tham gia giám sát việc dạy thêm của giáo viên, ngoài hiệu trưởng.
+- Tập đoàn FPT vừa khởi công xây dựng Trường phổ thông liên cấp FPT Quy Nhơn tại Bình Định.
+- Google công bố kết quả AI cho thấy AlphaGeometry 2 của công ty đạt đến trình độ học sinh đạt huy chương vàng Olympic toán quốc tế.
 - Quy chế tuyển sinh đại học năm 2025 sẽ bỏ hẳn xét tuyển sớm. Điểm ưu tiên của mỗi thí sinh được quy định không vượt quá 10% mức điểm tối đa.
 - Theo dự thảo quy định về dạy thêm, học thêm trên địa bàn TP.HCM, hiệu trưởng phải quản lý giáo viên dạy thêm ngoài nhà trường.
 - Đồ dùng dạy học tự làm của giáo viên mầm non trưng bày tại Ngày hội giáo dục STEAM khiến nhiều người bất ngờ.
@@ -997,12 +1001,33 @@
 - Hàng trăm sinh viên hào hứng với các sản phẩm công nghệ thiết thực và nhân văn được triển lãm tại Festival sáng tạo trẻ Đà Nẵng.
 - Có đến 78% bạn đọc đồng ý thi tuyển sinh lớp 10 gồm ba môn văn, toán và tiếng Anh thay vì bốc thăm môn thứ ba may rủi.
 - Bộ Giáo dục và Đào tạo đã đề xuất đưa giáo viên mầm non vào ngành nghề nặng nhọc, độc hại và có thể nghỉ hưu trước 55 tuổi, không bị trừ tỉ lệ lương hưu.
-- Biết tin thầy chuyển về TP Quảng Ngãi dạy học, học sinh Trường phổ thông dân tộc bán trú tiểu học và THCS Sơn Liên khóc như mưa.
-- Bộ Giáo dục và Đào tạo đang lấy ý kiến các sở về việc bốc thăm để chọn môn thi thứ ba tuyển sinh vào lớp 10, bên cạnh văn và toán.
-- Địa điểm tổ chức được dời từ quảng trường Tháp Nghinh Phong sang nhà thi đấu Lê Trung Kiên, TP Tuy Hòa.
-- Năm 2024, Việt Nam có 7 đoàn học sinh tham dự các kỳ thi Olympic khu vực và quốc tế, với 38 lượt học sinh tham gia.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Kể từ ngày 19-2, việc cấp giấy phép lái xe sẽ được chuyển giao từ ngành giao thông vận tải sang ngành công an.
+- Tin tức đáng chú ý: Giảm đến 15% giá vé tàu mua sớm; Đề xuất miễn thuế nhập khẩu cho đơn hàng online từ 2 triệu trở xuống; Tổng giám đốc một công ty chứng khoán đột ngột từ chức...
+- Hôm nay 17-2, không khí lạnh đã lan tới các tỉnh Bắc Trung Bộ rồi lệch ra biển. Nam Bộ thời tiết ngày nắng, chiều tối vài nơi mưa rào.
+- Quá thời hạn yêu cầu của lãnh đạo UBND tỉnh Nghệ An nhưng người dân vẫn chưa nhận được kết quả xử lý nhà đất đã mua từ hơn 30 năm trước.
+- Bộ trưởng Bộ Nội vụ Phạm Thị Thanh Trà yêu cầu bảo vệ kịp thời người phát hiện, phản ánh, tố cáo, báo tin, cung cấp thông tin các hành vi vi phạm, lạm quyền, tham nhũng, tiêu cực.
+- Thay mặt Ban Chấp hành Trung ương, Tổng Bí thư Tô Lâm mới đây đã ký quy định số 232 quy định thi hành Điều lệ Đảng.
+- Tối 16-2, Tổng liên đoàn Lao động Việt Nam tổ chức hội nghị toàn quốc biểu dương 95 công nhân lao động tiêu biểu là đảng viên Đảng Cộng sản Việt Nam lần thứ I, năm 2025.
+- Một phụ nữ cho người quen vay mượn 10,5 tỉ đồng vào năm 2019 và người mượn viết giấy hẹn trong vòng 30 ngày sẽ trả lại. Vậy nhưng đến nay "khổ chủ" vẫn chưa đòi được.
+- Ngày 16-2, Công an tỉnh Bình Phước cho hay vừa triệt phá thành công chuyên án ma túy liên tỉnh, bắt giữ 18 nghi can, thu giữ 8kg ma túy các loại.
+- Công an tỉnh Kiên Giang đã hoàn tất kết luận điều tra bổ sung 'vụ án lừa đảo chiếm đoạt tài sản xảy ra năm 2021, năm 2022 tại Phú Quốc'.
+- Người già cô đơn, người cơ nhỡ, người tâm thần, sống lang thang, ăn xin… sẽ được tập trung vào Trung tâm Bảo trợ xã hội tỉnh dịp lễ, Tết.
+- TOD Hàng Xanh đang được nghiên cứu bắt đầu từ ngã tư Hàng Xanh đến chân cầu Bình Triệu (quận Bình Thạnh, TP.HCM).
+- Tàu du lịch Costa Serena chở khoảng 2.700 khách quốc tế đã đến TP Phú Quốc (Kiên Giang) chiều 16-2.
+- Dự kiến khi sau thành lập, Bộ Nông nghiệp và Môi trường sẽ thực hiện 45 nhiệm vụ, quyền hạn và 30 cục, vụ, đơn vị trực thuộc.
+- Bảo hiểm xã hội Hà Nội đang đề xuất hỗ trợ tiền đóng bảo hiểm xã hội tự nguyện, bảo hiểm y tế cho một số nhóm người từ 1-1-2026.
+- Người thu tiền vé phí xe tại cảng sò Đầm Môn (xã Vạn Thạnh, huyện Vạn Ninh, Khánh Hòa) thừa nhận không niêm yết giá thu phí.
+- Đó là nội dung cử tri đặt vấn đề tại chương trình 'Dân hỏi chính quyền TP trả lời' sáng 16-2.
+- Đại sứ Mỹ tại Việt Nam Marc Knapper khuyến cáo người Việt đừng tin vào những lời hứa hẹn của bọn buôn người để vượt biên và vỡ mộng.
+- "Trong thâm tâm tôi nghĩ nếu 'cậu vàng' chưa về thì con trai sẽ vẫn bình an vô sự, may mắn là phép màu đã đến".
+- Đại lễ thường niên tưởng nhớ bà lớn tướng Lê Kim Định (vợ ông Nguyễn Trung Trực) ở Phú Quốc năm nay thu hút hàng ngàn người dân.
+- Trường hợp tài xế đeo tai nghe khi lái xe máy mà gây tai nạn giao thông có thể bị phạt đến 14 triệu đồng, trừ 10 điểm bằng lái xe.
+- Việc vẫy hay giơ tay báo hiệu khi đi bộ qua đường là một cách làm, thói quen tốt của nhiều người.
+- Tuần này, thời tiết Bắc Bộ và Trung Bộ vẫn duy trì mưa, lạnh. Nam Bộ ngày nắng, chiều tối một số ngày có mưa rào.
+- Sáng 16-2, Cục Cảnh sát giao thông cho biết đơn vị chức năng đã lập biên bản xử phạt tài xế xe khách lao ngược chiều cao tốc Nội Bài - Lào Cai.
+- Shipper, tài xế công nghệ đang thiếu sự hỗ trợ về pháp lý lẫn biện pháp bảo vệ từ các công ty sử dụng lao động hoặc tổ chức nghề nghiệp.
 - Một loạt cơ chế, chính sách đặc thù đã được Chính phủ trình Quốc hội để hiện thực hóa mục tiêu vận hành dự án điện hạt nhân Ninh Thuận.
 - Xe tải va chạm xe máy đang chạy hướng ngược lại trên tuyến đê biển tây, Cà Mau làm hai người đàn ông thiệt mạng tại chỗ.
 - Một số tin tức đáng chú ý: Đề xuất 5 nhóm chính sách đột phá với chuyên gia cao cấp tại 9 cơ quan trung ương; Eximbank lại sắp họp bất thường bầu bổ sung ban kiểm soát; Chi gần 1 triệu tỉ đồng cho khám chữa bệnh bảo hiểm y tế trong 15 năm qua.
@@ -1978,31 +2003,6 @@
 - Nhận hối lộ 2 bụi sim cảnh và 5 triệu đồng để giải quyết nhanh hồ sơ đất đai trái quy định, nhân viên Chi nhánh Văn phòng Đăng ký đất đai ở Quảng Nam bị bắt giam.
 - Trưa 23-1, hai đoạn cao tốc Bến Lức - Long Thành qua huyện Bình Chánh (TP.HCM) và huyện Nhơn Trạch (Đồng Nai) đã thông xe.
 - Ngày 23-1, Tổng Bí thư Tô Lâm đã trao Huân chương Hồ Chí Minh tặng nguyên Thường trực Ban Bí thư Đinh Thế Huynh vì đã có công lao to lớn, đặc biệt xuất sắc trong sự nghiệp cách mạng của Đảng, dân tộc.
-- Mỗi chiếc xe máy chở 5 - 7 buồng chuối có giá bán trên dưới 1 triệu đồng ở chợ chuối Tân Long (Quảng Trị), giúp người nông dân có cái Tết thêm ấm êm, sung túc.
-- Nam TikToker tự nhận mình đang xuyên không vào thế giới khác tại sân bay Đồng Hới để câu view, câu like. Người này đã bị Công an Quảng Bình triệu tập.
-- Bộ Công an được giao chủ động hướng dẫn công an cấp tỉnh triển khai đề án sắp xếp công an cấp huyện, hoàn thiện chức năng, nhiệm vụ, quyền hạn công an cấp tỉnh.
-- Theo Ban Quản lý dự án đầu tư xây dựng công trình giao thông tỉnh Đồng Tháp, tiến độ dự án cao tốc Cao Lãnh - An Hữu đạt khoảng 55%, đã đưa về công trường 1,34 triệu m³ cát, nhưng chưa đạt kế hoạch năm 2024.
-- Các cửa khẩu ở khu vực tỉnh Lạng Sơn sẽ tạm dừng thông quan hàng hóa với Trung Quốc trong dịp Tết Nguyên đán Ất Tỵ 2025.
-- Tại nút giao thông Ngã Ba Trong (thị xã Ninh Hòa, Khánh Hòa), hàng ngàn chiếc xe từ các tỉnh thành phía Nam đổ về theo tuyến quốc lộ 1 hướng Nam - Bắc đã bị ùn ứ vì thời gian lưu thông đèn xanh ngắn nhưng thời gian dừng đèn đỏ lại dài.
-- Đại sứ các nước Canada, New Zealand, Na Uy và Thụy Sĩ tại Việt Nam cùng hòa giọng, gửi lời chúc mừng Tết Ất Tỵ 2025.
-- Hai tuyến cao tốc Nội Bài - Lào Cai và Cầu Giẽ - Ninh Bình được đề xuất mở rộng bằng nguồn vốn đầu tư công để kịp tiến độ khởi công trong năm 2025.
-- Trong chuyến ra khơi dịp cuối năm, nhóm ngư dân ở Hà Tĩnh trúng đậm mẻ cá cơm có trọng lượng khoảng 100 tấn, thu về nguồn tiền đáng kể đón Tết.
-- Ngày 23-1, Công an Đà Nẵng cho biết Phòng cảnh sát kinh tế vừa tống đạt các quyết định khởi tố, bắt tạm giam nữ giám đốc để điều tra về tội in, phát hành, mua bán trái phép hóa đơn; trốn thuế. Ngoài người này còn có hai đồng phạm liên quan.
-- Sáng 23-1, đoàn đại biểu lãnh đạo, nguyên lãnh đạo Đảng, Nhà nước đã đặt vòng hoa, vào Lăng viếng Chủ tịch Hồ Chí Minh, dâng hương tưởng niệm anh hùng liệt sĩ.
-- Giữa đêm khuya, một xe khách chạy hướng Bắc - Nam đã bất ngờ lao vào nhà dân ở TP Đồng Hới (Quảng Bình) khiến ít nhất 2 người trên xe bị thương, một phần nhà dân bị đổ sập.
-- UBND tỉnh Tiền Giang vừa chấp thuận cho mỏ Hòa Hưng - 5, mỏ Vàm Cái Thia và mỏ Hòa Khánh - 1 được tiếp tục khai thác cát để cung cấp cho dự án đường vành đai 3 TP.HCM.
-- Khai ban đầu với cơ quan điều tra, các nghi can trong nhóm phía người phụ nữ đặt hàng qua sàn Shopee nói do bức xúc nhất thời. Cả hai phía đều đã có nhậu từ trước.
-- Chủ yếu người dân mua sắm hàng hóa thiết yếu của những ngày Tết, chuẩn bị đi du lịch.
-- Ngày 23-1, ông Lê Xuân Hiền - giám đốc Đài Khí tượng thủy văn tỉnh Kiên Giang - thông tin dự báo xâm nhập mặn khu vực tỉnh Kiên Giang từ ngày 21 đến 31-1. Đáng chú ý, cảnh báo nước mặn 4‰ sẽ xâm nhập sâu vào nội đồng.
-- Chia sẻ các yếu tố để ASEAN thành công trong kỷ nguyên thông minh, Thủ tướng Phạm Minh Chính cũng nêu bật quyết tâm của Việt Nam để vững bước trong kỷ nguyên này.
-- Bộ Xây dựng đang trình Thủ tướng việc tổ chức hội nghị thúc đẩy nhà ở xã hội và thị trường bất động sản phát triển lành mạnh, bền vững.
-- Tết này, những hộ dân cuối cùng của ấp đảo Thiềng Liềng, xã đảo Thạnh An sẽ được dùng điện từ lưới điện quốc gia, thoát cảnh chập chờn sau nhiều thập kỷ.
-- Ngày 23-1, nhiều gia đình bắt đầu về quê các tỉnh miền Trung, miền Bắc ăn Tết 2025, lượng xe di chuyển lên cao tốc Phan Thiết - Dầu Giây và TP.HCM - Long Thành tăng đột biến, gây kẹt xe kéo dài từ sáng sớm.
-- Thủ tướng Phạm Minh Chính khẳng định quan điểm nhất quán của Việt Nam, đồng thời nêu một số đề xuất khi gặp đặc phái viên của Tổng thư ký Liên hợp quốc về Myanmar tại Davos ngày 22-1.
-- Dự báo trong đợt cao điểm Tết Nguyên đán Ất Tỵ 2025 nhu cầu về quê, đi du lịch của người dân sẽ rất lớn, rút kinh nghiệm những năm trước, đi ô tô về quê ăn Tết kẹt xe kéo dài trên cao tốc, người dân cần lưu ý gì?
-- Một số tin tức đáng chú ý: Bình Phước xử lý nghiêm những lỗi vi phạm dịp sát Tết; Nam Định duy trì 5 vòng đảm bảo an ninh trật tự Lễ hội khai ấn Đền Trần; Thêm công cụ bảo vệ trẻ em trên môi trường mạng...
-- Nhiều người dùng than thở không hiểu chuyện gì đang xảy ra khi đặt xe công nghệ những ngày gần Tết quá khó. Các tài xế trong cuộc cũng lắc đầu ngao ngán chẳng hiểu vì sao mình chạy liên tục mà khách vẫn chờ lâu.
-- Sau gần 4 năm mất do COVID-19, vẫn còn 16 người hiện được lưu giữ tro cốt tại Trung tâm Y tế Thuận An, tỉnh Bình Dương chưa có người nhà đến nhận.
 ![New](News.png)
 ## Nhịp sống số 
 - Enfarm giúp giải quyết ba bài toán: tăng thu nhập, giảm hóa chất trong nông nghiệp và đảm bảo an ninh lương thực.
