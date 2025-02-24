@@ -1,6 +1,13 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Trường Trung học thực hành Đại học Sư phạm TP.HCM vừa đưa vào sử dụng sân thể thao M để học sinh, giáo viên có thể luyện tập bộ môn đang làm khuynh đảo mọi giới: pickleball.
+- Đại học Quốc gia Hà Nội vừa chính thức mở cổng đăng ký thi đánh giá năng lực năm 2025 cho 6 đợt thi với khoảng 85.000 chỗ thi.
+- Năm 2025, các trường đại học sẽ sử dụng các phương thức xét tuyển nào? Thí sinh nên chọn đăng ký phương thức xét tuyển nào?
+- Theo Thủ tướng Phạm Minh Chính, Đại học Quốc gia TP.HCM có vai trò dẫn dắt sự phát triển nền giáo dục đại học Việt Nam.
+- Sáng 23-2, chương trình tư vấn tuyển sinh hướng nghiệp 2025 do báo Tuổi Trẻ tổ chức diễn ra tại Trường đại học Khánh Hòa.
+- Ngành nghề nào bị AI thay thế hoàn toàn trong tương lai? Liệu AI có lấy mất công việc của con người?
+- Câu hỏi được nhiều học sinh quan tâm nêu ra tại Ngày hội tự tin vào lớp 10 diễn ra sáng 23-2 tại Hà Nội.
 - Sáng nay 23-2, Ngày hội tự tin vào lớp 10 do báo Tuổi Trẻ phối hợp Sở GD-ĐT Hà Nội lần đầu tổ chức tại Trường THPT chuyên Chu Văn An.
 - Chủ đề nóng "không dạy thêm đối với học sinh tiểu học" trong thông tư 29 là vấn đề bàn luận sôi nổi của các em học sinh tiểu học tại quận Gò Vấp, TP.HCM.
 - Chiều 22-2, Đại học Quốc gia TP.HCM tổ chức tọa đàm "Liên kết đại học - địa phương - doanh nghiệp: Hợp lực vì sự phát triển kinh tế và xã hội", với sự tham gia của nhiều lãnh đạo bộ ngành, địa phương, doanh nghiệp và hàng trăm giảng viên, sinh viên.
@@ -995,17 +1002,36 @@
 - Bên cạnh đó, cơ sở đại học này phải có chuẩn giảng viên không được thấp hơn quy định đối với cơ sở giáo dục Việt Nam.
 - Sáng 20-10, ĐH Quốc gia TP.HCM đã tổ chức lễ khai khóa năm học 2024 - 2025 với chủ đề: "Sinh viên ĐH Quốc gia TP.HCM sẵn sàng cho kỷ nguyên vươn mình của đất nước".
 - Ngày càng nhiều sinh viên Canada tham gia các chương trình trao đổi từ vài tuần đến vài tháng ở TP.HCM, Cần Thơ, Trà Vinh...
-- Trần Anh Nam - sinh viên ngành logistics Trường cao đẳng Kinh tế TP.HCM - vừa tốt nghiệp thủ khoa với điểm số GPA đến 3.88/4.
-- Thái Nguyễn Đăng Khoa - sinh viên năm 3 ngành quản lý nhà nước Học viện Cán bộ TP.HCM - là 1 trong 15 đại biểu Tàu SSEAYP 2024.
-- Những hình ảnh đời thường được các sinh viên chọn đưa vào ống kính thay vì các hình ảnh hiện đại thường thấy ở khu vực trung tâm TP.HCM.
-- Khảo sát cho thấy phần lớn sinh viên có thời gian rảnh từ 2 - 4 giờ mỗi ngày (chiếm 66,7%); 22,9% sinh viên rảnh từ 1 - 2 giờ mỗi ngày.
-- Cô giáo Trương Phương Hạnh bị xử lý kỷ luật ở mức cảnh cáo và không được đứng lớp, chuyển sang làm giáo vụ của trường.
-- Các quan chức khẳng định thực phẩm và đồ uống được cung cấp trong trường học cần phải được sản xuất bằng các nguyên liệu tự nhiên, và phải loại bỏ đồ ăn vặt.
-- Sinh viên khoa truyền thông sáng tạo của Trường đại học Nguyễn Tất Thành có một buổi thực hành tác nghiệp ảnh báo chí thú vị tại Bưu điện TP.HCM.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Hà Nội sẽ cấm xe 16 chỗ trở lên hoạt động, trừ xe buýt, xe đưa đón học sinh tại khu vực hồ Gươm, phố cổ Hà Nộ từ 1-3.
+- Từ các mỏm đá, bờ kè hai bên đường, đến thân cây, biển cảnh báo của lực lượng chức năng ở bán đảo Sơn Trà (Đà Nẵng) đều bị các hình vẽ bậy bôi bẩn.
+- Để sông Tô Lịch 'hồi sinh', Hà Nội phải làm từng bước, nên ưu tiên cái gì làm trước cái gì sau và khi nào thì thực hiện đồng bộ các giải pháp.
+- Nhiều thủy điện ở thượng nguồn các con sông ở Quảng Nam thông báo vận hành điều tiết hồ chứa.
+- Tin tức đáng chú ý: Thêm sân bay tại Đồng bằng sông Hồng, giảm tải cho Nội Bài; Công an Đồng Nai kêu gọi cung cấp thông tin liên quan đến các sai phạm về công tác bồi thường, hỗ trợ tại Cảng hàng không Long Thành...
+- Hôm nay 24-2, thời tiết các tỉnh miền Trung mưa to đến rất to, miền Bắc mưa rét, miền Nam mưa rào đến mưa to.
+- Sau 3 tháng đi vào hoạt động, tổ công tác 5013 của UBND TP.HCM đã tháo gỡ vướng mắc để cấp giấy chứng nhận cho 38.363/49.438 căn hộ, căn nhà, thửa đất, officetel.
+- Người phụ nữ chở theo chị gái dừng xe giúp người tự gây tai nạn giao thông trên đường thì bị xe máy do thanh niên say xỉn cầm lái tông tử vong cả người bị tai nạn lẫn chị gái.
+- Mưa lớn trong ngày 23-2 khiến nhiều tuyến đường trên địa bàn TP Tuy Hòa (Phú Yên) bị ngập nước, ảnh hưởng đến giao thông. Một số huyện lân cận cũng bị ngập sâu, nhất là việc thiệt hại hoa màu người dân mới gieo trồng.
+- Ngày 23-2, Thủ tướng Lào Sonexay Siphandone đã đến thăm, làm việc tại cảng Tân Cảng - Cát Lái thuộc Tổng công ty Tân Cảng Sài Gòn, Quân chủng Hải quân (TP.HCM).
+- Bé 9 tuổi và 4 nạn nhân trong vụ tai nạn ở Sơn La sáng 22-2 được chuyển đến Bệnh viện Việt Đức trong tình trạng thương tích nghiêm trọng. Cả 5 nạn nhân đã được cấp cứu thành công.
+- Ngành chức năng tỉnh Cà Mau cho biết đến thời điểm này có nhiều diện tích rừng bước vào giai đoạn khô hạn, nguy cơ cháy cao.
+- Các nội dung kiểm tra bao gồm việc sắp xếp, đổi mới tổ chức bộ máy, thực hiện đột phá phát triển khoa học công nghệ, phát triển kinh tế - xã hội...
+- UBND tỉnh Khánh Hòa yêu cầu Sở Xây dựng tỉnh này tiếp tục thực hiện sát hạch, cấp giấy phép lái xe cho đến thời điểm chuyển giao sang Công an tỉnh.
+- Nhiễu động gió hoạt động tốt khiến thời tiết Nam Bộ có mưa về chiều tối và đêm, nhiều nơi mưa vừa đến mưa to.
+- Trong tuần nhiều thông tin bạn đọc phản ánh Tuổi Trẻ đã nhanh chóng triển khai thành tin, bài.
+- Đó là ví dụ cụ thể về cách tính trợ cấp một lần với trường hợp nghỉ hưu trước tuổi khi tinh gọn bộ máy trong quân đội.
+- Đột nhập nhà dân, phá hai két sắt, trộm 10 cây vàng rồi cẩn thận xóa dấu vết hiện trường. Nhưng cảnh sát đã bắt được kẻ gian.
+- Dự báo trong vòng 1 tháng tới, không khí lạnh lệch đông tiếp tục gây ra mưa nhỏ, mưa phùn và sương mù nhiều ngày ở Bắc Bộ.
+- Chưa tới 3 giờ sau khi tiếp nhận thông tin cướp cửa hàng FPT Shop, Đội cảnh sát hình sự Công an TP Thủ Đức phối hợp Phòng cảnh sát hình sự vào cuộc bắt thủ phạm.
+- Nghe tiếng kêu cứu, người dân phát hiện hai người bị một con trâu húc tại bãi đất trống ở xã Vĩnh Lộc A, huyện Bình Chánh, TP.HCM.
+- Từ Tết đến nay, nhiều nhà yến xung quanh phường 5 (Tuy Hòa, Phú Yên) mở loa phóng thanh để dẫn dụ chim yến gây ồn ào bất kể giờ giấc.
+- Công an triệt phá đường dây đánh bạc xuyên quốc gia tổ chức cho hơn 10.000 lượt con bạc 'đỏ đen' với tổng số tiền giao dịch trên 100 tỉ đồng.
+- Theo Thủ tướng Phạm Minh Chính, Đại học Quốc gia TP.HCM có vai trò dẫn dắt sự phát triển nền giáo dục đại học Việt Nam.
+- Tuần này do ảnh hưởng của không khí lạnh nên thời tiết Bắc Bộ rét, Trung Bộ mưa to, Nam Bộ nắng gián đoạn, có lúc mưa rào.
+- Đối với việc thực hiện thủ tục trực tuyến, cá nhân có nhu cầu đổi bằng lái xe truy cập vào cổng dịch vụ công quốc gia hoặc Bộ Công an.
 - HĐND tỉnh Khánh Hòa không đồng ý với giải trình của UBND tỉnh về đề nghị sửa nghị quyết hơn 10 năm trước.
-- Khu đất vàng 2 mặt tiền giữa trung tâm Đà Nẵng từng liên quan vụ án Phan Văn Anh Vũ được đưa ra đấu giá với giá khởi điểm 59,2 triệu đồng/m2.
+- Khu đất vàng 2 mặt tiền giữa trung tâm Đà Nẵng từng liên quan vụ án Phan Văn Anh Vũ được đưa ra đấu giá với giá khởi điểm 59,2 triệu đồng/m².
 - Trong 10 năm tới, Việt Nam cần chuyển từ lương tối thiểu sang lương đủ sống tối thiểu (khoảng 10,5 triệu đồng/tháng).
 - Năm 2024, dân số TP.HCM chỉ hơn Hà Nội 1 triệu người (TP.HCM 9,5 triệu dân; Hà Nội 8,6 triệu dân) nhưng mật độ dân số của TP.HCM cao gấp 1,7 lần so với Hà Nội, với 4.544 người/km², còn Hà Nội 2.585 người/km².
 - Tin tức đáng chú ý: TP.HCM điều chỉnh lịch trả lương hưu và trợ cấp BHXH bằng tiền mặt; Nhiều quận ở Hà Nội lắp camera giám sát xả rác; Một bệnh viện ở TP.HCM tiếp nhận 15.000 ca đột quỵ mỗi năm...
@@ -1978,32 +2004,6 @@
 - Công an tỉnh Phú Yên đã ra quyết định khởi tố vụ án, khởi tố bị can đối với ông Nguyễn Công Kha (trú xã An Dân, huyện Tuy An) để điều tra về hành vi giết người sau khi nghi ngờ vợ có quan hệ bất chính với một người đàn ông khác.
 - Cơ cấu tổ chức bộ máy của Bộ Nông nghiệp và Môi trường được sắp xếp, kiện toàn, tổ chức lại từ 53 đơn vị thành 30 đơn vị.
 - Đoàn kiểm tra liên ngành 389 TP Phú Quốc hôm nay kiểm tra các cơ sở, điểm bán đồ ăn, quà đặc sản lưu niệm ở chợ đêm Phú Quốc, không để xảy ra tình trạng 'chặt chém', ép giá, đảm bảo quyền lợi cho du khách.
-- Phó trưởng Ban Tổ chức, phó trưởng Ban Dân vận, 2 phó trưởng Ban Tuyên giáo Tỉnh ủy Hải Dương và giám đốc Ban Quản lý dự án đầu tư xây dựng tỉnh vừa có đơn xin nghỉ hưu trước tuổi.
-- Bốn đại tá và một thượng tá cấp phòng, công an huyện ở tỉnh Nghệ An xin nghỉ hưu trước tuổi.
-- Người đàn ông băng qua cao tốc, cắt ngang đầu ô tô để đến xe khách đang dừng chờ gửi hàng, suýt gây tai nạn giao thông.
-- Nhiều xe xuất khẩu sầu riêng sang Trung Quốc được thông quan bình thường, sau quy định mới phải có thêm giấy chứng nhận kiểm định chất vàng O.
-- Ngày 4-2, Chủ tịch UBND TP.HCM Phan Văn Mãi đã có chỉ đạo về tình hình triển khai dự án vành đai 3 TP.HCM đoạn qua địa bàn TP.
-- Một đường dây cá độ bóng đá qua mạng Internet bị Công an tỉnh Quảng Bình bóc gỡ, hàng loạt người liên quan đã bị bắt.
-- Chủ trương cải cách thể chế, tinh gọn bộ máy hiện nay do Tổng Bí thư Tô Lâm phát động cho thấy Đảng dám nhìn thẳng và không che giấu những điểm yếu của Việt Nam.
-- Tỉnh Đồng Nai dự kiến thu hồi 302ha đất để làm đường ĐT 773 kết nối khu vực phía bắc của địa phương này với sân bay Long Thành.
-- Dù lượng xe đi quốc lộ, cao tốc khu vực phía Nam trong dịp Tết tăng nhưng số vụ tai nạn giảm, tình hình ùn tắc cải thiện so với năm trước.
-- Nam tài xế làm nghề lái xe dịch vụ, được người dân phát hiện đã tử vong trong chiếc ô tô đỗ ven quốc lộ 32 đoạn qua huyện Ba Vì (Hà Nội), sáng 4-2.
-- Ngày 4-2, Viện Kiểm sát nhân dân TP.HCM xác nhận đã kháng nghị đối với quyết định của Cục Thi hành án dân sự TP.HCM.
-- Quê tôi ở Bến Tre, chỉ cách TP.HCM khoảng 120km nhưng mỗi năm chỉ về vào dịp Tết. Một trong những lý do là tình trạng kẹt xe ở cầu Rạch Miễu.
-- Tỉnh Nghệ An sẽ dùng 210 héc ta đất tại thị xã Hoàng Mai để thực hiện dự án nhà máy điện khí LNG Quỳnh Lập, với tổng mức đầu tư 2,15 tỉ USD.
-- Khoảng 50 người dàn cảnh chen lấn để cướp giật tài sản tại một ngôi chùa ở An Giang, họ tấn công làm bị thương 5 người khi bị phát hiện.
-- Dự báo cuối tuần này miền Bắc chịu ảnh hưởng của đợt không khí lạnh mạnh, nên thời tiết ở Bắc Bộ và Bắc Trung Bộ khả năng rét đậm, rét hại.
-- Phần mềm quản lý giấy phép lái xe bị lỗi dẫn đến không thể cấp đổi, 300 hồ sơ tồn đọng buộc Sở Giao thông vận tải Quảng Trị tạm dừng tiếp nhận.
-- 3 thanh niên mất tích do đuối nước khi tắm trên sông Tiền, khu vực bến đò Cây Dương thuộc ấp Tân Tây, xã Tân Phú, huyện Châu Thành, Bến Tre.
-- Lo ngại trăn lớn nuôi làm kiểng có thể sổng chuồng gây hại, hai người dân ở Thủ Đức giao ba con trăn đất cho Chi cục Kiểm lâm TP.HCM.
-- Bộ Xây dựng sau hợp nhất dự kiến có 23 đơn vị, đầu mối trực thuộc, so với 42 đơn vị trước đây.
-- Chủ tịch UBND tỉnh Hà Nam cùng lãnh đạo UBND thị xã Duy Tiên, UBND xã Tiên Sơn và các bô lão đi cày trong lễ hội Tịch điền - Đọi Sơn.
-- Người đàn ông bán vé số thiệt mạng khi chạy xe qua đường ngang tự mở và bị tàu hỏa Bắc - Nam tông khi qua Quảng Ngãi.
-- Từ năm 2025, có nhiều quy định mới về điều kiện hưởng lương hưu, thời gian đóng bảo hiểm xã hội và cách tính tiền hưu trí.
-- Cục Cảnh sát giao thông cho biết kế hoạch tập trung xử lý 6 nhóm vi phạm được thực hiện trong năm 2025, bắt đầu từ ngày 15-2.
-- Tổng Bí thư Tô Lâm yêu cầu các cơ quan, đơn vị, địa phương bắt tay ngay vào công việc sau nghỉ Tết, không để xảy ra tình trạng ăn Tết kéo dài.
-- Khu bảo tồn thiên nhiên đất ngập nước Thái Thụy (Thái Bình) là nơi được Bộ Tài nguyên và Môi trường lựa chọn phát động Tết trồng cây.
-- Trưởng Ban Tuyên giáo và Dân vận Trung ương Nguyễn Trọng Nghĩa nêu rõ năm 2024 đã trải qua nhiều sự kiện, vấn đề hệ trọng của đất nước.
 ![New](News.png)
 ## Nhịp sống số 
 - Cùng với bước đột phá của metro, xu hướng thanh toán không tiền mặt cũng đang góp phần nâng tầm trải nghiệm di chuyển nhanh chóng và tiện lợi hơn cho cư dân đô thị.
