@@ -1,6 +1,20 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Sáng 2-3, Ngày hội tư vấn tuyển sinh - hướng nghiệp tại TP.HCM chính thức diễn ra với hàng chục ngàn học sinh, phụ huynh từ các tỉnh thành phía Nam đến tham dự.
+- Việc miễn học phí giúp giảm gánh nặng cho phụ huynh, đồng thời tạo thêm động lực để học sinh nỗ lực học tập, hướng tới tương lai vững chắc.
+- Hai ngày hội sẽ mang đến cho học sinh, phụ huynh nhiều thông tin 'nóng hổi' về kỳ thi tốt nghiệp THPT và tuyển sinh đại học năm 2025.
+- Các trường đại học, cao đẳng... đã hoàn tất những khâu cuối cùng để chào đón thí sinh, phụ huynh đến dự Ngày hội tư vấn tuyển sinh - hướng nghiệp ngày mai 2-3.
+- Năm 2025, Trường đại học Quốc tế (Đại học Quốc gia TP.HCM) tuyển sinh theo 3 nhóm phương thức và sẽ thưởng điểm trong xét tuyển cho thí sinh trong 3 trường hợp.
+- Theo bà Tôn Nữ Thị Ninh, nếu biết phát triển lợi thế của mình, khắc phục điểm yếu và giữ vững sự tự tin, các bạn trẻ có thể tạo ra giá trị riêng.
+- Sau khi tự thiết kế các chiếc xe đua, các đội chơi sẽ đọ tốc độ để tìm ra quán quân giành những giải thưởng hấp dẫn.
+- Hội thi ảnh Tuổi Xanh năm nay gây bất ngờ khi có hơn 17.000 ảnh dự thi.
+- Nicky - một trong 30 Anh trai say hi mùa đầu tiên - là ca sĩ khách mời Ngày hội tư vấn tuyển sinh - hướng nghiệp 2025 do báo Tuổi Trẻ tổ chức tại Trường đại học Bách khoa TP.HCM, diễn ra vào chủ nhật, ngày 2-3.
+- Đây là một trong những định hướng phát triển trong quy hoạch mạng lưới cơ sở giáo dục đại học đến năm 2030.
+- Miễn học phí cho học sinh công lập thể hiện bước tiến lớn của Việt Nam trong xây dựng nền giáo dục công bằng, nhân văn, bền vững.
+- Xưng hô ra sao khi gặp bác sĩ dấy lên tranh cãi nhiều chiều từ bạn đọc. Bác sĩ Hồ Mạnh Tường chia sẻ ở góc độ người trong cuộc.
+- Năm học 2025-2026, các trường trung học phổ thông công lập tỉnh Thái Bình sẽ tuyển 16.275 học sinh với 365 lớp.
+- Học về vũ trụ, cơ hội việc làm ra sao? Chọn ngành học nào để 4-5 sau không bị 'tụt hậu'? Môi trường học ở trường quân đội khác dân sự thế nào?...
 - Mùa thực tập, nhiều sinh viên gửi hồ sơ khắp nơi nhưng không nhận được phản hồi. Nhiều sinh viên cho rằng yêu cầu kinh nghiệm là rào cản lớn với người sắp ra trường.
 - Sáng nay 1-3, hàng ngàn học sinh Hải Dương dự tư vấn tuyển sinh - hướng nghiệp tại Hải Dương với nhiều băn khoăn mong chờ được giải đáp.
 - Bà Vũ Thị Thúy Hà (51 tuổi, giáo viên Trường tiểu học Đông Thọ, TP Thanh Hóa, nguyên hiệu trưởng trường này) vừa bị khởi tố, tạm đình chỉ công tác vì liên quan đến bữa ăn bán trú.
@@ -988,22 +1002,52 @@
 - Mẹ của cháu bé tự kỷ bị bảo mẫu trung tâm Cầu Vồng (TP Đà Nẵng) bạo hành không đồng tình với kết luận điều tra của Công an quận Sơn Trà.
 - Đề thi môn văn vốn thường bị dư luận than phiền là lối mòn, cũ kỹ, rập khuôn. Việc ra đề thi bắt trend là hướng đi mới, nhưng cần cẩn trọng.
 - Bộ Giáo dục và Đào tạo vừa công bố thông tin về các kỳ thi tốt nghiệp THPT giai đoạn 2020 -2024 cho thấy tỉ lệ tốt nghiệp liên tục tăng trong nhiều năm qua với con số gần tuyệt đối.
-- Kết quả giám sát của phụ huynh tại Trường mầm non 14 (quận Tân Bình, TP.HCM) cho thấy tất cả các loại thực phẩm nhà trường mua đều cao hơn giá siêu thị 3-4 lần.
-- Ne'Kiya Jackson và Calcea Johnson, đều 17 tuổi, hai học sinh trung học từ New Orleans (Mỹ), đã làm nên 'lịch sử' khi tìm ra những bằng chứng mới cho định lý Pitago tồn tại hơn 2.000 năm.
-- TP.HCM đang đẩy mạnh các hoạt động thúc đẩy học tập ở nhiều cấp độ như công dân học tập, đơn vị học tập, cộng đồng học tập…
-- Học sinh các cấp ở TP.HCM sẽ nghỉ Tết Nguyên đán 2025 tổng cộng là 9 ngày, ít hơn năm trước 7 ngày.
-- So với số liệu một năm trước (2022), số thí sinh thi SAT tại Việt Nam trong năm 2023 gấp 174%.
-- Bộ Giáo dục và Đào tạo vừa có công văn về việc tổ chức, hoạt động của Trường đại học Kinh Bắc (Bắc Ninh) sau những lùm xùm liên quan hoạt động của nhà trường.
-- Trưa 30-10, Trường THPT Mạc Đĩnh Chi, quận 6, TP.HCM đã có phản hồi về đề thi văn có nội dung về lối sống 'phông bạt'.
-- Bên cạnh những lời khen dành cho đề thi văn sáng tạo, nhiều bạn đọc cho rằng không phải ai cũng hiểu 'phông bạt' là gì.
-- Câu chuyện dùng bằng 'dỏm' nhưng vẫn được đề bạt, học lên cao, thậm chí cả thạc sĩ tiến sĩ, luôn gây bức xúc cho dư luận dù tình trạng này kéo dài nhiều năm qua.
-- Thực tế có nhiều rào cản cho quá trình hình thành, xây dựng các trung tâm nuôi dạy trẻ tự kỷ ở Việt Nam.
-- Đề thi văn giữa học kỳ 1 của Trường THPT Mạc Đĩnh Chi, TP.HCM yêu cầu học sinh viết về 'lối sống phông bạt' của giới trẻ.
-- Với mong muốn bảo vệ môi trường từ những việc nhỏ nhất, học sinh ở TP Đà Nẵng đã tích cực tham gia mô hình 'Chuyến xe kế hoạch nhỏ', thu gom, phân loại rác thải, gây quỹ giúp bạn.
-- Lần đầu tiên Hội nghị các thành phố học tập tại khu vực Đông Nam Á đã được tổ chức tại Bangkok, Thái Lan.
-- Thời gian làm bài được rút ngắn, cấu trúc câu hỏi được điều chỉnh tiếp cận thực tế… Đó là một số thay đổi chính của bài thi TOEFL iBT trong năm nay.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Tòa nhà 32 tầng có trị giá xây dựng 800 tỉ đồng nằm giữa trung tâm Vũng Tàu bị bỏ hoang gần 10 năm qua. Bao giờ hết sự lãng phí này?
+- Heo hơi liên tục tăng giá trong tháng qua khiến nhiều hộ chăn nuôi heo ở Đồng Nai, thủ phủ chăn nuôi heo của vùng Đông Nam Bộ, vui mừng.
+- Người có thẻ bảo hiểm y tế đi khám, chữa bệnh đúng quy định có chi phí một lần khám, chữa bệnh thấp hơn 351.000 đồng thì được thanh toán 100%.
+- Việc miễn học phí giúp giảm gánh nặng cho phụ huynh, đồng thời tạo thêm động lực để học sinh nỗ lực học tập, hướng tới tương lai vững chắc.
+- Một em bé bị suy tim bào thai nặng trong bụng mẹ vừa được đội ngũ y bác sĩ Bệnh viện Từ Dũ TP.HCM và Bệnh viện Nhi đồng 2 TP.HCM cứu sống.
+- Hôm nay 2-3, thời tiết miền Nam tiếp tục nắng nóng, nhiệt độ cao kèm tia cực tím có thể gây hại cho sức khỏe người dân.
+- Thiếu tướng Nguyễn Thanh Tùng - phó giám đốc Công an Hà Nội - được Bộ Công an giao điều hành đơn vị sau khi Trung tướng Nguyễn Hải Trung được bổ nhiệm làm thứ trưởng Bộ Dân tộc và Tôn giáo.
+- Ngày 1-3, một số đơn vị, đoàn thể cùng người dân phối hợp thu gom hơn 7 tấn rác trên kênh 19-5 (qua quận Bình Tân và quận Tân Phú, TP.HCM).
+- Chiều 1-3, tàu 09 của Lữ đoàn 171, Vùng 2 Hải quân đã cập cảng tại Bà Rịa - Vũng Tàu, kết thúc hải trình gần 3.000 hải lý tham gia nhiệm vụ diễn tập hải quân đa phương Komodo lần thứ 5 tại Indonesia.
+- Chiều 1-3, Bộ Nông nghiệp và Môi trường tổ chức công bố và trao quyết định của bộ trưởng bổ nhiệm cán bộ, lãnh đạo quản lý các cục, vụ, đơn vị thuộc bộ.
+- Chiều 1-3, Bộ trưởng Phạm Thị Thanh Trà đã chủ trì ra mắt Bộ Nội vụ mới và trao quyết định bổ nhiệm 4 thứ trưởng và loạt lãnh đạo đơn vị.
+- Chính phủ có quy định cụ thể liên quan tới việc xử lý tài sản công trong trường hợp sáp nhập, hợp nhất, chia tách, giải thể, chấm dứt hoạt động.
+- Ngày 1-3, hơn 10 tấn rác dồn ứ trên kênh Hy Vọng (phường 15, quận Tân Bình, TP.HCM) được nhóm tình nguyện viên thuộc Câu lạc bộ Sài Gòn Xanh và các đoàn viên thanh niên thu gom.
+- Ngày 1-3, công an nhiều xã, phường trên địa bàn các tỉnh Nam Trung Bộ - Tây Nguyên đã nhanh chóng triển khai chức năng nhiệm vụ sau khi giải thể công an huyện.
+- Ngày 1-3, Thủ tướng Chính phủ Phạm Minh Chính dự lễ công bố nghị quyết của Quốc hội về việc thành lập Bộ Dân tộc và Tôn giáo.
+- Ông Nguyễn Duy Lâm, thứ trưởng Bộ Giao thông vận tải, vừa được Bộ Chính trị điều động, chỉ định giữ chức bí thư Tỉnh ủy Hà Tĩnh nhiệm kỳ 2020-2025.
+- Theo quy định hiện hành, sử dụng lòng đường, vỉa hè sai mục đích có thể bị xử phạt từ 200.000 - 30 triệu đồng.
+- Tính đến ngày 28-2-2025, cả nước đã hỗ trợ xóa hơn 115.000 nhà tạm, nhà dột nát.
+- Vỉa hè tại nhiều tuyến đường tập trung nhiều khách du lịch ở Nha Trang đang bị chiếm dụng nghiêm trọng. Tình trạng này xảy ra không phải mới đây.
+- Việc chậm bàn giao mặt bằng khiến tiến độ nhiều dự án giao thông trọng điểm tại TP Thủ Đức bị ảnh hưởng. TP.HCM yêu cầu xử lý dứt điểm, không để tình trạng này tiếp diễn.
+- Từ 1-3, Hà Nội chính thức thí điểm xe 16 chỗ trở lên chỉ được hoạt động theo khung giờ ở phố cổ, hồ Gươm, trừ xe buýt và xe đưa đón học sinh.
+- Ngoài chính sách tại nghị định 178, Gia Lai hỗ trợ thêm ít nhất 100 triệu đồng cho cán bộ, công chức, người lao động nghỉ trước tuổi theo diện sắp xếp bộ máy.
+- TP.HCM và Nam Bộ đang trong đợt nắng nóng diện rộng đầu tiên của năm 2025. Hôm nay 1-3, nhiệt độ cao nhất lên tới 35 độ C, nhiều người dân đã chuẩn bị nhiều biện pháp để tránh nắng và bảo vệ sức khỏe.
+- Công ty TNHH MTV Cấp nước Tiền Giang đã mở 23 vòi nước công cộng để phục vụ người dân miễn phí, kế hoạch sẽ mở tổng cộng 114 vòi nước trên toàn tỉnh Tiền Giang.
+- Đường ven biển phía tây đảo Phú Quốc có chiều dài hơn 4,3km, với tổng mức đầu tư khoảng 3.200 tỉ đồng.
+- Đây là một trong những định hướng phát triển trong quy hoạch mạng lưới cơ sở giáo dục đại học đến năm 2030.
+- Thành phố Huế có khoảng 776 cán bộ, công chức, viên chức và người lao động sẽ nghỉ việc sau khi tinh gọn bộ máy. Trung bình mỗi người dự kiến lãnh hơn 1,3 tỉ đồng.
+- Miễn học phí cho học sinh công lập thể hiện bước tiến lớn của Việt Nam trong xây dựng nền giáo dục công bằng, nhân văn, bền vững.
+- Tiếp tục chuyến công tác tại Tây Ninh, sáng 1-3, Trưởng Ban Tuyên giáo và Dân vận Trung ương Nguyễn Trọng Nghĩa sẽ dự lễ khánh thành bia tưởng niệm các anh hùng liệt sĩ Đồn biên phòng cửa khẩu Chàng Riệc và thăm, chúc mừng Bộ đội biên phòng tỉnh.
+- Gần 50 người có mặt để cấp đổi giấy phép lái xe tại cơ sở 1 của Phòng cảnh sát giao thông Hà Nội trong ngày đầu ngành công an tiếp nhận nhiệm vụ. Người dân đánh giá thủ tục được tiếp nhận nhanh chóng.
+- Trong doanh nghiệp nhà nước, mức lương cao nhất trả cho chủ tịch hội đồng quản trị là 80 triệu đồng.
+- Trên đường đi học về, nam sinh lớp 5 bị chiếc ô tô bán tải va chạm và cuốn vào gầm xe. Phát hiện sự việc, người dân đã nhanh chóng đưa xe cẩu đến hiện trường để giải cứu em này.
+- Việc sắp xếp tổ chức bộ máy dẫn đến thay đổi quy định, nên Thủ tướng Chính phủ yêu cầu các bộ ngành, địa phương cần sớm cập nhật các thủ tục hành chính mới trước ngày 1-3, đảm bảo không gián đoạn.
+- Theo quyết định mới, Bảo hiểm xã hội Việt Nam được tổ chức theo hệ thống 3 cấp và có 35 bảo hiểm xã hội khu vực.
+- Từ ngày 1-3, Bộ Văn hóa, Thể thao và Du lịch có thêm các chức năng quản lý báo chí, xuất bản, thông tin đối ngoại, trong khi Đài Tiếng nói Việt Nam cắt giảm một số phòng ban, theo nghị định mới của Chính phủ.
+- Chính phủ ban hành nghị định số 42/2025/NĐ-CP ngày 27-2 quy định chức năng, nhiệm vụ, quyền hạn và cơ cấu tổ chức của Bộ Y tế.
+- Tàu hàng HH62 di chuyển hướng Nam - Bắc va chạm với xe tải băng qua đường sắt, khiến tàu hỏa trật bánh khỏi đường ray và lật nghiêng.
+- Ngày 28-2, Bộ Công an tổ chức họp báo công bố nghị định của Chính phủ về chức năng, nhiệm vụ, quyền hạn và cơ cấu tổ chức của Bộ Công an (có hiệu lực từ ngày 1-3).
+- Tại kết luận 127, Bộ Chính trị, Ban Bí thư đã yêu cầu tạm dừng tổ chức đại hội đảng bộ cấp xã, cấp huyện, sớm trình đề án sáp nhập một số tỉnh, không tổ chức cấp huyện.
+- Cần nghiên cứu điều chỉnh mức phạt cao hơn và xử nghiêm đối với cả các vi phạm về lấn chiếm vỉa hè, lòng đường.
+- Theo quy định mới của Chính phủ, cá nhân kinh doanh, chủ hộ kinh doanh nợ thuế từ 50 triệu đồng trở lên và đã quá thời hạn nộp theo quy định trên 120 ngày thì bị tạm hoãn xuất cảnh.
+- Sáng nay 1-3 là ngày đầu tiên lực lượng CSGT TP.HCM tiếp nhận hồ sơ sát hạch, đổi, cấp lại giấy phép lái xe. Ghi nhận nhanh của Tuổi Trẻ Online.
+- Xâm thực biển đang ngày đêm đục khoét bờ biển 'khúc ruột miền Trung'. Những bãi biển đẹp như Mỹ Khê (Đà Nẵng), Hội An (tỉnh Quảng Nam), Mỹ Khê (tỉnh Quảng Ngãi) đang bị thủy triều 'ngoạm' sâu.
+- Chính phủ vừa ban hành nghị định số 45 quy định tổ chức các cơ quan chuyên môn thuộc UBND tỉnh, thành phố và UBND huyện, quận, thị xã, thành phố thuộc tỉnh, thành phố thuộc thành phố trực thuộc trung ương.
 - Từ ngày 1-3, Công an TP.HCM không tổ chức công an cấp huyện, giảm 246 đơn vị cấp đội. Đồng thời một số nhiệm vụ đã được tiếp nhận từ các sở, ngành chính thức đi vào hoạt động.
 - Cơ cấu tổ chức của Bộ Nông nghiệp và Môi trường có 30 đơn vị, trong đó có 26 đơn vị hành chính giúp bộ trưởng thực hiện chức năng quản lý nhà nước.
 - Từ ngày hôm nay 1-3 và trong tháng 3-2025, nhiều chính sách mới sẽ có hiệu lực, nổi bật là các chính sách liên quan đến tổ chức bộ máy các bộ ngành.
@@ -1960,52 +2004,9 @@
 - Một chiếc xe chuyên đi lắp đặt trang thiết bị của chủ tại Nghệ An khi dừng tại Quảng Bình đã bị chụp ảnh và đăng lên mạng xã hội kèm cảnh báo bắt cóc trẻ em.
 - Gần đây, người dân đi trên đường Dương Quảng Hàm (quận Gò Vấp, TP.HCM) thắc mắc khi thấy mặt đường đã được mở rộng và thảm nhựa nhiều phần nhưng hàng cột điện vẫn chưa di dời.
 - Bị đình chỉ hoạt động, chưa khắc phục sai phạm nhưng nhiều thẩm mỹ viện, nha khoa tại TP Buôn Ma Thuột (Đắk Lắk) vẫn ngang nhiên đón khách.
-- Chủ tịch Quốc hội Trần Thanh Mẫn nêu rõ muốn phát triển, năm nay và các năm tiếp theo phải tháo gỡ khó khăn, nhất là tháo gỡ cho khoa học công nghệ, đổi mới sáng tạo, chuyển đổi số.
-- Điểm xuất phát cháy tại khu vực trục kỹ thuật tầng 4 tháp văn phòng. Gần 30 người được hướng dẫn di chuyển thoát nạn.
-- Ông Trần Hữu Minh, chánh Văn phòng Ủy ban An toàn giao thông quốc gia, cho rằng để việc giáo dục an toàn giao thông trên ghế nhà trường đạt hiệu quả, cần bắt buộc phải có bài thi đối với học sinh.
-- Chủ tịch nước Lương Cường nêu cần làm rõ còn vấn đề gì "vướng, khó" để TP.HCM tiếp tục tăng tốc, bứt phá, cất cánh, là đầu tàu kinh tế, phát triển năng động.
-- Chiếc tàu của nhóm ngư dân Hải Phòng đang đánh bắt hải sản trên vùng biển Hà Tĩnh bất ngờ bị chết máy, trôi dạt trên biển nhiều giờ đã được lực lượng biên phòng ứng cứu.
-- Lãnh đạo Tổng liên đoàn Lao động Việt Nam cho biết tổ chức này sẽ đề xuất mức tăng lương tối thiểu vùng vào cuối tháng 2 hoặc đầu tháng 3 tới.
-- Những ngày qua, thông tin nhà xe Thành Bưởi hoạt động trở lại tuyến TP.HCM - Đà Lạt nhận được sự quan tâm rất lớn từ người dân, trong khi cơ quan chức năng thông tin chưa cấp phép lại tuyến này.
-- Ngư dân bị tai nạn đứt lìa chân, hôn mê trên vùng biển cách Đà Nẵng 65 hải lý được tàu cứu nạn SAR 274 ứng cứu đưa về bệnh viện tại Đà Nẵng cứu chữa rạng sáng 12-2.
-- Chủ tịch UBND tỉnh Bắc Ninh vừa đồng ý chủ trương phương án phủ sóng WiFi miễn phí tại hai thành phố lớn trong tỉnh.
-- Sáng 12-2, vùng áp thấp ở giữa Biển Đông đã mạnh lên thành áp thấp nhiệt đới.
-- Một chiếc xe tải lớn lật chắn ngang cả hai làn đường khiến cao tốc Cam Lộ - La Sơn qua Quảng Trị bị tê liệt.
-- Dự Luật Tổ chức Quốc hội sửa đổi đã bổ sung quy định về trường hợp tạm đình chỉ việc thực hiện nhiệm vụ, quyền hạn của đại biểu Quốc hội.
-- Trong bài viết “Tổ chức tốt Đại hội đảng bộ các cấp nhiệm kỳ 2025-2030” ngày 11-2-2025, Tổng Bí thư Tô Lâm chỉ rõ các cấp ủy cần tập trung vào 3 vấn đề chính để tiến hành tốt Đại hội Đảng bộ các cấp.
-- Chủ tịch Quốc hội Trần Thanh Mẫn nêu rõ tại kỳ họp bất thường thứ 9 Quốc hội sẽ tiến hành một số nội dung về công tác nhân sự thuộc thẩm quyền.
-- Vùng áp thấp ở Nam Biển Đông nối với rãnh thấp gây thời tiết xấu cho TP.HCM, Nam Bộ, mưa sẽ xuất hiện nhiều vào chiều tối.
-- Tin tức đáng chú ý: Quốc hội khai mạc kỳ họp bất thường lần thứ 9, xem xét công tác nhân sự; Tiền gửi ngân hàng của dân vượt mốc 7 triệu tỉ đồng; Nhiều dịch bệnh truyền nhiễm tại TP.HCM có xu hướng giảm...
-- Công an xã ở Quảng Nam khẳng định thông tin bắt cóc trẻ em trước cổng trường đang tràn lan trên mạng là không đúng sự thật.
-- Hôm nay 12-2, Bắc Bộ thời tiết mưa phùn, rét và sương mù. Nam Trung Bộ có mưa to, Nam Bộ nhiều mây, mưa rào chiều tối.
-- Tối 11-2, thượng tá Võ Văn Chín - trưởng Phòng cảnh sát giao thông Công an tỉnh Bình Định - cho biết trên quốc lộ 1 đoạn qua địa bàn thị xã An Nhơn vừa xảy ra vụ tai nạn giữa 3 xe tải làm 5 người bị thương.
-- Người vợ đang ngủ thì bị cháy bỏng nặng, tử vong. Nguyên nhân do chồng tạt xăng lên người, dùng điện thoại đập mạnh xuống sàn nhà có xăng làm bén lửa.
-- Trước dự báo vùng áp thấp trên Biển Đông có khả năng mạnh lên thành áp thấp nhiệt đới, Bộ Nông nghiệp và Phát triển nông thôn đề nghị các tỉnh thành từ Bình Định đến Kiên Giang thông báo ngay cho tàu thuyền đang hoạt động trên biển.
-- Trưởng Ban Tuyên giáo Thành ủy Hải Phòng Đào Khánh Hà và Phó chủ tịch UBND TP Hải Phòng Lê Khắc Nam xin nghỉ trước tuổi để tạo thuận lợi cho thành phố trong sắp xếp, bố trí cán bộ.
-- Nhận diện các nguy cơ về an toàn, an ninh trong khoa học công nghệ để chủ động nghiên cứu, làm chủ công nghệ gắn với đầu tư hạ tầng, đào tạo nhân lực.
-- Vụ cháy ở khu vực bãi Ông Lang, xã Cửa Dương (TP Phú Quốc, Kiên Giang), địa phương xác nhận cháy trong đất dự án và có hơn 38ha thiệt hại, chủ yếu cháy bụi rậm và cỏ dại.
-- Ngày 11-2, Hội nghị thứ trưởng quốc phòng ASEAN - Nhật Bản lần thứ 14 diễn ra tại Fukuoka, Nhật Bản. Đoàn đại biểu Bộ Quốc phòng Việt Nam do Thượng tướng Hoàng Xuân Chiến, thứ trưởng, dẫn đầu dự.
-- Bé gái 2 tuổi ở Đồng Nai nuốt 27 viên nam châm trong đồ chơi trẻ em làm thủng ruột và dạ dày. Bác sĩ phải nội soi cấp cứu, mổ nội soi và mổ hở mới lấy hết số nam châm này ra.
-- Trần Văn Huy đứng ở nhà mẹ vợ sử dụng súng thể thao bắn chim, tuy nhiên viên đạn lạc đã bay xuyên qua cửa sổ và trúng vào anh P. khi đang ở trong nhà khiến nạn nhân tử vong.
-- Chiều 11-2, UBND TP Hà Nội vừa có văn bản giao Công an TP chủ trì, phối hợp với các đơn vị liên quan khẩn trương điều tra và xử lý nghiêm theo quy định; báo cáo UBND TP trước ngày 21-2.
-- Nhiều thanh niên ở Nghệ An viết đơn tình nguyện nhập ngũ với quyết tâm mang theo hoài bão, ước mơ lên đường tòng quân để được cống hiến sức trẻ, trí tuệ cho Tổ quốc.
-- Dự báo trong tháng 2-2025, TP.HCM sẽ đón thêm khoảng 2 đợt không khí lạnh nữa.
-- Theo các bác sĩ, do năm nay thời tiết lạnh hơn nên nguy cơ lây nhiễm vi rút cúm cao hơn, nhưng không có gì khác biệt về chủng vi rút, độc lực...
-- Xử lý bùn thải là bài toán nan giải do loại chất thải này chứa nhiều tạp chất nguy hại như kim loại nặng, ký sinh trùng… không chỉ gây ô nhiễm môi trường mà còn ảnh hưởng nghiêm trọng đến sức khỏe con người.
-- Các sở dự kiến bãi bỏ là Sở Giao thông vận tải, Kế hoạch và Đầu tư, Lao động - Thương binh và Xã hội, Thông tin và Truyền thông, Sở Ngoại vụ.
-- Cầu Phước An, bắc qua sông Thị Vải, nối tỉnh Bà Rịa - Vũng Tàu với Đồng Nai. Hình ảnh cây cầu đồ sộ có nhịp chính lớn nhất Đông Nam Á đã sừng sững giữa sông nước, trên rừng ngập mặn.
-- Đảng ủy Mặt trận Tổ quốc, các đoàn thể Trung ương tổ chức hội nghị công bố quyết định thành lập các tổ chức đảng trực thuộc và công tác nhân sự.
-- Dự báo trong 24 giờ tới, vùng áp thấp ở khu vực tây bắc quần đảo Trường Sa di chuyển theo hướng tây bắc và có khả năng mạnh lên thành áp thấp nhiệt đới.
-- Phó chủ tịch UBND TP.HCM Bùi Xuân Cường thống nhất chủ trương khởi công cầu đi bộ qua sông Sài Gòn vào ngày 29-3-2025.
-- Hiện nay, TP.HCM còn tồn đến 172.000 giấy phép lái xe cần cấp, đổi cho người dân do nhiều vướng mắc.
-- Không khí lạnh lệch đông gây ra mưa nhỏ, mưa phùn, sương mù ở Bắc Bộ, nhất là khu vực Đông Bắc Bộ và thủ đô Hà Nội.
-- Ngày 11-2, Công an tỉnh Hà Tĩnh thông tin đã có kết quả điều tra bước đầu vụ P.V.P. (26 tuổi) thiệt mạng do trúng đạn súng bắn chim.
-- Anh Trần Phong Sương (ngụ huyện Hóc Môn, TP.HCM) cùng với một người đi đường đã dùng cây chuối làm phao bơi ra giữa dòng kênh cứu người.
-- Tỉnh ủy Thanh Hóa tổ chức hội nghị công bố quyết định về tổ chức bộ máy và cán bộ các Đảng bộ, cơ quan thuộc Tỉnh ủy.
-- Công an TP.HCM xử lý chủ bến thủy nội địa hoạt động không phép và neo đậu sà lan xếp, dỡ hàng hóa tại vị trí chưa được cấp phép hoạt động.
-- Thực tiễn cách mạng Việt Nam cho thấy, Đại hội đảng bộ các cấp có vai trò dẫn dắt, định hướng, trụ cột, có tầm ảnh hưởng sâu rộng trong toàn Đảng và toàn xã hội.
 ![New](News.png)
 ## Nhịp sống số 
+- Chuyên gia an ninh mạng Ngô Minh Hiếu (Hiếu PC) vừa đăng đàn cảnh báo thông tin sai sự thật mà chính anh là nạn nhân.
 - Sự phát triển mạnh mẽ của các đối thủ như Zoom, Slack và Google Meet trong thời đại làm việc trực tuyến đã khiến Skype trở nên tụt hậu.
 - 'Bây giờ AI sáng tạo nội dung khá rồi, dù không hay nhưng có thể nói là rất đa dạng và nhanh chóng. Vậy em nghĩ em làm gì để cạnh tranh với AI?'.
 - Một vấn đề phức tạp về siêu vi khuẩn từng khiến các nhà vi sinh học mất cả thập kỷ giải quyết đã được AI xử lý chỉ trong vòng 2 ngày.
@@ -3004,5 +3005,4 @@
 - TTO - Vừa qua, dịch vụ thử nghiệm DNA MyHeritage thừa nhận đã bị hacker tấn công 92 triệu tài khoản để truy cập email và mật khẩu mã hóa. Tuy nhiên, câu hỏi đặt ra là tại sao hacker lại muốn đánh cắp thông tin DNA cụ thể?
 - TTO - Các nghị sĩ Pháp vừa bỏ phiếu phê chuẩn dự luật cấm học sinh cấp tiểu học và trung học cơ sở sử dụng điện thoại di động trong trường.
 - TTO - Cho phép dùng thẻ cào viễn thông thanh toán các dịch vụ nội dung số,nghiên cứu để có biện pháp tháo gỡ khó khăn trong việc dừng thẻ viễn thông thanh toán cho các dịch vụ ngoài viễn thông là kiến nghị của các nhà mạng đối với Bộ TTTT
-- Ở tuổi 24, Tuệ Nghi sở hữu một sự nghiệp đáng mơ ước với các dự án kinh doanh phát triển thuận lợi, những đầu sách được nhiều bạn trẻ yêu thích, ghế giám khảo các cuộc thi khởi nghiệp, hay đại sứ của những dự án cộng đồng trong nước và quốc tế.
 ![life](Life.png)
