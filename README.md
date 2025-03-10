@@ -1,7 +1,13 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
-- Từ năm 2025, các trường khối cao đẳng sẽ được đưa về quản lý chung của Bộ GD-ĐT. Thí sinh có thể đăng ký xét tuyển trên hệ thống chung của Bộ thay vì đăng ký riêng như trước đây.
+- Quy chế tuyển sinh đại học năm 2025 là chủ đề nóng được nhiều thí sinh và giáo viên quan tâm, đặt nhiều câu hỏi cho chuyên gia trong ngày hội tư vấn - tuyển sinh hướng nghiệp tại Cần Thơ ngày 9-3.
+- Một lớp học đặc biệt đã được tổ chức ngày 9-3 ở Hà Nội, thu hút hàng trăm học sinh và sinh viên mong muốn được "học nói" để thể hiện suy nghĩ một cách lành mạnh, phát triển bản thân.
+- Sở Tài chính Khánh Hòa vừa có ý kiến, nêu lý do không trình UBND bổ sung kinh phí để chi trả tiền hỗ trợ học tập hằng tháng suốt 3-4 năm qua.
+- Thiết bị này có thể cảnh báo tức thì các tuyến đường đang ngập, có 'ổ gà' nguy hiểm hay không... giúp giảm rủi ro cho người đi đường.
+- Tính đến Chủ nhật đỏ tại TP.HCM ngày 9-3, thầy Trương Thanh Tùng, giảng viên Trường đại học Văn Hiến đã hiến máu lần thứ 34 và khẳng định không dừng ở đó.
+- Từ năm 2025, các trường khối cao đẳng sẽ được đưa về quản lý chung của Bộ GD-ĐT, xét tuyển ra sao? Học ngành ngôn ngữ có 'lép vế' khi AI phát triển? Làm gì để tăng cơ hội đậu ngành y?
+- Đây là vấn đề được rất nhiều thí sinh quan tâm trong chương trình tư vấn tuyển sinh - hướng nghiệp tại Tiền Giang ngày 8-3.
 - Sáng nay 9-3, Ngày hội tư vấn tuyển sinh - hướng nghiệp năm 2025 diễn ra tại khuôn viên Trường ĐH Cần Thơ (đường 3 Tháng 2, phường Xuân Khánh, quận Ninh Kiều).
 - College Board, đơn vị tổ chức bài thi SAT, cho biết việc một số thí sinh phải nộp bài sớm hơn thời gian kết thúc bài thi là sự cố kỹ thuật.
 - Sở Giáo dục và đào tạo TP.HCM có khuyến cáo gửi các nhà trường về chiêu lừa đảo mới: hoàn trả học phí.
@@ -996,14 +1002,42 @@
 - Nhiều sinh viên đã chủ động xây dựng và phát triển hồ sơ cá nhân, tích cực cọ xát công việc thực tế từ khi còn đi học.
 - Con tôi giờ đã học THPT, nhưng mỗi khi nhắc về trường THCS, nó lại nói: 'Ước gì thầy Khoa, cô Thủy, thầy Hào chuyển lên trường cấp III dạy con'.
 - Trung tâm Khảo thí quốc gia và Đánh giá chất lượng giáo dục (Bộ Giáo dục và Đào tạo) vừa công bố đề minh họa 8 bài thi đánh giá đầu vào đại học trên máy tính (V-SAT) năm 2025.
-- Trường đại học Duy Tân trở thành trường đại học tư thục đầu tiên của Việt Nam chuyển qua mô hình đại học.
-- Sáng 10-11, tại phố đi bộ hồ Hoàn Kiếm, gần 3.000 học sinh, giáo viên, đại diện các đơn vị, trường học đã tham gia chương trình "Hành khúc học sinh thủ đô" và thưởng thức những màn diễu hành ấn tượng.
-- Giải thưởng Trần Đại Nghĩa lần 2 năm 2024 được TP.HCM tổ chức như một sự ghi nhận và tôn vinh những giáo viên, nhà quản lý xuất sắc tại các cơ sở giáo dục nghề nghiệp.
-- Hôm qua 9-11, Quốc hội đã thảo luận tổ về dự thảo Luật Nhà giáo với nhiều ý kiến quan tâm các chính sách đột phá cho nhà giáo như: tiền lương, phụ cấp, chế độ ưu đãi...
-- Cả năm học phụ huynh chỉ nhận được một chục tin nhắn qua sổ liên lạc điện tử, tính ra phụ huynh phải trả 7.000 - 10.000 đồng/tin nhắn.
-- 139 học sinh, sinh viên xuất sắc tiêu biểu năm 2024 của thành phố Hải Phòng được tặng bằng khen và phần thưởng 10 triệu đồng/em.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Bảo hiểm xã hội Việt Nam vừa có hướng dẫn 6 bước giải quyết chính sách nghỉ hưu trước tuổi, nghỉ thôi việc theo nghị định 178.
+- Sau gần 2 ngày nỗ lực, lực lượng chức năng đã tìm thấy thi thể 2 nam sinh bị sóng cuốn mất tích ở biển Ninh Hòa.
+- Tin tức đáng chú ý: Khai mạc phiên họp 43 Ủy ban Thường vụ Quốc hội; TP.HCM chuẩn bị làm đường nối tuyến cao tốc lên Tây Nguyên; Giá heo có thể còn tăng...
+- Hôm nay 10-3, thời tiết Bắc Bộ tiếp tục duy trì mưa nhỏ và sương mù, về trưa hửng nắng; Nam Bộ nhiều mây, ngày nắng, chiều tối mưa vài nơi.
+- Chủ tịch UBND tỉnh Bà Rịa - Vũng Tàu đề xuất Thủ tướng Chính phủ đồng ý chủ trương cho tỉnh này triển khai dự án cao tốc kết nối sân bay Long Thành đến Hồ Tràm, theo phương thức đối tác công tư.
+- Trong khuôn khổ chuyến thăm Indonesia, ngay khi đến thủ đô Jakarta chiều 9-3, Tổng Bí thư Tô Lâm đã tiếp lãnh đạo các tập đoàn, doanh nghiệp lớn của nước này.
+- Thủ tướng Phạm Minh Chính - trưởng Ban Chỉ đạo nhà nước các công trình, dự án quan trọng quốc gia, trọng điểm ngành giao thông vận tải - đã chỉ đạo như vậy tại phiên họp thứ 16.
+- Phó thủ tướng Thường trực Nguyễn Hòa Bình ký các quyết định của Thủ tướng Chính phủ phê chuẩn kết quả bầu, miễn nhiệm chức vụ phó chủ tịch UBND tỉnh Bình Dương, thành phố Huế và tỉnh Điện Biên.
+- Khu đất làm TOD dọc theo metro số 2 qua quận Tân Phú rộng hơn 26ha, tiếp giáp trục đường Tây Thạnh và Trường Chinh.
+- Chiều tối 9-3, Tổng Bí thư Tô Lâm và Phu nhân cùng đoàn đại biểu cấp cao Việt Nam đã đến thăm Đại sứ quán, gặp gỡ cán bộ và cộng đồng người Việt tại Indonesia.
+- Hai vợ chồng ở tỉnh Bình Phước xảy ra mâu thuẫn trong đêm 8-3, đến rạng sáng hôm sau thì người chồng chết nghi do uống thuốc diệt cỏ, người vợ bị thương.
+- Một khu vực tại bãi Ông Lang, xã Cửa Dương (TP Phú Quốc, tỉnh Kiên Giang) chiều nay xảy ra cháy lớn.
+- Có 4 nhà đầu tư gồm 2 nhà đầu tư trong nước và 2 nhà đầu tư nước ngoài quan tâm đến dự án cao tốc TP.HCM - Mộc Bài.
+- Lực lượng ở Vườn quốc gia U Minh Thượng hiện ứng trực chạy vỏ lãi đêm ngày để phòng canh lửa, bảo vệ nơi được xem là Vườn di sản ASEAN.
+- Quan điểm của đa số bạn đọc Tuổi Trẻ Online sau vụ lãnh đạo đến chúc mừng 8-3 chỉ gặp một nhân viên là không chấp nhận việc nhân viên đi làm trễ giờ, đã đi muộn là vi phạm, không có bất cứ lý do gì để bao biện.
+- Thủ tướng nêu rõ, trong năm 2025 phải hoàn thành mục tiêu cả nước có ít nhất 3.000km cao tốc và 1.000km đường ven biển.
+- Chiếc xe cấp cứu đang chạy trên cao tốc TP.HCM - Trung Lương khi đến địa bàn xã Thạnh Đức, huyện Bến Lức, tỉnh Long An thì bốc cháy dữ dội.
+- Lễ đón Tổng Bí thư Tô Lâm và Phu nhân tại sân bay ở Indonesia rất trang trọng với nghi thức đặc biệt bắn 7 phát đại bác chào mừng.
+- Nhiều bạn đọc cho rằng giải thích của đơn vị quản lý giữ xe nhà xe quốc nội sân bay Tân Sơn Nhất do 'bị chói sáng biển số' nên thu phí lần 2 là chưa hợp lý.
+- Chuyên gia đề xuất mô hình chính quyền cấp cơ sở của TP.HCM nên giữ lại bộ khung UBND huyện (quận), TP Thủ Đức và tổ chức lại các UBND xã (phường).
+- Lãnh đạo đến chúc mừng 8-3 chỉ gặp 1 nhân viên; khách tiệm bánh mì Huỳnh Hoa xếp hàng chiếm vỉa hè... được nhiều bạn đọc quan tâm tuần qua.
+- Sáng 9-3, Ủy viên Bộ Chính trị, Bí thư Đảng ủy Chính phủ, Thủ tướng Phạm Minh Chính chủ trì hội nghị của Ban Thường vụ Đảng ủy Chính phủ.
+- 'Tay chơi mới' không phải là tập đoàn nào, mà đó chính là các quyết sách nhằm tạo ra nguồn cung nhà ở phù hợp với sức mua của người dân.
+- Tại phiên họp thứ 43 của Ủy ban Thường vụ Quốc hội diễn ra trong 2,5 ngày sẽ cho ý kiến về việc giảm tiền thuê đất và nhiều dự án luật quan trọng khác.
+- Tuần này thời tiết Bắc Bộ khả năng lại có đợt không khí lạnh tràn về, Nam Bộ nắng nóng, Trung Bộ nắng.
+- Cơ quan điều tra không khởi tố vụ án đối với việc thực hiện 2 dự án là Ghềnh Bàn - Bãi Đa và lô biệt thự L09 trên bán đảo Sơn Trà, vậy việc xử lý các dự án này sẽ như thế nào?
+- Để sớm triển khai cao tốc Cam Lộ - Lao Bảo, Quảng Trị kiến nghị trung ương bố trí 9.479 tỉ đồng để thực hiện dự án cao tốc theo phương thức PPP.
+- Chủ tịch UBND TP.HCM cho rằng tuyến metro số 1 khánh thành đánh dấu sự khởi nguồn hành trình phát triển giao thông đô thị hiện đại của thành phố.
+- Sáng 9-3, Tổng Bí thư Tô Lâm và Phu nhân rời Hà Nội, bắt đầu chuyến công du nước ngoài đầu tiên trong năm 2025 với lịch trình nhiều hoạt động quan trọng.
+- Tôi tới thăm nhà chị bạn ở quận gần trung tâm TP.HCM nhưng suýt đi lố, không nhận ra nhà chị vì nhà mặt tiền của chị nhưng vỉa hè là của quán nhậu bình dân.
+- Muốn tăng nhanh quỹ nhà ở xã hội, nhà ở vừa túi tiền thì điều đầu tiên cần làm là tạo quỹ đất sạch để xây nhà.
+- Ngày 9-3, lực lượng Cục Cảnh sát giao thông đang liên hệ, mời tài xế chạy ô tô ngược chiều trên đường dẫn cao tốc Phan Thiết - Dầu Giây lên làm việc, xử lý.
+- Sau hơn hai tháng vận hành toàn tuyến, metro số 1 (Bến Thành - Suối Tiên) chính thức khánh thành vào sáng 9-3.
+- Sáng nay, TP.HCM chính thức khánh thành tuyến metro số 1, đánh dấu bước ngoặt quan trọng trong việc phát triển giao thông công cộng.
 - Công an đang truy xét, mời hai người đánh nhau với người khác trong quán cà phê lên làm việc, trong đó một người ăn mặc giống một doanh nhân nổi tiếng.
 - Một số tin tức đáng chú ý: Lãi suất bình quân 12 tháng các ngân hàng giảm về còn 4,8%; Sếp Bamboo Capital liên tiếp bị giải chấp cổ phiếu sau biến cố cựu chủ tịch; Dự kiến tin tức, sự kiện từ ngày 9 đến 15-3...
 - Hôm nay 9-3, thời tiết Bắc Bộ trở lại mưa phùn, ẩm ướt. Trung Bộ mưa rào, Nam Bộ nắng gián đoạn, chiều tối mưa vài nơi.
@@ -1970,40 +2004,1005 @@
 - Tân Phó bí thư Thành ủy TP.HCM Nguyễn Văn Được chia sẻ, trước giờ ông là người lái xuồng ba lá trong sông, rạch nhỏ, nay phải lái tàu lớn hơn trên sông cái, thậm chí là biển cả, nhiều ghềnh thác và thử thách hơn.
 - Bò thả rông đi lang thang trên đường ở Phú Quốc (Kiên Giang) đã trở thành vấn đề được nhiều du khách quan tâm, về mức độ an toàn giao thông và mất mỹ quan môi trường.
 - Một nam bệnh nhân ung thư thận giai đoạn cuối đã xâm lấn gan, di căn phổi cải thiện sức khỏe ngoạn mục sau khi điều trị tại Bệnh viện Bình Dân (TP.HCM).
-- Đại học Kinh tế TP.HCM vừa triển khai chương trình nghiên cứu sinh toàn thời gian, mang đến cơ hội học tập, nghiên cứu chuyên sâu với nhiều chính sách hỗ trợ toàn diện.
-- Một cô hươu con vừa chào đời tại Thảo cầm viên. Đây là bé hươu thứ tư của gia đình hươu Thái (con đực) và Lan (con cái) được sinh ra thành công trong môi trường nuôi nhốt.
-- Dự báo khoảng ngày 22-2, miền Bắc đón thêm một đợt không khí lạnh khá mạnh, nên trời tiếp tục mưa, rét kéo dài tới khoảng 26-2.
-- Sau khi bị ông ngoại phát hiện sử dụng ma túy và khuyên ngăn không nên dùng chất gây nghiện, Minh dùng tay đánh ông ngã xuống nền nhà gây tử vong.
-- Tại nhiều xã ven biển ở Quảng Trị, người dân mang rác thải sinh hoạt ra vứt thành những bãi rác tự phát lớn, gây mùi xú uế. Nhiều nơi, chính quyền cắm biển cấm đổ rác còn bị nhổ vứt luôn vào bãi rác.
-- Người dân ở thôn Hoa Thám (xã La Phù, huyện Hoài Đức, Hà Nội) phản ánh tới Tuổi Trẻ Online sự việc hiện chính quyền đang có kế hoạch xây dựng một con đường cắt chính giữa Nhà văn hóa Miền Hạ - là nơi tụ họp, sinh hoạt của người dân trong thôn.
-- Bộ Chính trị điều động, phân công, chỉ định ông Nguyễn Văn Được - ủy viên Trung ương Đảng, bí thư Tỉnh ủy, chủ tịch HĐND tỉnh Long An - làm phó bí thư Thành ủy TP.HCM nhiệm kỳ 2020-2025.
-- Do su su rớt giá mạnh, chỉ còn 300-500 đồng/kg, nhiều hộ nông dân ở Nghệ An gom quả thành đống đem cho gia súc ăn hoặc làm phân bón.
-- Tại Việt Nam, tuổi thọ của phụ nữ thường cao hơn đàn ông khoảng 5 năm. Tại một số nơi, người dân có tuổi thọ cao hơn đáng kể so với các tỉnh khác.
-- Sở Giao thông vận tải TP.HCM có văn bản liên quan điều chỉnh giao thông trên nhiều tuyến đường ở quận Gò Vấp và Tân Bình.
-- TP.HCM thí điểm cấm xe cộ đi thẳng qua giao lộ Nguyễn Tri Phương - Trần Hưng Đạo, quận 5 (hướng từ đường Trần Phú đến đường An Bình).
-- Bộ Quốc phòng chủ trì, phối hợp thực hiện 7 nội dung kỷ niệm cấp quốc gia, trong đó trọng tâm có tổ chức diễu binh, diễu hành.
-- Khoảng một tuần qua cá cơm xuất hiện dày đặc quanh vùng biển Cù Lao Chàm (Hội An), khiến mỗi chuyến đi biển của ngư dân thắng lớn.
-- Bộ Giao thông vận tải cho biết như vậy trong công văn trả lời kiến nghị cử tri Cần Thơ, về xúc tiến đầu tư dự án đường sắt TP.HCM - Cần Thơ.
-- Lượng giao dịch đất nền khá nhộn nhịp nhưng giao dịch nhà ở riêng lẻ năm 2024 chỉ ngang năm 2023 vì nguồn cung khan hiếm, giá bán quá cao.
-- Phát hiện cụ ông chở đứa bé có dấu hiệu ngủ gật phía sau, hai cảnh sát đã đưa cháu bé qua xe tuần tra rồi chở về tận nhà.
-- Quảng Nam giao các sở rà soát, bổ sung hồ sơ đề nghị công nhận liệt sĩ cho kiểm lâm Trần Văn Quý mất khi trục vớt gỗ lậu cách đây 14 năm.
-- Cục Đường bộ Việt Nam đề nghị các sở giao thông vận tải tiếp tục tiếp nhận, xử lý hồ sơ đổi, cấp giấy phép lái xe, không để gián đoạn.
-- Bộ Chính trị giao Đảng ủy Chính phủ nghiên cứu định hướng tiếp tục sắp xếp bỏ cấp huyện và định hướng sáp nhập một số đơn vị cấp tỉnh.
-- Bãi chôn lấp chất thải rắn sinh hoạt và công nghiệp thông thường phải cách khu dân cư 1.000m; trồng dải cây xanh cách ly với nơi xử lý chất thải.
-- Phó chủ nhiệm Ủy ban Công tác đại biểu Tạ Thị Yên cho hay nhiều cán bộ cơ quan Quốc hội từ trưởng xuống phó 'tự nguyện, không phải vận động'.
-- Ngày 19-2, Sở Giao thông vận tải tỉnh Bình Dương phát thông báo tiếp tục nhận thủ tục cấp, đổi bằng lái xe sau ngày 19-2.
-- Đà Nẵng thí điểm việc giải quyết thủ tục hành chính lĩnh vực đất đai (bao gồm cấp đổi sổ đỏ) không phụ thuộc địa giới hành chính.
-- Trong ngày đầu lực lượng công an tiếp nhận thủ tục đổi giấy phép lái xe tại Đà Nẵng, số người nộp hồ sơ khá đông, nhiều người phải chờ nhiều giờ.
-- TAND TP Đà Nẵng mở phiên tòa xét xử bị cáo Nguyễn Nho Cầm (trú Đà Nẵng), Phạm Phú Quyền (trú TP.HCM) về tội lừa đảo chiếm đoạt tài sản.
-- Hỗ trợ 30% tổng mức đầu tư dự án trực tiếp từ ngân sách trung ương trong trường hợp nhà máy nghiệm thu đưa vào sản xuất trước 31-12-2030.
-- Trong năm 2025, ngành đường sắt và các địa phương sẽ trồng thêm khoảng 6-7km dọc tuyến hành lang đường sắt qua Đồng Nai.
-- Ông Dương Tất Thắng, bí thư Thành ủy TP Hà Tĩnh, được bầu giữ chức phó chủ tịch UBND tỉnh Hà Tĩnh.
-- UBND tỉnh Quảng Nam có tờ trình quy định chính sách hỗ trợ cán bộ lãnh đạo, quản lý còn độ tuổi công tác dưới 1 nhiệm kỳ nghỉ hưu trước tuổi.
-- Sáng 19-2, Tỉnh ủy Phú Yên công bố các quyết định của Ban Thường vụ Tỉnh ủy liên quan tổ chức bộ máy và nhân sự theo nghị quyết 18.
-- Sau va chạm làm 2 người bị thương, xe Mazda CX5 không dừng lại mà "ủn" xe máy dưới gầm chạy hơn 4km.
-- Cho phép miễn trách nhiệm dân sự khi gây ra thiệt hại cho nhà nước trong quá trình nghiên cứu khoa học công nghệ sử dụng ngân sách.
-- Chủ tịch Quốc hội Trần Thanh Mẫn nêu công tác nhân sự đã được thực hiện chặt chẽ, đúng quy định, đạt được sự đồng thuận, thống nhất cao.
-- 21 trưởng phòng, phó trưởng phòng, phó trưởng công an huyện, thị xã tại Sơn La viết đơn xin nghỉ hưu trước thời hạn.
 ![New](News.png)
 ## Nhịp sống số 
+- Hợp tác với nhiều cái tên lớn về thể thao điện tử như GAM Esports, Flash, FPT đang cho thấy những bước đi chiến lược trong việc thúc đẩy và xây dựng chiến lược dài hạn.
+- Chuyên gia an ninh mạng Ngô Minh Hiếu (Hiếu PC) vừa đăng đàn cảnh báo thông tin sai sự thật mà chính anh là nạn nhân.
+- Sự phát triển mạnh mẽ của các đối thủ như Zoom, Slack và Google Meet trong thời đại làm việc trực tuyến đã khiến Skype trở nên tụt hậu.
+- 'Bây giờ AI sáng tạo nội dung khá rồi, dù không hay nhưng có thể nói là rất đa dạng và nhanh chóng. Vậy em nghĩ em làm gì để cạnh tranh với AI?'.
+- Một vấn đề phức tạp về siêu vi khuẩn từng khiến các nhà vi sinh học mất cả thập kỷ giải quyết đã được AI xử lý chỉ trong vòng 2 ngày.
+- Cùng với bước đột phá của metro, xu hướng thanh toán không tiền mặt cũng đang góp phần nâng tầm trải nghiệm di chuyển nhanh chóng và tiện lợi hơn cho cư dân đô thị.
+- Theo Cục An toàn thông tin, trong 13 lỗ hổng bảo mật công bố lần này, có 10 lỗ hổng cho phép đối tượng tấn công thực thi mã từ xa.
+- Chỉ với giá từ 100-200 nhân dân tệ (khoảng 350.000-700.000 đồng), các chuyến tham quan VR này cũng đem lại một giải pháp tiết kiệm cho những người đam mê du lịch, cho phép họ trải nghiệm công nghệ mà không cần phải đầu tư vào tai nghe VR đắt tiền.
+- Enfarm giúp giải quyết ba bài toán: tăng thu nhập, giảm hóa chất trong nông nghiệp và đảm bảo an ninh lương thực.
+- Ngày 6-2, Nhật Bản trở thành quốc gia mới nhất kêu gọi các quan chức chính phủ cẩn trọng khi sử dụng DeepSeek của Trung Quốc.
+- Nhà khoa học máy tính hàng đầu Yoshua Bengio cảnh báo nếu mất kiểm soát với AI, 'loài người có thể biến mất trong 10 năm'.
+- Mã độc này đã hoạt động trên các kho ứng dụng App Store và Google Play ít nhất từ tháng 3-2024, chủ yếu nhắm vào người dùng ở UAE và các quốc gia ở châu Âu và châu Á.
+- Ngày 4-2, Ủy ban châu Âu công bố văn bản hướng dẫn thực hiện những quy định trong Đạo luật Trí tuệ nhân tạo (AI), có hiệu lực từ ngày 2-2, nhận về nhiều phản ứng trái chiều.
+- Nhờ kết hợp nhiều công nghệ hiện đại, robot 'Thần Tài' của Trung Quốc có thể giao tiếp và biểu cảm giống y người thật.
+- Một chương trình độc hại được cho là ‘chưa từng thấy’ có thể tấn công đánh cắp dữ liệu từ hình ảnh trên điện thoại iPhone, đang lây nhiễm qua 20 ứng dụng giả mạo.
+- OpenAI khẳng định với công cụ Deep Research mới nhất, ChatGPT có thể 'hoàn thành trong vài chục phút những việc mà con người phải mất đến nhiều giờ'.
+- Ngày 31-1, Tổng thống Mỹ Donald Trump đã gặp ông Jensen Huang, giám đốc điều hành (CEO) của tập đoàn công nghệ hàng đầu thế giới Nvidia, tại Nhà Trắng.
+- Nút 'Think' và sự ra mắt của 'o3 mini' hứa hẹn sẽ cải thiện đáng kể khả năng lập luận và phản hồi thông minh của ChatGPT.
+- Hiệp hội An ninh mạng quốc gia vừa công bố thành lập Liên minh ứng phó, khắc phục sự cố an ninh mạng quốc gia.
+- Theo đề xuất của chính phủ nhằm đối phó nạn tin tặc hoành hành tại Anh, các trường học, cơ quan y tế quốc gia (NHS) và hội đồng địa phương sẽ bị cấm trả tiền chuộc khi bị tấn công mạng.
+- Ngày 3-1, Google thông báo đã thanh toán 100 triệu CAD (tương đương 69 triệu USD) cho các cơ quan báo chí Canada để sử dụng nội dung thông tin trên nền tảng này.
+- Điện thoại realme C75 đang được mở bán đặc quyền tại Thế Giới Di Động chính là một "chiến binh" sẵn sàng đồng hành cùng bạn trong mọi hoàn cảnh.
+- Trong số 10 sự kiện công nghệ thông tin và truyền thông tiêu biểu nhất năm 2024, các sự kiện liên quan bán dẫn, viễn thông chiếm vị trí nổi bật.
+- Báo Tuổi Trẻ vừa chính thức đưa vào hoạt động tòa soạn chuyển đổi số theo phong cách hiện đại, đa năng và sáng tạo.
+- Phó bí thư Thành ủy TP.HCM đề nghị tăng cường tuyên truyền để người dân phòng ngừa hoạt động phạm pháp trên môi trường số.
+- Là nhóm dùng mạng xã hội nhiều nhất, các bạn trẻ nghĩ gì khi quy định tài khoản mạng xã hội phải xác thực cá nhân mới có thể đăng bài, bình luận, livestream?
+- Dịch vụ 5G của VinaPhone tập trung ở các khu vực trọng điểm về kinh tế xã hội tại 63 tỉnh thành, không kèm điều kiện đăng ký gói cước mới.
+- Ngày 17-12, TP.HCM khai mạc chương trình 'Diễn tập thực chiến bảo đảm an toàn thông tin mạng TP.HCM 2024'.
+- Telegram có hệ thống mã hóa đầu cuối mạnh mẽ, giúp đảm bảo tính riêng tư cho các cuộc trò chuyện.
+- Máy tính lượng tử sẽ được tích hợp vào nền tảng đám mây điện toán lượng tử "Tianyan" để người dùng trên toàn thế giới có thể truy cập được.
+- Tại lễ trao giải Vietnam iContent 2024 diễn ra vào tối 30/11, FPT Play được vinh danh là ‘‘Nền tảng giải trí Việt của năm”.
+- Dự luật vừa thông qua quy định trẻ em dưới 16 tuổi không được phép đăng ký mở tài khoản Facebook, Snapchat, TikTok, Instagram, Reddit và X.
+- Sắp tới đây, mỗi tài khoản chơi game dành cho người dưới 18 tuổi chỉ được phép chơi một trò chơi tối đa 60 phút/ngày.
+- Theo thống kê của Akishop, nhà phân phối máy đọc sách hàng đầu ở Việt Nam, cộng đồng sử dụng máy đọc sách tại Việt Nam ước tính hiện có trên 300.000 người với mức tăng trưởng khoảng 15% mỗi năm.
+- Sự trỗi dậy nhanh chóng của Trung Quốc đang gây áp lực lớn lên các ngành công nghiệp và công nghệ tiên tiến của Hàn Quốc.
+- Hình thức, thành phần, nội dung của Ngày hội khởi nghiệp sáng tạo năm nay sẽ có điều chỉnh so với những năm trước.
+- Samsung đã đáp ứng nhu cầu khám phá và trải nghiệm công nghệ của người tiêu dùng theo cách khác biệt với cửa hàng Samsung West Lake.
+- Các quan chức chống độc quyền của Bộ Tư pháp Mỹ đã quyết định sẽ yêu cầu thẩm phán buộc Google bán các trình duyệt Chrome nhằm phá vỡ thế độc quyền.
+- Loại kính mới có thể chỉ cho shipper chính xác nơi cần đến trong tòa nhà, chẳng hạn như các hướng rẽ, và chụp ảnh các gói hàng sau khi giao xong.
+- Apple được cho là đã vi phạm luật cạnh tranh của Anh khi ưu tiên dịch vụ lưu trữ iCloud, 'bẫy' khách hàng buộc phải dùng iCloud.
+- Theo các chuyên gia, mục tiêu cuối cùng của an toàn thông tin không phải là xử lý được bao nhiêu lỗ hổng, ngăn chặn bao nhiêu cuộc tấn công, mà là bảo đảm tính liên tục, hiệu quả cho hoạt động của doanh nghiệp.
+- Nghiên cứu mới cho thấy lượng rác thải điện tử do trí tuệ nhân tạo (AI) tạo ra có thể tăng gấp 2.000 lần vào năm 2030, lên đến 5 triệu tấn.
+- Ngày 9-11, ứng dụng học tập trực tuyến Studify được một nhóm bạn trẻ ra mắt tại TP.HCM.
+- Máy móc vận hành tự động, robot xuất hiện ở mọi công đoạn, hoạt động sản suất được giám sát toàn trình… và tất cả được kết nối trên hạ tầng mạng là viễn cảnh sản xuất thông minh mà 5G2B của Viettel đang hiện thực hoá.
+- Những lỗ hổng này có thể ảnh hưởng từ smartphone, máy tính bảng cho đến phương tiện di chuyển có kết nối công nghệ và hệ thống viễn thông.
+- Không chỉ đủ năng lực phát hiện ra các lỗ hổng bảo mật trên các thiết bị lưu trữ hình ảnh, dữ liệu nhạy cảm, Viettel Cyber Security (VCS) đặt mục tiêu làm thế nào để những sản phẩm này an toàn hơn cho người dùng.
+- Hàn Quốc phát hiện Meta đã thu thập dữ liệu về tôn giáo, quan điểm chính trị, tình trạng hôn nhân và khuynh hướng tình dục của khoảng 980.000 người dùng Facebook Hàn Quốc.
+- Dù liên tục được nhà mạng tăng thêm trạm phát sóng nhưng mật độ vẫn còn rất thấp, do đó tình trạng tốc độ 5G phập phù vẫn diễn ra ở nhiều nơi, người dùng nên cân nhắc khi mua gói cước 5G.
+- Whisper, công cụ AI chuyển lời nói thành văn bản của OpenAI - đã tạo ra các đoạn văn bản và những câu hoàn toàn không có thật.
+- Ngày 29-10, Cơ quan tư pháp Liên minh châu Âu (Eurojust) thông báo một chiến dịch toàn cầu đã giúp triệt phá các máy chủ của infostealers - một trong những nền tảng mã độc lớn nhất thế giới.
+- Hiện tại, Google có khả năng dịch hơn 94 ngôn ngữ trên toàn cầu sang 25 ngôn ngữ bản địa châu Phi.
+- Câu chuyện về một vài người nào đó trở thành tỉ phú chỉ sau một thời gian ngắn chơi tiền số đã khiến nhiều người Việt lao vào cuộc chơi.
+- Đài phát thanh OFF Radio Kraków tại Ba Lan gây tranh cãi khi sa thải các nhà báo của mình để sử dụng 'người dẫn chương trình' AI.
+- Meta thể hiện quyết tâm chống lại nạn quảng cáo trục lợi từ hình ảnh người nổi tiếng, khi thử nghiệm công nghệ nhận diện khuôn mặt trên các nền tảng của mình.
+- Microsoft vừa giới thiệu các tác nhân trí tuệ nhân tạo (AI) tự động hay nhân viên ảo, với khả năng xử lý các truy vấn từ người dùng, cũng như xác định nhóm khách hàng tiềm năng.
+- Công nghệ giả mạo 'deepfake' đang gây khó cho cơ quan quản lý Hàn Quốc, trong bối cảnh người dân ngày càng dành nhiều thời gian xem YouTube, Instagram.
+- Theo cam kết của nhà cung cấp dịch vụ, Lotus Chat là ứng dụng dành cho người dùng Việt có tính bảo mật và tiện lợi.
+- Qua nhiều ngày trải nghiệm kết nối 5G tại nhiều địa điểm, thời gian khác nhau tại TP.HCM, Tuổi Trẻ Online đã có những ghi nhận khác nhau về tốc độ 5G.
+- Từ 0h ngày 16-10, Việt Nam sẽ chính thức tắt sóng 2G. Hiện vẫn còn hàng trăm nghìn thuê bao 2G Only đang hoạt động.
+- Camera iPhone 16 Pro bị chê chụp ảnh thiếu sáng và video bị mất chi tiết khi zoom, Galaxy S24 Ultra bị điểm trừ vì độ trễ khi chụp ảnh và video không ổn định.
+- Công cụ khai thác lỗ hổng phần mềm được rao bán trên nhiều diễn đàn web ‘đen’ và các kênh ẩn danh trên ứng dụng Telegram.
+- 8 năm cho một hành trình để Phúc Vinh - chủ nhân kênh TonyTV đi từ con số 0 kiên trì đến ngày được đón nhận, công nhận.
+- Laptop Zenbook S 14 là thế hệ Copilot+ PC được trang bị chip Intel Series 2 cùng thiết kế siêu mỏng nhẹ với lớp phủ nhôm gốm độc quyền ASUS Ceraluminum™.
+- Hai website giả mạo ứng dụng Zalo do kẻ xấu tạo ra để lừa người sử dụng đang có hàng triệu lượt truy cập mỗi ngày.
+- Ngày 3-10, FPT Telecom International (FTI) công bố hợp tác chiến lược cùng SolarWinds ra mắt mô hình giám sát CNTT thế hệ mới, đáp ứng đa dạng quy mô và nhu cầu của doanh nghiệp Việt Nam.
+- Viettel đang tăng tốc chuyển đổi cho 500.000 thuê bao 2G cuối cùng trước ngày tắt sóng 15-10.
+- FPT Shop mở bán iPhone 16 Series trên toàn quốc
+- Intel công bố ra mắt sản phẩm chip AI mới, cạnh tranh với các đối thủ AMD và Nvidia.
+- Thông tin được ông Nguyễn Minh Hồng - chủ tịch Hội Truyền thông số Việt Nam - đưa ra tại hội thảo an toàn thông tin trong chuyển đổi số ngày 24-9, tại Cần Thơ.
+- Nhằm giúp doanh nghiệp tiết kiệm chi phí mà vẫn có thể tận dụng nhiều lợi ích của các máy chủ cloud, Bizfly Cloud tung ra dòng máy chủ Cloud VPS giá rẻ hấp dẫn.
+- Sở Y tế TP.HCM đã triển khai phần mềm tra cứu thuốc cấp cứu, với 14 bệnh viện tham gia tra cứu, chia sẻ 37 loại thuốc cấp cứu.
+- Ứng dụng Instagram đã cho ra mắt tính năng được thiết kế dành riêng cho lứa tuổi thanh thiếu niên nhằm tăng cường các biện pháp bảo vệ nhóm đối tượng này.
+- Với sự phát triển chóng mặt của trí tuệ nhân tạo (AI), những kẻ lừa đảo chỉ mất 3 phút để tạo app giả, trang web, fanpage mạo danh.
+- Năm 2024, một chiếc laptop sinh viên chuẩn mực ngoài yếu tố hiệu năng và giá cả còn cần thêm các tiêu chí về sự linh hoạt, công nghệ AI cũng như màn hình OLED. Đây cũng chính là các tính năng trên các dòng laptop sinh viên ASUS.
+- Mô hình o1 của OpenAI được nói là sẽ 'suy nghĩ' trước khi trả lời, có thể giải quyết các vấn đề khó hơn về khoa học, toán học hay lập trình.
+- Cục Viễn thông đang đề xuất lùi thời gian tắt sóng 2G, để các nhà mạng có thêm thời gian hỗ trợ 3,4 triệu khách hàng chuyển đổi từ thuê 2G lên 4G.
+- Ban tổ chức cho biết sự kiện nhằm ghi nhận, vinh danh và ủng hộ những đóng góp cũng như tài năng đội ngũ sáng tạo nội dung số tại Việt Nam.
+- Quyết định rút khỏi thị trường Việt Nam của Gojek để lại nhiều tiếc nuối cho các đối tác tài xế, nhà hàng và người dùng, những người đã đồng hành cùng hãng xe công nghệ thời gian qua.
+- Ông Elon Musk đang trên đà trở thành tỉ phú nghìn tỉ (trillionaire) đầu tiên trên thế giới vào năm 2027.
+- Các nhà sản xuất điện thoại smartphone từ Trung Quốc đã làm lung lay vị thế dẫn đầu lâu đời của Samsung tại thị trường Đông Nam Á.
+- Với Galaxy Z Fold6, bạn có thể thoải mái sáng tạo và sáng tác bất cứ khi nào, bất cứ nơi đâu, đặc biệt hữu ích với những bạn trong ngành thiết kế, đồ họa, truyền thông…
+- Hai đối tượng đã lắp đặt thiết bị đánh cắp thông tin thẻ ngân hàng tại một số máy ATM ở Úc, sau đó rút tiền từ tài khoản của nạn nhân.
+- Xã hội Trí tuệ nhân tạo được phác thảo là một xã hội ứng dụng sâu rộng trí tuệ nhân tạo vào mọi mặt chính trị, xã hội, kinh tế, khoa học công nghệ, kinh doanh, văn hóa, giáo dục.
+- Đây là một trong những nhiệm vụ mà Thủ tướng Phạm Minh Chính đề ra trong việc nâng cao hiệu quả cung cấp và sử dụng dịch vụ công trực tuyến.
+- Apple chính thức thông báo sẽ tổ chức sự kiện ra mắt iPhone 16, một trong những sự kiện công nghệ được mong đợi nhất hành tinh, vào ngày 9-9.
+- Nhiều nghiên cứu cho thấy trẻ dùng smartphone đối mặt nhiều nguy cơ, đặc biệt là chức năng thần kinh bị ảnh hưởng, bị 'đầu độc' và bắt nạt trực tuyến...
+- Bạn có tin được không: khoảng 61% mật khẩu hiện nay có thể bị bẻ khóa trong chưa đầy một phút dưới sự hỗ trợ của trí tuệ nhân tạo (AI), trong khi chỉ có 7% mật khẩu đủ mạnh để phòng chống các cuộc tấn công lâu dài.
+- Với xu hướng kinh doanh hiện đại là tập trung nhiều hơn vào khách hàng, việc mang đến nhiều trải nghiệm cá nhân hóa để kết nối sâu sắc hơn với khách hàng là rất quan trọng.
+- AI không có khả năng tiếp thu các kỹ năng mới nếu không được hướng dẫn, do đó không có khả năng đe dọa con người.
+- Hòa chung không khí mùa tựu trường 2024, hệ thống bán lẻ laptop hàng đầu Việt Nam - FPT Shop tiếp tục triển khai hàng loạt các chương trình ưu đãi hấp dẫn.
+- TS Jeff Dean - đồng sáng lập Google Translate, Google Brain hay Gemini - lần đầu tiên có những chia sẻ trực tiếp về AI với cộng đồng công nghệ Việt Nam.
+- Ngày 18-8, Hội nghị GenAI Summit 2024 về trí tuệ nhân tạo với chủ đề “Chân Trời Mới” diễn ra tại TPHCM.
+- Theo Open AI, việc giao tiếp nhiều với ChatGPT có thể khiến người dùng trở nên kém khéo léo hoặc ít muốn tương tác với con người hơn.
+- Sự cố mới đây của Gmail khiến hàng nghìn người không thể gửi email hoặc tin nhắn thông qua dịch vụ này.
+- Sở Cảnh sát thành phố Tulsa, bang Oklahoma (Mỹ) cảnh báo nguy cơ từ pin sạc dự phòng, sau khi một con chó nhai cục sạc dự phòng gây cháy nhà.
+- Việc lướt điện thoại và tiếp xúc với ánh sáng xanh có thực sự gây hại cho làn da bạn không? Và việc thoa kem dưỡng có giúp ích không?
+- Sau hơn 1 tháng xác thực sinh trắc học, số điểm phần trăm người dân đánh giá quá trình xác thực dễ dàng tăng thêm 7%, số người kêu khó giảm 9%.
+- Bang Texas cáo buộc các phần mềm của Meta đã nhận dạng và gắn thẻ mọi người trong ảnh mà không được sự cho phép của người dùng.
+- Theo khảo sát của các công ty nghiên cứu thị trường, thị trường nhà thông minh tại Việt Nam đang phát triển mạnh mẽ và sôi động.
+- Vivobook S 15 (5507) là thế hệ laptop AI Copilot+ PC của ASUS với thiết kế mỏng nhẹ, pin lên tới 18 giờ, màn hình Lumina OLED và hiệu năng mạnh.
+- 'Chatbot AI gặp khó với toán vì chúng chưa bao giờ được thiết kế để làm toán', ông Kristian Hammond, nhà nghiên cứu AI tại Đại học Northwestern (Mỹ), cho biết.
+- Điện thoại gập mới ra mắt của Samsung nâng cao hiệu suất làm việc, giải trí với những tính năng độc nhất.
+- Gần một tuần sau sự cố sập mạng toàn cầu, CrowdStrike cho biết 97% máy tính sử dụng hệ điều hành Windows bị ảnh hưởng đã hoạt động trở lại.
+- CrowdStrike thừa nhận sự cố sập hệ thống vi tính toàn cầu là do lỗi trong quá trình kiểm soát chất lượng các bản cập nhật phần mềm của công ty này.
+- Việc Google giữ cookie đồng nghĩa dữ liệu cá nhân của 3 tỉ người dùng Chrome vẫn đang bị các trang mạng theo dõi.
+- Thay vì loại bỏ cookie của bên thứ ba, Google sẽ giới thiệu trải nghiệm mới trên Chrome.
+- Trung tâm Giám sát an toàn không gian mạng quốc gia phát hiện thêm 68 website giả mạo thương hiệu của các cơ quan, tổ chức, ngân hàng để lừa đảo người dân.
+- Ngày 19-7, thế giới đã chứng kiến hàng loạt hệ thống mạng vận hành sân bay, bệnh viện, ngân hàng... ở khắp nơi bị tê liệt.
+- Các chuyên gia cho biết điều tồi tệ nhất trong sự cố CrowdStrike đã qua nhưng cảnh báo sẽ còn những sự cố trong tương lai nếu không tìm ra cách khắc phục.
+- Hàng không Nga không bị ảnh hưởng bởi sự cố CrowdStrike vì các sân bay nước này sử dụng phần mềm bảo mật Astra, do chính doanh nghiệp Nga phát triển.
+- Cơ quan tình báo mạng của Úc cảnh báo một số trang web độc hại và mã không chính thức đang được phát tán sau sự cố sập dịch vụ đám mây của Microsoft.
+- Công ty phần mềm an ninh mạng CrowdStrike thông báo đã tìm được nguyên nhân vụ sập hệ thống máy tính toàn cầu.
+- Thực hiện chủ trương tắt sóng 2G của Bộ Thông tin và Truyền thông vào tháng 9-2024, VinaPhone triển khai loạt ưu đãi khách hàng nâng cấp lên điện thoại 4G miễn phí và nhiều ưu đãi hấp dẫn khác để duy trì liên lạc mà không phải lo lắng về chi phí.
+- Với gần một nửa dân số Úc bị ảnh hưởng, vụ tấn công mạng MediSecure là một trong những vụ xâm phạm dữ liệu lớn nhất trong lịch sử quốc gia này.
+- Đầu tuần này, giới công nghệ xôn xao với thông tin Alphabet, công ty mẹ của Google, đang sắp hoàn tất thương vụ 'khủng' mua lại công ty khởi nghiệp an ninh mạng Wiz với giá 23 tỉ USD.
+- Trước Đại hội toàn quốc Đảng Cộng hòa, Meta thông báo sẽ dỡ bỏ các hạn chế với tài khoản Facebook và Instagram của cựu tổng thống Donald Trump.
+- Các nhà nghiên cứu tại Cybernews đã phát hiện vụ rò rỉ mật khẩu lớn nhất trong lịch sử, trong đó gần 10 tỉ mật khẩu đã bị lộ.
+- Nhiều người dùng Facebook và Messenger bỗng dưng bị thông báo có thể vi phạm tiêu chuẩn cộng đồng, bị thoát khỏi tài khoản, thậm chí bị chặn không cho ‘lướt' thông tin mới…
+- Kinh tế số ước đạt tăng trưởng 22,4%, chiếm tỉ trọng 18,3% trong GDP. Doanh thu lĩnh vực công nghệ thông tin (kinh tế số ICT) ước đạt trên 1,92 triệu tỉ đồng trong 6 tháng đầu năm.
+- Cơ quan Hàng không vũ trụ Nhật Bản (JAXA) ngày 5-7 thừa nhận đã bị rò rỉ thông tin sau một vụ tấn công mạng, may mắn không lộ thông tin tên lửa và vệ tinh.
+- Có thể thấy rằng để tối đa hóa doanh thu từ website, ứng dụng, thì nhiệm vụ là cần duy trì hiệu suất ở mức cao nhất có thể.
+- Theo cơ quan chức năng, nhà mạng cho phép thực hiện cuộc gọi lừa đảo nghĩa là đã cung cấp dịch vụ liên lạc không đúng cách và gây thiệt hại cho thuê bao.
+- Nghiên cứu mới cho thấy tiếp xúc với ánh sáng nhân tạo như bóng đèn hay điện thoại thông minh sau nửa đêm có thể làm tăng nguy cơ mắc đái tháo đường loại 2.
+- Nếu lỡ cài đặt bản cập nhật KB5039302 được phát hành gần đây cho Windows 11 và bị lỗi khởi động lại liên tục, bạn có thể làm gì?
+- Mới đây, F.Studio by FPT đã chính thức mở bán các sản phẩm Apple trên gian hàng TikTok Shop của hệ thống.
+- Vừa qua, Motorola Solutions đã khai trương trung tâm R&amp;D tại TP.HCM, với mục tiêu thúc đẩy nghiên cứu và phát triển phần mềm, phân tích dữ liệu và công nghệ trí tuệ nhân tạo (AI).
+- Họp trực tuyến ngày càng phổ biến vì đáp ứng nhu cầu công việc tức thời, tối ưu thời gian và chi phí.
+- Công ty Ricoh Imaging của Nhật Bản thông báo sẽ cho ra mắt một máy ảnh phim Pentax mới lần đầu tiên sau hai thập kỷ
+- Một trong những vấn đề nghiêm trọng nhất trong lừa đảo thanh toán là ngoài các kịch bản tấn công lừa đảo đa dạng và phong phú, kỹ thuật công nghệ cũng càng tinh vi.
+- Theo các chuyên gia quốc tế, 46% nội dung độc hại trên các trang web vi phạm bản quyền là lừa đảo, nếu thẻ tín dụng được sử dụng để đăng ký thuê bao vi phạm bản quyền trực tuyến thì khả năng bị gian lận thẻ cao gấp 4 lần.
+- Người dùng có thể sử dụng công cụ ChatGPT trên các thiết bị iPhone, iPad, Macbook để tạo nội dung văn bản và hình ảnh mà không cần tải ứng dụng riêng.
+- Lần đầu tiên, một cuộc thi được dành riêng cho các tác phẩm ảnh và video dành cho lĩnh vực công nghệ.
+- Ngày 15-5, Công ty TNHH Sản phẩm công nghiệp Toshiba Asia đã tổ chức ngày hội đối tác kinh doanh ‘Business Partners Day 2024’ tại GEM Center, TP.HCM.
+- Sáng 4-6, hệ thống công nghệ thông tin của Tổng công ty Bưu điện Việt Nam (Vietnam Post) đã bị tấn công bất hợp pháp bằng mã độc tống tiền (ransomware).
+- Ngày 4-6-2024, các doanh nghiệp viễn thông và dịch vụ trung tâm dữ liệu hàng đầu khu vực đã công bố chính thức thành lập liên minh AseanConnect.One.
+- TikTok từng vấp phải sự lên án của cả ông Trump lẫn ông Biden, nhưng giờ đây lại trở thành một trong những nhân tố tác động trực tiếp đến bầu cử Mỹ.
+- Công nghệ tạo ra những công ty có năng suất cao, buộc các đối thủ phải ‘bứt tốc’ để cạnh tranh.
+- 7 thí sinh Việt Nam đều đoạt giải Olympic tin học châu Á, trong đó có 1 huy chương vàng, 6 huy chương bạc.
+- Các cuộc tấn công mạng, lừa đảo trực tuyến sẽ ngày càng tăng theo cấp số nhân, và ngày càng tinh vi vì có AI hỗ trợ.
+- Mới đây, Huawei chính thức cho ra mắt đồng hồ thông minh mới HUAWEI WATCH FIT 3.
+- Sau đại dịch, ngành dược đã nhận thấy những cơ hội phát triển mạnh mẽ từ việc thúc đẩy ứng dụng công nghệ nhiều hơn.
+- Số người thừa nhận lạm dụng tình dục trực tuyến trẻ em ở Anh cho thấy mức độ đáng báo động của vấn nạn này.
+- Đó là khẳng định của bà Loredana Crisan, phó chủ tịch phụ trách Messenger toàn cầu của Hãng Meta, trong cuộc phỏng vấn độc quyền với báo Tuổi Trẻ. Bà khẳng định Việt Nam là một trong những thị trường lớn nhất - nơi hãng không ngừng đầu tư.
+- Đừng để mình 'lấm lem' trên mạng chỉ vì một phút ham vui theo trào lưu hoặc mắc vạ miệng chỉ vì những bức xúc cá nhân.
+- Ngày 22-5, Cục An toàn thông tin (Bộ Thông tin và Truyền thông) phối hợp với báo VietNamNet tổ chức tọa đàm "Tiêu chuẩn an toàn thông tin mạng cơ bản cho camera giám sát".
+- Nhiều người thường ngại ngùng khi bắt chuyện lại với người bạn đã lâu không liên lạc. Các nhà khoa học đã có cách giúp họ.
+- Nghiên cứu mới của ĐH Michigan (Mỹ) chỉ ra rằng cách tốt nhất để quản lý thời gian dùng điện thoại là... làm cho nó đơ ra mỗi khi xài lâu.
+- Doanh nghiệp và người tiêu dùng đều cần công cụ để tự bảo vệ mình trước những hình thức gian lận mới của thanh toán số.
+- Chỉ trong một thời gian ngắn, truyền hình MyTV của VNPT đã đạt được sự tăng trưởng thần tốc, thực sự trở thành người bạn đồng hành thân thiết với các gia đình Việt mỗi ngày.
+- Kết nối Internet quốc tế gặp sự cố, chập chờn thường là cơn đau đầu của các nhà cung cấp dịch vụ trực tuyến.
+- Với sự xuất hiện của 6G, thế hệ băng thông mở rộng tiếp theo sẽ mang đến nhiều công năng và bất ngờ hơn.
+- Con chip này còn có thể dùng trong các hệ thống cảm biến và giám sát như trong xe tự hành hoặc để phát hiện lỗi nhỏ trong dây chuyền lắp ráp robot.
+- Galaxy Z Fold là một biểu tượng của Samsung trong công nghệ mới, khi có khả năng gập đôi và màn hình rộng gần 8 inch.
+- Để các đối tác nhà hàng, quán ăn được tiếp sức trên chặng đường đầy cạnh tranh, Gojek tiếp tục xây dựng kế hoạch hỗ trợ trong năm 2024.
+- Kết hợp lợi ích của public cloud và các máy chủ vật lý trong một mô hình Hybrid tăng mức độ linh hoạt, khả năng mở rộng và hiệu quả chi phí tối ưu.
+- Galaxy AI trên S24 chưa kịp ngưng sốt thì mới đây, người dùng có cơ hội trải nghiệm những tính năng thông minh trên dòng Galaxy Tab S9.
+- Việc đầu tư khoảng 1 tỉ USD để đào tạo 50.000 kỹ sư bán dẫn sẽ gián tiếp tạo nguồn thu 15 - 16 tỉ USD cho nền kinh tế.
+- Đại diện Cục Bản quyền tác giả nói môi trường số là môi trường xuyên biên giới, nên nạn đánh cắp bản quyền càng nghiêm trọng, khó giải quyết.
+- Những thông tin bị đánh cắp có thể bao gồm thông tin đăng nhập vào nền tảng mạng xã hội, dịch vụ ngân hàng trực tuyến, ví điện tử, hệ thống nội bộ và email doanh nghiệp.
+- TP.HCM thí điểm thực hiện học bạ số với toàn bộ học sinh lớp 1 của thành phố năm học 2023-2024 này.
+- Với tốc độ 156.000 tỉ khung hình mỗi giây, máy ảnh mở ra khả năng ghi lại những hiện tượng xảy ra cực nhanh mà trước nay không nhìn thấy được.
+- Các tổ chức bảo vệ quyền trẻ em lên tiếng phản đối sau khi Meta hạ độ tuổi tối thiểu sử dụng ứng dụng nhắn tin WhatsApp tại Liên minh châu Âu (EU) từ 16 xuống 13 tuổi.
+- Ngoài làm mờ tin nhắn có ảnh khỏa thân, Meta cũng đang phát triển công nghệ xác định tài khoản lừa đảo sextort (tin tặc lừa đang giữ ảnh nóng của người dùng).
+- Nhà báo Vũ Kim Hạnh, sẽ xuất hiện trên sóng Shopee Live vào ngày 15-4 trong một sáng kiến mới nhằm hỗ trợ các doanh nghiệp địa phương trong cả nước giới thiệu nông đặc sản chất lượng.
+- Nếu Công ty Netflix không tuân thủ, Bộ Thông tin và Truyền thông sẽ phối hợp các cơ quan quản lý nhà nước liên quan xử lý theo quy định pháp luật Việt Nam.
+- Chìa khóa giải mã cho sự phát triển vượt trội của TV360 và Viettel Money là nền tảng khổng lồ của Tập đoàn công nghệ lớn nhất Việt Nam - Viettel.
+- Những video, âm thanh và hình ảnh do AI tạo ra hoặc do AI thay đổi nội dung sẽ được Meta gắn nhãn 'tạo bởi AI' để phân biệt với những sản phẩm khác.
+- Chuyên gia cảnh báo các cuộc tấn công mạng có xu hướng 'tự động hóa và cá nhân hóa' khi kẻ tấn công sử dụng thư điện tử lừa đảo và cuộc gọi điện thoại giả mạo do AI điều khiển để đánh lừa nạn nhân.
+- Hầu hết trình duyệt web hiện nay cho phép người dùng sử dụng chế độ ẩn danh như một cách để bảo vệ quyền riêng tư.
+- Sự phát triển của nhiều hình thức kinh doanh mới, nhu cầu làm việc từ xa tăng mạnh v.v. khiến doanh nghiệp phải tìm giải pháp mở rộng đường truyền.
+- OpenAI giới thiệu công cụ có thể nhại giọng con người chỉ với một mẫu âm thanh 15 giây, nhưng chưa tung ra công cụ này do các lo ngại về an ninh.
+- Vinh danh những cá nhân, tập thể đóng góp lớn cho hoạt động sản xuất kinh doanh năm 2023, Tập đoàn Công nghiệp - Viễn thông Quân đội (Viettel) cũng hé lộ những đột phá lớn sau năm năm tuyên bố trở thành tập đoàn công nghệ.
+- Ngoài việc đánh cắp thông tin cá nhân, tin tặc có thể lợi dụng lỗ hổng để chèn một 'lớp' mới vào giữa người dùng và nguồn ảnh thông thường của thiết bị.
+- Giành ngôi vô địch ở giải đấu của những hacker hàng đầu thế giới ở tuổi 20, nghiên cứu công nghệ 5G từ khi còn ngồi trên ghế nhà trường…
+- Qua 15 năm hoạt động, dấu ấn của Vietnamobile để lại trong lòng khách hàng xuất phát từ chính ưu đãi hấp dẫn về giá và dữ liệu.
+- Liên tục các vụ nạn nhân bị mất hàng chục, hàng trăm tỉ đồng, mới nhất là Chủ tịch huyện Nhơn Trạch. Tội phạm đã làm cách nào để lấy số tiền khủng như vậy từ tài khoản của khách hàng?
+- 20 cá nhân, tập thể xuất sắc nhất của Viettel trên toàn cầu đã được vinh danh Viettel’s Stars 2023.
+- Theo lời giới thiệu của chủ tịch Jensen Huang, phiên bản chip AI mới có thể xử lý một số tác vụ nhanh gấp 30 lần so với thế hệ cũ.
+- Chuyên gia bảo mật phát hiện mối đe dọa phổ biến nhất nhắm vào smartphone chính là phần mềm quảng cáo, chiếm đến 40,8%.
+- Có nhiều nguyên nhân khiến máy tính xách tay cháy nổ, do đó người dùng nên trang bị kiến thức cần thiết để sử dụng và bảo quản máy đúng cách.
+- Ba nhà văn Brian Keene, Abdi Nazemian và Stewart O'Nan đã khởi kiện Nvidia vì tự ý sử dụng các tác phẩm của họ để huấn luyện công cụ AI NeMo.
+- Nhóm nghiên cứu đến từ Trường đại học California, Riverside (UCR) phát triển thuật toán giúp gia tăng tốc độ xử lý của máy tính hiện nay lên gấp đôi.
+- Tỉ phú Elon Musk thông báo xAI sẽ biến chatbot Grok thành nguồn mở trong tuần này, chỉ vài ngày sau khi ông kiện OpenAI vì từ bỏ sứ mệnh ban đầu để chạy theo lợi nhuận.
+- Nhà mạng FPT Telecom ra mắt gói cước F-Game với tốc độ internet vượt trội nhằm đáp ứng nhu cầu của cộng đồng game thủ.
+- Nhiều sinh viên không khỏi ngạc nhiên và gọi trải nghiệm tại Galaxy Campus Tour là "trải nghiệm phải thử một lần trong đời và không thể bỏ lỡ".
+- Theo Anthropic, Claude 3 Opus hiện là chatbot mạnh nhất, vượt trội phiên bản mới nhất của ChatGPT và Gemini 1.0 Ultra của Google.
+- Sáng 1-3, tại Trường đại học Công nghệ, Đại học Quốc gia Hà Nội diễn ra khai mạc chung kết thi lập trình sinh viên quốc tế ICPC châu Á - Thái Bình Dương 2024.
+- Trường đại học Công nghệ thông tin (Đại học Quốc gia TP.HCM) vừa tiếp nhận siêu máy chủ AI NVIDIA DGX A100 dựa trên kiến trúc Ampere.
+- Nhiều người dùng từng trải nghiệm 5G cho rằng tốc độ nhiều lúc, nhiều nơi vẫn chỉ ngang ngửa 4G.
+- Giữa lúc Google đối mặt với tin đồn thất thiệt, tỉ phú Elon Musk bất ngờ thông báo ông chuẩn bị mở một dịch vụ mới thay thế Gmail.
+- Tập đoàn Viettel vừa trình làng sản phẩm ‘con người' AI tại phiên khai mạc Hội nghị di động thế giới (MWC 2024).
+- Bộ Thông tin và Truyền thông mới đây đã đề xuất một số quy định mới về quản lý tài nguyên Internet, trong đó có đề cập đến tên miền quốc gia ".vn".
+- Theo OpenAI, công cụ tạo video ngắn Sora có khả năng tạo ra những cảnh quay thực tế và sáng tạo từ những chỉ dẫn bằng văn bản của người dùng.
+- Theo anh Nguyễn Xuân Việt, người đứng sau rất nhiều thiết kế ô tô từ AI nổi tiếng, việc tạo ra những mẫu xe concept bằng AI không chỉ dừng lại ở mục đích truyền thông và marketing.
+- Người dùng nên thay đổi nhiều thói quen sử dụng các dịch vụ mạng để bảo vệ sự an toàn của chính mình và gia đình trên không gian mạng.
+- Sự xuất hiện của Galaxy AI - trải nghiệm trí tuệ nhân tạo toàn diện trên mẫu flagship nhà Samsung đã mang đến rất nhiều cảm hứng.
+- Ngày 30-1-2024, Tổng công ty Viễn thông Viettel (Viettel Telecom) cho biết nhằm đáp ứng nhu cầu truy cập Internet trên di động/tại nhà cũng như phục vụ nhu cầu giải trí dịp Tết Nguyên đán, Viettel triển khai chương trình ưu đãi 'Tết A.I cũng có quà'.
+- Doanh thu trên các sàn thương mại điện tử (TMĐT) lớn tại Việt Nam năm 2023 đã tăng hơn 53% lên 232.134 tỉ đồng.
+- Vài câu lệnh, dăm ba cú click, rồi chờ màn hình xoay vài vòng, bạn đã có thể ngắm những tác phẩm nghệ thuật về rồng do AI sáng tạo.
+- Chỉ trong 7 ngày, đơn đặt hàng trước cho dòng Galaxy S24 lên tới 1,21 triệu chiếc tại Hàn Quốc.
+- Galaxy S24 mới, trung tâm là Galaxy AI, mở ra kỷ nguyên mới không chỉ trong công nghệ, mà cũng là lịch sử điện thoại AI, vừa được Samsung tiết lộ tại Galaxy Unpacked 2024.
+- Honor X9b 5G phiên bản độc quyền tại FPT Shop đã chứng minh được sức hút khủng khi dự kiến bán được 2.000 chiếc trong tuần đầu tiên mở bán (từ ngày 12 đến 19-1-2024).
+- Từ ngày 18-1 đến 27-1, chọn đặt trước Samsung Galaxy S24 Series tại FPT Shop, khách hàng sẽ nhận phiếu mua hàng đến 3 triệu đồng, hỗ trợ thu cũ đến 7 triệu đồng cùng nhiều ưu đãi hấp dẫn.
+- Điện thoại iPhone của Apple lần đầu tiên vượt lên trở thành điện thoại thông minh bán chạy nhất thế giới, chấm dứt chuỗi 12 năm thống trị của đối thủ Samsung.
+- Theo chủ tịch Hội Nhà báo Việt Nam Lê Quốc Minh, chuyển đổi số là xu thế bắt buộc nếu các cơ quan báo chí muốn giữ bạn đọc, khán giả. Đây chính là thời buổi mà tin tức phải tự tìm đến người dùng, qua Internet và các kênh khác.
+- Với những tiến bộ của ứng dụng và phát triển AI trong thời gian qua, AI dự đoán sẽ thúc đẩy mạnh mẽ kinh tế số Việt Nam.
+- Việt Nam không nằm ngoài xu hướng thế giới với hàng loạt sản phẩm AI tạo sinh ra đời.
+- Tổng kết năm 2023 với sự trở lại đột phá của bộ đôi smartphone gập Galaxy Z Flip5 và Z Fold5 tạo nên một bước tiến mới mẻ trong lĩnh vực công nghệ di động.
+- Trong bối cảnh kinh tế còn nhiều khó khăn, người dân thắt chặt chi tiêu, tập trung phát triển nhiều lựa chọn dịch vụ giúp tối ưu tiện ích ở mức phí hợp lý cho từng phân khúc khách hàng là một trong những hướng đi của các nền tảng công nghệ.
+- Năm 2023, Gojek tiếp tục được vinh danh trong Top 100 nơi làm việc tốt nhất Việt Nam của Anphabe.
+- Đứng đầu danh sách là ChatGPT với 14,6 tỉ lượt sử dụng trong khoảng thời gian từ tháng 9-2022 đến tháng 8-2023.
+- Hơn 83.000 máy tính dính mã độc tống tiền, 556 website chính phủ và giáo dục bị tấn công mạng… trong năm 2023.
+- Chia sẻ với Hãng tin AFP, ông Lê Hồng Minh, nhà đồng sáng lập kiêm CEO của VNG, khẳng định đã sẵn sàng chấp nhận thử thách mới và muốn đưa VNG trở thành công ty game toàn cầu.
+- Meta, công ty mẹ của Facebook, bị phạt 5,85 triệu euro (6,4 triệu USD) do vi phạm lệnh cấm quảng cáo cờ bạc của Ý.
+- Trong bối cảnh suy thoái kinh tế toàn cầu, nhiều doanh nghiệp kinh doanh ẩm thực vừa và nhỏ vẫn phát triển ổn định nhờ biết linh hoạt xoay trở, nắm bắt kịp thời xu hướng tiêu dùng ẩm thực.
+- Trong bối cảnh công nghệ và mạng xã hội ngày càng phát triển, đặc biệt là với thế hệ Gen Z (sinh từ năm 1997 đến năm 2012), xu hướng giao tiếp trực tuyến ngày càng trở nên phổ biến.
+- Cuối năm là thời điểm tuyệt vời để Gen Z thực hiện nốt những dự định còn dang dở trong năm và lên những kế hoạch mới cho năm sắp tới.
+- Mã QR đang xuất hiện ở mọi nơi, từ thực đơn của các nhà hàng cho tới các cửa hàng bán lẻ, trở thành một phần không thể thiếu của xã hội không tiền mặt.
+- Ngày 27-11 vừa qua, hãng âm thanh trứ danh JBL ra mắt giới mộ điệu Việt Nam dòng loa Authentics với ba phiên bản 200, 300 và 500.
+- Liên minh Trí tuệ nhân tạo (AI) với hơn 50 thành viên vừa được thành lập, với mục tiêu thúc đẩy phát triển AI mã nguồn mở một cách an toàn và có trách nhiệm.
+- Việc mã hóa tin nhắn mặc định đồng nghĩa Meta không thể xem nội dung của hầu hết các cuộc trò chuyện trên Facebook Messenger, và không thể giao chúng cho cơ quan thực thi pháp luật.
+- Người bán hàng cần áp dụng chiến lược nào để tăng trưởng hiệu quả với hình thức bán hàng xu hướng này trên Shopee?
+- Với ba nhân vật trong bài viết này, ai cũng đã nhận ra phong cách cổ điển cũng có thể làm cho công nghệ hiện đại trở nên viên mãn.
+- Viettel cam kết hợp tác với các trường Đại học thúc đẩy tổ chức các chương trình thực tập cho các bạn sinh viên, tạo điều kiện cho sinh viên tiếp cận nhanh hơn, sớm hơn, chuyên nghiệp hơn với công nghệ và xu thế thế giới.
+- Ngày 25-11, trong khuôn khổ Diễn đàn quốc gia 'Văn hóa với doanh nghiệp' năm 2023, Tổng công ty Viễn thông MobiFone đã được vinh danh là “Doanh nghiệp đạt chuẩn văn hóa kinh doanh Việt Nam”.
+- Chơi game AAA, tính toán mô phỏng cơ khí và kỹ thuật, thiết kế 3D, xử lý trí tuệ nhân tạo (AI) - điểm chung của các tác vụ này là gì? Đây đều là những ứng dụng cực kỳ nặng nề, ngốn rất nhiều tài nguyên của laptop và yêu cầu khắt khe về độ ổn định.
+- Trước làn sóng hàng loạt doanh nghiệp trong và ngoài nước đang đầu tư xây dựng trung tâm dữ liệu (Data Center) tại Việt Nam, Tổng công ty Viễn thông MobiFone cũng đang có sự đầu tư mạnh mẽ vào thị trường này.
+- MobiFone đang triển khai chương trình ưu đãi, miễn phí sử dụng, trải nghiệm hợp đồng điện tử có tích xanh eContract trong vòng 2 tháng đối với các khách hàng là cá nhân, tổ chức và doanh nghiệp.
+- Một mô hình trí tuệ nhân tạo (AI) mới trong quá trình thử nghiệm thu hút sự chú ý của nhiều người, trong đó có cả người đứng sau ChatGPT.
+- Đi trước thế giới, Trung Quốc là quốc gia đầu tiên thành công triển khai mạng Internet có tốc độ 1,2 terabit/giây, nhanh hơn 3 lần so với mạng Internet hàng đầu ở Mỹ.
+- Microsoft và các công ty đang muốn chuyển các trung tâm dữ liệu ra đại dương. Họ sẽ nhấn chìm máy tính và thiết bị mạng xuống biển để lưu trữ dữ liệu.
+- Sản xuất livestream liên hoàn giúp tăng độ hiển thị, hỗ trợ voucher giảm giá vào khung giờ vàng, cung cấp livestream trọn gói… nằm trong số những trợ lực từ Shopee Live giúp thương hiệu trên sàn tăng lợi nhuận.
+- Giới trẻ Việt với thói quen “online 24/24” thì một chiếc smartphone “pin trâu” nay phải có thêm trợ thủ bất ly thân: Tai nghe êm như nhung và “khỏe hơn trâu”.
+- Các thương hiệu thời trang được giới trẻ ưa chuộng như Levents, Canifa, The Bad God… tăng từ 10 - 40 lần số lượng đơn hàng bán ra.
+- Các đội tham dự cuộc thi sẽ phải thiết kế robot có khả năng vẽ tranh, làm các công việc sáng tạo cùng con người.
+- Nhiều người dùng, hội, nhóm trên các trang mạng xã hội tại Việt Nam kêu gọi tẩy chay ứng dụng Snapchat vì hiển thị bản đồ có ‘đường lưỡi bò' phi pháp.
+- Hiện đã có những công cụ giúp tạo video deepfake giống thật đến 70-80%, dễ nhầm lẫn khi nhìn bằng mắt thường.
+- Tỉ phú Elon Musk cho biết chatbot Grok có thể đưa ra những câu trả lời mang tính hài hước, biết nhận dạng hình ảnh, giọng nói và tạo ảnh...
+- Xem video ngắn đã trở thành một xu hướng phổ biến trong giới trẻ trên toàn thế giới, kéo theo nhu cầu online, dùng mạng Internet trên các thiết bị smartphone tăng cao.
+- Kết quả nghiên cứu cho thấy pin điện thoại mới này có thể sạc 80% trong 6 phút và 91,2% trong 10 phút.
+- Mỗi tháng, quán đồ ăn vặt xứ kim chi của chị Trầm Bội Trân cùng em gái bán hàng nghìn đơn hàng nhờ bắt tay với các ứng dụng đặt đồ ăn.
+- Nhà mạng Saymee tổ chức chuỗi hoạt động định hướng giúp học sinh, sinh viên bước ra khỏi vùng an toàn một cách hiệu quả.
+- Tâm sự về lý do đưa anh trở thành tài xế xe công nghệ và gắn bó với Gojek, anh Lê Hoàng Tuấn Huy (40 tuổi, TP.HCM) cho biết tất cả đều như một cơ duyên.
+- Viện An toàn AI sẽ kiểm tra, đánh giá, xác định tất cả các rủi ro từ AI, như quan điểm thiên vị và thông tin sai lệch và những nguy cơ khác.
+- Công nghệ WiFi Halow cho phép thiết bị có thể kết nối trực tiếp với Internet ở khoảng cách xa hơn 1km từ điểm truy cập, phù hợp với rất nhiều ứng dụng IoT cho đô thị thông minh mà TP.HCM đang hướng đến.
+- Google bị nghi ngờ ép các nhà sản xuất điện thoại thông minh tích hợp ứng dụng tìm kiếm của hãng này.
+- Kênh thông báo là công cụ nhắn tin công khai, từ một người gửi đến nhiều người, dành cho trang (Page) trên Facebook.
+- Trong các lỗ hổng mới phát hiện, lỗ hổng CVE-2023-36778 trong hệ điều hành Microsoft Exchange Server cho phép tin tặc tấn công từ xa.
+- Sử dụng nghệ thuật trình diễn Hologram, sự kiện FPT Techday 2023 hứa hẹn sẽ cho người xem cảm nhận vẻ đẹp của công nghệ, chìm đắm trong không gian hiện đại và hình dung về một tương lai số tiện ích.
+- Chuỗi sự kiện Tuần lễ chuyển đổi số TP.HCM năm 2023 gồm nhiều hoạt động đa dạng, phong phú.
+- Với bốn quy tắc ứng xử nòng cốt gồm "Tuân thủ - Lành mạnh - An toàn - Trách nhiệm”, người trẻ sẽ là những người tiên phong trong lan tỏa những thông tin chính thống, tích cực, hướng tới một không gian mạng văn minh.
+- Người dân tại hai tỉnh Bình Dương và Đồng Nai đã có thể sử dụng các dịch vụ trên ứng dụng Gojek như gọi xe hai bánh GoRide, gọi xe bốn bánh GoCar, giao đồ ăn GoFood, và giao hàng GoSend.
+- Trong lúc fan hâm mộ đón chờ các trận tiếp theo của Đấu Trường Danh Vọng Mùa Đông 2023, nhà tài trợ Hảo Hảo chính thức tung bộ sưu tập quà tặng khủng bao gồm hàng trăm thẻ game Garena và 80 gối Hảo Hảo thông qua fanpage Mì ăn liền Hảo Hảo.
+- Lâm Đồng đã vận hành Trung tâm điều hành thông minh IOC hỗ trợ lãnh đạo đưa ra các quyết định điều hành nhanh, chính xác.
+- Bang Utah (Mỹ) ngày 10-10 đã kiện TikTok với cáo buộc 'dụ dỗ' trẻ em vào thói quen sử dụng mạng xã hội đến mức nghiện và không lành mạnh.
+- Với sự phát triển của thương mại điện tử và tăng cầu vận chuyển hàng hóa, các công ty vận tải phải đối mặt với nhiều thách thức.
+- Meta Platforms đã dùng các bài đăng công khai trên Facebook và Instagram để đào tạo trợ lý ảo Meta AI mới của mình.
+- Galaxy Z Series thế hệ thứ 5 ngay từ khi ra mắt đã được giới trẻ đón nhận như một người bạn thân thiết, bởi sự đồng điệu cùng tinh thần 'nghĩ ngược, làm được'.
+- Lừa đảo bằng giọng nói đang gây mối đe dọa ngày càng tăng đối với người dùng điện thoại, khi trí tuệ nhân tạo (AI) tiếp tục phát triển.
+- Từ ngày 22 đến 28-9, khách hàng đặt trước iPhone 15 Series chính hãng tại hệ thống FPT Shop và F.Studio by FPT sẽ nhận trọn bộ ưu đãi giảm đến 3 triệu đồng cùng đặc quyền 12 tháng 1 ĐỔI 1, thu máy cũ đến 75%...
+- Đông đảo người dùng mạng xã hội tại Việt Nam đang hào hứng với các trò vui ghép mặt vào các nhân vật nổi tiếng thông qua các ứng dụng trí tuệ nhân tạo (AI) mà không biết rằng qua đó những hiểm họa có thể xảy đến với họ bất kỳ lúc nào.
+- Ngày 22-9, Hội thảo hợp tác phát triển công nghệ thông tin - truyền thông Việt Nam lần thứ 24 với chủ đề "Dữ liệu số và các nền tảng hỗ trợ ra quyết định" được tổ chức tại TP Quy Nhơn (Bình Định).
+- Chiều 20-9 (giờ địa phương, sáng 21-9 giờ Việt Nam), Thủ tướng Chính phủ Phạm Minh Chính đã tiếp lãnh đạo một số tập đoàn kinh tế hàng đầu của Mỹ và thế giới gồm: SpaceX, Coca-Cola, Pacifico Energy.
+- Được đại diện bởi tiktoker Đức Anh, chiếc laptop Vivobook 14X OLED sở hữu một thiết kế đậm tính thời trang và sự tiện dụng.
+- ASUS cho hay đã khéo léo cân đo, đong đếm để tạo ra những cỗ máy mạnh mẽ, mang công nghệ tiên tiến nhưng lại có giá thành hợp lý.
+- Tỉ phú Elon Musk dự tính sẽ thu phí toàn bộ người dùng mạng xã hội X (Twitter) với một khoản tiền nhỏ hằng tháng, nhằm chống lại các tài khoản tự động (bot).
+- Dù cơ quan quản lý và các ngân hàng đã triển khai nhiều giải pháp để ngăn tội phạm mạng, nhưng theo các chuyên gia, chủ tài khoản phải có ý thức tự bảo vệ bởi tội phạm liên quan đến lĩnh vực ngân hàng ngày càng có nhiều phương thức, thủ đoạn tinh vi.
+- Nhờ đón đầu xu hướng bán hàng thông qua livestream, Shopee ghi nhận số sản phẩm bán ra qua Shopee Live tăng gấp 24 lần trong ngày diễn ra sự kiện siêu sale 9.9.
+- Cục An toàn thông tin cảnh báo nguy cơ lộ thông tin từ việc sử dụng các ứng dụng chỉnh sửa ảnh anime, tạo ảnh như nhân vật phim hoạt hình của nhiều người dùng mạng xã hội Việt Nam hiện nay.
+- Cameo Gimbal, khung chống rung camera thông minh, 5 trục, mang được hai tải đầu tiên trên thế giới của Việt Nam, đã tạo được tiếng vang tại sự kiện triển lãm về drone vừa diễn ra ở Las Vegas, Mỹ.
+- Chuyện Vui Sốp Pi tiếp tục trở lại vào ngày 9.9 và mang đến những màn tung hứng vui nhộn cùng loạt ưu đãi săn sale nửa giá hấp dẫn.
+- Đa dạng hình thức livestream là cách Shopee giúp nhà bán hàng và thương hiệu gia tăng doanh số bán hàng, đặc biệt vào mùa mua sắm cao điểm cuối năm, đồng thời gia tăng vị thế của sàn Thương mại điện tử (TMĐT) dẫn đầu.
+- Google bị cáo buộc bóp nghẹt sự cạnh tranh trên thị trường công cụ tìm kiếm và là nguyên nhân khiến giá cả tăng cao trên toàn nền kinh tế của Anh.
+- Loạt hình ảnh sau cánh gà và những khoảnh khắc tỏa sáng rực rỡ trên sân khấu của dàn nghệ sĩ Việt đã hé lộ. Tất cả đều xuất hiện tại hậu trường livestream của sự kiện “9.9 Shopee Live Thời Trang &amp; Mỹ Phẩm”.
+- Chăm chỉ học tập nâng cấp bản thân mỗi ngày, nhưng cũng đừng quên cháy hết mình với thanh xuân một lần.
+- Tháng 9-2024, khi giấy phép tần số cấp cho mạng 2G hết hạn, sẽ không còn điện thoại di động mạng 2G.
+- Sony không ngừng đưa ra những đổi mới đột phá, và Sony WF-1000XM5 là bước chứng minh hoàn hảo cho điều đó với loạt công nghệ sau đây.
+- Galaxy Z Flip5 đã mở ra những cánh cửa mới cho những bạn trẻ trở thành vlogger, chia sẻ những hành trình đáng nhớ, truyền cảm hứng cho những người yêu thích khám phá du lịch.
+- Hành trình tỏa sáng với sự hỗ trợ của Samsung cùng dấu ấn công nghệ đặc trưng trên Galaxy Z Series đã khơi nguồn cảm hứng để nghệ sĩ trẻ có tư duy khác biệt gia nhập Hội Linh Hoạt (“sân chơi” của Samsung), đưa bản sắc riêng lan tỏa một cách mạnh mẽ.
+- Đạo luật mới sẽ buộc các mạng xã hội lớn như Facebook, TikTok, YouTube chứng minh sản phẩm của họ không gây hại cho trẻ em.
+- Bên cạnh các chương trình nhằm giúp cải thiện doanh thu, quan tâm đến đời sống tinh thần của các anh em tài xế cũng là ưu tiên của Gojek khi phát triển cộng đồng đối tác.
+- Liên minh Xác thực trực tuyến thế giới (FIDO Alliance) vừa chính thức công bố Hội nghị FIDO Châu Á Thái Bình Dương (FIDO APAC Summit) lần đầu tiên được tổ chức tại Vinpearl, Nha Trang, Việt Nam từ ngày 28 đến 30-8-2023.
+- YouTube sẽ gỡ bỏ các nội dung không khuyến khích người bệnh điều trị, hay quảng bá phương pháp điều trị chưa được kiểm chứng.
+- Khi bạn gõ mật khẩu trên máy tính, AI sẽ lắng nghe mọi thao tác gõ phím và đoán chính xác nội dung bạn đang nhập.
+- CEO robot đầu tiên trên thế giới ca ngợi Elon Musk và Mark Zuckerberg vì đã sử dụng công nghệ để mang lại thay đổi tích cực cho xã hội, nhưng cũng nói rằng AI có thể đưa ra quyết định tốt hơn.
+- Tuổi thọ của con người có thể tăng lên 120 tuổi trong vài thập niên tới nhờ sự phát triển của công nghệ cũng như tiến bộ trong các lĩnh vực khác.
+- Giải pháp an ninh mạng SafeGate hoàn toàn do các chuyên gia công nghệ, kỹ sư Việt Nam nghiên cứu phát triển đã đạt được thỏa thuận ra thị trường quốc tế.
+- Số người sử dụng nền tảng Threads hằng ngày đã giảm gần 70% sau khi thu hút hơn 100 triệu người dùng chỉ trong tuần đầu ra mắt.
+- Tận hưởng những ưu đãi trên nền tảng Shopee quốc tế trong Chương trình Ngày mua sắm trực tuyến ASEAN (AOSD), sự kiện có quy mô lớn nhất ASEAN trong lĩnh vực thương mại điện tử.
+- Cục An toàn thông tin vừa đưa ra cảnh báo các cơ quan, tổ chức, doanh nghiệp về các lỗ hổng bảo mật mức cao và nghiêm trọng trong các sản phẩm của Microsoft.
+- Thủ tướng Campuchia Hun Sen yêu cầu các tài khoản TikTok giả mạo tên hoặc hình ảnh của ông phải bị xóa bỏ.
+- Tài khoản Telegram của Thủ tướng Campuchia Hun Sen tới nay đã thu hút gần 1 triệu lượt người theo dõi, không lâu sau khi ông tuyên bố bỏ Facebook để chuyển sang mạng xã hội mới này.
+- Ngày 4-7, Viettel IDC cùng Công ty VinAI thuộc Tập đoàn Vingroup và Qualcomm đã tổ chức Lễ ký kết thỏa thuận hợp tác chiến lược nhằm nghiên cứu, phát triển, đẩy mạnh cung cấp, ứng dụng các giải pháp Trí tuệ nhân tạo tại Việt Nam trên nền tảng công nghệ Qualcomm.
+- Google Analytics là một công cụ đo lường và phân tích lưu lượng truy cập website. Cơ quan chức năng Thụy Điển nói nó đã gián tiếp chuyển thông tin cá nhân người dùng sang Mỹ.
+- Ngày 27-6, Hiệp hội Phần mềm và dịch vụ công nghệ thông tin Việt Nam đã phát động chương trình Top 10 doanh nghiệp công nghệ số xuất sắc Việt Nam 2023.
+- Chiến dịch tấn công bằng virus mới có tên SpectralViper nhắm vào máy tính của hàng loạt doanh nghiệp lớn và người dùng tại Việt Nam.
+- Phần mềm thông báo lưu trú có thể giúp công an phát hiện người đó có tiền án, tiền sự hay bị truy nã nếu ở lại bệnh viện, khách sạn.
+- Nhiều doanh nghiệp logistics, ngân hàng nhanh chóng ứng dụng công nghệ "trợ lý ảo" thông minh như ChatGPT vào hoạt động kinh doanh để tăng sức cạnh tranh, giảm nhân sự, tiết giảm chi phí.
+- Montana vừa trở thành bang đầu tiên của Mỹ thông qua dự luật cấm toàn diện TikTok. Chưa bàn đến tính đúng sai hay hợp lòng dân hay không, việc thi hành một lệnh cấm như thế khả thi đến đâu?
+- Giới chức nhiều nước đang khẩn trương xây dựng các quy tắc quản lý trí tuệ nhân tạo (AI), trong đó Liên minh châu Âu (EU) trở thành nơi dẫn đầu "cuộc đua" khi đề xuất dự thảo Đạo luật Trí tuệ nhân tạo (AIA) đầu tiên trên thế giới vào ngày 21-4-2021.
+- Trong cuộc phỏng vấn với CNBC, Elon Musk đã bày tỏ mối quan tâm về AI, đồng thời bộc lộ khó khăn khi tìm động lực làm việc trước khả năng của công nghệ này.
+- Vừa muốn được lướt Internet ở với tốc độ cao, không gian phủ mạng không có “góc chết”, vừa chỉ phải chi trả chi phí hợp lý là mong muốn của người dùng từ cá nhân đến chủ các quán cà phê, doanh nghiệp.
+- Công ty Sightful (Israel) vừa công bố loại máy tính xách tay không màn hình. Chỉ cần cặp kính AR kết nối với máy tính, người dùng nhìn vào đâu thì đó là màn hình.
+- Chiều 22-5, Trung ương Đoàn cùng Tập đoàn Bưu chính viễn thông Việt Nam (VNPT) đã ký kết hợp tác giai đoạn 2023 - 2027 nhiều nội dung, tập trung chuyển đổi số.
+- FPT Shop tung chương trình siêu ưu đãi giảm đến 50% cho các sản phẩm gia dụng và giảm đến 10 triệu cho các sản phẩm điện thoại, laptop.
+- Hội nghị ‘Data Center &amp; Cloud Infrastructure Summit Light 2023: Tăng tốc cho hành trình số’ với phiên bản mới, tổ chức tại TP.HCM vào ngày 22-6 chính thức mở đăng ký miễn phí.
+- Ông Geoffrey Hinton, một trong những người tiên phong về trí tuệ nhân tạo (AI), cho rằng AI gây ra mối đe dọa cấp bách với con người hơn là biến đổi khí hậu.
+- Không còn chỉ dừng lại ở việc truyền đi một cảm hứng sống hay thông điệp thu hút, ở tầng sâu hơn, nhiều chuyên gia truyền thông đã chỉ ra rằng các doanh nghiệp như FPT đang hướng về một khái niệm mới: Chủ nghĩa tiêu dùng nhân văn.
+- Nhân Ngày Mật khẩu thế giới - World Password Day, Google tung công nghệ passkey tiến gần hơn đến tương lai không cần mật khẩu.
+- Với việc liên tục đổi mới và ứng dụng công nghệ trong quy trình chăm sóc khách hàng, FWD không chỉ đơn giản hóa quy trình tham gia bảo hiểm của khách hàng mà còn mang đến những trải nghiệm tích cực, mới mẻ.
+- Tỉ phú Elon Musk ngày 29-4 thông báo kế hoạch cho phép các chủ báo tính phí người dùng trên nền tảng mạng xã hội Twitter trên cơ sở từng bài viết mỗi lần xem.
+- Nếu dùng Facebook ở Mỹ từ 24-5-2007 đến 22-12-2022, bạn đủ điều kiện để gửi đơn yêu cầu được chia phần trong 725 triệu USD số tiền mà Meta (công ty mẹ của Facebook) chi ra dàn xếp vụ kiện tập thể về rò rỉ dữ liệu người dùng.
+- Chia sẻ của ông Trần Hữu Nhân - chuyên gia kỹ thuật dữ liệu tại One Mount.
+- Công nghệ trí tuệ nhân tạo (AI) mới có khả năng phân tích các văn bản và lọc ra nội dung có thể đe dọa tính mạng con người.
+- Chỉ với vài thao tác, một nhà nghiên cứu bảo mật đã 'nhờ' ChatGPT tạo ra một phần mềm độc hại có thể đánh cắp dữ liệu người khác mà không bị phát hiện.
+- Giờ cái gì cũng gần như đều phải dùng đến app: từ làm việc qua app, mua sắm trên app, đến chuyện hạnh phúc, tình yêu cũng nhờ app.
+- Phạm Huy Hoàng đang làm việc tại CMC Telecom đã chinh phục chứng chỉ CDCE - chứng chỉ cao nhất về Data Center.
+- Không chỉ sao lưu và khôi phục dữ liệu mọi lúc, mọi nơi, CMCCloud thế hệ mới còn tích hợp những tính năng giúp doanh nghiệp chủ động phòng tránh các rủi ro, gây ảnh hưởng đến quy trình sản xuất, tối ưu vận hành nhà máy thông minh.
+- Số hóa quy trình sản xuất, tiến tới nhà máy thông minh giờ đây không còn là ‘nỗi lo’ thường trực của doanh nghiệp ngành sản xuất nữa qua những giải pháp ‘trên mây’ từ phiên bản mới của CMC Cloud.
+- Nhà thông minh, văn phòng thông minh hay thành phố thông minh đang mang tới cho người dùng những tiện ích vượt trội, quản lý linh hoạt, tối ưu được quy trình vận hành.
+- Khi các chính phủ còn đang lúng túng tìm cách điều chỉnh, quản lý hoạt động của trí tuệ nhân tạo (Al), những sản phẩm mới như ChatGPT tiếp tục ra đời lại tạo thêm thách thức mới.
+- Google cho biết chatbot Bard của họ có thể tạo ra các đoạn văn bản ngay lập tức, khác với cách ChatGPT gõ câu trả lời từng từ một.
+- Công nghệ nhân bản giọng nói đang nổi lên như một công cụ nguy hiểm khi những kẻ xấu dùng nó để lừa đảo.
+- CEO Baidu (Trung Quốc) cho biết chatbot của họ chưa hoàn thiện, nhưng công ty vẫn cho ra mắt sản phẩm trong bối cảnh nhu cầu cao như hiện nay.
+- Thuê bao di động như thế nào là trùng khớp với Cơ sở dữ liệu quốc gia về dân cư? SIM mua từ người khác, đi đăng ký lại có cần chủ cũ xác nhận?
+- Nhận thấy nhu cầu cần làm mới trải nghiệm chạy bộ của runner Việt, UPRACE đã tích hợp các yếu tố gamification vào phiên bản mới, chính thức ra mắt vào đầu tháng 4.
+- Ông Nguyễn Văn Khoa, Tổng giám đốc tập đoàn FPT được bầu làm Phó Chủ tịch Hội Doanh nhân trẻ Việt Nam.
+- Duy nhất hôm nay ngày 3-3 trên Shopee, người dùng có thể tận hưởng thêm nhiều ưu đãi độc quyền đầy hấp dẫn cùng loạt sản phẩm chính hãng được giảm giá đến 50%.
+- Trong khi bốn tuyến AAG, APG, AAE-1 và IA đang gặp sự cố, SMW3 là tuyến cáp quang biển ‘lành lặn’ duy nhất và đang ‘gánh team’ kết nối Internet Việt Nam đi quốc tế. Nó đã 24 năm tuổi.
+- Dịch vụ trò chuyện ‘máy học thông minh’ ChatGPT thông báo phiên bản Plus đã mở cho người dùng tại Việt Nam nhưng chưa chấp nhận thanh toán đăng ký tài khoản mới.
+- Nữ nhà báo Alexandra Garfinkle hỏi ChatGPT rằng nó có thay thế người làm báo không, nó đáp: 'Con người không có gì phải lo lắng'.
+- Ngày 7-2, Microsoft cho biết đang cải tiến công cụ tìm kiếm Bing và trình duyệt Edge Web bằng trí tuệ nhân tạo (AI).
+- Hiện mỗi năm Việt Nam chứng kiến khoảng 10 lần đứt cáp quang biển khiến Internet 'rùa bò'. Lần này dự kiến sớm nhất tháng 3 mới khắc phục xong sự cố.
+- Bộ sticker Bé Tra gồm 16 sticker có nội dung, thông điệp từ các câu nói liên quan đến cá. Đây là ý tưởng xuất phát từ những logo được dùng trong lễ hội cá tra lần thứ nhất.
+- Hùa theo "cơn sốt" ChatGPT đang lan rộng tại Việt Nam, dịch vụ tạo, mua, bán tài khoản ChatGPT cũng được rao bán tràn lan trên các trang mạng xã hội.
+- MusicLM của Google có thể chuyển một văn bản bất kỳ thành bản nhạc. Chuyên gia trí tuệ nhân tạo (AI) nói nó còn 'lớn hơn' cả ChatGPT.
+- Trở lại guồng quay công việc sau một kỳ nghỉ Tết dài, bạn hẳn sẽ muốn ‘đổi gió’ cho góc làm việc để chuẩn bị cho một năm mới nhiều năng lượng hơn.
+- Chào Xuân Quý Mão, từ nay đến hết 31-01-2023, FPT Shop lì xì đến 6.800.000 đồng cùng hàng loạt các ưu đãi giá trị cho khách hàng chọn mua sản phẩm Apple chính hãng.
+- Chào Xuân Quý Mão, từ nay đến ngày 31/1/2023, FPT Shop triển khai chương trình ‘Trao ngay 68 Gian bếp Như Ý’ với quà tặng là phiếu mua hàng gia dụng trị giá 19 triệu đồng.
+- Từ nay đến ngày 31-01-2023, khi chọn mua laptop sinh viên, văn phòng tại FPT Shop, khách hàng sẽ được lì xì đến 50%, tặng thêm 01 năm bảo hành và nhiều ưu đãi thiết thực khác.
+- Đến với cuộc thi IDEA Design Award 2022, Dreame đã giành được Giải thưởng Thiết kế đột phá đến từ 2 sản phẩm Dreame Bot W10 và Dreame L10S Ultra. Đây là những sản phẩm hàng đầu cho sự đổi mới về công nghệ, thiết kế.
+- Đứng trước cách mạng công nghiệp 4.0, làm thế nào để doanh nghiệp sữa tăng công suất, tận dụng tối đa thiết bị hiện có và tối ưu chi phí đầu tư vào chuyển đổi số?
+- Chào đón “Quý Mão Lộc Phát”, bên cạnh ưu đãi đến 9.500.000 đồng, FPT Shop còn tặng bộ quà trị giá đến 8.000.000 đồng cho khách hàng chọn mua điện thoại, máy tính bảng Samsung.
+- Sau đại dịch, hybrid work trở thành xu hướng toàn cầu, xuất hiện trong mọi ngành nghề của xã hội. Lối sống hybrid cho phép một người có thể làm nhiều việc, hoàn thành nhiều vai trò cùng một lúc.
+- Chuyển đổi số cho quản lý năng lượng và tự động hóa có thể hỗ trợ các doanh nghiệp F&amp;B đạt được những tiến bộ về hiệu quả hoạt động (OpEx), tối đa hóa giá trị tài sản (CapEx), giảm tiêu thụ năng lượng và truy xuất tức thời nguồn gốc sản phẩm.
+- Duy nhất trong hôm nay ngày 5-1, Shopee gửi gắm thông điệp 'phát tài phát lộc' đến toàn thể người dùng trong năm mới 2023 thông qua Shopee 5.1 Tết Sale với 8 ưu đãi độc quyền mang ý nghĩa tượng trưng cho sự thịnh vượng.
+- Đừng bỏ lỡ cơ hội hái lộc đầu năm theo cách thật đặc biệt và hứng khởi với chương trình '1.1 Tết sale mở màn' trong khuôn khổ '5.1 Tết Sale' đang diễn ra tưng bừng trên Shopee.
+- Nhanh tay truy cập ứng dụng Shopee trong hôm nay để không bỏ lỡ vô vàn sản phẩm giảm giá sâu đi kèm hàng loạt ưu đãi độc quyền trong chương trình Thứ 4 - Siêu Sale Freeship.
+- Chưa đầy một tháng nữa là tới Tết Nguyên đán và 'ngày hội dọn nhà' cũng đã chính thức khởi động.
+- Bằng sự trợ giúp của các thiết bị công nghệ, Lã Thanh Huyền có thể phân bổ thời gian để hoàn thành tốt nhiều vai trò, từ quán xuyến gia đình đến công việc nghệ thuật và kinh doanh.
+- Brother ra mắt một sản phẩm máy in laser màu mới, cho phép tùy chọn tăng khối lượng in chỉ bằng việc chọn vật tư và phụ kiện đáp ứng nhu cầu kinh doanh của từng doanh nghiệp.
+- Công nghệ do Xinapse phát triển cho phép tổng hợp và tái tạo giọng nói ảo tiếng Việt, ngay cả khi đó là của người đã khuất.
+- Trong hôm nay, người dùng Shopee có thể dễ dàng mua sắm các sản phẩm tiện ích gia dụng, đồ dùng cá nhân với mức giá giảm sâu kèm nhiều ưu đãi trong chương trình “Ngày 15 Sale Giữa Tháng”.
+- Các sản phẩm của Viettel không chỉ phục vụ cho lĩnh vực quân sự mà còn cả lĩnh vực dân sự, trải rộng từ phục vụ dân sinh, doanh nghiệp, bộ ban ngành, tới các sản phẩm phục vụ cho nhiệm vụ bảo vệ an ninh quốc phòng - quốc gia.
+- TTO - Tổng công ty Công nghiệp công nghệ cao Viettel vừa ký được hợp đồng xuất khẩu thiết bị công nghệ cao và thỏa thuận hợp tác triển khai thử nghiệm mạng 5G tại Ấn Độ.
+- Từ ngày 9 đến 12-12-2022, FPT Shop triển khai chương trình ưu đãi cuối năm lên đến hơn 50% cho nhiều sản phẩm công nghệ và gia dụng.
+- Lần đầu được giới thiệu trên fanpage LG Electronics Vietnam vào ngày 01-11, LG WashTower™ là sản phẩm “tháp đôi” đặc biệt kết hợp cả hai máy giặt - máy sấy.
+- Sự thuận tiện, tính cá nhân hóa cũng như tính bảo mật của người dùng được Samsung đặt lên hàng đầu trong phiên bản thứ 5 của hệ điều hành smartphone One UI.
+- Với khả năng hiển thị hơn 1 tỉ màu, AQUOS The Scenes 4K và AQUOS The Scenes 8K chính là những đại diện cho thế hệ công nghệ mới, mang đến những trải nghiệm thực tế và sống động đến từng chi tiết.
+- Mùa ưu đãi cuối năm, điển hình là ngày 11.11 Siêu Sale sắp tới trên Shopee, nhà bán hàng cần chuẩn bị những gì để kinh doanh thành công và mang thương hiệu đến gần hơn với tệp khách hàng rộng lớn từ sàn thương mại điện tử?
+- Thay đổi và thích ứng để tối ưu hóa tiến trình công việc là bí quyết để các doanh nghiệp vừa và nhỏ nâng cao sức cạnh tranh trên thị trường.
+- Nắm bắt được nhu cầu của khách hàng và đầu tư cho hạ tầng công nghệ là cách để nhà cung cấp các giải pháp thông minh cho giao thông Phenikaa MaaS bứt phá.
+- Trong những năm qua, các hãng công nghệ đã nâng cấp và thay đổi liên tục tính năng cũng như giao diện smartphone  để mang tới nhiều tiện ích hơn dành cho người dùng. Nhưng dù thay đổi như thế nào vẫn có những thứ chỉ phù hợp cho điện thoại Android.
+- Bốn chiến lược bán sản phẩm thành công trên nền tảng số đã được Chủ tịch một doanh nghiệp thành công trong việc tạo dựng thương hiệu trên các sàn thương mại điện tử “bật mí…
+- Nhỏ gọn nhưng hiệu năng cao, cho bản in sắc nét và tích hợp sẵn các tính năng hiện đại, các dòng máy in laser của HP đang là sự lựa chọn của nhiều chủ doanh nghiệp.
+- Vừa qua, Tập đoàn BIN Corporation, Công ty SAP Việt Nam và Công ty ATS Việt Nam chính thức ký kết hợp tác chuyển đổi số toàn diện với dự án giải pháp SAP S/4 HANA Cloud.
+- Giới thiệu công nghệ bán hàng xu hướng và các giải pháp marketing toàn diện đang là những ‘át chủ bài mới’ mà sàn thương mại điện tử (TMĐT) cung cấp cho doanh nghiệp.
+- Với loạt sản phẩm mới ra mắt đáp ứng nhu cầu người tiêu dùng toàn cầu nói chung và Việt Nam nói riêng, TCL đang chứng tỏ tên tuổi của một thương hiệu cao cấp với giá phải chăng.
+- TTO - Các nhà nghiên cứu tại Đại học Oxford và ông Marcus Hutter, nhà nghiên cứu về trí tuệ nhân tạo (AI) làm việc tại DeepMind (thuộc sở hữu của Alphabet, công ty mẹ của Google), dự báo gây tranh cãi về việc sắp tới AI có thể xóa sổ nhân loại.
+- Với một thị trường rộng lớn, phong phú về nhu cầu và điều kiện đi lại như Việt Nam, dịch vụ vận chuyển cũng ngày càng đa dạng, việc taxi truyền thống và taxi công nghệ cùng chia sẻ cơ hội và thị phần là hoàn toàn khả thi.
+- Với vị thế là chuỗi bán lẻ ủy quyền của Apple tại Việt Nam, TopZone trở thành sự lựa chọn của các tín đồ Táo Khuyết khi xác nhận hơn 20.000 lượt đăng ký sở hữu iPhone 14.
+- Chuẩn bị cho 9-9 Ngày Siêu Mua Sắm, Shopee đang tập trung xây dựng cộng đồng bán hàng văn minh để mang đến trải nghiệm tốt hơn cho khách hàng.
+- TTO - "Đẩy mạnh chuyển đổi số trong giáo dục - đào tạo (GD-ĐT), gắn với đổi mới công tác quản lý và đổi mới phương pháp dạy và học" là một trong những nhiệm vụ trọng tâm của ngành GD-ĐT TP.HCM trong năm học 2022-2023.
+- Thời gian bận rộn vừa qua khiến bạn không có nhiều dịp sum họp cùng gia đình. Nếu đã như vậy, hãy nhân mùa trung thu này cùng mọi người quây quần bên nhau, còn bằng cách nào, hãy để LG ThinQ giúp sức!
+- Các thiết bị gia dụng giúp giải quyết công việc nhà cũng như bảo vệ sức khỏe các thành viên. Thế nhưng, chăm lo ‘sức khỏe’ cho các loại thiết bị lại ít được chú trọng.
+- Với 15 năm kinh nghiệm trong lĩnh vực tư vấn, triển khai các dự án chuyển đổi số, FSI mang đến Tuần lễ 'Chuyển đổi số tỉnh Thừa Thiên Huế 2022' những giải pháp công nghệ cao về tạo lập - xử lý - khai thác dữ liệu toàn diện.
+- Với triết lý hoạt động kiến tạo cuộc sống tốt đẹp hơn mỗi ngày, LG thông qua hệ sinh thái các thiết bị của mình hiện thực hóa sứ mệnh bảo vệ Trái đất xanh.
+- TTO - TikTok mới đây đã cho ra mắt hiệu ứng AI (trí tuệ nhân tạo) có thể tạo ra các bức tranh trừu tượng từ thông tin mô tả do người dùng nhập.
+- TTO - Một kỹ thuật viên của Apple tuyên bố rằng gã khổng lồ công nghệ đang đe dọa sa thải cô, sau khi cô đăng một video trên TikTok với nội dung liên quan đến các mẹo bảo mật cơ bản của iPhone.
+- Đó là nội dung ông Tào Đức Thắng, chủ tịch kiêm tổng giám đốc Viettel, nhấn mạnh trong báo cáo tại buổi thăm và làm việc với Tập đoàn Viettel của Thủ tướng Chính phủ.
+- Thực tế đang chứng minh, những tiện ích số như các dịch vụ tự phục vụ, 24/7 và 'ra lệnh' bằng giọng nói góp phần lớn vào việc đưa ra quyết định lựa chọn ngân hàng của những vị thượng đế Gen Z.
+- Ngày 27-7, chung kết cuộc thi sáng tạo công nghệ Zone Bootcamp 2022: F.I.R.E Tech do ACB WIN đồng tổ chức đã diễn ra thành công với 2 dự án được vinh danh: GREEN4LIFE thuộc bảng sinh viên và EZIN Việt Nam thuộc bảng startups.
+- Huawei tiếp tục khẳng định vị thế tiên phong trong mảng kinh doanh các thiết bị điện tử tiêu dùng, thông qua loạt danh mục thiết bị hội tụ nhiều đổi mới đột phá về công nghệ vừa ra mắt.
+- TTO - Có gì ở các clip triệu view đang dẫn đầu xu hướng trên TikTok? Trả lời ngay đó là những clip với hiệu ứng tự làm méo mó mặt mày, biến mình thành cây hành hay nhảy cùng trụ điện giữa đường phố tấp nập...
+- TTO - Ngày 24-7, trên địa bàn phường 1, thành phố Bảo Lộc, tỉnh Lâm Đồng đã xảy ra 1 vụ tai nạn thương tâm, làm 1 bé trai tử vong. Nguyên nhân ban đầu xác định nạn nhân bị điện giật khi sử dụng điện thoại trong lúc sạc pin.
+- Nhờ nắm bắt lợi thế công nghệ, SSStutter đã thành công xây dựng một thương hiệu thời trang chuyên nghiệp, bền vững và nắm bắt được thị hiếu khách hàng.
+- TTO - Google và Trung tâm Đổi mới sáng tạo quốc gia (NIC), Bộ Kế hoạch và đầu tư vừa ra mắt hai chương trình Google Career Certificates (chương trình phát triển nhân tài số) và Google for Startups: Startup Academy.
+- Xuất hiện tại Việt Nam từ cuối năm 2018, bán hàng qua livestream đang  trở thành công cụ kinh doanh đắc lực của các nhà bán lẻ trên nền tảng thương mại điện tử.
+- Trải nghiệm dịch vụ tài chính số tiện ích trên ứng dụng Mobile Banking SOL của Ngân hàng Shinhan và nhận hoàn tiền lên đến 220.000 đồng với chương trình ‘Lướt SOL là ghiền’.
+- TTO - Những khó khăn trong thủ tục hành chính tại các doanh nghiệp chuyển đổi số mạnh có xu hướng gia tăng trong 3 năm trở lại đây. Lý do là nhiều luật bộc lộ những điểm không phù hợp trong công tác thực thi.
+- TTO - Chiều 6-7, lễ phát động cuộc thi tìm hiểu kiến thức về biển, đảo Việt Nam năm 2022 và ra mắt triển lãm thực tế ảo "Tổ quốc bên bờ sóng" đã diễn ra tại Hà Nội.
+- Các chuyên gia, đại diện đến từ Amazon Global Selling và Shopee chia sẻ kinh nghiệm thực tiễn và bí quyết thành công cho doanh nghiệp Việt.
+- Không chỉ mang đến những thiết bị cần thiết cho cuộc sống, trên hành trình xây dựng thương hiệu của mình, LG tạo ra nhiều giá trị tích cực trong nhiều mặt của cuộc sống, song hành cùng Việt Nam tạo nên một cuộc sống tốt đẹp hơn.
+- TTO - Lần đầu tiên kể từ tháng 11-2020, giá đồng tiền mã hóa bitcoin lao xuống dưới mốc 20.000 USD/btc trong ngày 18-6.
+- Chi phí điện năng khi sử dụng điều hòa không khí khiến nhiều người lo lắng. Nhưng nếu biết 10 mẹo này, người dùng sẽ tiết kiệm số tiền không nhỏ.
+- Ngay sau khi ra mắt MV “Đồng” có sức khuấy đảo mạnh mẽ, LG Việt Nam tiếp tục mang đến “làn sóng nhảy”  thú vị trên nền tảng TikTok.
+- Sử dụng công nghệ xử lý âm thanh và nhận diện giọng nói, Tổng đài Chăm sóc khách hàng của Viettel có thể 'biết' cảm xúc của khách hàng để tự động phân loại hơn 300.000 cuộc gọi đến hằng ngày.
+- Duy trì nhiệt độ vừa phải, tránh gió thổi thẳng vào người, chọn chế độ chạy êm... sẽ giúp người dùng ngủ ngon giấc và sảng khoái khi thức dậy.
+- Xiaomi lần đầu tiên công bố tại Việt Nam dòng sản phẩm TV thông minh 4K cao cấp - Mi TV P1 Series với hai phiên bản 55 inch và 43 inch.
+- Tuy thường được nghĩ đến là nhà cung cấp thiết bị viễn thông hàng đầu thế giới nhưng Huawei còn là một trong những ‘ông lớn’ tạo ra nhiều giải pháp để xây dựng các thành phố thông minh trên thế giới…
+- Với 19 bằng độc quyền sáng chế được bảo hộ tại Việt Nam và 4 tại Hoa Kỳ, Viện Hàng không Vũ trụ Viettel (VTX) hiện nay là một trong những 'thương hiệu' nổi bật về đổi mới, sáng tạo.
+- Ông Tào Đức Thắng, Chủ tịch kiêm Tổng giám đốc Viettel nhấn mạnh: mỗi thời kỳ, Viettel đều có những đổi mới sáng tạo đột phá giúp Tập đoàn vượt qua nhiều khó khăn, thách thức.
+- Sự kiện ‘Bảo mật nền tảng đám mây - thúc đẩy kinh doanh’ do VNG Cloud tổ chức vào ngày 20-5 vừa qua có sự tham gia của Bộ Thông tin và truyền thông, các chuyên gia công nghệ Việt Nam cùng gần 100 doanh nghiệp đến từ các lĩnh vực.
+- Với những phát minh về công nghệ làm thay đổi ngành xử lý nước trên thế giới, A. O. Smith đã đem đến những giải pháp lọc nước hiện đại hàng đầu, bảo vệ sức khỏe cho người tiêu dùng Việt Nam.
+- Huawei đã có bài phát biểu về tương lai đổi mới kỹ thuật số và nền kinh tế số của khu vực châu Á - Thái Bình Dương, cùng với những cam kết đồng hành của hãng trong công cuộc này…
+- Bo mạch nổ, máy nén hỏng, dàn tản nhiệt bị ăn mòn… là những sự cố thường gặp ở dàn nóng khiến máy kém bền.
+- TTO - Theo báo cáo chỉ số thương mại điện tử do Công ty e-logistics Ninja Van hợp tác DPD group công bố, Việt Nam đang dẫn đầu doanh số ở thị trường Đông Nam Á.
+- Thang máy kỹ thuật số KONE DX - một sản phẩm vừa mới được ra mắt gần đây của tập đoàn KONE đã tạo sự khác biệt trong trải nghiệm nhờ tích hợp các công nghệ tân tiến.
+- Khi sức khỏe được xem là yếu tố cốt lõi định nghĩa lối sống ‘wellness’, không gian sống thoáng mát, sạch khuẩn, tích hợp nhiều mảng xanh chính là mục tiêu mà nhiều người hướng đến.
+- Ngày 19-4-2022, tại Quy Nhơn, Tập đoàn Công nghiệp - viễn thông Quân đội (Viettel) chính thức công bố tuyến cáp biển quốc tế ADC (Asia Direct Cable) cập bờ tại Quy Nhơn, Bình Định, Việt Nam.
+- Chương trình Thực tập sinh Tài năng (Viettel Digital Talents) 2022 nằm trong chiến lược đào tạo nguồn nhân lực trẻ lĩnh vực công nghệ của Viettel đã chính thức đón nhận 115 sinh viên xuất sắc vượt qua vòng sơ loại.
+- TTO - Những tiện ích từ chuyển đổi số đã đem lại những lợi ích rõ rệt cho các doanh nghiệp, cá nhân đã nhanh hạy bắt kịp hướng đi này.
+- TTO - Tại diễn đàn 'Chuyển đổi số để phục vụ bạn đọc tốt hơn', cục trưởng Cục Báo chí viện dẫn thực tế hiện nay, trẻ em, người cao tuổi đã quen với YouTube, Netflix nhưng lại loay hoay để tìm các kênh truyền hình thiết yếu.
+- TS.BS Phạm Lê Duy - Bộ môn Sinh lý, Sinh lý bệnh miễn dịch ĐH Y Dược TP.HCM chia sẻ cách sử dụng điều hòa mùa nóng hiệu quả và đảm bảo sức khỏe cho cả gia đình.
+- Ngày 8-4, TCL Electronics đã tổ chức sự kiện giới thiệu loạt TV mini LED, QLED, 8K, 4K cùng các sản phẩm AI x IoT hiện đại và công bố thông điệp mới Inspire Greatness (Truyền cảm hứng tuyệt vời).
+- Hội thảo và giao lưu thương mại trực tuyến Taiwan Excellence: Giới thiệu giải pháp thông minh từ các thương hiệu AAEON, IBASE, IEI, MiFly, MSI và PLANET sẽ diễn ra tại kênh Youtube của Taiwan Excellence vào lúc 14h ngày 14- 4-2022.
+- Trở thành doanh nghiệp thành công để có thể thúc đẩy sự tiến bộ hướng tới tương lai bền vững hơn. Và để đạt được mục tiêu kinh doanh, công nghệ đóng vai trò thiết yếu.
+- TTO - Ngày 1-4, Google hợp tác cùng Trung tâm Giám sát an toàn không gian mạng quốc gia (NCSC) ra mắt website Dauhieuluadao.com (dấu hiệu lừa đảo) nhằm nâng cao nhận thức về lừa đảo trực tuyến đang gia tăng cả về phương thức lẫn số lượng.
+- TTO - Ngày 25-3, nhà mạng VinaPhone cảnh báo việc gia tăng hiện tượng tội phạm lợi dụng tính năng chuyển hướng cuộc gọi (Call Forwarding) để đánh cắp thông tin mã OTP các dịch vụ của khách hàng.
+- TTO - Trong năm 2022, Bộ Khoa học và công nghệ sẽ ưu tiên triển khai chính sách thí điểm cho một vài doanh nghiệp triển khai dự án blockchain khả thi, mang lại lợi ích cho xã hội rõ rệt.
+- TTO - Meta, công ty mẹ của Facebook, vừa thông báo tới các nhân viên về việc họ sẽ không còn được hưởng các dịch vụ miễn phí như trước và thời gian ăn tối cũng bị lùi lại muộn hơn.
+- HP 280 Pro G5 SFF vừa được làm mới với chipset H570 cao cấp, cài đặt sẵn Windows 11 bản quyền, đồng thời sở hữu hiệu năng mạnh mẽ, bảo mật và cực kỳ nhỏ gọn.
+- Thời trang là ngành luôn đòi hỏi sự sáng tạo và phát triển, nắm bắt những xu hướng mới để đáp ứng sự thay đổi không ngừng của thị trường và khách hàng.
+- Ra mắt thị trường từ năm 2016 với sản phẩm điều hòa không khí, Casper nhanh chóng phát triển và trở thành một thương hiệu được nhiều người biết đến trong ngành điện tử, điện lạnh.
+- Với “cánh chim đầu đàn” Viettel, Việt Nam đang là một trong số ít quốc gia xây dựng được hệ sinh thái sản phẩm an toàn, an ninh mạng nội địa, tự chủ về công nghệ và giải pháp an toàn, an ninh mạng.
+- TTO - Hơn một năm qua, Viettel luôn là thương hiệu nổi bật sau thay đổi về nhận diện thương hiệu. Theo đánh giá mới nhất của Brand Finance, giá trị thương hiệu Viettel tăng 99 bậc so với năm 2021 và lọt Top 250 thương hiệu giá trị nhất thế giới.
+- TTO - Trang web so sánh giá PriceRunner của Thụy Điển cho biết họ đang kiện Google đòi bồi thường 2,1 tỉ euro (tương đương 2,4 tỉ USD). Đây là công ty mới nhất có hành động pháp lý cáo buộc Google thao túng kết quả tìm kiếm.
+- Xiaomi chính thức ra mắt Redmi Note 11 Series, dòng sản phẩm tiếp tục kế thừa và hoàn thiện các ưu điểm nổi trội của dòng Redmi Note với bốn sản phẩm hoàn toàn mới.
+- Nguyễn Hồng Phong, học sinh trường THCS Đà Nẵng, TP Hải Phòng luôn trong nhóm 'trốn học' nhiều nhất trong lớp 7C9. Nhưng Phong lại là một trong những em có thành tích học tập tốt nhất...
+- Amazfit GTR 3 Pro chiếc smartwatch đẹp, cao cấp với tính năng theo dõi sức khỏe ưu việt, đáp ứng đủ tiêu chí của một mẫu đồng hồ thông minh 2022.
+- Sự xuất hiện của Huawei ở phân khúc màn hình gaming đã tạo nên 'làn gió mới', khuấy động thị trường tiềm năng nhưng kém sôi động này.
+- Viettel tiếp tục giữ vị trí số 1 trong bảng xếp hạng Top 50 thương hiệu có giá trị nhất Việt Nam (Vietnam 50) năm 2021 với định giá 6,061 tỷ USD. Thông tin trên vừa được công ty định giá thương hiệu hàng đầu thế giới Brand Finance công bố.
+- Hơn 250 học sinh trung học đã góp ý tưởng giải quyết các vấn đề thực tế và tạo tác động tích cực đến xã hội bằng ứng dụng công nghệ ở cuộc thi Sáng kiến công nghệ TechGenius do Đại học RMIT và báo Hoa Học Trò tổ chức.
+- Tháng 9 vừa qua, các chuyên gia tại diễn đàn SingapoReimagine Global Conversations (SRI GC) đã chỉ ra những mô hình kinh doanh và trải nghiệm du lịch mới, mở ra nhiều hướng phát triển cho du lịch Việt Nam.
+- 'Kể từ khi thực hiện bước ngoặt sang lĩnh vực viễn thông, Viettel luôn xác định: phải làm chủ các công nghệ lõi' - Thiếu tướng Lê Đăng Dũng, Quyền Chủ tịch kiêm Tổng giám đốc Tập đoàn Viettel nói.
+- Nếu như từ một chiếc sim điện thoại tí hon, Viettel đã mở ra một thế giới số khổng lồ, thì tương lai, chiếc thẻ ePass bé nhỏ cũng sẽ trở thành một yếu tố trọng điểm, một sản phẩm tiền đề cho phát triển hệ sinh thái giao thông thông minh ở Việt Nam.
+- Sau khi VDTC đạt được “thành tích kép” – vượt 1 triệu người dùng, và làm chủ toàn trình hệ thống ePass, Quyền Chủ tịch kiêm Tổng giám đốc Tập đoàn Viettel, Thiếu tướng Lê Đăng Dũng cho biết: “Đường bộ chỉ là bước đầu. Sắp tới là đường thủy, hàng khôn
+- Tập đoàn Công nghiệp - Viễn thông Quân đội (Viettel) công bố ra mắt Hệ sinh thái Tài chính số Viettel Money tới toàn bộ khách hàng đang sử dụng mạng di động Viettel trên toàn quốc.
+- TTO - Ngày 24-11, chủ đầu tư Khu công nghệ thông tin tập trung TP Đà Nẵng cho biết vừa ký kết với đối tác Singapore - Infracrowd về việc đầu tư khu trung tâm dữ liệu (Data Center) theo tiêu chuẩn Tier 3 Plus với tổng mức 100 triệu USD.
+- TTO - Từ ngày 23-11, tỉnh Bà Rịa - Vũng Tàu bắt đầu tích hợp chữ ký số trên nền tảng di động vào cổng dịch vụ công của tỉnh này. Đây là tỉnh đầu tiên có dịch vụ này, tạo điều kiện thuận lợi cho người dân và doanh nghiệp trong giao dịch.
+- Với xu thế chuyển đổi số, nhiều địa phương tập trung vào thế mạnh phát triển công nghệ trên nền tảng hạ tầng sẵn có, lấy lợi ích của người dân làm trung tâm để xây dựng thành phố thông minh, tiện ích và đáng sống.
+- Sự tăng trưởng mạnh mẽ của thương mại điện tử đã, đang và sẽ tạo nên những bước chuyển biến tích cực trong cộng đồng thông qua công nghệ.
+- Một trong những điểm khác biệt của sàn thương mại điện tử (TMĐT) với cửa hàng truyền thống chính là nền tảng trực tuyến này hoạt động 24/7, liên tục kích thích nhu cầu mua sắm của người dùng.
+- Ngày 26-10, Ban tổ chức Giải thưởng Truyền thông thế giới (World Communication Awards 2021) đã công bố mô hình thành phố thông minh do Tập đoàn Công nghiệp - Viễn thông Quân đội (Viettel) phát triển là hiệu quả và sáng tạo nhất.
+- TTO - Theo báo cáo hoạt động của mã độc tống tiền đầu tiên của VirusTotal và Google, mã độc tống tiền ransomware tăng gần 200% so với thời điểm ban đầu tại Việt Nam.
+- Khi Work From Home (Làm việc ở nhà) đã trở thành một xu hướng chung mang tính thời đại, doanh nghiệp cần chuyển mình để nâng tầm giá trị.
+- "Workstation" - máy trạm chuyên biệt cho những công việc tác vụ nặng không còn xa lạ với dân thiết kế đồ hoạ, dựng phim chuyên nghiệp, kỹ thuật cơ khí CNC, mô phỏng 3D trong y tế…
+- Ban tổ chức cuộc thi Tìm kiếm Giải pháp chuyển đổi số quốc gia (Viet Solutions 2021) cho biết đã lựa chọn được 16 giải pháp/sản phẩm tiềm năng để hợp tác đầu tư ngay từ thời điểm kết thúc vòng sơ loại.
+- Với 2 bằng sáng chế này, Viettel là doanh nghiệp Công nghiệp - Công nghệ cao của Việt Nam có nhiều bằng sáng chế được bảo hộ độc quyền của Mỹ nhiều nhất theo danh sách của Cơ quan Quản lý sáng chế và nhãn hiệu Hoa Kỳ (USPTO).
+- Làm việc từ xa đặt ra nhiều vấn đề bảo mật dữ liệu cho doanh nghiệp, đặc biệt là với những công ty chưa có nhiều kinh nghiệm trong việc triển khai hình thức này.
+- Do dịch COVID-19, nhiều học sinh Việt Nam không thể đến trường mà phải học online tại nhà. Các thiết bị công nghệ thông tin như laptop, máy tính bảng, điện thoại trở thành thiết bị thiết yếu trong quá trình giảng dạy.
+- Việc lựa chọn giữa mua máy in hay thuê máy in đối với một doanh nghiệp đôi khi không thể dễ dàng quyết định. Vậy những lưu ý gì để giúp doanh nghiệp đưa ra lựa chọn phù hợp nhất cho nhu cầu in ấn của minh?
+- Lần đầu tiên, tính đến hết tháng 8-2021, cả ba trang thương mại điện tử (TMĐT) của MWG là: Thegioididong.com, Dienmayxanh.com và Bachhoaxanh.com đều nằm trong nhóm 3 trang có lượt truy cập cao nhất của từng ngành hàng.
+- Tập đoàn Công nghiệp - Viễn thông Quân đội (Viettel) là đơn vị chịu trách nhiệm thiết kế, triển khai hạ tầng công nghệ thông tin (CNTT) cho bệnh viện dã chiến điều trị COVID-19 hiện đại nhất Hà Nội vừa đi vào hoạt động tại Yên Sở, Hoàng Mai.
+- Thay vì ủ dột hoặc ‘chém gió’ trên mạng chán ghét việc ở nhà mỗi ngày, thay vì ở nhà lâu ngày khiến bạn trong tình trạng như… muốn ‘mở tung cửa, đón ánh mặt trời nhưng nhà mình không có ban công…’.
+- Ngày 23-8, Tập đoàn Công nghiệp - Viễn thông Quân đội (Viettel) đưa vào vận hành Viettel Innovation Lab. Đây là phòng thí nghiệm về các công nghệ 4.0 hoàn chỉnh và hiện đại nhất Đông Nam Á, được đặt tại Hà Nội và TP.HCM.
+- Tập đoàn Điện lực Việt Nam (EVN) và ví điện tử ZaloPay chính thức triển khai dịch vụ thanh toán tiền điện bằng nền tảng QR code trên hóa đơn hằng tháng giúp người dùng thanh toán một cách đơn giản, dễ dàng và an toàn.
+- Thông qua Nền tảng hỗ trợ, tư vấn khám, chữa bệnh từ xa (Telehealth) do Viettel thiết lập, các cơ sở y tế đã thực hiện 120 buổi hội chẩn cho hơn 1.800 ca bệnh COVID-19 chuyển biến nặng.
+- TTO - Kể từ 11-8, ngành điện Quảng Nam chính thức triển khai chuyên mục "Điện lực" trên ứng dụng Smart Quảng Nam nhằm cung cấp kịp thời thông tin và đáp ứng nhu cầu tra cứu thông tin liên quan ngành điện của người dân và doanh nghiệp trên địa bàn.
+- Với nền tảng quan hệ hợp tác chính trị tốt đẹp, quan hệ hợp tác kinh tế - đầu tư luôn là điểm sáng trong quan hệ hợp tác đặc biệt Việt Nam - Lào.
+- Nhiều doanh nghiệp đặc thù chỉ truy cập được hệ thống nội bộ khi đến văn phòng. CMC VDI với tốc độ truy cập ổn định và bảo mật cao sẽ giúp doanh nghiệp làm việc từ xa an toàn.
+- TTO - Ban tổ chức cuộc thi Tìm kiếm giải pháp chuyển đổi số quốc gia - Viet Solutions 2021 - đã gia hạn nộp hồ sơ dự thi đến hết ngày 15-9.
+- Bên lề cuộc thi Viet Solutions 2021, Tập đoàn Viettel và Bộ Thông tin và Truyền thông phối hợp tổ chức 2 tọa đàm trực tuyến với chủ đề “Khởi nghiệp thời khủng hoảng COVID-19” và “Hướng đi cho Startup: Tăng trưởng nóng hay bền vững”
+- KinhDoanhSo.com là một trong những trung tâm số đầu tiên tại Việt Nam cung cấp khóa huấn luyện trực tuyến và trực tiếp, các công cụ hỗ trợ cho doanh nghiệp phát triển trên nền tảng số, dự án ra mắt ngày 14-7.
+- Với những ưu điểm về hiệu suất in ấn, bảo mật mạnh mẽ và thiết kế thân thiện với môi trường, MFP P77440dn là sự lựa chọn lý tưởng dành cho doanh nghiệp vừa và nhỏ (SMB).
+- TTO - Đúng ngày 21-6, báo điện tử Đảng Cộng sản Việt Nam cho ra mắt app di động mới được thiết kế hiện đại, giúp bạn đọc dễ dàng tiếp cận, tìm kiếm tin bài.
+- BenQ chính thức giữ vị trí số một thị phần màn hình tương tác (IFP: Interactive Flat Panel) trong quý 1-2021 tại Việt Nam, theo báo cáo từ Futuresource.
+- TTO - Bộ Thông tin và truyền thông vừa ban hành bộ quy tắc ứng xử trên mạng xã hội, trong đó nhấn mạnh không đăng tải thông tin xúc phạm danh dự, nhân phẩm, không quảng cáo trái phép; cơ quan nhà nước nên có phản hồi những ý kiến trên mạng xã hội...
+- TTO - HarmonyOS 2.0 không chỉ tập trung vào điện thoại thông minh hay máy tính bảng. Gã khổng lồ Huawei của Trung Quốc đặt mục tiêu thống trị các thiết bị IoT bằng hệ điều hành mới ra mắt ngày 2-6.
+- TTO - Tiền thân là giải pháp công nghệ được NASA khởi xướng, và tiên phong áp dụng từ sau sự cố phóng tàu vũ trụ Apollo 13. Đến nay, xây dựng "Nhà máy số" đang là một giải pháp công nghệ mang xu thế phát triển tất yếu của thế giới.
+- Một ngành nghề bị ảnh hưởng không ít bởi COVID-19 phải kể đến nghề ca sĩ. Không tụ họp đông người cũng đồng nghĩa với việc không được trình diễn, kết nối.
+- Thực hiện chỉ đạo của Ban Chỉ đạo Quốc gia phòng, chống COVID-19, trong vòng 7 ngày, Viettel đã hoàn thành lắp đặt và kết nối tích hợp 3.000 camera giám sát tại các khu vực cách ly thuộc các tỉnh phía Bắc.
+- TTO - Tỉ phú Elon Musk vừa úp mở trên Twitter rằng Công ty Tesla có thể sẽ bán hết số lượng Bitcoin đang nắm giữ. Xác nhận khơi khơi bằng một chữ này làm giá trị đồng Bitcoin mất ngay 8%.
+- Từ khi biết Thủ tướng Chính phủ đồng ý cho các nhà mạng di động triển khai thí điểm dịch vụ Mobile-Money, đông đảo người dùng đang ngóng chờ thời điểm được tận tay trải nghiệm công nghệ thanh toán mới mẻ nhưng bình dân này.
+- Môi trường kinh doanh luôn thay đổi và vận hành liên tục buộc chúng ta phải đảm bảo mọi chi tiết cần được chuẩn bị kỹ lưỡng và tính toán chuẩn xác.
+- Từ ngày 29-4 đến 3-5, tất cả laptop chính hãng tại FPT Shop đồng loạt giảm 10%. Ngoài ra, bạn còn được thêm nhiều ưu đãi hấp dẫn khác: trả góp 0% lãi suất, giảm giá 300.000 đồng khi mua máy in, giảm 10% khi mua màn hình LCD Samsung…
+- Khám phá hang động Tú Làn là một tour du lịch mạo hiểm cấp độ 2/6 trong các chương trình khám phá hệ thống hang động Sơn Đoòng khổng lồ ở Quảng Bình, Việt Nam.
+- Dịch vụ Mobile Money sẽ giúp những người dân ở vùng nông thôn, vùng sâu vùng xa dễ dàng sử dụng, qua đó gia nhập công cuộc chuyển đổi số đang diễn ra mạnh mẽ trên cả xã hội.
+- TTO - Dịch bệnh đã làm thay đổi nhiều thói quen của người dân, từ mua sắm đến sử dụng dịch vụ, vui chơi giải trí... Và nhiều doanh nghiệp công nghệ Việt đã nhanh chóng “bắt trend”, đầu tư lớn vào các sản phẩm, ứng dụng, công nghệ phục vụ khách hàng.
+- TTO - Các bạn học sinh hãy cam kết thực hiện đúng khi khai thác thiết bị công nghệ cho việc học, giải trí, nếu không sẽ rơi vô hố sâu của nghiện công nghệ, bị công nghệ dẫn dắt và hệ lụy rất lớn.
+- TTO - Chiều ngày 3-4, Công ty CP Vựa Miền Trung đã ra mắt và giới thiệu ứng dụng siêu thị trực tuyến FuMart đến cộng đồng người tiêu dùng. Đây là ứng dụng siêu thị trực tuyến đang phát triển mạnh trong cộng đồng tại TP Đà Nẵng.
+- Theo báo cáo của đơn vị nghiên cứu thị trường công nghệ và bán lẻ uy tín, OPPO Reno5 là smartphone dẫn đầu thị trường, xét trên mọi phân khúc giá trong 3 tháng đầu năm 2021.
+- Singapore đang thực hiện những bước cần thiết để khôi phục nền du lịch, mới đây nhất là việc phát triển tiêu chuẩn mới đối với việc xác minh kết quả xét nghiệm COVID-19.
+- Chỉ 2.000 máy bán ra tại Việt Nam, Reno5 Marvel Edition nổi bật, mạnh mẽ với vẻ ngoài đậm chất "Avengers" kết hợp cùng sức mạnh công nghệ vốn có trên Reno5
+- Năm 2020 vừa qua là một năm vô vàn thách thức với nhiều ngành nghề, nhưng riêng đối với nhóm ngành điện lạnh, đây lại là một năm có nhiều bứt phá.
+- TTCT - Nhiều nghệ sĩ kỹ thuật số, nhờ sự bùng nổ của NFT, đã trở thành triệu phú (tiền mã hóa) chỉ sau một đêm và dấu chân carbon (lượng khí nhà kính phát sinh bởi từng hành động của chúng ta) cũng ngày càng phình to.
+- Umlaut đã công bố kết quả đo kiểm các mạng di động tại Việt Nam với việc Viettel nhận chứng nhận 'Best in Test', với số điểm chất lượng tương đương với Singtel, Starhub (Singapore), Telstra (Australia), T-Mobile, Vodafone, Telefonica (Đức)
+- Với hiệu suất 5G mạnh mẽ cùng khả năng sạc nhanh siêu tốc, Reno5 5G sẽ sẵn sàng mở ra nhiều trải nghiệm kết nối 5G trong tương lai.
+- Sau chưa đầy 2 tháng chính thức triển khai dịch vụ thu phí tự động đường bộ, ePass đã triển khai cung cấp dịch vụ tại hơn 2.000 điểm dịch vụ, với hơn 100.000 khách hàng. Điều gì khiến ePass thu hút được khách hàng nhanh như vậy?
+- Theo hình ảnh vừa được chia sẻ trên fanpage OPPO, thị trường Việt Nam sẽ chào đón sự xuất hiện của Reno5 5G - smartphone tầm trung hỗ trợ mạng băng rộng mới nhất - vào ngày 27-2 tới.
+- Trong không khí Tết, Đà Lạt trở nên thơ mộng, long lanh hơn nhờ tiết trời mùa xuân trong vắt, cũng như những cây mai anh đào đã bung nở.
+- Nếu đi Đà Lạt, bạn nên tranh thủ ghé thăm K'Long K’Lanh, để đắm chìm trong sương khói cao nguyên mờ ảo, và đặc biệt hoa đào nở rộ của mùa xuân.
+- 2020 là một năm có quá nhiều khó khăn và cảm xúc thăng trầm bởi đại dịch. Xen lẫn với bao nỗi buồn dịch bệnh, niềm hi vọng của một chút không khí lạc quan ngày Tết Nguyên đán vẫn hiện diện ở làng hoa Sa Đéc.
+- TTO - Trong khi nhiều sản phẩm điện tử, điện máy phổ dụng như tivi, tủ lạnh, máy giặt... không sôi động lắm trong dịp cuối năm nay, smartphone iPhone 12 vẫn tiếp tục ‘hot’.
+- Theo số liệu của đơn vị Nghiên cứu thị trường công nghệ và bán lẻ uy tín tại Việt Nam, OPPO Reno5 là smartphone bán chạy nhất thị trường Việt Nam trong tháng 1-2021.
+- TTO - Apple đã chính thức phát hành bản cập nhật iOS 14.4 cho iPhone và iPadOS 14.4 cho iPad ngày 27-1. Đây là bản cập nhất lớn đầu tiên được Táo khuyết tung ra trong năm 2021 với nhiều tính năng mới hấp dẫn.
+- Những tháng cuối cùng của năm 2020 đã chứng kiến việc phát động công cuộc chuyển đổi số do Chính phủ Việt Nam khởi xướng, với mục tiêu đưa toàn bộ nền kinh tế bước vào thời đại công nghệ thông tin 4.0.
+- TTO - Năm 2020, thiệt hại do virus máy tính gây ra đối với người dùng Việt Nam đã đạt kỷ lục mới, vượt mốc 1 tỉ USD (23,9 nghìn tỉ đồng).
+- Chọn một sản phẩm đồng hành, đôi khi thứ nhận được không chỉ là hiệu quả sử dụng lâu, mà còn là những lợi ích không ngờ đến.
+- Với người dùng cần đến một chiếc máy tính bàn gọn nhẹ, có khả năng vận hành những tác vụ từ đơn giản đến phức tạp mà vẫn không chiếm dụng diện tích không gian sử dụng, HP EliteDesk 800 G6 Desktop Mini sẽ là một lựa chọn lý tưởng.
+- Trải nghiệm thú vị và an toàn khi sử dụng AppGallery cài đặt các ứng dụng global và local cho các sản phẩm của Huawei như tablet và điện thoại.
+- Ứng dụng AI Life trong kho ứng dụng AppGallery của Huawei giúp người dùng kết nối và điều khiển tai nghe Freebuds Pro dễ dàng.
+- Học sinh 100 trường học vùng sâu, vùng xa đã có thể vừa giải trí, xem phim vừa học tập, mở mang tri thức, trí tưởng tượng với thiết bị FPT Play Box và Smart TV 4K​ TCL.
+- Mới đây, Realme chính thức giới thiệu Realmeow, linh vật được tạo ra với mong muốn kiến tạo những xu hướng mới, phù hợp với cá tính và sự phát triển nhanh nhạy của thế hệ người dùng trẻ.
+- Tất cả smartphone và máy tính bảng của Huawei đã có thể tìm kiếm, tải về và sử dụng các ứng dụng di động phổ biến nhờ kho ứng dụng AppGallery do họ phát triển thay thế CH Play của Google.
+- Những ứng dụng phổ biến nhất với người dùng di động Việt Nam đều đã ‘tề tựu’ đầy đủ trên kho ứng dụng trực tuyến chính thức Huawei AppGallery.
+- Mở cửa nhanh tích tắc chỉ một chạm, khóa an toàn bảo mật ngay từ xa… đó là những công nghệ tiên tiến bạn phải thử một lần và cảm nhận.
+- Vừa qua tại TP.HCM, Bộ Thông tin và truyền thông phối hợp Bộ Công thương và UBND TP.HCM tổ chức hội thảo và triển lãm doanh nghiệp, sản phẩm công nghệ số 'Make in Viet Nam 2020 - Vibrand 2020'.
+- Theo báo cáo của KPMG - một trong bốn công ty kiểm toán lớn nhất thế giới, Viettel là doanh nghiệp viễn thông duy nhất nằm trong 10 thương hiệu có trải nghiệm khách hàng tốt nhất.
+- Ông Vũ Thế Bình, tổng thư ký Hiệp hội Internet, cho rằng hiện nay các nhà mạng lớn sẽ phải có nhiều tuyến cáp quang biển dung lượng đủ lớn để có thể phân tải khi gặp sự cố và đáp ứng nhu cầu dịch vụ của khách hàng.
+- Ngày 8-11, Viettel đã được ban tổ chức cuộc vận động Xây dựng văn hóa doanh nghiệp Việt Nam vinh danh là doanh nghiệp có thành tích xuất sắc trong xây dựng và thực hành văn hóa doanh nghiệp.
+- Ruộng bậc thang lâu năm và nổi tiếng ở Hoàng Su Phì - phía tây Hà Giang - làm một điểm đến cho những ai thích khám phá núi non hùng vĩ.
+- Với Intel® Core™ X-series processor cùng việc bổ trợ lên đến hai card đồ họa thêm nhiều tùy chọn về RAM, bộ lưu trữ… mang đến cho bạn một cỗ máy siêu mạnh sẵn sàng cho mọi tác vụ.
+- Ngày 22-10-2020, Mạng xã hội nghề nghiệp Anphabe công bố Viettel là nơi làm việc tốt nhất Việt Nam năm 2020 trong lĩnh vực Công nghệ thông tin - Hạ tầng - Viễn thông. Đây là lần thứ 4 liên tiếp, Viettel được vinh danh ở hạng mục này.
+- Hiệp hội Thương mại điện tử Việt Nam phối hợp cùng IM Group  vừa tổ chức chương trình "Vietnam Online Marketing Forum 2020 - Growth Hacking After COVID-19" để giúp các doanh nghiệp nắm bắt chiến lược và cách thức tăng trưởng đột phá sau đại dịch.
+- Ngày 20-10, Tập đoàn Công nghiệp - Viễn thông quân đội (Viettel), cán bộ nhân viên Viettel đã chung tay quyên góp tiền lương để hỗ trợ đồng bào miền Trung. Số tiền quyên góp trong ngày hôm nay lên đến 10 tỉ đồng.
+- Hằng ngày làm việc trên máy tính, tưởng chừng đây sẽ luôn là một thiết bị đồng hành của anh em công sở, nhưng ai biết được chuyện đơn giản ấy lại có thể gây ra biết bao tình huống dở khóc, dở cười.
+- Bộ Y tế vừa chính thức khai trương 1.000 cơ sở y tế khám, chữa bệnh từ xa (Telehealth), kết nối với 27 bệnh viện tuyến trên đến các bệnh viện tuyến dưới bao gồm cả vùng núi và hải đảo.
+- Realme 7 series - bộ đôi sản phẩm ra mắt vào tuần trước vừa được mở bán vào ngày 26-9, với 3.600 đơn hàng đặt trước, trong đó có 3.000 khách hàng đã đặt cọc.
+- Những thước ảnh thanh bình được ghi lại nơi xóm chài xa xôi Ngã Ba Gành Mũi Né.
+- Ngày 25-9, Viettel sẽ trao tặng Bộ Y tế 178 trung tâm hội chẩn từ xa phục vụ khám chữa bệnh trị giá 19 tỉ đồng. Toàn bộ số tiền do cán bộ, nhân viên Viettel đóng góp nằm trong chuỗi các hỗ trợ của Viettel chung tay đẩy lùi dịch Covid-19.
+- vBRG (Viettel Border Roaming Gateway) - sản phẩm của Tập đoàn Viettel cho phép công ty viễn thông đa quốc gia quản lý hoạt động thuê bao dễ dàng, đảm bảo chủ quyền về di động ở các vùng biên giới không có cửa khẩu.
+- Chọn mua smartphone 4 camera OPPO Reno4 tại FPT Shop trong tháng 9 này, bạn được trả góp 0% lãi suất, nhận thêm sạc dự phòng 10.000mAh trị giá 599.000 đồng và đặc biệt là tiết kiệm đến 5.900.000 đồng khi tham gia chương trình 'Thu cũ đổi mới'.
+- Câu chuyện về nghề đóng tàu và sửa chữa đại tu tại Kiên Giang được ghi lại tinh tế bằng ống kính OPPO Reno4
+- TTO - Ngày 17-9, Lễ bàn giao mô hình đài truyền thanh ứng dụng công nghệ thông tin - viễn thông do Quỹ Thiện Tâm (Tập đoàn Vingroup) đã diễn ra tại xã Lạc Thủy, tỉnh Hòa Bình. Đây là mô hình áp dụng công nghệ AI, vận hành bằng điện thoại thông minh.
+- Tháng 9 này, FPT Shop mạnh tay giảm đến 7 triệu cho iPhone chính hãng, giảm 1 triệu cho iPad Mini 5, Macbook Air 13” cũng đang có giá 19,99 triệu… Đây đều là những sản phẩm thích hợp để học sinh, sinh viên sắm sửa chuẩn bị năm học mới.
+- Tại Giải thưởng Kinh doanh Quốc tế, IBA Stevie Awards 2020, Viettel có 100% hồ sơ tham dự đạt giải, tăng so với 83% của năm 2019.
+- Ứng dụng công nghệ trí tuệ nhân tạo (AI) nhận diện khuôn mặt hay còn gọi là AI sinh trắc học đã được VNPT tiên phong thử nghiệm và áp dụng trên toàn mạng di động VinaPhone.
+- Sau thành công của Matebook D15, nhận được những phản hồi rất tích cực, Huawei tiếp tục ra mắt Matebook 13 tại thị trường Việt Nam với nhiều cải tiến khác biệt, thiết lập xu hướng màn hình tràn, hiệu năng mạnh mẽ và kết nối thông minh.
+- Sau thành công vượt kỳ vọng của Reno4, OPPO tiếp tục ra mắt thêm phiên bản tím khói sẽ mang đến sắc thái sang trọng hoàn toàn mới, bổ sung vào bộ sưu tập thời trang đầy phong cách.
+- 100% các sản phẩm/dịch vụ dự thi của Viettel đều đạt giải thưởng Công nghệ thông tin thế giới 2020 trong đó lần đầu tiên giành giải thưởng Doanh nghiệp có nhiều sản phẩm đạt giải thưởng nhất tại IT World Awards.
+- Cục Viễn thông - Bộ Thông tin và Truyền thông vừa chính thức công bố kết quả đo kiểm chất lượng mạng 4G tại Hà Nội, Hải Phòng, Hải Dương và Hưng Yên.
+- Ngày 27-8, Vinsmart ra mắt smartphone đầu tiên do công ty này tự chủ 100% từ thiết kế phần cứng, hệ điều hành và sản xuất.
+- Theo số liệu từ Ban tổ chức Viet Solutions (Cuộc thi tìm kiếm giải pháp chuyển đổi số quốc gia), sau hơn 1 tháng khởi động, đã có hơn 200 hồ sơ sản phẩm từ 11 quốc gia. Trong số này, 28% hồ sơ sản phẩm đến từ Việt Nam, số còn lại từ 10 quốc gia khác.
+- Ngày 24-8, FPT Shop chính thức lên kệ Zenbook 14 (UM425) - mẫu laptop 14inch sử dụng mỏng nhẹ nhất thế giới trang bị bộ vi xử lý mới nhất AMD Ryzen 4000 series. Chọn mua sản phẩm, bạn nhận bộ quà trị giá 2 triệu và được giao hàng tận nhà miễn phí.
+- Viettel là doanh nghiệp Việt Nam duy nhất được công nhận là Nơi làm việc tốt nhất toàn cầu trong lĩnh vực viễn thông tại giải thưởng Stevie Award for Great Employers 2020, cùng với các doanh nghiệp quốc tế khác như Cisco, IBM, Bank of America, KPMG.
+- Sau những hoạt động đồng hành và hỗ trợ trong suốt kỳ thi tốt nghiệp THPT 2020, FPT Shop tiếp tục thực hiện chương trình giảm giá 'mạnh tay' đến 30% cho tất cả laptop, giúp các bạn tân sinh viên dễ dàng sở hữu chiếc laptop yêu thích của mình.
+- Đẩy mạnh các dịch vụ phục vụ khách hàng trong xu thế chuyển đổi số, lấy nhu cầu của khách hàng làm trung tâm, doanh thu 6 tháng đầu năm 2020 của Tập đoàn Viettel đạt 120 nghìn tỉ đồng, tăng 9,1 % so với cùng kỳ
+- Sáng 18-8, FPT Telecom và TCL Vietnam vừa ký kết hợp tác triển khai chương trình 'Rạp phim trường em' (mùa thứ hai).
+- TTO - Công ty phần mềm Oracle Corp đang làm việc với một số nhà đầu tư của ByteDance, công ty mẹ của ứng dụng TikTok, để tham gia vào cuộc đấu thầu mua lại các hoạt động của TikTok tại Bắc Mỹ, Úc và New Zealand, theo nguồn tin của Reuters ngày 18-8.
+- Tháng 8 này, FPT Shop mạnh tay giảm đến 7.000.000 đồng cho hàng loạt iPhone chính hãng mới nhất hiện nay.
+- Cụm camera của OPPO Reno4 & Reno4 Pro đã mang lại nhiều cung bậc cảm xúc cho người xem với bộ ảnh đời thường sinh hoạt tự nhiên, nhưng rất khác biệt
+- Sau 6 năm, Viettel cùng Cục quản lý Dược đã số hóa hơn 40.000 loại thuốc, trên 8.000 hoạt chất chuẩn, trên 4.000 nguyên liệu làm thuốc và trên 60.000 thông tin giá thuốc kê khai lưu hành... về đích sớm hơn 2 năm so với kế hoạch.
+- Tổng trạm Hòa Lạc của Tổng Công ty Mạng lưới Viettel (Viettel Networks) chính thức được cấp chứng chỉ danh giá Uptime Tier III về thiết kế trung tâm dữ liệu của tổ chức uy tín hàng đầu thế giới Uptime Institute (Mỹ).
+- 6 tháng đầu năm nay, tăng trưởng doanh thu từ thị trường nước ngoài đã đóng góp đáng kể vào kết quả sản xuất kinh doanh của Viettel, dòng tiền về Việt Nam vượt mức kế hoạch, đạt gần 140 triệu USD.
+- Bộ ba Galaxy Note20 sẽ chính thức bán ra vào ngày 21-8 tới đây, tuy nhiên, sản phẩm hiện đã có tại FPT Shop để người dùng trải nghiệm trước. 'Phượt thủ' Trần Đặng Đăng Khoa là một trong những người đầu tiên đến cửa hàng trải nghiệm siêu phẩm.
+- Ngày 30-6 vừa qua, công ty TNHH Garmin (NASDAQ: GRMN) đã công bố mua lại Firstbeat Analytics Oy.
+- Viettel vừa được công nhận là công ty có ảnh hưởng nhất tại Châu Á tại giải thưởng Doanh nghiệp Xuất sắc và Bền vững Châu Á (Asia’s Most Prestigious Leadership & Sustainability Award - ACES).
+- Sau khi OPPO chính thức ra mắt Reno4 Series và OPPO Watch tại thị trường Việt Nam, tổng số lượng đặt hàng dành cho Reno4 Series đạt số kỷ lục: 23.000 đơn đặt cọc.
+- TTO - Nhiều người dùng mạng xã hội Facebook tại Việt Nam lại tiếp tục "bị lừa" đăng, chia sẻ thông tin tuyên bố không cho Facebook chia sẻ quyền riêng tư thông tin, hình ảnh cá nhân của mình.
+- Ngày 6-8-2020 Viettel đã hoàn thành toàn bộ hệ thống hạ tầng kỹ thuật nhằm đảm bảo chất lượng mạng lưới và dịch vụ tại bệnh viện dã chiến đặt trong Cung Thể thao Tiên Sơn, TP. Đà Nẵng.
+- Dịch COVID-19 bất ngờ bùng phát trở lại và với kinh nghiệm từ đợt đầu, người dân đã tự giác đeo khẩu trang mỗi khi ra đường.
+- Loa Bluetooth OPPO nằm trong bộ quà tặng công nghệ dành cho khách hàng đặt trước điện thoại Reno4 từ nay đến hết ngày 7-8-2020.
+- Ngày 3-8-2020, Viettel đã hoàn thành nâng cấp năng lực hệ thống kê khai y tế điện tử (Vietnam Health Declaration) lên 30% nhằm phục vụ người dân và hỗ trợ Chính phủ, Ban Chỉ đạo quốc gia phòng chống dịch bệnh Covid-19 tốt hơn.
+- Là đại diện cho Việt Nam trở thành nhân tố quan trọng góp phần thay đổi hạ tầng viễn thông của 5/10 quốc gia khu vực Asean, thời gian qua Viettel đã góp phần thay đổi cơ hội công bằng số trên toàn khu vực.
+- Mới đây, fanpage của OPPO Việt Nam đã tiết lộ về chương trình đặt hàng dành cho bộ đôi smartphone Reno4 và Reno4 Pro.
+- TTO - Yêu cầu người dùng trả tiền để đọc báo online, doanh thu từ độc giả trở thành một nguồn thu của các tờ báo, làm thế nào để người đọc trả tiền cho tin tức...
+- TTO - Khảo sát bảo mật cho thấy Việt Nam liên tục hứng chịu nhiều đợt tấn công mạng với mức độ ngày càng tàn khốc, trong đó rất nhiều mục tiêu nhắm đến các doanh nghiệp nhỏ và vừa.
+- Ngày 6-7-2020, IM Group và LadiPage đã tổ chức ký kết hợp tác chiến lược, theo đó IM Group sẽ trở thành đại diện chính thức của LadiPage tại miền Nam.
+- Chia sẻ trong lễ khởi động Viet Solutions 2020, ông Lê Đăng Dũng đưa ra dẫn chứng: Steve Jobs cần có một trợ thủ như Lawrence Levy với vai trò Giám đốc tài chính; Elon Musk kết hợp với kinh nghiệm điều hành của Sean Parker thì mới có thể thành công.
+- Dù đã biết hoặc 'nghe nói' về các tính năng của khóa thông minh, nhưng đến khi trải nghiệm sự tiện nghi và tận hưởng những cảm xúc thoải mái, an tâm mà khoá thông minh mang lại, đó chính là lúc bạn thật sự bị chinh phục.
+- Triển lãm quốc tế Vietbuild lần 2 - 2020 tại TP.HCM đã diễn ra sôi nổi và kết thúc vào ngày 28-6-2020, là hoạt động được nhiều mong đợi và khởi động lại với chủ đề về xây dựng - vật liệu - bất động sản - trang trí nội ngoại thất.
+- Giám đốc Công nghệ FPT Lê Hồng Việt cho biết muốn đem trí tuệ nhân tạo (AI) đến từng ngóc ngách của cuộc sống thông qua đào tạo, nghiên cứu và phát triển sản phẩm, góp phần tăng cường năng lực AI Việt Nam.
+- Sản phẩm FPT Play Box+ 2020 cùng với 3 nâng cấp tối ưu về phần cứng, hệ điều hành và các ứng dụng tiện ích kèm theo, hứa hẹn sẽ trở thành một trợ lý thông minh của gia đình Việt.
+- TTO - Nhà sản xuất game thứ 4 thế giới Ubisoft, nổi tiếng toàn cầu với các tựa game Far Cry, Mario + Rabbids, Watch Dogs, The Division, vừa mở studio thiết kế game tại TP Đà Nẵng.
+- Hãng smartphone tiếp nhận nhiều tin vui trong giai đoạn khó khăn chung toàn cầu 5 tháng đầu năm 2020.
+- Hiệu năng mạnh mẽ, dung lượng pin khủng và kho ứng dụng AppGallery chính là những tính năng nổi bật của bộ đôi sản phẩm vừa được Huawei cho ra mắt, mang tên Huawei Y6p và Huawei Matepad T8.
+- Với dòng Mate series, P series thuộc phân khúc cao cấp, Nova series thuộc phân khúc trung cấp, Huawei trở thành nhà sản xuất di động lớn trên thế giới.
+- Bạn là người thích làm việc linh hoạt, không bị gò bó vào một không gian nhất định. Tuy nhiên, làm cách nào bạn có thể chuyển dữ liệu một cách nhanh chóng sang các thiết bị khác khi trong tay bạn chỉ có chiếc smartphone?
+- Hoạt động kinh doanh của Viettel Global được cải thiện liên tục nhờ tập trung vào hoạt động cốt lõi là viễn thông và đẩy mạnh chuyển đổi số. Tỷ suất lợi nhuận gộp năm 2019 đạt 35,7%, tăng đáng kể so với 31,4% của năm 2018 và 23,6% của năm 2017.
+- Khách hàng đặt trước Reno3 Pro và lấy hàng sớm trong 2 ngày 16-17/5 được tặng 2 triệu đồng (trừ vào giá bán) cùng bộ quà tặng gồm: ốp lưng thời trang thiết kế bởi Prof. Jimmy Choo OBE; tai nghe True Wireless OPPO Enco W31 và chương trình trả góp 0%.
+- Trong khi loa bluetooth là phụ kiện tuyệt vời cho những chuyến dã ngoại thì ốp lưng thiết kế bởi Prof. Jimmy Choo OBE sẽ khiến Reno3 trở nên nổi bật hơn.
+- Hãng điện tử TCL vừa giới thiệu đến người tiêu dùng Việt Nam loạt sản phẩm công nghệ mới vào buổi phát trực tuyến tối 7-5 vừa qua trên nền tảng Facebook và Youtube.
+- Với mục tiêu đem đến trải nghiệm cao cấp cho người dùng, Huawei đã ra mắt kho ứng dụng AppGallery. Vậy kho ứng dụng này có gì đặc biệt?
+- Cùng với dòng smartphone P40 Pro, Huawei cũng giới thiệu đến người dùng về chợ ứng dụng AppGallery trong sự kiện ra mắt sản phẩm.
+- Ngày càng nhiều doanh nghiệp đầu tư vào các loại thiết bị hỗ trợ in ấn không dây vì những lợi ích dài hạn mà nó mang lại.
+- Ngày nay, doanh nghiệp đang dần phải làm quen với các bản vẽ, catalogue sản phẩm, văn bản khổ lớn, in ấn, photocopy số lượng lớn…
+- Không chỉ được trang bị hệ thống camera Leica Siêu tầm nhìn, Huawei P40 Pro còn được hỗ trợ 5G và được cài sẵn kho ứng dụng AppGallery.
+- Ngày nay, ngoài doanh thu, lợi nhuận, tốc độ phát triển thì một yếu tố cực kỳ quan trọng để đánh giá tính chuyên nghiệp của doanh nghiệp chính là cách khai thác không gian và sử dụng văn phòng của mình.
+- Những buổi học trên nền tảng E-learning của hàng triệu học sinh khắp cả nước hiện nay không chỉ để "đối phó" với việc nghỉ học vì đại dịch COVID-19. Hơn thế, khó khăn đang tạo ra cơ hội để thay đổi tư duy dạy - học.
+- Từ 1 đến 3 tuổi là khoảng thời gian bé đang khám phá và học hỏi tất cả mọi thứ. Bé có thể tập trèo lên bàn, nhảy lên ghế hoặc thậm chí nghịch ngợm với cánh cửa.
+- ThinkBook hội tụ đầy đủ như hiệu suất mạnh mẽ, bảo mật nâng cao, kết nối tốc độ trong một thiết kế sang trọng, lịch lãm, hiện đại và linh hoạt, bộ đôi laptop ThinkBook 14 và 15 là những lựa chọn tối ưu hướng tới người dùng trẻ Gen Z và Gen Y.
+- A91 có phải đang ngầm khẳng định vị thế vững vàng của OPPO trong phân khúc tầm trung dù hãng đang dồn nhiều nổ lực cho phân khúc cao cấp.
+- Là đại diện dòng A-Series đầu tiên được trang bị công nghệ sạc nhanh VOOC 3.0, OPPO A91 sẽ "đảo chiều cuộc chơi" khi vượt lên trên các sản phẩm khác cùng phân khúc về tốc độ nạp lại năng lượng.
+- Smartphone mới nhất của A Series có thiết kế gọn nhẹ, màn hình vô cực giọt nước, cụm 3 camera toàn năng và ROM khủng 128GB, hỗ trợ thẻ nhớ lên đến 256GB, giá chỉ 4,49 triệu đồng.
+- Sau quãng đường hơn 4 năm kể từ chiếc A30 vào 2/2016, OPPO A Series sắp “tái ngộ” người dùng với A91 chuẩn bị ra mắt chính thức trong tháng 3/2020.
+- Cách đây ít ngày, cơ quan Bluetooth SIG đã phê duyệt hai smartphone chưa ra mắt của Oppo với tên mã CPH2023 và CPH2025, được cho là Find X2 và Find X2 Pro.
+- OPPO A91 vừa được hé lộ sẽ lên kệ đầu tháng 3 này và độc quyền tại hệ thống Thế Giới Di Động. Là một trong những dòng smartphone chủ lực và hướng đến giới trẻ của OPPO, A91 hứa hẹn mang đến trải nghiệm bất ngờ độc đáo.
+- TTO - Năm 2020 sẽ chứng kiến ​​sự gia tăng của các nhóm mã độc di động và tội phạm mạng tấn công thiết bị di động, cũng như các nhóm tin tặc sử dụng những phương pháp và công cụ tấn công mới.
+- Nhắc tới flagship mới ra mắt của Huawei, nhiều người từng xuýt xoa tiếc nuối nếu bỏ tiền ra sở hữu mẫu smartphone xịn sò này nhưng lại không có Google Play để cài đặt ứng dụng như bao điện thoại Android khác.
+- TTO - Mạng di động 5G dự kiến được triển khai thương mại trong năm 2020, kỳ vọng sẽ giúp những xu hướng thành phố thông minh (smart city), ngôi nhà thông minh (smart home) bùng nổ, góp phần đưa kinh tế số Việt Nam vươn lên.
+- TTO - Với các chuyên gia, công nghệ 5G cần sớm được phát triển ở các khu công nghệ cao, các nhà máy sản xuất thông minh...
+- TTO - Các thông số kỹ thuật của Samsung Galaxy S20 bị rò rỉ cho thấy nó thực sự là một siêu phẩm. Sẽ có tới 3 mẫu S20 được bán ra sau lễ ra mắt ngày 11-2 tới.
+- TTO - Trong năm 2020, các thiết bị IoT như router, wifi, camera giám sát, thiết bị đầu cuối… sẽ là điểm nóng về an ninh mạng, tấn công lừa đảo chiếm đoạt tài khoản ngân hàng sẽ tiếp tục gia tăng khó lường.
+- TTO - 10 đội lọt vào vòng chung kết cuộc thi An toàn không gian mạng toàn cầu WhiteHat Grand Prix đã xác định. Không chỉ dẫn đầu bảng điểm, Mỹ còn là quốc gia có tới 3 đội lọt vào vòng chung kết.
+- Sự kiện 'Tết này về nhà cùng OPPO Reno2 F, 1 cho bạn - 1 cho gia đình' vừa diễn ra rạng sáng ngày 4-1-2020 tại thủ đô Hà Nội.
+- Với 'OPPO Reno2 F - 1 cho bạn, 1 cho gia đình' duy nhất trong ngày 28-12-2019, khách hàng sẽ nhận ngay 1 chiếc Reno2 F khi mua Reno2 F trong 100 suất đầu tiên.
+- Tặng quà những người mà mình thương yêu đã trở thành một truyền thống đẹp mỗi dịp Tết đến, xuân về. Theo sự phát triển của thời đại, các món quà ngày nay cũng thay đổi.
+- Không khí năm mới thôi thúc một tinh thần đổi mới trong mỗi chúng ta, thúc đẩy mọi người đặt ra mục tiêu để hoàn thiện bản thân.
+- Không ngừng đầu tư, mở rộng mạng lưới, tăng cường trạm phát sóng, phủ sóng 4G 95% toàn quốc cùng với rất nhiều ưu đãi bất ngờ, giá trị là những nỗ lực MobiFone dành cho khách hàng
+- K+ Data của MobiFone là dịch vụ cung cấp gói cước miễn phí không giới hạn dung lượng tốc độ cao để truy cập ứng dụng xem truyền hình MyK+ đáp ứng nhu cầu giải trí của khách hàng.
+- TTO - Năm 2019 được đánh giá là một năm không nhiều điểm nhấn của làng công nghệ, thậm chí là thất vọng như chiếc điện thoại gập Galaxy Fold, hay tiền điện tử Libra của Facebook.
+- Hãng OPPO vừa chính thức ra mắt trung tâm chiến lược châu Á - Thái Bình Dương (OPPO APAC), tập trung phát triển thị trường ở châu Á, trong đó có Việt Nam.
+- Trong chiến lược của OPPO tương lai, Việt Nam là một trong những thị trường trọng tâm góp phần không nhỏ vào tham vọng toàn cầu của hãng điện thoại đang rất nổi tiếng tại Châu Á này.
+- Các nền tảng nội dung số, mạng xã hội… là những lĩnh vực có tốc độ ứng dụng công nghệ cực kỳ nhanh chóng. Để tên tuổi VCCorp bay cao và bay xa như hôm nay, không thể thiếu bóng dáng của công nghệ điện toán đám mây.
+- Chỉ vài năm trước đây, website là kênh mua sắm trực tuyến giữ vị trí 'ngôi vương' trong thị trường thương mại điện tử, sánh ngang với các kênh truyền thống thì hiện nay, mobile app đang dần dần vươn lên thay thế, dần chiếm lấy vị trí dẫn đầu.
+- TTO - Khi mua Samsung Galaxy Note 10, Note 10+ kèm gói cước của MobiFone, khách hàng sẽ được hưởng nhiều ưu đãi như miễn phí các cuộc gọi nội mạng dưới 20 phút, miễn phí 300 phút thoại liên mạng và 60GB data.
+- TTO - Có dịp đi công tác hay du lịch nước ngoài, các thuê bao di động không còn phải e ngại khi dùng dịch vụ chuyển vùng quốc tế vì các nhà mạng, dẫn đầu là MobiFone, đã đưa ra các gói cước với chi phí hợp lý, quyền lợi hấp dẫn cho khách hàng.
+- FreeBuds 3 là tai nghe không dây hoàn toàn có thiết kế mở đầu tiên trên thế giới, không chỉ mang đến chất âm vượt trội, khử ồn hiệu quả mà còn cho cảm giác thoải mái.
+- TTO - Sau hơn 2 năm triển khai, MobiFone tiến đến phủ sóng mạng 4G đến 95% toàn quốc. Nhà mạng đang tung chương trình khuyến mại đổi máy 2G/3G sang 4G, tạo điều kiện để khách hàng thoải mái trải nghiệm công nghệ cao trên nền tảng 4G.
+- TTO - Vừa lái xe vừa thu hút người dùng bằng tính năng đột phá được chỉ dẫn, cảnh báo về lộ trình giao thông và nghe tin tức cập nhật từ nhiều tờ báo khác nhau khi đang lưu thông trên đường...
+- TTO - Từ nay những khách hàng cần thường xuyên liên lạc với đối tác, gia đình hay người thân ở nước ngoài, đã có thêm sự lựa chọn với gói cước Global Saving VoIP 1313, cho phép các thuê bao MobiFone gọi đi quốc tế đến nhiều quốc gia và vùng lãnh thổ.
+- Vừa khai trương thêm cửa hàng OPPO Shop mới nhất tại Trung tâm thương mại Sense City (Q.Thủ Đức, TP.HCM) với thiết kế mới 3.0, OPPO đang có kế hoạch mở rộng thêm hệ thống cửa hàng chính hãng để tăng cường trải nghiệm.
+- Dịch vụ chuyển văn bản thành giọng nói tiện lợi đã giúp mAICall của MobiFone phù hợp cho các lớp học, nhóm bạn để nhắc lịch hay các shop kinh doanh muốn gia tăng hiệu quả tương tác với khách hàng.
+- TTO - Cùng với các nhà mạng khác, MobiFone đã và đang thử nghiệm mạng 5G tại các thành phố lớn, đánh dấu bước tiến lớn của ngành công nghệ thông tin ở Việt Nam.
+- TTO - Ngày 4-12, một mẫu mã độc sử dụng kỹ thuật mới tấn công người dùng mạng Việt Nam qua phần mềm gõ chữ tiếng Việt Unikey vừa được phát hiện.
+- Đáp ứng xu hướng "cá nhân hóa" ngày càng phổ biến của khách hàng, MobiFone đã đưa ra những gói data ngày càng đa dạng để nhóm đối tượng khách hàng nào cũng có thể tìm được gói cước phù hợp đáp ứng các tiêu chí: chi phí rẻ mà tốc độ tốt nhất.
+- TTO - Hãng Apple của Mỹ tuyên bố đang nghiên cứu sâu hơn các chính sách về bản đồ sau quyết định gây tranh cãi khi đánh dấu bán đảo Crimea thuộc lãnh thổ Nga.
+- TTO - Lần đầu tiên ở Việt Nam, MobiFone trình làng dịch vụ tổng đài mAICallCenter (aicc.mobifone.ai) -  sử dụng công nghệ tổng hợp tiếng nói (Text to Speech  - TTS) tiếng Việt bằng trí tuệ nhân tạo.
+- Từ nay đến hết 31-12-2019, thanh toán bằng VNPAY khi mua điện thoại di động và đồng hồ định vị trẻ em Tio tại hệ thống cửa hàng MobiFone, khách hàng sẽ được chiết khấu trực tiếp 5%.
+- TTO - Giải pháp tiết kiệm hơn 1.200 tỉ đồng cho Nhà nước và mang đến cho người dân dịch vụ tốt nhất, Trục liên thông văn bản quốc gia VXP (VNPT Exchange Platform) của VNPT đã được ghi nhận ở tầm quốc tế với giải Vàng tại Stevie Awards 2019.
+- Một trong những trăn trở lớn nhất của các bạn sinh viên và học sinh khi lựa chọn mua laptop, đó chính là việc làm thế nào để có thể cân bằng được 3 yếu tố ngoại hình, hiệu năng và mức giá vừa túi tiền.
+- Bên cạnh Trắng Hoa Tuyết và Xanh Biển Hồ, màu Xanh Tinh Vân mới trên Oppo Reno2 F càng khiến mẫu máy có giá dưới 9 triệu đồng này trở nên nổi bật giữa thế giới smartphone đa màu sắc hiện nay.
+- TTO - Camera giám sát đem lại sự an toàn cho người sử dụng, đặc biệt trong các hộ gia đình, nhưng cũng tiềm ẩn những nguy cơ "phản chủ" với hậu quả khôn lường.
+- Tại Peru, vì sao Ti5 được gọi là 'gói cước trả trước của thời đại số'? Bởi Ti5 giúp cho những khách hàng bị 'bỏ quên' do mức tiêu dùng thấp có cơ hội sử dụng thoải mái các ứng dụng 4.0 với giá rẻ, tốc độ cao, và ở khắp mọi nơi.
+- Hôm nay 26-10, OPPO vừa chính thức bán ra Reno2 và Reno2 F, đáp ứng mọi kỳ vọng thời trang và công nghệ của người dùng trẻ.
+- Trọn vẹn trang bị từ trong ra ngoài, OPPO Reno2 F là mẫu smartphone tầm trung hứa hẹn gây sốt thời gian tới.
+- Cụ thể, từ 17-10 đến hết 25-10, ngoài ưu đãi trả góp 0% lãi suất và bảo hành 2 năm, khách hàng đặt trước Reno2 F sẽ nhận được tai nghe bluetooth cảm ứng TEKIN TWS i12.
+- Nhiều camera đi kèm hàng loạt các tính năng chụp ảnh bổ trợ hữu ích, OPPO Reno2 mang tới sự linh động và truyền cảm hứng sáng tạo khi chụp ảnh, điều mà bạn sẽ không gặp ở những mẫu điện thoại ít camera hơn.
+- Reno2 với các tính năng và cấu hình mới mẻ, kết hợp với cụm bốn cảm biến máy ảnh ấn tượng đem lại nhiều trải nghiệm thú vị cho người dùng. Sản phẩm cũng đã gây ấn tượng mạnh với các chuyên gia công nghệ.
+- Tổng đài “biết nói” mAI Callcenter có thể phục vụ hàng chục ngàn người cùng lúc nhờ ứng dụng AI, giúp tăng trải nghiệm người dùng, tiết kiệm chi phí vận hành.
+- Nhà mạng MobiFone vừa ra mắt nền tảng chuyển văn bản tiếng Việt thành giọng nói có cảm xúc MobiFone TTS Cloud. Giải pháp trí tuệ nhân tạo này sẽ mở ra hướng mới cho các nhà cung cấp dịch vụ, giải pháp nội dung số và tiện lợi với người dùng cuối.
+- Reno2 sắp ra mắt sẽ khẳng định chắc chắn con đường Đổi mới mà hãng đã chọn
+- TTO - Công nghệ tăng cường tính kết nối, truy cập thông tin và năng suất làm việc, nhưng cũng đưa con người vào "kỷ nguyên tăm tối" của sự mất tập trung.
+- TTO - Nếu ai từng kinh ngạc với mẫu điện thoại có thể gập màn hình thì sự ra đời của mẫu loại điện thoại có màn hình gần như bao trọn 100% thân máy hẳn cũng không quá “sốc” với họ.
+- Công nghệ mạng 5G được xem là nhân tố quan trọng nhất làm thay đổi thế giới trong ít nhất nửa thập niên tới. Đây là công nghệ được dự đoán sẽ bùng nổ trong năm 2020, nhiều hãng smartphone đã sẵn sàng mang 5G đến với người dùng.
+- Suốt nhiều ngày qua, newsfeed của cư dân mạng được một phen dậy sóng trước chiếc 'thiệp mời ma thuật' đến từ MXH Lotus.
+- Chưa đầy 12 giờ nữa, sự kiện ra mắt mạng xã hội Lotus sẽ chính thức diễn ra, ngay tại thời điểm này có thể thấy được sức hút đến từ mạng xã hội 'Made in Việt Nam' này.
+- TTO - Trước tình trạng để lộ, rò rỉ, mua bán thông tin cá nhân ngày càng phổ biến, UBND TP.HCM kiến nghị trung ương nghiên cứu ban hành một đạo luật riêng quy định về vấn đề bảo vệ dữ liệu cá nhân.
+- Ngày 16-9, mạng xã hội Lotus sẽ phát hành bản dùng thử mở rộng (Open Beta), dự kiến kéo dài từ 3-6 tháng. Open Beta là gì, vì sao cần 3-6 tháng mới có thể cho ra bản chính thức?
+- Tiến sĩ Wang Chenglu, Chủ tịch Phòng Kỹ thuật Phần mềm Tập đoàn Kinh doanh Tiêu dùng Huawei, cho rằng EMUI 10 sẽ là một cột mốc quan trọng trong lịch sử phần mềm trên thiết bị đầu cuối của hãng.
+- TTO - Bộ Công Thương chính thức thiết lập quan hệ chiến lược với Google, để mở rộng chương trình Bệ phóng Việt Nam Digital 4.0 nhằm cung cấp các khóa đào tạo kỹ năng số cho 500.000 người lao động của các doanh nghiệp vừa và nhỏ
+- Phía sau những bản hợp đồng, những văn bản ký kết, những báo cáo tăng trưởng liên tục ấy là cả một quá trình của sự nỗ lực không ngừng nghỉ.
+- Nhiều người Việt đi du lịch, đi chơi có cơ hội mua hàng nước ngoài (của Mỹ, của Nhật…) và mang về Việt Nam.
+- Thời đại 4.0 đã mang đến nhiều tiện ích không tưởng khi không chỉ giới hạn trong việc vui chơi giải trí, mà còn giúp con người làm việc hiệu quả hơn, đôi khi không cần phải ở công sở.
+- Chi hơn 10% doanh thu đầu tư vào R&amp;D hàng năm để tìm chiến lược riêng cho mình, Huawei đã vuơn lên vị trí 61 trong danh sách Fortune 500 - bảng xếp hạng 500 tập đoàn hàng đầu thế giới.
+- TTO - Bên cạnh việc hỗ trợ tập huấn nâng cao năng lực sử dụng mạng xã hội ứng phó thiên tai, Facebook còn công bố chương trình Dữ liệu vì cộng đồng, bao gồm bản đồ mật độ dân cư và bản đồ thiên tai tại VN.
+- TTO - Quốc hội Pháp vừa thông qua luật cải tổ về bản quyền, buộc các ông lớn công nghệ như Google, Facebook trả tiền cho các nội dung báo chí, điển hình là tin tức, của các hãng truyền thông.
+- Chỉ cần khoảng 11 triệu đồng để sở hữu một bộ máy tính bàn cấu hình vừa đủ, gồm cả PC và màn hình HP, với nhiều chính sách hậu mãi.
+- Trong những năm gần đây, viral video đang trở thành một xu hướng quảng cáo nổi bật của ngành marketing.
+- Màn hình tràn viền đích thực, camera bật độc đáo, bổ sung ống kính góc rộng 120 độ hay bộ nhớ trong gấp đôi là những nâng cấp lớn trên smartphone mới của Huawei.
+- Ngày 22-6, Huawei khai trương cửa hàng trải nghiệm (Huawei Experience Store - HES) đặt tại lầu 3, Vincom Mega Mall Thảo Điền, Q.2, TP.HCM.
+- TTO - Các chuyên gia đều nhận định môi trường mạng có nhiều lợi ích đối với người dùng, nhưng ngày càng có những rủi ro tiềm ẩn, đáng để tâm, đặc biệt là đối với trẻ em.
+- TTO - Lời hứa hoàn lại toàn bộ tiền mua smartphone và máy tính bảng thương hiệu Huawei tuy vậy chỉ dành cho các khách hàng ở Philippines, trong trường hợp thiết bị của họ không dùng được Gmail và Facebook.
+- OPPO Reno phiên bản chuẩn đã chính thức lên kệ từ hôm nay 15-6 tại hầu hết các hệ thống phân phối trên cả nước.
+- Từ đầu năm 2018, cơn sốt "tăng cường" số lượng camera sau bắt đầu nóng lên. Và tới đầu năm nay, cơn sốt này vẫn chưa suy giảm.
+- Sau OPPO Find X với camera ẩn nấp dạng trượt rồi đến OPPO F11 Pro với camera pop-up, ắt hẳn, nhiều người đang mong chờ sự đột phá mới của OPPO.
+- TTO - Ngày 10-6, Bộ Thông tin - truyền thông vừa phát cảnh báo tới các doanh nghiệp trong và ngoài nước về việc hiện đang có quảng cáo bị gắn trong các video nội dung xấu độc, phản động trên YouTube.
+- Trong đợt ra mắt lần này, OPPO mang đến 2 smartphone: Reno phiên bản chuẩn và Reno 10x Zoom.
+- Khách hàng có thể mua vé máy bay mọi lúc, mọi nơi với các ứng dụng ngân hàng vốn đã rất quen thuộc trên điện thoại di động.
+- OPPO kết hợp cùng Tinh tế Photos tổ chức cuộc thi và chuỗi workshop 'Ảnh kể chuyện' với chủ đề 'Vượt chuẩn tầm nhìn'.
+- TTO - Không phải đến khi 'Bà Tân Vlog' xuất hiện thì câu chuyện thành công của các kênh YouTube triệu view do những người dân bình thường thực hiện mới được biết đến.
+- Trong nhiều năm liền OPPO tập trung ở phân khúc trung cấp. Ngoài các dòng F hay R có giá tốt, OPPO chỉ đôi lần vén màn smartphone cao cấp.
+- TTO - Huawei cho biết sẽ tung ra hệ điều hành (OS) riêng cho các sản phẩm điện thoại thông minh và máy tính xách tay tại Trung Quốc vào mùa thu năm nay sau khi Mỹ đưa công ty viễn thông này vào danh sách đen.
+- TTO - Trong năm 2019, Quỹ tài trợ nghiên cứu ứng dụng VinTech sẽ tài trợ 15 đề tài nghiên cứu ứng dụng với số tiền có thể lên tới 10 tỉ đồng.
+- TTO - Trận chung kết cuộc đua xe tự hành quốc tế sẽ diễn ra lúc 19h ngày 25-5 tại Trung tâm Văn hóa - thông tin và thể thao quận Tây Hồ (Hà Nội) với giải giành cho thí sinh xuất sắc nhất là một học bổng đào tạo tiến sĩ ngành trí tuệ nhân tạo.
+- TTO - Từ cuộc chiến thuế quan đánh vào hàng xuất khẩu của nhau, hai nền kinh tế hàng đầu thế giới đã nhanh chóng chuyển sang cuộc chiến công nghệ với 'cú đấm chí mạng' đầu tiên đến từ Washington.
+- TTO - Huawei khẳng định sẽ tiếp tục hỗ trợ các thiết bị cầm tay được bán ra. Gã khổng lồ viễn thông Trung Quốc trước đó nhấn mạnh đã có "kế hoạch B" sau khi bị Google nói không với hệ điều hành Android.
+- Ngày 10-5, OPPO chính thức giới thiệu smartphone F11 Pro màu Xám Tinh Vân, nhằm mang đến cho khách hàng một lựa chọn mới với mức giá hợp lý.
+- Được tổ chức lần đầu vào năm 2017, giải thưởng NEXT-IMAGE được xem là cuộc thi lớn về nhiếp ảnh trên di động.
+- Tập đoàn Công nghiệp viễn Thông Quân đội (Viettel) lần đầu thử nghiệm mạng di động 5G tại Việt Nam. Trong thử nghiệm lần này, Viettel cùng đối tác Tập đoàn Ericsson sử dụng một chiếc smartphone của OPPO.
+- TTO - 10h sáng 10-5, tại Hà Nội, cuộc gọi đầu tiên trên mạng 5G tại Việt Nam đã được thực hiện bởi Tập đoàn Công nghiệp - Viễn thông quân đội Viettel.
+- TTO - Hà Nội đang xây dựng cơ sở dữ liệu, khuyến khích các doanh nghiệp đầu tư mạnh vào hạ tầng này nhằm tạo ra hệ sinh thái công nghệ, Chủ tịch UBND TP. Hà Nội Nguyễn Đức Chung cho biết.
+- TTO - Diễn đàn quốc gia phát triển doanh nghiệp công nghệ Việt Nam lần đầu tiên được tổ chức đã khai mạc sáng 9-5 tại Hà Nội, với sự tham dự của Thủ tướng Nguyễn Xuân Phúc cùng nhiều thành viên Chính phủ.
+- TTO - Diễn đàn quốc gia phát triển doanh nghiệp công nghệ Việt Nam lần đầu tiên được tổ chức vào ngày 9-5 tại Hà Nội. Bộ Thông tin và truyền thông cho biết Thủ tướng Nguyễn Xuân Phúc sẽ tham dự và phát biểu tại diễn đàn.
+- Thế Giới Di Động và FPT Shop thông báo, kể từ ngày 1-5, họ bắt đầu triển khai chương trình ‘siêu camera - siêu trợ giá’ để giúp khách hàng mua được P30/P30 Pro.
+- TTO - Việt Nam đang đứng trước nguy cơ lớn bị tấn công và phát tán tấn công từ chối dịch vụ (DDoS) với vị trí thứ 6 trên toàn cầu. Xuất hiện xu hướng tấn công DDoS mới "Bit-and-Piece".
+- Để chào đón mùa du lịch hè 2019, Vietnamobile đã chính thức đưa ra một loạt gói cước Roaming không giới hạn dung lượng. Các gói cước này sẽ giúp khách hàng thoải mái sử dụng thoại và data khi đi du lịch nước ngoài.
+- Tivi thông minh không chỉ kết nối nhiều thiết bị trong nhà mà còn kết nối các thành viên gia đình với nhau, bà Summer Gao - tổng giám đốc TCL Việt Nam, chia sẻ.
+- 'Tuồng nó không chỉ là cái nghiệp mà nó là máu thịt, là hơi thở, dứt nó tôi không sống nổi…'.
+- TTO - Theo các chuyên gia an ninh mạng, hình thức dùng các tài khoản ảo có hình đại diện sexy để comment dạo nhằm lừa đảo, cướp tài khoản Facebook tại Việt Nam vẫn tiếp tục gia tăng.
+- Ngày 20-4-2019, OPPO F11 - chiếc smartphone trung cấp mới nhất chính thức đến tay người dùng Việt Nam.
+- TTO - 94 sản phẩm, dịch vụ CNTT xuất sắc được trao danh hiệu Sao Khuê 2019. Trong đó, riêng 10 sản phẩm top đầu có tổng doanh thu năm 2018 đạt gần 2.600 tỉ đồng, tương đương 111 triệu USD.
+- TTO - Kể từ đầu năm 2019, có tổng cộng hơn 1.600 đợt tấn công mạng nhằm vào hệ thống của Vietnam Airlines, theo thống kê của hãng hàng không này.
+- TTO - Lần đầu tiên Việt Nam công bố kết quả đánh giá, xếp hạng an toàn thông tin (ATTT) mạng của 90 cơ quan nhà nước tại Việt Nam. Phần lớn các cơ quan nhà nước chỉ đạt mức trung bình về bảo đảm ATTT.
+- TTO - Công ty An ninh mạng Viettel quy tụ những chuyên gia hàng đầu của Việt Nam về an toàn, an ninh thông tin đã chính thức ra mắt ngày 12-4 tại Hà Nội.
+- Kết thúc chương trình đặt hàng, siêu phẩm OPPO F11 Pro nhận được số lượng đặt cọc khủng - gần 42.000 đơn và đã chính thức mở bán từ hôm nay (ngày 12-4). Đối với phiên bản F11, chương trình đặt trước tiếp tục kéo dài đến 19-04.
+- TTO - Chính phủ yêu cầu Bộ Thông tin và truyền thông giải quyết dứt điểm tình trạng các doanh nghiệp viễn thông cố tình gây khó khăn trong việc thuê bao di động chuyển mạng giữ nguyên số.
+- Bộ đôi OPPO F11 Pro và F11 đang tạo ra sức hút ấn tượng trong phân khúc smartphone tầm trung dù chưa chính thức mở bán.
+- TTO - Để xảy ra vi phạm bị nhắc nhở đến lần thứ ba về SIM rác, lãnh đạo doanh nghiệp viễn thông sẽ bị xử lý hành chính.
+- Là tòa nhà cao nhất Việt Nam, đồng thời được trang bị hệ thống đèn LED hiện đại bao quanh toàn bộ khối kiến trúc, Landmark 81 luôn rực rỡ mỗi khi thành phố lên đèn.
+- Kết thúc 2018, thị trường di động ở Việt Nam nói riêng và ở Đông Nam Á nói chung vẫn rất nhộn nhịp.
+- Huawei P30 Pro đã được giới công nghệ và nhiếp ảnh di động đánh giá cao về khả năng ghi lại hình ảnh từ hệ thống 4 camera Leica trên máy.
+- Dù 15h hôm nay ngày 29-03, OPPO F11 Pro mới chính thức ra mắt tại Việt Nam nhưng smartphone này đã được trưng bày để khách hàng có thể trải nghiệm tại các cửa hàng bán lẻ trên toàn quốc.
+- TV box phiên bản 2019 với tên gọi FPT Play Box+ đã ra mắt thị trường cùng nhiều nâng cấp.
+- TTO - Cách thanh toán "nhanh, gọn, lẹ" giải phóng người trẻ bận rộn khỏi nỗi lo quên thanh toán một hóa đơn kiểu "đến hẹn lại lên", nhưng nó có thể khiến bạn thiếu tư duy cân nhắc, đánh giá tài chính khôn ngoan, hợp lý.
+- TTO - Đó là nhận xét được rất nhiều chuyên gia và người dùng khẳng định sau khi trải nghiệm chiếc máy ảnh X-T30 vừa lên kệ của hãng Fujifilm.
+- TTO - Về cáo buộc điện thoại Nokia 7 Plus gửi thông tin người dùng về Trung Quốc, HMD Global - chủ sở hữu thương hiệu Nokia - cho rằng đó là do lỗi phần mềm và họ đã sửa lỗi.
+- TTO - Mã độc Shadow Hammer đã nhắm vào người dùng cài đặt ứng dụng Live Update của Asus bằng cách cài backdoor (cửa hậu) trên máy tính của họ. Ước tính cuộc tấn công có thể ảnh hưởng đến hơn 1 triệu người dùng trên toàn cầu.
+- TTO - Bộ trưởng Nguyễn Mạnh Hùng khẳng định tại Hội nghị ASEAN về phát triển mạng thông tin di động thứ năm (5G) do Bộ Thông  tin truyền thông tổ chức tại Hà Nội trong hai ngày 21 và 22-3.
+- TTO - Với sự kiện Google ra mắt nền tảng chơi game trực tuyến Stadia, giới công nghệ nhận định sự kiện này nhiều khả năng dẫn đến sự thay đổi hoàn toàn cách thức chơi game trong tương lai gần.
+- Theo nhà sản xuất, OPPO F11 mang tới hàng loạt công nghệ lần đầu tiên xuất hiện trong ngành smartphone.
+- TTO - Trung tâm Ứng cứu khẩn cấp máy tính Việt Nam phát thông báo khẩn yêu cầu các cơ quan, tổ chức tài chính, doanh nghiệp... khẩn cấp theo dõi, ngăn chặn kết nối máy chủ điều khiển mã độc GandCrab 5.2 qua email giả mạo Bộ Công an.
+- TTO - Trong khi tuyến cáp quang biển quốc tế APG gặp sự cố chưa được khắc phục thì tuyến cáp Liên Á sẽ sửa chữa, bảo dưỡng trong vòng một tháng từ ngày 20-3 tới.
+- TTO - VTVcab NETWORK - Hệ thống mạng lưới quản lý kênh mạng xã hội đầu tiên tại Việt Nam đã chính thức ra mắt chiều ngày 11-3.
+- Mới đây, OPPO vừa trình làng công nghệ zoom lossless 10x tại sự kiện OPPO Innovation Event diễn ra trước thềm Mobile World Congress (MWC) 2019. Đây là nỗ lực quan trọng của OPPO góp phần mang nhiếp ảnh smartphone tiệm cận chất lượng máy ảnh.
+- TTO - Đó là số liệu mới nhất sau 3 tháng triển khai dịch vụ chuyển mạng giữ số vừa được Bộ Thông tin và Truyền thông công bố.
+- TTO - Tỉ lệ chuyển mạng giữ số thành công đối với thuê bao di động của các nhà mạng đang có sự chênh lệch đáng kể, thông tin vừa được Bộ Thông tin và truyền thông công bố.
+- Ngày 16-1, OPPO lần đầu tiên tiết lộ về công nghệ zoom lossless 10X tại Hội nghị Truyền thông Công nghệ Tương lai 2019 (Future Technology Communication Conference).
+- TTO - TP Hà Nội đặt mục tiêu cho năm 2019: 50% các hệ thống thông tin, cơ sở dữ liệu cốt lõi được kết nối, chia sẻ dữ liệu với các cơ sở dữ liệu quốc gia, 80% thủ tục hành chính được cung cấp trực tuyến mức độ 3, 4.
+- Trước ảnh hưởng ngày càng lớn của các mạng xã hội hiện tại, Việt Nam đang tìm thế đối trọng, hướng đến xây dựng một mạng xã hội thay thế, một mạng xã hội “made in Vietnam” do chính người Việt phát triển, đã xuất hiện.
+- TTO - Tại CES 2019, TCL tuyên bố đã gia nhập Hiệp hội TV 8K với tư cách là thành viên sáng lập và ra mắt nền tảng thương hiệu mới, TCL AI-IN.
+- Chúng ta còn chờ gì nữa mà không tận dụng dịp Tết này làm "keo dán sắt" để dẹp tan nỗi lo "người thân thành lạ"?
+- TTO - Viettel trở thành nhà mạng đầu tiên được chính thức cấp phép thử nghiệm dịch vụ viễn thông 5G.
+- Mạng xã hội đang xuất hiện hàng loạt hình ảnh chia sẻ khoảnh khắc trải nghiệm Y7 Pro 2019 - mẫu điện thoại phổ thông mới được Huawei giới thiệu tại Việt Nam.
+- TTO - Rất nhiều người dùng mạng xã hội Facebook tại Việt Nam đang lan truyền nhau việc đăng thông tin tuyên bố với Facebook với mong muốn bảo mật các thông tin, hình ảnh cá nhân.
+- TTO - Dịch vụ chuyển mạng giữ số đang mở ra cuộc chiến tranh giành khách mới, giữ chân khách cũ quyết liệt giữa các nhà mạng di động Việt Nam.
+- TTO - Thái Lan đang trở thành một trong những quốc gia đi đầu ở khu vực Đông Nam Á trong lĩnh vực tiền ảo khi công nhận đến 8 đồng tiền điện tử.
+- “Giáng sinh là gì hả cô”, “giáng sinh người ta có mổ lợn như tết không?"
+- TTO - ‘Máy tính ma’ là công cụ để tội phạm mạng tấn công mạng, phát tán mã độc, spam… Lượng ‘máy tính ma’ càng lớn càng trở nên nguy hiểm.
+- TTO - Sáng ngày 21-12, tập đoàn Điện lực Việt Nam (EVN) đã tổ chức Lễ công bố “Cung cấp dịch vụ điện cấp độ 4”.
+- TTO - Ngày 20-12, công ty Điện tử Samsung Vina đã phối hợp với Thư viện Khoa học Tổng hợp TP.HCM ra mắt Thư viện thông minh lưu động, một không gian công nghệ thu nhỏ mang sách và STEM đến với trẻ em vùng xa.
+- 'Tin phép màu tạo tuyết rơi' là món quà tinh thần đặc biệt mà Huawei muốn mang đến khách hàng trong mùa cuối năm.
+- TTO - Chỉ hai năm sau khi chính thức phát hành, ứng dụng bàn phím ảo Gboard của Google đã hỗ trợ 500 ngôn ngữ khác nhau trên nền tảng Android.
+- TTO - Theo báo cáo của Forcepoint, các doanh nghiệp đang chuyển sang bảo mật dựa trên đám mây để linh hoạt hơn và giảm độ phức tạp, nhưng một số quan niệm sai lầm vẫn tồn tại.
+- TTO - Ánh sáng xanh phát ra từ máy tính, điện thoại và máy tính bảng có nguy cơ nghiêm trọng đối với sức khỏe, có liên quan đến mù lòa do tuổi tác và một số dạng ung thư.
+- TTO - 14.900 tỉ đồng là mức thiệt hại do virút máy tính gây ra đối với người dùng Việt Nam trong năm 2018, tương đương 0,26% GDP.
+- TTO - Các chuyên gia y tế cho rằng việc Google về các triệu chứng liên quan đến sức khỏe sẽ dẫn đến hội chứng “cyberchondria”, một trạng thái rối loạn lo âu sau khi nghiên cứu về các căn bệnh trên Internet.
+- TTO - Bản cập nhật này được phát hành lại sau khi phát hành lần đầu vào tháng 10 và gặp một số lỗi chặn người dùng khiến người dùng không thể cài đặt được.
+- TTO - Từ băn khoăn của một người dùng cụ thể, Facebook đã khẳng định họ có sử dụng các phương pháp khác để theo dõi người dùng khi họ tắt các tính năng định vị của ứng dụng mạng xã hội.
+- TTO - Lovot được ứng dụng AI có thể bắt chước nhiều biểu hiện cảm xúc của con người, tương tự như thú cưng giúp con người bớt cảm giác cô đơn.
+- TTO - Toàn bộ sách tại tất cả các thư viện sẽ được gắn thiết bị nhận dạng tần số vô tuyến (RFID) - công nghệ cho phép người đọc thực hiện mọi thủ tục thanh toán không dây bằng thẻ tín dụng.
+- TTO - Các ứng dụng được tải từ gian hàng App Store của Apple tạo ra hàng trăm triệu USD thu nhập mỗi năm, và đây là thống kê của trang Business Insider về 10 ứng dụng đã tạo ra doanh thu “khủng” nhất.
+- TTO - Tin tặc đã tấn công và đánh cắp được dữ liệu từ trang web của Bộ ngoại giao Pháp vốn dành riêng cho các công dân khi đi du lịch nước ngoài.
+- TTO - Với Foveros 3D, Intel sẽ xếp chồng các thành phần 2D để tạo nên chip 3D với mật độ tính toán và tính linh hoạt cao hơn so với các loại chip thông thường.
+- TTO - Alex Pachikov, nhà sáng lập Evernote kiêm CEO của Sunflower Labs, mới đây đã công bố một hệ thống drone có thể giám sát ngôi nhà.
+- TTO - Phiên bản mới nhất của Firefox cho máy tính và Android đã ra mắt hôm nay đi kèm với một vài tính năng tiện lợi để quản lý và sử dụng trình duyệt chuyên sâu hơn.
+- TTO - Từ Samsung Galaxy S9 cho đến iPhone XS, năm 2018 đã sắp khép lại với những chiếc smartphone hàng đầu. Vậy trong năm 2019, có những đổi mới từ smartphone đáng mong đợi?
+- TTO - Công nghệ AR giúp mọi người xem trên thế giới có thể tương tác với các hình ảnh được phóng to tối đa với độ phân giải cao nhất từ trước đến nay.
+- TTO - Google+ sẽ bị đóng cửa vào tháng 4-2019 thay vì tháng 8 như thông báo trước đó. API truy cập vào mạng xã hội này sẽ ngừng hoạt động trong vòng 90 ngày tới.
+- TTO - Một game thủ tại thành phố Sydney (Úc) bị buộc tội tấn công một phụ nữ sau khi có người tố cáo anh này với chứng cứ nghe được từ đoạn video livestream trong lúc chơi game Fortnite.
+- TTO - Apple từng công bố sẽ đưa các tính năng về tim mạch vào Apple Watch trong tháng 9, nhưng mới đây mới chính thức được áp dụng.
+- TTO - Mặc dù trong năm nay, AI là chủ đề phổ biến trong công nghệ, nhưng việc triển khai ở các doanh nghiệp vẫn còn ở giai đoạn đầu. Sang năm 2019, AI được dự đoán sẽ phát triển mạnh với 6 lý do dưới đây.
+- TTO - 24 nhân viên tại một nhà kho của Amazon ở New Jersey (Mỹ) đã được đưa đến bệnh viện sau khi robot vô tình đâm thủng hộp thuốc diệt côn trùng.
+- TTO - Bạn không có thời gian để đi ăn trưa? Đừng lo lắng, nếu bạn đang ở Phần Lan, Wing sẽ giao thức ăn nóng sốt ngay cho bạn bằng drone.
+- TTO - Smooth Motion làm thay đổi chất lượng hình ảnh TV và dưới đây là những cách bạn có thể tắt chế độ này tùy thuộc vào dòng TV bạn đang sử dụng.
+- TTO - Hiện phiên bản Chrome 71 đã chính thức có sẵn cho Windows, Mac và Linux với tính năng lọc trải nghiệm trên các trang web nhằm ngăn chặn quảng cáo lạm dụng.
+- TTO - "Thứ trưởng Bộ Thông tin - truyền thông Nguyễn Thành Hưng đánh giá các doanh nghiệp Việt hiện nay đã đủ năng lực làm chủ công nghệ, làm chủ thị trường trong nước, thậm chí là mang sản phẩm tiến ra khu vực.
+- TTO - Hoobox Robotics, một công ty robot ở Sao Paulo (Brazil), đã hợp tác với Intel tung ra Wheelie 7, chiếc xe lăn có động cơ được hỗ trợ AI cho phép người tàn tật điều khiển thông qua 10 biểu hiện trên khuôn mặt.
+- TTO - Để thay thế Edge, Microsoft đang xây dựng trình duyệt web tương tự như Chrome với mục tiêu cải thiện khả năng tương thích web cho Windows.
+- TTO - Nếu smartphone không bị thấm nước quá lâu, bạn vẫn có thể tự sửa ngay tại nhà và tiết kiệm được một khoản chi phí.
+- TTO - Cuối năm là thời điểm hoàn hảo để mua điện thoại mới khi các chiến dịch khuyến mãi bắt đầu rầm rộ. Dưới đây là các điểm cần chú ý khi mua điện thoại thông minh (smartphone) có thể giúp bạn thu hẹp lựa chọn của mình.
+- TTO - Chỉ với một bước này, người dùng Windows 10 dễ dàng tiết kiệm năng lượng và làm cho pin chạy lâu nhất có thể.
+- TTO - Kết hợp giữa thí nghiệm hóa học và công nghệ máy tính, các nhà khoa học đã phát triển một phương pháp mới để sản xuất thuốc, được gọi là “chemputer”.
+- TTO - Để hỗ trợ điều hướng cho người mù và người khiếm thị, các nhà khoa học tại Caltech (California, Mỹ) đã phát triển tai nghe AR biến hình ảnh thành giọng nói.
+- TTO - Với phương pháp này, bạn không cần phải nhập hoặc nói cho ai biết mật khẩu của bạn nữa.
+- TTO - Góp phần vào làn sóng khởi nghiệp “công nghệ nông nghiệp” đang bùng nổ, Small Robot Company (Shropshire, Anh) đã tung ra robot làm đồng Tom, sử dụng GPS, AI và công nghệ smartphone để kiểm tra cỏ dại và sâu bệnh trên cây trồng.
+- TTO - Mạng xã hội Instagram vừa có thêm một lựa chọn cho người dùng: tạo những câu chuyện có thể được chia sẻ giữa một nhóm bạn thân với nhau.
+- TTO - Công nghệ Robot Skins được phát triển bởi các nhà nghiên cứu Yale cho phép người dùng biến các vật thể vô tri hằng ngày thành robot.
+- TTO - Theo công ty phân tích ứng dụng Kochava, 8 ứng dụng này đã gian lận hàng triệu USD từ các nhà quảng cáo.
+- TTO - Tội phạm mạng ngày càng phụ thuộc vào sức mạnh của botnet để thực hiện các cuộc tấn công từ chối dịch vụ (DDoS) và lan truyền ransomware.
+- TTO - Chuyển đổi kỹ thuật số không chỉ là một sự thay đổi về công nghệ, mà đó còn là một sự thay đổi về tổ chức, kinh doanh và con người. Dưới đây là 10 xu hướng chuyển đổi kỹ thuật số được dự đoán sẽ lên ngôi trong năm 2019.
+- TTO - Nhằm ứng phó với nạn tin giả ngày càng lan rộng và phức tạp, mạng xã hội Facebook vừa công bố sẽ cung cấp kênh tin tức mới với nguồn tin chọn lọc và được địa phương hóa.
+- TTO - Pivot Yoga cung cấp phản hồi thông qua các cảm biến trên quần áo để cho người mặc biết có đang tập đúng tư thế hay không mà không cần người hướng dẫn.
+- TTO - Robot Furhat có thể nghiêng đầu, mỉm cười, toát lên sự đồng cảm và ấm áp, khuyến khích mọi người mở lòng chia sẻ những vấn đề của họ.
+- TTO - Theo Lukas Stefanko, nhà nghiên cứu phần mềm độc hại của ESET, tất cả 13 ứng dụng trò chơi độc hại này đều xuất phát từ nhà phát triển Luiz O Pinto và đã được tải hơn 560.000 lần.
+- TTO - Hãng Amazon vừa công bố dịch vụ mới có tên Amazon Comprehend Medical ứng dụng thuật toán máy học (machine learning) để giúp tiết kiệm chi phí trong lĩnh vực chăm sóc sức khỏe.
+- TTO - Chính quyền New Zealand đã không cho phép một trong các hãng viễn thông lớn nhất của họ sử dụng các thiết bị viễn thông 5G của hãng Huawei (Trung Quốc) vì lo ngại vấn đề an ninh quốc gia.
+- TTO - Ứng dụng Playlist hoạt động như một ứng dụng âm nhạc xã hội giúp bạn có thể nghe nhạc với nhiều khác cùng lúc theo thời gian thực.
+- TTO - Ứng dụng công nghệ trong thực phẩm không chỉ xoay quanh bếp thông minh mà còn liên quan đến cảm biến, sức khỏe và nhiều yếu tố khác nữa nhằm mang đến cho mọi người cuộc sống lành mạnh hơn.
+- TTO - Công ty Google đang trong quá trình thay đổi các dịch vụ thuê bao trả phí nghe nhạc và xem video, trong đó có những thay đổi nhỏ về giá, đặc biệt có mức giá ưu đãi dành cho sinh viên.
+- TTO - Thay vì nhận được danh sách các kết quả tìm kiếm, Google sẽ cung cấp cho bạn một câu trả lời kết luận.
+- TTO - Được biết, các robot này cao 1,2 mét, được điều khiển từ xa bởi những người khuyết tật.
+- TTO - Nhiều người dùng Facebook giật mình khi thấy những tin nhắn cũ từ nhiều năm trước bỗng bất ngờ xuất hiện trở lại trong ứng dụng nhắn tin Facebook Messenger.
+- TTO - Theo báo cáo của Forcepoint, các doanh nghiệp đang chuyển sang bảo mật dựa trên đám mây để linh hoạt hơn và giảm độ phức tạp, nhưng một số quan niệm sai lầm vẫn tồn tại.
+- TTO - Cuối năm là thời điểm giảm giá mạnh, thu hút mua hàng, đặc biệt là mua sắm trực tuyến. Dưới đây là 8 hướng dẫn an toàn giúp bạn thoải mái shopping mà vẫn giữ mình an toàn khi online.
+- TTO - Tắt tính năng lịch sử vị trí trên smartphone sẽ không ngăn Google biết bạn đến đâu và khi nào. Tuy nhiên, có một cách để tắt hoàn toàn việc thu thập dữ liệu trên thiết bị Android của bạn.
+- TTO - Facebook đã tung ra tính năng mới - hình ảnh 3D và dưới đây là các bước để bạn chụp và chia sẻ ảnh 3D trên Facebook.
+- TTO - Đợt mua sắm giảm giá lớn trong năm Black Friday vừa qua tại Mỹ đạt tổng doanh thu 6,2 tỉ USD. Trong đó 2,1 tỉ USD là giá trị các giao dịch thực hiện trên điện thoại thông minh (smartphone).
+- TTO - Nhóm nghiên cứu từ Úc và Ấn Độ đã tạo ra một cánh tay robot đút cho bạn ăn nhưng với một điều kiện bạn phải luôn nở nụ cười.
+- TTO - Kể cả khi người dùng không có ý thức tiết kiệm năng lượng, công nghệ này vẫn có thể thay đổi hành vi của người dùng và tăng hiệu quả bảo tồn tài nguyên.
+- TTO - Việc sử dụng điện thoại di động vẫn có nguy cơ với sức khỏe và người dùng cần biết cách giảm tác động từ bức xạ điện thoại di động.
+- TTO - Vừa qua, LG đã công bố giới thiệu LG XBOOM AI ThinQ WK9, chiếc loa thông minh được hỗ trợ bởi Android Things với màn hình cảm ứng được phát triển cùng với Google.
+- TTO - Google sẽ đầu tư gần 700 USD vào một trung tâm dữ liệu của Đan Mạch sử dụng năng lượng sạch, đồng thời củng cố mối quan tâm của mình về điện và năng lượng tái tạo ở khu vực Bắc Âu.
+- TTO - Mạng xã hội Facebook đã đồng ý trả hơn 100 triệu euro (114 triệu USD) để chấm dứt một tranh cãi liên quan cáo buộc gian lận thuế của nhà chức trách Ý.
+- TTO - Mới đây, công ty start-up Borderless (Nhật Bản) đã tung ra CrossHelmet X1, chiếc mũ bảo hiểm xe máy mang tính cách mạng khi mang đến cho người lái khả năng hiển thị 360 °, khử tiếng ồn và kết nối smartphone.
+- TTO - Hãng Google vừa ra mắt người dùng công cụ mới có tên Digital Wellbeing, giúp người dùng thiết bị Android kiểm soát thời gian sử dụng điện thoại.
+- TTO - Nhà bán lẻ hàng đầu Amazon vừa thừa nhận một trục trặc kỹ thuật xảy ra với trang web của công ty đã làm lộ tên và địa chỉ email của nhiều khách hàng.
+- Trước khi chính thức đến tay người tiêu dùng, các mẫu smartphone OPPO đều phải trải qua một quy trình sản xuất và kiểm tra chất lượng vô cùng nghiêm ngặt.
+- TTO - Được biết, đây là video quảng cáo đầu tiên trên thế giới được AI viết kịch bản hoàn toàn và được thực hiện bởi đạo diễn từng đoạt giải Oscar Kevin Macdonald.
+- TTO - Được kỳ vọng sẽ góp phần nâng cao độ chính xác của công nghệ nhận diện khuôn mặt, sản phẩm hiện được tung ra thị trường với giá 2.650 USD và được nhiều công ty công nghệ chú ý.
+- TTO - Nông dân chỉ cần gửi mã trên thẻ cào được chứa trong các túi hạt giống qua tin nhắn SMS sẽ nhận được phản hồi ngay lập tức về việc liệu hạt giống có hợp lệ hay không.
+- TTO - Là quốc gia thương mại tiên tiến với sự phụ thuộc lớn vào cơ sở hạ tầng công nghệ thông tin, Singapore gần đây đã kết hợp với các lực lượng an ninh mạng để bảo vệ mình khỏi tội phạm mạng.
+- TTO - Việc AT & T với G + D và Altair thông báo về kế hoạch phát triển SIM tích hợp đã tạo ra sự phấn khích đặc biệt giữa các OEM và ODM.
+- TTO - Sau nhiều tuần công bố về công cụ có tên “Your time on Facebook”, cuối cùng tính năng này vừa được Facebook triển khai với người dùng toàn cầu.
+- TTO - Nghiên cứu mới nhất của nhóm chuyên gia đại học Pennsylvania cho thấy việc dành quá nhiều thời gian cho các trang mạng xã hội như Facebook có thể dẫn tới gia tăng cảm giác cô đơn, trầm cảm.
+- TTO - Công ty phần mềm Sisense đã tung ra công cụ nhận dạng dữ liệu Sisense Hunch nhằm biến các cảm biến, điện thoại và thiết bị đeo được thành siêu máy tính.
+- TTO - Nếu Liên minh châu Âu triển khai việc tính thuế với việc dẫn lại đường link các bản tin trên web, Google có thể phải dừng hoạt động của ứng dụng Google News tại các nước EU.
+- TTO - Lần thứ hai trong tháng 11, ứng dụng Messenger của Facebook gặp sự cố, gián đoạn hoạt động. Lần này sự cố ảnh hưởng tới hàng ngàn người dùng ở châu Âu và Bắc Mỹ.
+- TTO - Xu hướng phát triển xe tự lái gần như không thể tránh khỏi vào thời điểm này. Tuy nhiên, điều này chưa chắc tác động tích cực đến ngành công nghiệp giao thông vận tải.
+- TTO - Một video đăng tải trên kênh YouTube JerryRigEverything đã cho thấy máy tính bảng không cứng như smartphone khi iPad Pro mới nhất của Apple có thể bị bẻ cong và hoàn toàn bị phá hủy mà không cần quá nhiều nỗ lực.
+- TTO - Sau Facebook, tới lượt mạng xã hội Instagram bị trục trặc công cụ tải dữ liệu khiến mật khẩu của nhiều người dùng bị tiết lộ.
+- TTO - Có hàng ngàn máy ảnh trên thị trường nhưng không phải tất cả đều phù hợp với những gì bạn đang tìm kiếm. Vậy làm sao để chọn được camera tốt nhất?
+- TTO - Ứng dụng Windows miễn phí này sử dụng công nghệ học máy để đoán biểu cảm khuôn mặt của bạn đang bắt chước biểu tượng cảm xúc nào và giống đến bao nhiêu phần trăm.
+- TTO - Theo các nhà nghiên cứu bảo mật Kaspersky Labs, có 63 lỗ hổng bảo mật, trong đó có 12 được xếp hạng nguy hiểm, 49 ở mức quan trọng, 1 ở mức trung bình và 1 ở mức nghiêm trọng thấp cần được xử lý ngay.
+- TTO - Thông tin về người dẫn chương trình tin tức đầu tiên bằng công nghệ trí tuệ nhân tạo (AI) của hãng tin Tân Hoa Xã mới đây đã khiến nhiều chuyên gia công nghệ quốc tế tỏ quan điểm nghi ngờ.
+- TTO - Trước mùa mua sắm năm nay mạng xã hội Instagram đã bổ sung thêm tính năng mua sắm, giúp người dùng tìm mua sản phẩm dễ dàng hơn.
+- TTO - Việc khai khống những chi phí không có thật xảy ra ngày càng nhiều tại các công ty lớn nhưng thực trạng đó giờ sẽ sớm hạn chế nhờ AI.
+- TTO - Công ty Facebook vừa bác thông tin báo New York Times đưa trước đó nói CEO công ty này yêu cầu các lãnh đạo trong công ty chỉ sử dụng điện thoại Android.
+- TTO - Mạng xã hội Facebook vừa chính thức triển khai nút lấy lại tin nhắn đã gửi (nút Unsend) trong ứng dụng nhắn tin Messenger của công ty này.
+- TTO - Vừa qua, Intel đã công bố modem Intel XMM 8160 5G, chip có khả năng cấp nguồn cho iPhone 2020 và hỗ trợ tất cả các tiêu chuẩn di động từ 2G trở lên.
+- TTO - Người dùng giờ đây không còn phải lo ngại về khả năng gây ung thư hoặc kích thích từ các thành phần làm đẹp khi chỉ cần quét nhãn dán trên mỹ phẩm.
+- TTO - Mới đây, Google đã thông báo một tính năng mới cho Google Maps: nhắn tin với doanh nghiệp.
+- TTO - Ngày 14-11, trước thời điểm bắt đầu áp dụng dịch vụ chuyển mạng giữ số (MNP) đối với các thuê bao di động trả sau, các nhà mạng đã công bố  quy trình chuyển mạng đối với thuê bao chuyển đi và chuyển đến.
+- TTO - Các nhà nghiên cứu cho biết smartphone và smartwatch có thể phát hiện chính xác bạn có đang bị đau tim hay không, đồng thời chứng minh công nghệ di động có khả năng cứu sống người bị bệnh tim kịp thời.
+- TTO - Sau lỗi bảo mật API vào tháng 5 vừa qua, một lỗ hổng bảo mật mới lại được phát hiện trên Facebook.
+- TTO - Hiện nay, an ninh mạng đang là một trong những ngành nghề được đánh giá có tiềm năng thu nhập cao và dưới đây là 5 yếu tố quan trọng nhất để đảm bảo bạn thăng tiến trong nghề nghiệp với mức lương xứng đáng.
+- TTO - Theo đó, tiến sĩ David Feinberg - CEO của Geisinger, một tổ chức y tế có tiếng hơn 100 năm ở Mỹ sẽ cùng Google đồng hành phát triển và mở rộng các chiến lược sắp tới trong lĩnh vực chăm sóc sức khỏe.
+- TTO - Nghiên cứu mới của các nhà nghiên cứu tại Đại học Pennsylvania (Mỹ) thực hiện đã chỉ ra rằng việc cắt giảm thời gian dành cho các mạng xã hội như Facebook, Snapchat và Instagram có thể giúp cải thiện chỉ số hạnh phúc.
+- TTO - Theo bảng xếp hạng công bố hai lần một năm, hai siêu máy tính nhanh nhất thế giới hiện nay thuộc về Mỹ và đều sử dụng công nghệ của hãng IBM.
+- Ngày 10-11, trong buổi offline tại Café Tinh Tế, hơn 100 người yêu công nghệ đã tận tay trải nghiệm Find X Automobili Lamborghini cùng tính năng sạc siêu nhanh SuperVOOC của OPPO.
+- TTO - Các nhà nghiên cứu bảo mật vừa phát hiện lỗ hổng chưa được vá trong Microsoft Office 2016 và các phiên bản cũ hơn có thể khiến hacker nhúng mã độc vào bên trong tệp tài liệu.
+- TTO - Gần đây, ngành hẹn hò trực tuyến đang chuyển hướng sang sử dụng AI nhằm hỗ trợ người dùng như một “huấn luyện viên” trong chuyện hẹn hò.
+- TTO - Thay vì sử dụng các dãy nút bấm, người dùng có thể điều khiển xe hơi bằng các mặt phẳng thông minh, được tích hợp với nhiều tính năng hiện đại trong tương lai.
+- TTO - Mới đây, cơ quan tin tức Xinhua của Trung Quốc đã khiến giới công nghệ ngỡ ngàng khi ra mắt “phát thanh viên ảo”, một dạng hình ảnh kỹ thuật số không khác gì con người thực tế, có khả năng đọc tin tức bằng giọng nói được tổng hợp từ máy tính.
+- TTO - Hack tài khoản ngân hàng ngày càng trở thành vấn nạn và dưới đây là 5 lưu ý quan trọng có thể giúp bạn bảo vệ mình trong thời đại số.
+- TTO - Vừa qua, Furhat Robotics đã công bố ra mắt robot hình người dựa trên công nghệ AI có khả năng trò chuyện tự nhiên và biểu cảm khuôn mặt đa dạng.
+- TTO - Sau khi ra mắt Dating tại Colombia vào tháng 9, Facebook hiện đang mở rộng thị trường thử nghiệm của mình sang Canada và Thái Lan.
+- TTO - Sự ra đời của 5G cùng với sự bùng nổ về số lượng thiết bị IoT được đánh giá là một cuộc cách mạng số hóa của thời đại mới.
+- TTO - Sự xuất hiện của IoT đã mang đến hàng loạt bước tiến làm thay đổi thói quen sử dụng công nghệ của người dùng. Dưới đây là 8 công nghệ quan trọng được các chuyên gia đánh giá sẽ còn góp phần phát triển IoT hơn nữa.
+- TTO - Nhà chức trách Trung Quốc đã đưa vào ứng dụng công nghệ xác thực không cần nhìn rõ mặt người mà chỉ cần phân tích vóc dáng, cung cách đi lại của họ.
+- TTO - Tối 7-11, Thế giới Di động cho biết vụ việc họ bị lộ thông tin khách hàng là giả, và doanh nghiệp này cũng không lưu trữ thông tin thẻ của khách hàng.
+- TTO - Mới đây, Amazon đã đưa ra chương trình đào tạo viết code cho hơn 10 triệu học sinh mỗi năm để định hướng cho nhiều em có suy nghĩ trở thành kỹ sư máy tính trong tương lai.
+- TTO - Theo Bill Gates, vệ sinh môi trường là một ngành nghiên cứu tiềm năng và việc tái tạo những tiện nghi thiết yếu như nhà vệ sinh có thể tiết kiệm được đến hơn 200 tỉ USD.
+- TTO - Royole FlexPai không phải là một chiếc smartphone siêu việt, nhưng màn hình của nó có thể gấp 180 độ và chuyển đổi từ máy tính bảng sang điện thoại một cách linh hoạt.
+- TTO - Năm 1971 đánh dấu năm máy tính “trình làng” rộng rãi trong công chúng và từ đó đến nay hơn 40 năm, giá cả của thiết bị này cũng có nhiều thay đổi.
+- TTO - Nếu muốn biết thêm về luồng dữ liệu trực tuyến mình đang sử dụng, bạn có thể áp dụng mẹo nhỏ này để xem xét số liệu thống kê.
+- TTO - Mạng không dây thường gặp vấn đề với các sự cố kết nối. Nếu nghi ngờ tín hiệu Wi-Fi của mình, vậy làm thế nào để bạn có thể xác định vấn đề?
+- TTO - Currant, một start-up chuyên sản xuất thiết bị gia dụng thông minh giảm tiêu thụ năng lượng, đã công bố sản phẩm AI đầu tiên Currant Smart Outlet, một ổ cắm thông minh giúp tiết kiệm điện.
+- TTO - FCC đã cấp phép cho Apple thử nghiệm công nghệ 5G vào năm ngoái và “gã khổng lồ công nghệ” này hiện đang ấp ủ kế hoạch xuất xưởng điện thoại 5G trong năm 2020.
+- TTO - Trong gần một thập kỷ qua giới phân tích thường đo lường “sức khỏe” của Apple thông qua doanh số bán iPhone của họ. Nhưng nay Apple thông báo sẽ không tiết lộ con số này nữa, vì sao như vậy?
+- TTO - Với không ít người công cụ tìm kiếm duy nhất trên mạng Internet họ biết là Google, nhưng thực tế còn có lựa chọn khác tốt không kém Google dành cho họ.
+- TTO - Nhà văn trinh thám Mỹ nổi tiếng James Patterson vừa phát hành cuốn tiểu thuyết tương tác đầu tiên của ông trên ứng dụng Messenger của Công ty Facebook.
+- TTO - Hãng công nghệ Microsoft thông báo sẽ bổ sung thêm các tính năng mới cho gói dịch vụ Office 365 trong tháng này, trong đó đặc biệt là những tính năng cho các ứng dụng PowerPoint và Word.
+- TTO - Các tin tặc có vẻ đã đánh cắp được dữ liệu này và rao bán những tin nhắn cá nhân của ít nhất 81.000 tài khoản người dùng Facebook.
+- TTO - Vòng chung kết WhiteHat Grand Prix 2018 vừa kết thúc tại Trung tâm Hội nghị quốc gia (Hà Nội), với vị trí dẫn đầu thuộc về đội LC1BC (Nga).
+- TTO - Sáng nay 1-11, tại Trung tâm Hội nghị Quốc gia (Hà Nội) vòng chung kết cuộc thi An toàn không gian mạng toàn cầu - WhiteHat Grand Prix 2018 đã chính thức khai mạc với cuộc đua tài giữa 10 đội thi xuất sắc nhất vòng loại đến từ 6 nước.
+- TTO - Sự thật bất ngờ này đã được một kỹ sư tiết lộ sau khi xem xét tìm hiểu nguyên nhân trục trặc của nhiều chiếc iPhone và thậm chí là cả đồng hồ Apple Watch.
+- TTO - Mạng xã hội Facebook chia sẻ tầm nhìn tương lai của họ sẽ dần thoát khỏi lệ thuộc vào bảng cấp tin (News Feed) và tăng đầu tư cho các ứng dụng chat và video trên nền tảng của họ.
+- TTO - Kết quả nghiên cứu tiến hành đánh giá gần 1 triệu ứng dụng Android của các nhà nghiên cứu ĐH Oxford vừa tiết lộ cách thức các smartphone Android  thu thập và chia sẻ dữ liệu như thế nào.
+- TTO - Hãng IBM vừa xác nhận đã đồng ý mua lại công ty phần mềm Mỹ Red Hat với giá 34 tỉ USD, bao gồm cả nợ. Đây được cho là một trong những thương vụ thâu tóm lớn nhất trong lĩnh vực công nghệ.
+- TTO - Ngày càng được sử dụng phổ biến, Office 365 đang trở thành mục tiêu nhắm đến hàng đầu của tội phạm mạng.
+- TTO - Cứ 5 phụ nữ ở Việt Nam thì có 4 người muốn mở một doanh nghiệp. Đây là một kết quả nghiên cứu được công bố tại diễn đàn "Doanh nhân nữ: Chìa khóa thành công trong kỷ nguyên số" ngày 26-10.
+- TTO - Theo thông tin từ Bộ Thông tin và Truyền thông, dịch vụ chuyển mạng giữ số di động sẽ được các nhà mạng chính thức cung cấp từ ngày 16-11 tới đây.
+- TTO - Thông tin cá nhân của người dùng tưởng chừng chỉ đơn giản là những dòng chữ, con số mà mọi người thường “cho không, biếu không” với nhau lại có thể được buôn bán với lợi nhuận không tưởng.
+- TTO - Nhà chức trách Ý đã phạt hàng triệu USD đối với Apple và Samsung, sau các phàn nàn của người dùng về hành vi "thiếu trung thực" của hai hãng điện thoại.
+- TTO - Một câu chuyện tưởng chừng như chỉ có trong phim viễn tưởng đang diễn ra ngay tại Thụy Điển: gắn vi mạch điện tử dưới da tay nhằm thuận tiện hóa một số công việc hàng ngày.
+- TTO - Thông báo cải tiến ứng dụng chat Messenger của Facebook vừa công bố cho thấy từ 9 thẻ khác nhau, Messenger sẽ đơn giản hơn khi chỉ còn lại 3 thẻ mục là “Chats”, “People” và “Discover”.
+- TTO - Rất nhiều gia đình, cửa hàng, doanh nghiệp tại Việt Nam đang ứng dụng camera an ninh để theo dõi, giám sát nhưng lại không biết rằng chúng đang dễ bị tấn công nhất.
+- TTO – Rạng sáng hôm nay 24-10 theo giờ Việt Nam, iCloud bất ngờ bị lỗi khiến hàng triệu người dùng trên thế giới bị ảnh hưởng.
+- TTO - Hãng điện thoại Motorola vừa trở thành nhà sản xuất smartphone đầu tiên trên thế giới bán bộ dụng cụ tự sửa chữa điện thoại thông minh cho khách hàng.
+- TTO - Một lỗi kỹ thuật trên ứng dụng tin tức Google News dành cho thiết bị di động Android đang khiến một số người dùng bị tính cước di động oan bất kể đã bật lựa chọn sử dụng wifi.
+- TTO – Hôm nay là kỷ niệm 10 năm Google Play Store ra đời, hãy cùng Tuổi Trẻ Online điểm qua 10 điều thú vị ít người biết của ứng dụng này.
+- TTO - Với hệ thống bảo vệ ba lớp độc quyền được thiết kế để hấp thụ các tác động đa chiều, mũ bảo hiểm in 3D này vừa đảm bảo an toàn, vừa mang đến sự thoải mái tối ưu dành cho người đi xe đạp.
+- TTO - Đoán biết trước sẽ tới lúc người dùng sẽ có lúc gỡ bỏ các ứng dụng (app), nhiều công ty đã bàn tính với các nhà sản xuất ứng dụng để vẫn có thể tiếp cận người dùng sau khi họ đã gỡ app.
+- TTO - Ngày 21-10 (giờ VN) tại London - Anh, Ban Tổ chức giải thưởng Kinh doanh quốc tế - International Business  Awards đã trao giải vàng hạng mục "Sản phẩm - dịch vụ tốt nhất năm" cho phần mềm tính cước thời gian thực của Viettel (vOCS 3.0).
+- TTO - Sở cảnh sát New York đã tạm gỡ bỏ hàng ngàn thiết bị camera đeo trên người sau khi xảy ra sự cố một chiếc bất ngờ bốc cháy ngay trong lúc người đeo nó đang làm nhiệm vụ.
+- TTO - Nhấn mạnh tính thiết thực, ông Maciej Kranz, phó chủ tịch phụ trách đổi mới của tập đoàn Cisco Systems cho rằng các doanh nghiệp nên bắt đầu ứng dụng IoT từ việc giải quyết khó khăn của chính mình.
+- TTO - Thông qua việc phân tích cách bạn gõ chữ và kéo trượt màn hình, một ứng dụng điện thoại có thể phát hiện sớm tình trạng trầm cảm thậm chí trước khi bạn nhận ra điều đó.
+- TTO - Apple sẽ tung ra những điểm mới nào trong dòng máy tính MacBook 2018 vào ngày 30-10 tới? Đây là những gì chúng ta có thể chờ đợi từ các nguồn tin rò rỉ tới thời điểm này.
+- TTO - Mục tiêu Huawei từng nhắm tới là năm 2019 sẽ ra mắt mẫu điện thoại thông minh 5G có thể gập lại của họ.
+- TTO - Kết luận điều tra ban đầu của Facebook nhận thấy những kẻ đứng sau vụ tấn công mạng làm rò rỉ dữ liệu của 30 triệu tài khoản là những đối tượng gửi thư rác trên mạng xã hội.
+- TTO - Sau khi gây sốt một thời gian dài, thông tin về tiền điện tử dần trở nên im ắng, thậm chí nhiều người còn đoán thị trường này đang chết. Tuy nhiên, chuyên gia nghiên cứu blockchain Josh Cotton lại cho rằng tiền điện tử sẽ không bao giờ chết.
+- TTO – Tại sự kiện Playtime hằng năm vừa qua, công ty đã ra mắt nhiều tính năng mới nhằm hỗ trợ các lập trình viên phát triển và thu gọn kích thước ứng dụng nền tảng Android.
+- TTO - Nhóm nghiên cứu AI của “gã khổng lồ phần mềm” đã hợp tác với Vision Australia để giới thiệu một ứng dụng âm thanh 3D dành riêng cho người khiếm thị tại Úc.
+- TTO - Mới đây, Lexar đã giới thiệu chiếc USB được tích hợp công nghệ cảm biến vân tay, có khả năng đảm bảo tất cả dữ liệu của người dùng được an toàn cả trong và ngoài máy tính.
+- TTO - Từng là một trong những phần mềm nghe nhạc đầu tiên hỗ trợ chơi nhạc MP3 phổ biến nhất vào cuối thập niên 1990, Winamp dự kiến ​​sẽ trở lại dưới hình thức một ứng dụng di động tích hợp tất cả các dịch vụ nghe nhạc, streaming, podcast…
+- TTO - Vừa qua, Thống đốc California Jerry Brown đã thông qua luật an ninh mạng dành riêng cho công nghệ IoT nhằm đặt ra tiêu chuẩn chung cho các nhà sản xuất thiết bị kết nối.
+- TTO – Sự thật được hé lộ từ một bài viết trên nền tảng blog Medium của một nhân viên giấu tên làm việc cho Amazon.
+- TTO - Tài khoản email bị hack có thể dẫn đến các vấn đề nghiêm trọng hơn, chẳng hạn như trộm cắp danh tính và xâm nhập quyền riêng tư. Nhưng trước khi bạn hoang mang với những hệ lụy đó, hãy bình tĩnh lại và làm theo 4 bước đơn giản sau đây.
+- TTO - Mạng xã hội Twitter thông báo sẽ công khai rõ ràng việc ai đó đăng tải nội dung (tweet) vi phạm chính sách sử dụng dịch vụ trên nền tảng của họ.
+- TTO - Mạng xã hội Facebook thông báo sẽ loại bỏ và phạt những quảng cáo chứa nội dung cố ý câu view, cố tình che giấu thông tin hoạt động trên nền tảng của họ.
+- TTO - Theo khảo sát tiền lương hàng năm mới nhất của Acumin Consulting ở Anh, mức lương cho các chuyên gia hoạt động trong lĩnh vực bảo mật và an ninh mạng đã tăng 6% trong năm nay, gấp đôi mức trung bình là 2,9%.
+- TTO - Natalie Silvanovich, nhà nghiên cứu bảo mật của Google Project Zero, đã phát hiện ra lỗ hổng nghiêm trọng trong WhatsApp cho phép hacker điều khiển toàn bộ ứng dụng bằng cách gọi video cho bạn.
+- TTO - Hãng Google thông báo sẽ thay đổi chính sách thu phí với hệ điều hành Android của họ tại châu Âu để tuân thủ luật chống độc quyền của Liên minh châu Âu (EU).
+- TTO - Khoảng 7h30 sáng nay 17-10 (giờ Việt Nam), website và ứng dụng YouTube, YouTube TV và YouTube Music bị lỗi trên toàn cầu. YouTube đã xác nhận vụ việc trên tài khoản Twitter của mình.
+- TTO - Chủ tịch Tập đoàn Alibaba cho biết mình đang thảo luận với chính phủ Indonesia về khả năng mở viện đào tạo doanh nhân công nghệ cao ở quốc gia Đông Nam Á này.
+- TTO - Công ty Bkav vừa ra mắt smartphone Bphone 3 và Bphone 3 pro. Đây là dòng sản phẩm smartphone thứ ba của công ty này.
+- TTO – Kiểm duyệt nội dung trên mạng xã hội là làm gì? Tại sao công việc này tồn tại? Yêu cầu cho công việc này là gì?
+- TTO - Ở tuổi 65 nhà đồng sáng lập tập đoàn Microsoft cùng tỉ phú Bill Gates vào những năm 1970, ông Paul Allen, vừa qua đời sau một thời gian chống chọi bệnh ung thư.
+- TTO - Theo báo cáo quý III năm 2018 của Công ty an ninh mạng CyStack, Việt Nam nằm trong tốp 20 quốc gia có số lượng website bị tấn công nhiều nhất.
+- TTO - Được biết, iOS 12 sẽ thắt chặt các vấn đề bảo mật và quyền riêng tư trên iPhone cao hơn so với các phiên bản trước đây. Để tận dụng tối đa các bản cập nhật, bạn có thể phải tinh chỉnh các cài đặt sau.
+- TTO - Từ hôm nay, 15-9, các nhà mạng di động tại Việt Nam bắt đầu lộ trình chuyển đổi các thuê bao di động 11 số thành 10 số và sẽ "nhắc liên tục đến khi người dùng quen với đầu số mới".
+- TTO - Không chỉ nhằm vào một số cá nhân, không ít gian hàng cũng bị chiếm quyền, gây thiệt hại lớn. Cách nào để phòng tránh và ngăn ngừa thiệt hại?
+- TTO - Có những thay đổi tưởng như rất đơn giản nhưng sẽ giúp cho cuộc sống của chúng ta trở nên thú vị hơn rất nhiều. Điều bạn cần phải làm là mạnh dạn thay đổi những thói quen đang ngăn cản bạn cảm nhận được những điều thú vị đó…
+- TTO - Nhà nghiên cứu robot Sun Tianqi (Trung Quốc) đã chế tạo ra một loại robot 6 chân tích hợp trồng cây trên đỉnh có thể tự di chuyển về phía ánh sáng.
+- TTO - Đức là một trong số ít những quốc gia đầu tiên quan tâm về vấn đề pháp lý đối với dữ liệu số của các chủ sở hữu đã qua đời.
+- TTO - Một nhóm nghiên cứu ở Pháp đã ứng dụng các phương pháp điều trị dựa trên VR và kết luận sử dụng VR có khả năng làm giảm chứng sợ độ cao và các rối loạn sức khỏe tâm thần.
+- Từ ngày 1 đến 31-7, mua điện thoại Redmi Note 5 và Redmi S2 tại FPT Shop, bạn không chỉ được mua trả góp không lãi suất và được hưởng gói bảo hành mở rộng mà còn có cơ hội trúng laptop và robot hút bụi Xiaomi.
+- Chỉ trong nửa đầu năm 2018, nhà mạng Vietnamobile đã tung ra nhiều “bom tấn” từ đó đem đến các lợi ích “Phê Không Tưởng” cho hàng triệu người dùng. Và tất nhiên, những điều kỳ tích vẫn chưa dừng lại ở đây…
+- TTO - Gần một nửa số người Việt Nam vớ lấy điện thoại di động trong vòng 5 phút sau khi thức dậy. Nhưng smartphone được người Việt chủ yếu dùng để vào mạng xã hội.
+- TTO - Một nghiên cứu của Kaspersky cho thấy 24% người dùng dễ gặp các sự cố an ninh mạng hơn khi chia sẻ thiết bị và tài khoản trực tuyến của mình với “đối tác”.
+- TTO - Ngày 10-7-2008, Apple đã mở cửa hàng bán các ứng dụng iPhone, cũng từ đó mở ra một kỷ nguyên sáng tạo của các nhà phát triển phần mềm và thay đổi cuộc sống của hàng tỉ người trên khắp thế giới.
+- TTO - Facebook tiếp tục có thêm cách thức chào mời, lôi kéo các nhà quảng cáo đến với nền tảng của họ khi tung ra các loại quảng cáo tích hợp công nghệ thực tế tăng cường (AR).
+- TTO - Cơ quan chống độc quyền của Liên minh châu Âu (EU) chuẩn bị áp mức phạt hàng tỉ USD với Google vì những vi phạm độc quyền liên quan HĐH Android trên điện thoại di động.
+- TTO - Chỉ riêng ở Mỹ, đã có đến 1/4 dân số sợ kim tiêm. Đó là lý do rất nhiều start-up trong lĩnh vực y tế ngày nay đã hướng đến việc nghiên cứu phát triển các giải pháp thay thế cho việc tiêm chích dưới da.
+- TTO - Sau khi nhà chức trách Thái Lan nói tàu ngầm mini không phù hợp cho việc cứu hộ ở hang Tham Luang, tỉ phú Elon Musk chất vấn về năng lực chuyên môn của nhận định này.
+- TTO – Động thái này cho thấy họ đang nỗ lực hết sức để làm ‘sạch’ nền tảng của mình.
+- TTO - Dĩ nhiên sau cải tổ rất lớn của iPhone X năm ngoái, thật khó để hy vọng Apple sẽ lại có đột phá đáng kể năm nay, song giới thạo tin vẫn đang nói về những iPhone XS, iPhone XS Plus và iPhone 9.
+- TTO - Sao chép mã từ chìa khóa xe ô tô không khó đối với các hacker. Do đó, để bảo vệ xế hộp không bị trộm, bạn nên bọc khóa điều khiển từ xa bên trong giấy nhôm hoặc giấy bạc.
+- TTO - Mạng xã hội YouTube vừa công bố một loạt tính năng mới với hy vọng giúp tin tức video trên nền tảng của họ tin cậy và giảm nguy cơ bị thao túng hơn.
+- TTO - Công việc bận rộn, nhịp sống tất bật, di chuyển khắp nơi, đam mê trải nghiệm… là những phần không thể thiếu trong cuộc sống năng động mà phần lớn chúng ta đang trải qua mỗi ngày.
+- TTO - Với Zozosuit và Zozo Inc, người dùng không còn phải lo lắng về kích cỡ hay màu sắc sản phẩm khi mua sắm thời trang trực tuyến nữa.
+- TTO - Ngày 9-7, Bộ trưởng Bộ Thông tin và truyền thông Trương Minh Tuấn cho biết Google và Facebook đã ngăn chặn, gỡ bỏ gần 8.000 clip, đường link vi phạm pháp luật Việt Nam.
+- TTO - Nhiều nghiên cứu cho thấy ánh sáng xanh phát ra từ màn hình máy tính hoặc điện thoại dễ gây ra các triệu chứng rối loạn giấc ngủ ở trẻ em.
+- TTO - Trong ngày 4-7 bách khoa toàn thư trực tuyến mở Wikipedia dừng hoạt động tại ít nhất 3 nước châu Âu để phản đối việc Nghị viện châu Âu chuẩn bị thông qua luật bản quyền số.
+- Bên cạnh 1001 áp lực từ công việc, đối tác, dân văn phòng còn thường xuyên phải đối mặt với những rắc rối không ngờ đến từ chính ví tiền của họ.
+- TTO - Một hệ thống trí tuệ nhân tạo đã chiến thắng 2-0 trước các bác sĩ ưu tú nhất Trung Quốc sau hai vòng thi đấu trong một cuộc thi chẩn đoán khối u não ở Bắc Kinh.
+- TTO - Thuế mạng xã hội vừa có hiệu lực ở Uganda đã khiến phần lớn người dân bất bình và cho rằng đây là “một cuộc tấn công tự do ngôn luận”.
+- TTO - Pin lithium-ion được dự đoán xu hướng sẽ đáp ứng nhu cầu ngày càng tăng trong các lĩnh vực như xe điện (EV), giải pháp năng lượng tái tạo và điện tử tiêu dùng.
+- TTO – Hàng triệu mật khẩu, địa điểm GPS, và thông báo tài chính của rất nhiều người dùng đang bị đe dọa – và bạn có thể nằm trong số họ.
+- TTO - Light, công ty từng sản xuất chiếc máy ảnh có tới 16 camera L16, đang phát triển loại smartphone được trang bị nhiều camera.
+- TTO - Một năm trước Google cam kết tăng bảo mật cho Gmail, song báo Wall Street Journal lại vừa phanh phui việc hàng trăm nhà phát triển ứng dụng đã có thể truy cập hàng triệu hộp thư Gmail.
+- TTO - Facebook vừa gửi thông báo xin lỗi tới 800.000 người dùng về sự cố kỹ thuật khiến những tài khoản đã bị người dùng chặn lại bỗng dưng được “mở khóa”.
+- TTO - Tanita ES-100 có hình dạng như dạng máy nhắn tin, sử dụng công nghệ phân tích và các thuật toán tùy chỉnh có thể phát hiện mùi mồ hôi, mùi người già, mùi mệt mỏi và thậm chí cả mùi các loại nước hoa.
+- TTO - Các phần mềm nhận diện khuôn mặt hiện nay vẫn đang gặp rắc rối với màu da tối, và hứng chịu nhiều tranh cãi xung quanh.
+- TTO - Tại sự kiện ra mắt ViettelPay, người dân Thủ đô đã có cơ hội trải nghiệm Infinity Room - Không gian vô cực lần đầu tiên có mặt tại Việt Nam.
+- TTO - "Hệ thống phân tích và chia sẻ nguy cơ tấn công mạng Việt Nam" vừa được Bộ Thông tin và Truyền thông chính thức ra mắt.
+- TTO - Codecheck, một ứng dụng dành cho cả iOS và Android, có thể cung cấp cho bạn thông tin chi tiết về những gì bạn đang mua.
+- TTO - Hãng Honda (Nhật Bản) vừa thông báo sẽ dừng sản xuất người máy nổi tiếng Asimo của họ để tập trung phát triển công nghệ tự động cho lĩnh vực điều dưỡng và vận tải đường bộ.
+- Để đảm bảo liên lạc thông suốt ở 3 tỉnh Tây Bắc đang bị thiệt hại nặng nề bởi mưa lũ, lực lượng ứng cứu thông tin của Viettel phải chạy đua với thời gian và không ngại khó khăn.
+- TTO - Một nghiên cứu mới cho rằng hệ thống đánh giá tín nhiệm xã hội của Trung Quốc đang gây ảnh hưởng vượt quá biên giới Trung Quốc, tác động tiêu cực tới doanh nghiệp nước ngoài.
+- TTO - Facebook đang thử nghiệm tính năng “Keyword snooze” cho phép người dùng ẩn đi những nội dung có chứa các từ và cụm từ cụ thể trong 30 ngày.
+- TTO - Cả App Store và Google Play đều có rất nhiều ứng dụng liên quan đến giao dịch mua sắm, đặt phòng khách sạn, dịch vụ du lịch, quản lý thời gian, tiền bạc… Dưới đây là 8 ứng dụng được nhiều người dùng đánh giá mang lại hiệu quả và an toàn.
+- TTO - Không chỉ để trang trí, chai phát sáng Gloo do Deconnect phát triển còn chứa đầy các linh kiện điện tử bên trong và có thể sạc các thiết bị không dây.
+- TTO - Lăng Tự Đức và Cung An Định bắt đầu được bảo tồn bằng kỹ thuật số. Tất cả dữ liệu và hình ảnh từ hai di tích này sẽ được chuyển thành mô hình 3D và sử dụng công nghệ thực tế ảo (VR) phục vụ cho mục đích du lịch, giáo dục, bảo tồn…
+- TTO - Một nghiên cứu của Hà Lan cho biết, trẻ em nghe nhạc qua tai nghe còn có nguy cơ mất thính lực hơn cả bị ảnh hưởng bởi tiếng ồn bên ngoài.
+- TTO - Facebook vừa phát thông báo chính thức hủy bỏ dự án chế tạo các loại máy bay không người lái (drone) cỡ lớn để cung cấp Internet cho những khu vực khó tiếp cận dịch vụ mạng.
+- TTO - AI Guardman, một camera an ninh ứng dụng AI được phát triển bởi các nhà lập trình Nhật Bản, đã có thể phát hiện và báo cáo các hành vi đáng ngờ mà không cần sự giám sát của con người.
+- TTO - Mạng xã hội Facebook thông báo những thay đổi mới, nới lỏng hơn với chính sách quảng cáo tiền điện tử, thay vì cấm triệt để như trước trên nền tảng này.
+- TTO - Theo nghiên cứu mới của Mỹ, phẫu thuật robot, một công nghệ sử dụng hệ thống robot để hỗ trợ trong các thủ thuật phẫu thuật, có nhiều lợi thế hơn khi điều trị các bệnh liên quan đến bàng quang hay tuyến tiền liệt.
+- TTO - Một hãng công nghệ có trụ sở tại Cyprus công bố đã chế tạo được chiếc xe hơi có bộ dụng cụ do thám thế hệ mới có thể bẻ khóa (hack) một chiếc iPhone và Android từ khoảng cách 500 mét.
+- TTO - Hình thức này còn gọi là “nick-napping” và sẽ gây ra nhiều phiền toái cho người dùng nếu hacker đánh cắp được địa chỉ email, tài khoản mạng xã hội hoặc tài khoản mua hàng trực tuyến.
+- TTO - Sân bay quốc tế Orlando đã trở thành sân bay đầu tiên ở Mỹ cam kết xử lý toàn bộ quy trình nhập cảnh của hành khách quốc tế bằng cách sử dụng công nghệ nhận dạng khuôn mặt.
+- TTO - Công ty Samsung SDS đã quyết định lựa chọn Tập đoàn công nghệ CMC phụ trách việc triển khai giải pháp quản lý và điều hành nhà máy thông minh (MES) cho các nhà máy của hơn 200 nhà cung cấp của Samsung tại Việt Nam.
+- TTO - Bất cứ mạng xã hội nào có chức năng đăng video đều có thể tạo ra thu nhập cho người dùng. Tuy nhiên, mỗi nền tảng sẽ có “luật chơi” riêng, chẳng hạn cách kiếm tiền từ video trên YouTube và Instagram sẽ khác nhau.
+- TTO - Trung Quốc đã và đang giám sát cư dân nhiều khu vực bằng loại máy bay không người lái công nghệ cao có hình dạng giống như một con chim bồ câu.
+- OPPO đã làm cả thế giới ngỡ ngàng khi giới thiệu Find X với thiết kế cụm camera ẩn trong thân máy. Vì ý tưởng sáng tạo quá táo bạo, nên có người sẽ lo ngại về độ bền của chiếc cụm camera này.
+- TTO - Megvii, hãng công nghệ nhận diện có trụ sở tại Bắc Kinh đang tìm cách mở rộng thị trường tại Đông Nam Á, khởi điểm là Thái Lan và tiếp theo có thể là Malaysia.
+- TTO - Báo cáo mới của McKinsey dự báo, các thành phố lớn của châu Á, với thế hệ trẻ có mức hiểu biết cao, đang đóng một vai trò quan trọng trong việc “thông minh hóa” các cơ sở hạ tầng công nghệ.
+- TTO – Thời lượng video trên IGTV được hỗ trợ lên đến một giờ đồng hồ. Đây là một nỗ lực nhằm lôi kéo người dùng từ YouTube, và giúp Facebook có thêm doanh thu từ quảng cáo.
+- TTO - Mạng chia sẻ video trực tuyến YouTube sẽ bổ sung thêm tính năng cho phép các nhà sáng tạo nội dung có hơn 100.000 người theo dõi có thể thu phí thành viên.
+- TTO - Giờ đây, người dùng đã có thể hạn chế hiển thị các quảng cáo trực tuyến mà bạn không muốn thấy trên tất cả các dịch vụ của Google, cả YouTube lẫn Gmail.
+- TTO - Sân bay ở Amsterdam (Hà Lan) giờ đã có một máy ATM bitcoin, cho phép mọi người chuyển “đồng euro địa phương” thành “các loại tiền điện tử quốc tế”.
+- TTO - Người Mỹ tin rằng có tới 65% tin tức trên mạng xã hội là ngụy tạo hoặc không thể xác minh đúng, sai, trong khi tỉ lệ này trên báo chí và truyền hình theo họ là 39%.
+- TTO - Báo cáo mới nhất của hãng Symantec cho biết đã có một chiến dịch tấn công mạng xuất phát từ Trung Quốc nhắm vào các công ty vệ tinh, quốc phòng ở Mỹ và Đông Nam Á.
+- TTO - Liên minh châu Âu (EU) đã vừa hoàn thành bước đầu tiên trong việc thông qua dự luật chống vi phạm bản quyền trên mạng. Bước tiếp theo sẽ là sự phê chuẩn tại nghị viện châu Âu.
+- TTO - Trong cuộc tranh luận đầu tuần này giữa một hệ thống AI của hãng máy tính IBM với hai đối thủ tranh biện là con người tại San Francisco, cỗ máy của IBM đã thắng.
+- Những khoảnh khắc đời thường cũng có thể mang “dấu ấn” thời trang ấn tượng. Bộ ảnh hậu trường được chụp bằng Galaxy S9+ của siêu mẫu Thanh Hằng đã phần nào thể hiện điều đó.
+- TTO - Google vừa tung ra ứng dụng podcast độc lập dành riêng cho thiết bị Android. Ứng dụng có tên đơn giản là Google Podcasts gồm những đề xuất được cá nhân hóa với từng người dùng.
+- TTO - Sàn giao dịch tiền điện tử Bithumb của Hàn Quốc cho biết 35 tỉ won (31,5 triệu USD) giá trị tiền điện tử đã vừa bị hacker đánh cắp trong vụ tấn công mạng vừa xảy ra.
+- TTO - Sẽ xử lý nghiêm các trường hợp vi phạm bản quyền giải bóng đá World Cup 2018. Đó là ý kiến chỉ đạo của Bộ trưởng Bộ TT&amp;TT đối với việc xử lý tình trạng vi phạm bản quyền đang diễn ra trên các kênh của YouTube, mạng xã hội.
+- TTO - Một nghiên cứu gần đây cho thấy 81% các thiết bị công nghệ đều dính vi khuẩn có hại, vậy phải làm sao để vệ sinh chúng một cách an toàn nhất?
+- TTO - Theo chỉ số phơi nhiễm quốc gia được Rapid7 mới công bố, Mỹ đứng đầu danh sách các quốc gia dễ bị tấn công mạng nhất, tiếp theo là Trung Quốc, Hàn Quốc và Anh.
+- TTO - Kết quả khảo sát mới nhất của một viện nghiên cứu thuộc hãng tin Reuters cho thấy giới trẻ đang có xu hướng giảm bớt việc đọc tin tức trên nền tảng mạng xã hội Facebook.
+- TTO - Bộ An ninh nội địa Mỹ (DHS) thông báo đã vừa xác định được một hoạt động tấn công bằng mã độc của các tin tặc do Chính phủ Triều Tiên bảo trợ.
+- TTO - Các nhà phát triển hệ thống phần mềm trí tuệ nhân tạo với thuật toán machine learning đã mô phỏng toàn bộ giải bóng đá vô địch thế giới 100.000 lần để hệ thống đưa ra các dự đoán kết quả.
+- Sáng ngày 15-6, tại Hà Nội, Bộ Thông tin và truyền thông đã tổ chức Lễ công bố mã bưu chính quốc gia mới. Cả nước có 21.405 mã bưu chính.
+- TTO - Facebook vừa thông báo ông Elliot Schrage, giám đốc phụ trách truyền thông và chính sách cộng đồng của công ty này, sẽ từ chức sau một thập kỷ gắn bó.
+- TTO - Có rất nhiều loại ổ khóa thông minh hiện nay, trong đó các dòng ổ khóa dựa vào dấu vân tay để xác thực rất được tin dùng. Tuy nhiên, được tin dùng không đồng nghĩa với việc luôn an toàn.
+- TTO - Nhà chức trách Trung Quốc đã chấp thuận phê chuẩn thương vụ mua nhà sản xuất chip Hà Lan NXP của hãng Qualcomm (Mỹ) với giá thâu tóm 44 tỉ USD.
+- TTO - Sẽ hỗ trợ phát triển ứng dụng công nghệ Blockchain thông qua các chương trình KH&amp;CN cấp quốc gia và ưu tiên hỗ trợ doanh nghiệp khởi nghiệp thực hiện dự án có ứng dụng công nghệ blockchain
+- TTO - Ứng dụng HerVenture trên thiết bị di động ở Việt Nam cung cấp một phương tiện học tập và tư vấn trực tuyến giá rẻ và linh hoạt cho các nữ chủ doanh nghiệp vừa được chính thức ra mắt sáng ngày 14-6.
+- TTO - Trong một động thái được cho là phản ứng đối đầu của Apple với lực lượng hành pháp, công ty này cho biết sẽ tung ra phần mềm cho phép vô hiệu hóa luôn cửa bảo mật cuối cùng của iPhone.
+- TTO - Mặc dù giá đồng tiền ảo Bitcoin không được khả quan thời gian gần đây nhưng những chiếc máy ‘đào’ tiền ảo vẫn thu hút sự quan tâm mạnh của giới thợ ‘đào’.
+- TTO - Từ năm 2015, Amanda Southworth đã bắt đầu viết các ứng dụng di động và đến nay, các dự án của cô gái 16 tuổi này đã nhận được khoản tài trợ 25.000 USD.
+- TTO - Trong phiên giao dịch trở lại đầu tiên sau 8 tuần tạm ngưng vì lệnh cấm của chính quyền Mỹ, giá cổ phiếu công ty ZTE của Trung Quốc lao dốc 40%.
+- TTO - Sau khi phát hiện VPNFilter, các nhà nghiên cứu bảo mật tiếp tục phát hiện ra một mã độc khác, có tên là Prowli, đã xâm phạm hơn 40.000 máy chủ, modem và thiết bị IoT thuộc nhiều tổ chức trên toàn thế giới với mức độ nguy hiểm gấp nhiều lần.
+- TTO - Nhiều hãng thông tấn, báo chí đã đồng loạt gửi đơn yêu cầu lãnh đạo Facebook điều chỉnh lại chính sách quảng cáo khi công ty này xếp quảng cáo tin tức vào cùng loại quảng cáo chính trị.
+- TTO - Tòa Mỹ vừa tuyên phán quyết cho phép AT&amp;T mua tập đoàn truyền thông giải trí Time Warner với giá 85 tỉ USD, bất chấp phản đối của chính quyền tổng thống Donald Trump.
+- TTO - Chiếc toilet điện từ dành riêng cho mèo giá 225 USD này có khả năng phân tích mẫu phân và nước tiểu và “báo cáo” tình trạng sức khỏe của con vật tới chủ qua smartphone.
+- TTO - Apple đã âm thầm thay đổi các quy định chính sách liên quan tới việc bán hoặc chia sẻ dữ liệu người dùng với các nhà phát triển trong App Store từ tuần trước, song không công bố.
+- TTO - Nền tảng và mô hình mới về điều vận xe trực tuyến EMDDI - một sản phẩm khoa học công nghệ của nhóm các nhà khoa học ĐH Quốc gia Hà Nội vừa được chính thức giới thiệu tại Hà Nội chiều ngày 12-6.
+- TVC thương hiệu thường nói về mơ ước có tính biểu tượng mà thương hiệu đó muốn đạt được trong tương lai. Nhưng với Mytel – mạng di động quốc tế thứ 10 của Viettel, thì đó đã là một phần của hiện thực.
+- TTO - Ngày 9-6-2018 được xem là một dấu mốc quan trọng của đoàn Công nghiệp – Viễn thông Quân đội (Viettel) trên đất Myanmar. Đó là ngày Mytel – mạng di động quốc tế thứ 10 của Viettel chính thức khai trương với đầu số 096.
+- TTO - PetBacker là một dạng ứng dụng kết nối tương tự như Uber, nhưng đối tượng hướng đến là các chủ sở hữu vật nuôi với những người nhận giữ hộ thú cưng trong thời gian ngắn hạn.
+- TTO - Việt Nam luôn được xếp trong top những quốc gia về mã độc nhiều nhất trên thế giới, là thị trường tiềm năng của ngành công nghiệp mã độc.
+- TTO - Một loạt các nhà bán lẻ bao gồm Amazon, Target, Walmart vẫn đang tiếp tục bán đồ chơi thông minh không an toàn cho trẻ em mặc dù đã nhận được cảnh báo từ các chuyên gia bảo mật vào tháng 2 năm ngoái.
+- TTO - Việc ứng dụng công nghệ trí tuệ nhân tạo (AI) trong ngành công nghiệp chăm sóc người già ở Nhật đang góp phần giảm bớt áp lực đáng kể cho thực trạng thiếu nhân lực ngành này.
+- TTO - Một vụ tấn công mạng vừa xảy ra tại một sàn giao dịch tiền điện tử ít tiếng tăm tại Hàn Quốc đã làm “bốc hơi” hàng tỉ USD giá trị vốn hóa thị trường của bitcoin và nhiều loại tiền tiện tử khác.
+- TTO - Mạng xã hội Facebook vừa đăng thông tin tuyển dụng “các chuyên gia thẩm định độ tin cậy của tin tức”, động thái cho thấy công ty này đang có thêm những nỗ lực trong cuộc chiến chống tin giả.
+- TTO - Tập đoàn Microsoft vừa đặt thành công một trung tâm dữ liệu mới nhất của họ dưới đáy biển ở ngoài khơi Scotland với hy vọng sẽ sớm có thêm những trung tâm tương tự trong tương lai.
+- TTO - Sáng ngày 9-6-2018, Tập đoàn Công nghiệp - Viễn thông Quân đội (Viettel) chính thức khai trương mạng di động quốc tế thứ 10 tại Myanmar với thương hiệu Mytel.
+- TTO - Mỹ lại vừa vượt qua Trung Quốc, giành lại ngôi số một trong cuộc đua chế tạo siêu máy tính nhanh nhất thế giới.
+- TTO - Hãng công nghệ Google vừa chính thức lên tiếng khẳng định quan điểm của họ sẽ không cho phép ai sử dụng công nghệ trí tuệ nhân tạo (AI) của họ vào các loại vũ khí quân sự.
+- TTO - Không chỉ luôn cài đặt HTTPS, sử dụng bộ chặn theo dõi hay chọn công cụ tìm kiếm an toàn làm mặc định, bạn có thể áp dụng thêm những cách dưới đây để kiểm soát quyền riêng tư khi online.
+- TTO - Dragon Fire Fighter, ống robot được phát triển bởi các nhà nghiên cứu từ Đại học Tohoku của Nhật Bản và Viện Công nghệ Hachinohe, có thể cân bằng trên không và phun ra tia nước đang được đánh giá cao trong việc dập tắt các đám cháy nguy hiểm.
+- TTO - Vừa qua, dịch vụ thử nghiệm DNA MyHeritage thừa nhận đã bị hacker tấn công 92 triệu tài khoản để truy cập email và mật khẩu mã hóa. Tuy nhiên, câu hỏi đặt ra là tại sao hacker lại muốn đánh cắp thông tin DNA cụ thể?
+- TTO - Các nghị sĩ Pháp vừa bỏ phiếu phê chuẩn dự luật cấm học sinh cấp tiểu học và trung học cơ sở sử dụng điện thoại di động trong trường.
 ![life](Life.png)
