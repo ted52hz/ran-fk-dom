@@ -1,6 +1,22 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- 'Hiện đã có doanh nghiệp sẵn sàng đầu tư xây dựng nhà máy sản xuất chip tại Bạc Liêu nhưng cần tỉnh cần đáp ứng được đủ nguồn nhân lực', Chủ tịch tỉnh Bạc Liêu thông tin tại chương trình tư vấn tuyển sinh hướng nghiệp sáng 16-3.
+- Đề thi tốt nghiệp THPT năm nay sẽ có những câu hỏi phân hóa yêu cầu liên hệ giải quyết các vấn đề thực tiễn. Học sinh cần làm quen để làm tốt bài thi.
+- Chưa xác định được ngành và trường học, nhiều cô cậu học trò từ các tỉnh đã dậy sớm bắt xe đến Ngày hội tư vấn tuyển sinh hướng nghiệp ở Hà Nội để có được định hướng rõ ràng hơn trong kỳ xét tuyển sắp tới.
+- Ngày 15-3, chương trình tư vấn tuyển sinh - hướng nghiệp 2025 tại Trường THPT Trần Văn Thời (Cà Mau) thu hút hàng ngàn học sinh tham dự.
+- Sáng 16-3, Ngày hội tư vấn tuyển sinh - hướng nghiệp 2025 diễn ra tại khuôn viên Đại học Bách khoa Hà Nội. Đây là ngày hội quy mô lớn nhất từ trước tới nay với gần 300 khu tư vấn của hơn 100 cơ sở đào tạo trong và ngoài nước.
+- Việc thí điểm học 5 ngày/tuần nhằm tạo điều kiện thuận lợi cho học sinh phát triển toàn diện, đồng thời đồng bộ lịch làm việc của cán bộ, công chức, cơ quan quản lý giáo dục...
+- Ngày 12-3 vừa qua, tổ chức QS vừa công bố bảng xếp hạng QS World University Rankings 2025 theo lĩnh vực, xếp hạng các trường đại học trên thế giới theo lĩnh vực đào tạo. 
+
+Trường đại học Văn Lang được QS xếp hạng top 51-100 thế giới về lĩnh vực Nghệ
+- Dự kiến tháng 6-2026, Trường Marie Curie Mèo Vạc mà thầy Nguyễn Xuân Khang tặng học trò vùng cao sẽ hoàn thiện và bắt đầu tuyển sinh từ năm học 2026-2027.
+- Bộ Giáo dục và Đào tạo vừa công bố danh mục 74 ngành đào tạo phục vụ nhân lực ngành công nghiệp bán dẫn.
+- Để dự án khởi nghiệp phát triển bền vững, ngoài kiến thức, ý tưởng sáng tạo và sự kiên trì, sinh viên cần biết cách huy động vốn hiệu quả.
+- Đó là thông tin do ông David Albon- Giám đốc phụ trách chương trình quốc tế, tập đoàn giáo dục Pearson cho biết tại lễ trao chứng chỉ phổ thông quốc tế Pearson Edexcel.
+- Kỳ thi đánh giá năng lực của Đại học Quốc gia Hà Nội năm 2025 đợt 1 chính thức diễn ra từ sáng 15-3. Nhiều thí sinh không tránh khỏi tâm lý hồi hộp, lo lắng khi chỉ có cơ hội tham gia thi duy nhất 1 đợt.
+- Định hướng, khích lệ học trò đi thi quốc tế, cô Hương Lan muốn các em được thỏa đam mê nghiên cứu, có dịp giao tiếp, trao đổi kiến thức với bạn bè quốc tế...
+- Chương trình tư vấn tuyển sinh - hướng nghiệp tại Cà Mau sáng 15-3 ghi nhận rất nhiều học sinh quan tâm đến các ngành học về thủy sản.
 - Bộ Nội vụ đã có văn bản trả lời tỉnh Lâm Đồng, liên quan đến việc giáo viên ở vùng đặc biệt khó khăn mất trợ cấp vì xã đạt chuẩn nông thôn mới.
 - Từ 7h30 sáng nay 15-3, chương trình tư vấn tuyển sinh - hướng nghiệp của báo Tuổi Trẻ đến với học sinh vùng sâu vùng xa tỉnh Cà Mau.
 - Đưa việc tự học trở thành mục tiêu thi đua, đánh giá trong năm học là một trong những giải pháp Bộ Giáo dục và Đào tạo nhấn mạnh sau đợt chấn chỉnh dạy thêm, học thêm tràn lan.
@@ -988,22 +1004,40 @@
 - Tổng Bí thư Tô Lâm chỉ rõ một số hạn chế của giáo dục, đào tạo kéo dài nhiều năm chưa giải quyết dứt điểm.
 - Quỹ VinFuture chính thức công bố lịch trình Tuần lễ Khoa học công nghệ và lễ trao giải VinFuture 2024 diễn ra từ ngày 4 đến 7-12 tại Hà Nội.
 - Chuyện thầy hiệu trưởng xin đổi hoa 20-11 thành học cụ là một cách mời gọi các nhà quản lý, thầy cô giáo hướng đến tinh thần vì học sinh.
-- Nhiều người gọi thầy giáo Phùng Quán là 'chiến binh' vì gần như mặt trận nào thầy cũng lăn xả, nhiệt huyết vì cộng đồng, từ chống dịch COVID-19 đến thiện nguyện, tư vấn tuyển sinh, đoàn thể...
-- Ngoài câu chuyện tình yêu đôi lứa, tình yêu biển đảo là động lực lớn thôi thúc cô giáo trẻ quyết tâm ra Thổ Châu dạy học.
-- Giữa những xôn xao thế sự lớn lao và nhỏ nhặt, tháng 11 luôn dung chứa những niềm xôn xao khác của ký ức và lòng biết ơn khi gần đến 20-11 - Ngày Nhà giáo Việt Nam.
-- Họ là những người dạy nghề thầm lặng cho người khuyết tật có được cái nghề kiếm sống - ước mơ lớn nhất trong đời của người bất hạnh.
-- Khi ngẫm lại cuộc đời, nhiều người trong chúng ta phải thốt lên 'nhờ thầy cô nghiêm khắc, nay con nên người'.
-- Có 1.188 nhà giáo được Chủ tịch nước phong tặng danh hiệu Nhà giáo nhân dân, Nhà giáo ưu tú. Lễ trao tặng danh hiệu diễn ra vào ngày 17-11.
-- Sáng 17-11, Thành Đoàn Đà Nẵng cùng Sở Giáo dục và Đào tạo Đà Nẵng đã tuyên dương 39 nhà giáo trẻ tiêu biểu nhân dịp kỷ niệm 42 năm Ngày Nhà giáo Việt Nam 20-11.
-- Nhiều vụ tai nạn thương tâm từ việc học sinh chạy xe đạp điện, xe máy đến trường, nhưng hiện nhiều cha mẹ vẫn giao xe và "khoán trắng" cho con.
-- Tôi cũng như hàng triệu phụ huynh có con đang học lớp 9 trên cả nước rất 'đau tim' khi chờ đợi môn thi thứ ba vào lớp 10.
-- Nữ sinh chưa từng biết mặt cha suốt 6 năm qua vẫn đều đặn đến sân tập võ, thành kiện tướng karate, dùng tiền bồi dưỡng thi đấu để trang trải chi phí ăn học và theo đuổi ước mơ vào đại học.
-- Hiệu trưởng Trường đại học Kinh tế nhắn nhủ sinh viên "tương lai của nhà trường phụ thuộc vào sự cống hiến và khát vọng của các bạn sinh viên".
-- Dự án 'Khát vọng thống nhất' thu hút 8.600 học sinh từ 8 trường THPT thuộc cụm chuyên môn 1 tại TP.HCM tham gia với hơn 1.000 sản phẩm độc đáo, mang đậm dấu ấn lịch sử.
-- AI, ChatGPT mở ra nhiều cơ hội và thách thức mới trong lĩnh vực nghiên cứu và giáo dục, đặc biệt là trong giảng dạy ngôn ngữ.
-- Trong 30 năm qua, Đại học Đà Nẵng đã đào tạo cho đất nước hàng vạn nhân lực có trình độ cao ở nhiều lĩnh vực, góp phần quan trọng vào sự nghiệp xây dựng, phát triển đất nước.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Khi cán bộ cấp xã thêm việc, thêm nhiệm vụ, làm sao để đảm đương công việc hiệu quả, giúp ích cho dân hơn trên tinh thần tinh gọn?
+- Hôm nay 16-3, thời tiết Bắc Bộ chuyển rét, Trung Bộ có nơi mưa to, còn Nam Bộ trời nắng, nhiều nơi nắng nóng.
+- Hơn 28 triệu đồng/tháng là mức thu nhập bình quân của mỗi nhân viên Công ty cổ phần Bến xe Miền Tây trong năm vừa qua, tăng gần 11% so với năm 2023.
+- Thanh tra Chính phủ phát hiện nhiều sai phạm trong chuyển mục đích sử dụng đất liên quan hai dự án nhà ở tại tỉnh Vĩnh Long và chuyển Bộ Công an điều tra xử lý, kiến nghị xử lý trách nhiệm lãnh đạo UBND tỉnh Vĩnh Long.
+- Chiều 15-3, buôn Lé B (xã Krông Pa, huyện Sơn Hòa, Phú Yên), những tiếng khóc xé lòng của người thân, hàng xóm tiếc thương cho 4 em học sinh chết đuối.
+- Thúc đẩy hộ kinh doanh lên doanh nghiệp, cần nhiều giải pháp mang tính "dọn chỗ trước" để họ tự nguyện chuyển lên hơn là ép buộc họ phải khoác một tấm áo không phù hợp.
+- Sau nghi vấn liên quan đến hình ảnh "đường lưỡi bò", các sạp bán Baby Three trước mọc lên dày đặc, tràn vỉa hè nay chỉ còn lác đác vài điểm bán lay lắt, khách cũng thưa thớt, buôn bán èo uột.
+- Công an tỉnh Đắk Lắk đã có quyết định kiểm tra nhà máy sản xuất kẹo rau được các TikToker nổi tiếng quảng cáo lố trên mạng, gây hiểu nhầm thời gian qua.
+- Tỉnh Quảng Trị kiến nghị Thủ tướng mở rộng không gian đảo, nâng cấp âu tàu, cấp điện và nước ngọt từ đất liền…
+- Chất xơ là nhóm thực phẩm không thể thiếu trong bữa ăn hằng ngày, điều này không chỉ giúp cho việc tiêu hóa tốt hơn mà còn cung cấp nhiều lợi ích khác.
+- Đại diện Phòng cảnh sát giao thông Công an TP.HCM cho biết từ ngày 17-3 sẽ tổ chức tiếp nhận hồ sơ đổi, cấp lại giấy phép lái xe tại 22 điểm phường, xã...
+- Người dân có thể phản ánh những vị trí rác, người vứt rác bừa bãi bằng cách gửi hình ảnh qua ứng dụng điện thoại hoặc nhóm Zalo của TP Thủ Đức.
+- Người dân ở xóm Khe Sài 2, xã Nghĩa Lộc, huyện Nghĩa Đàn (Nghệ An) bày tỏ lo lắng khi nguồn nước suối có dấu hiệu ô nhiễm, cá trong ao nuôi chết bất thường.
+- Ngày 14-3, trang web của Liên hợp quốc đã đăng các thông tin chi tiết về nội dung lưu chiểu hải đồ và đường cơ sở của Việt Nam tại vịnh Bắc Bộ.
+- Tổng Bí thư Tô Lâm đề nghị tiếp tục rà soát chỉnh sửa, hoàn thiện để Báo cáo chính trị thực sự là 'văn bia', là ngọn đuốc soi đường.
+- Bà Nguyễn Thị Định là nữ tướng đầu tiên của Quân đội nhân dân Việt Nam, đã truyền cảm hứng mạnh mẽ về ý chí bất khuất của người phụ nữ Việt Nam.
+- Trong tiến trình triển khai, dự án đường tránh Đông TP Buôn Ma Thuột (Đắk Lắk) xảy ra nhiều sai phạm, đội vốn gần 350 tỉ đồng.
+- 4 học sinh ở xã Krông Pa (huyện Sơn Hòa, tỉnh Phú Yên), trong đó có hai anh em sinh đôi, rủ nhau đi bắt cá dưới sông Ba và không may cả 4 em bị chết đuối.
+- Tuyến đường Chợ Mới - Bắc Kạn dài 28,8km, quy mô đường cao tốc 4 làn xe, được khởi công sáng 15-3, tiến độ hoàn thành trong 2 năm.
+- Người phụ nữ thản nhiên bước trên đường ray để tạo dáng, mặc cho lái tàu phải phanh gấp và kéo còi liên tục.
+- Thời tiết TP.HCM và các tỉnh Nam Bộ đang trong đợt nắng nóng diện rộng, buổi trưa trời oi bức như ‘đổ lửa'.
+- Thật hồi hộp khi qua các giao lộ không có đèn đếm ngược, chẳng biết đâu mà lần.
+- Đắk Lắk chưa thực hiện quy trình miễn nhiệm phó giám đốc phụ trách 'nhiều lần nhận tiền từ nhà thầu', vì phải chờ kết quả thanh tra đối với một dự án khác.
+- UBND TP.HCM vừa chấp thuận đề xuất tiếp tục đấu giá 3.790 căn hộ thuộc khu 38,4ha trong khu đô thị mới Thủ Thiêm, với công năng là nhà ở thương mại.
+- Hai du khách leo núi Cô Tiên (TP Nha Trang, Khánh Hòa) vào ban đêm thì đi lạc, phải nhờ cứu hộ ứng cứu.
+- Sau khi trồng hoa ngũ sắc trên 1,6km đường Nguyễn Văn Trỗi, UBND quận Phú Nhuận tổ chức thu gom miễn phí rác thải cồng kềnh cho người dân.
+- Thanh tra Chính phủ vừa ban hành kết luận thanh tra, đề nghị Bộ Công an xem xét điều tra các hành vi vi phạm pháp luật tại dự án khu nhà ở tại Vĩnh Long.
+- Khi chủ tọa hỏi về động cơ khiến bị cáo sát hại người tình, Thông biện minh cho rằng vì nóng giận nhất thời. Tuy nhiên, lời khai của Thông đã bị tòa bác bỏ.
+- Ban quản lý Khu bảo tồn Phú Mỹ tiếp tục phát hiện 9 con sếu đầu đỏ về kiếm ăn cạnh ruộng lúa của người dân, 4 con ngủ lại qua đêm.
+- Mạng viễn thông VinaPhone trên địa bàn tỉnh tiền Giang hầu như bị tê liệt, không thể nào liên lạc được do cháy tại trụ sở VNPT Tiền Giang.
+- Trang trại nuôi 12.000 con gà chuẩn bị đến thời kỳ xuất bán ra thị trường nhưng gặp sự cố chập điện trong đêm, khiến gần 8.000 con gà bị chết.
+- Tại TP.HCM, từ lâu nhiều xã phường có dân số hơn 100.000 dân. Các xã phường này vận hành ra sao?
 - Nhiều nhà xe khách vẫn cố tình chạy sai lịch trình tuyến cố định đón khách, bị cảnh sát giao thông lập biên bản xử phạt, tước phù hiệu 2 tháng.
 - Bộ Quốc phòng đề xuất các tiêu chí đối với chức danh chuyên gia, nhà khoa học đầu ngành, tổng công trình sư trong lĩnh vực công nghiệp quốc phòng, an ninh.
 - Một số tin tức đáng chú ý: Kho bạc Nhà nước liên tục mua vào hàng trăm triệu USD; Sếp BCG Energy liên tiếp xin nghỉ; Cử tri kiến nghị giảm giá vắc xin sốt xuất huyết...
@@ -1028,7 +1062,6 @@
 - Để triển khai quy trình sửa Hiến pháp, các luật, Chủ tịch Quốc hội Trần Thanh Mẫn cho biết dự kiến kỳ họp thứ 9 sẽ khai mạc sớm từ đầu tháng 5.
 - Sau khi triển khai mô hình tổ chức bộ máy mới, Công an tỉnh Bình Thuận vừa có thông báo thay đổi trụ sở làm việc của một số phòng nghiệp vụ.
 - Từng có nhiều phương án để kết nối giao thông cho hai tỉnh Đồng Nai - Bình Phước, nhưng đến nay vẫn đang khảo sát.
-- Sở Khoa học và Công nghệ Quảng Trị vừa có văn bản đề xuất điều động giám đốc Trung tâm Chuyển đổi số đến công tác tại văn phòng sở và bổ nhiệm chức phó chánh văn phòng, nhằm tìm ra một giám đốc có năng lực, kinh nghiệm.
 - Được công nhận là đô thị loại I, TP Phú Quốc (Kiên Giang) không chỉ khẳng định những thành tựu vượt bậc trong phát triển kinh tế mà còn khởi đầu mới với những không gian phát triển mới, vươn mình phát triển thành đô thị biển đảo, mang tầm cỡ quốc tế.
 - Hành vi phản cảm hít xà đơn trên metro có thể bị xử lý hình sự hay không?
 - Gia đình thân nhân liệt sĩ hy sinh ở đảo Gạc Ma được Hội Hỗ trợ gia đình liệt sĩ tỉnh Nghệ An trao các sổ tiết kiệm.
@@ -1042,7 +1075,7 @@
 - Phản ánh đến Tuổi Trẻ Online, nhiều bạn đọc cho biết nhiều người vẫn vô tư chạy xe ngược chiều trên cầu cũng như trên quốc lộ ở TP.HCM.
 - Nữ giáo viên bức xúc vì chồng mình cùng một nữ giáo viên khác vi phạm luật hôn nhân gia đình, hiện vẫn tiếp tục dạy chung trường.
 - Tính đến cuối năm 2024, cả nước có hơn 11.000 cơ sở nhà đất công để hoang, sử dụng sai mục đích và không hiệu quả.
-- Trong lúc người phụ nữ đang dắt xe máy chuẩn bị rời khởi nhà, người đàn ông từ phía sau rút dao ra đâm chết người phụ nữ.
+- Trong lúc người phụ nữ đang dắt xe máy chuẩn bị rời khỏi nhà, người đàn ông từ phía sau rút dao ra đâm chết người phụ nữ.
 - Sau phản ánh của Tuổi Trẻ Online, UBND TP Nha Trang yêu cầu tất cả xã, phường tăng cường kiểm tra trật tự lòng đường.
 - Bạn đọc tiếp tục phản ánh đến Tuổi Trẻ Online nhiều nhà xe khách giường nằm chạy sai lịch trình, đón khách tại văn phòng diễn ra như bến xe.
 - Ngày 14-3, rất đông người dân, du khách đã đến tưởng niệm 64 chiến sĩ hy sinh để giữ đảo Gạc Ma (Trường Sa) 37 năm trước.
@@ -1197,7 +1230,6 @@
 - Sở Giáo dục và Đào tạo Hà Tĩnh đề nghị UBND tỉnh Hà Tĩnh cấp hơn 21,5 tỉ đồng để tổ chức ôn thi cho học sinh lớp 12.
 - Một người đàn ông ở Nghệ An được đưa tới cơ sở y tế cấp cứu trong tình trạng bị bỏng nửa người nghi do điện thoại phát nổ.
 - Thông tin này được nêu trong báo cáo của Thanh tra Cục Hàng không Việt Nam sau đợt kiểm tra Công ty Bay dịch vụ hàng không (VASCO).
-- TP.HCM dự kiến xây dựng trung tâm tài chính khu vực, quốc tế tại khu vực 11 lô đất thuộc khu chức năng số 1, khu đô thị mới Thủ Thiêm.
 - Quận 7 đã hoàn thành mục tiêu không còn hộ nghèo theo chuẩn nghèo đa chiều của TP.HCM.
 - Dự kiến sắp tới sẽ sáp nhập hơn 10.000 đơn vị cấp xã xuống còn 2.500. Bí thư xã là tỉnh ủy viên, thậm chí là thường vụ.
 - Trước khi rời Jakarta, sáng 11-3, Tổng Bí thư Tô Lâm đã có các cuộc gặp với lãnh đạo lập pháp và Hội đồng Hiệp thương nhân dân Indonesia.
@@ -1974,38 +2006,9 @@
 - Chính phủ vừa ban hành nghị định số 30 quy định tiêu chí xác định người lao động có thu nhập thấp thuộc Chương trình mục tiêu quốc gia giảm nghèo bền vững giai đoạn 2021 - 2025.
 - Một số tin tức đáng chú ý: Tháng Công nhân 2025 có những hoạt động mới gì?; Đề xuất tháo gỡ khó khăn cho 5 dự án ở TP.HCM; Tổng giá trị trái phiếu riêng lẻ đáo hạn năm 2025 là khoảng 203.000 tỉ đồng, tăng 8,5% so với cùng kỳ.
 - Hôm nay 25-2, thời tiết cả nước có mưa dông, nhiều nơi mưa to, riêng miền Bắc trời lạnh đến rét.
-- Gặp Thủ tướng Phạm Minh Chính, Bộ trưởng Ngoại giao Thái Lan Maris Sangiampongsa bày tỏ mong muốn Việt Nam tham gia hợp tác, triển khai sáng kiến "6 quốc gia 1 điểm đến" về du lịch.
-- Tổng Bí thư Tô Lâm yêu cầu đưa môi trường đầu tư kinh doanh phấn đấu giảm ít nhất 30% thời gian xử lý thủ tục hành chính.
-- 14 lãnh đạo cấp phòng và tương đương thuộc Công an tỉnh Hà Giang đã tình nguyện nghỉ hưu trước tuổi, 9 phó trưởng công an huyện xung phong, tình nguyện đến nhận công tác tại công an xã.
-- Trong lúc nóng giận không kiềm chế được, người đàn ông ở TP Nam Định (tỉnh Nam Định) đã có hành vi túm tóc, lăng mạ vợ cũ trước mặt hai con nhỏ.
-- Chiều 24-2, Thủ tướng đã tới thăm, động viên đội ngũ bác sĩ, chiến sĩ, nhân viên y tế của Học viện Quân y nhân kỷ niệm 70 năm Ngày Thầy thuốc Việt Nam.
-- Chính phủ vừa ban hành nghị định số 24/2025 sửa đổi, bổ sung nhiều quy định xử phạt vi phạm hành chính về bảo vệ quyền lợi người tiêu dùng.
-- Tên bão Yagi và bão Trà Mi (Trami) chính thức được khai tử, sau khi gây ra thiệt hại nặng nề cho Việt Nam và Philippines trong năm 2024.
-- Ngày 24-2, Bệnh viện Quân y 175 đã tổ chức lễ đón nhận danh hiệu Anh hùng Lực lượng vũ trang nhân dân dành cho khoa hồi sức tích cực.
-- Một tô phở lèo tèo vài lát thịt có giá khoảng 100.000 đồng, một ổ bánh mì hơn 50.000 đồng, hay một chai nước suối có giá 35.000 - 40.000 đồng.
-- Phát hiện dấu hiệu chập điện, tài xế xuống kiểm tra thì chiếc xe bốc cháy ở cabin. Ngọn lửa sau đó bùng lên nhanh, thiêu rụi phần đầu xe.
-- Ngày 24-2, UBND TP Đà Nẵng đồng ý với đề xuất của Sở Giáo dục và Đào tạo về phương án tuyển sinh lớp 10.
-- Ngày 24-2, tại kỳ họp thứ 32 của HĐND tỉnh Kiên Giang khóa X, nhiệm kỳ 2021-2026, các đại biểu HĐND tỉnh đã biểu quyết thông qua chủ trương thành lập huyện Thổ Châu trên cơ sở diện tích tự nhiên của xã Thổ Châu, TP Phú Quốc.
-- Mỗi căn nhà ở xây dựng theo tiêu chuẩn 3 cứng, trị giá 100 triệu đồng/căn, giúp người dân ổn định cuộc sống hơn.
-- Quảng Ngãi công khai lấy ý kiến người dân đối với 2 tập thể, 13 cá nhân được đề nghị Chủ tịch nước tặng Huân chương Lao động.
-- Ngày 24-2, báo Người Lao Động đã tổ chức lễ tôn vinh tập thể, cá nhân tiêu biểu ngành y và trao giải 'Người thầy thuốc trong tôi' lần 3.
-- Cuộc hội đàm giữa hai bộ trưởng Ngoại giao Việt Nam và Thái Lan còn chứng kiến các nhất trí tăng cường hợp tác về kinh tế, thương mại, du lịch và văn hóa.
-- Ông Phạm Hoàng Nam, chủ nhiệm Ủy ban Kiểm tra Tỉnh ủy, được chỉ định làm bí thư Thành ủy Rạch Giá.
-- Chiều 24-2, Thủ tướng Chính phủ Phạm Minh Chính đã tới thăm Bệnh viện Bạch Mai nhân dịp kỷ niệm 70 năm Ngày Thầy thuốc Việt Nam.
-- Khu tái định cư 3,5ha thuộc dự án vành đai 3 TP.HCM qua Long An đã hoàn thành hạ tầng sạch đẹp, người dân đã bắt đầu xây dựng nhà ở khang trang.
-- Tuyến metro số 1 có lượng lớn người dân đi tàu, vận hành tương đối ổn định, tuy nhiên có một số vấn đề cần giải quyết sớm để hoàn thiện hơn.
-- Ngày 24-2, Công an tỉnh Bình Thuận họp triển khai sắp xếp, tinh gọn tổ chức bộ máy theo chủ trương của Đảng ủy Công an Trung ương.
-- Tỉnh Quảng Trị công bố giám đốc các sở mới thành lập sau tinh gọn bộ máy, chính thức hoạt động từ ngày 1-3 tới.
-- Chính phủ vừa ban hành nghị định về chức năng, nhiệm vụ, quyền hạn, cơ cấu tổ chức của Ngân hàng Nhà nước Việt Nam.
-- Ngày 24-2, Chủ tịch nước Lương Cường, trưởng Ban Chỉ đạo cải cách tư pháp Trung ương đã chủ trì phiên họp thứ nhất năm 2025 để thảo luận một số nội dung quan trọng.
-- Hai bộ trưởng Việt Nam và Thái Lan đã cùng hòa vào không khí lịch sử của Hoàng thành Thăng Long, trò chuyện thân tình bên tách cà phê.
-- Ngày 24-2, Thủ tướng Chính phủ Phạm Minh Chính đã ký các quyết định bổ nhiệm tư lệnh và chính ủy Quân khu 3, 5, 7, Bộ Quốc phòng.
-- UBND tỉnh Kiên Giang đã tổ chức hội nghị triển khai các nghị quyết của HĐND tỉnh về thành lập, hợp nhất, sáp nhập các cơ quan chuyên môn thuộc UBND tỉnh.
-- Chính phủ vừa ban hành nghị định về chức năng, nhiệm vụ, quyền hạn, cơ cấu tổ chức của Bộ Nội vụ, sau khi bộ này hợp nhất với Bộ Lao động, Thương binh và Xã hội.
-- 40 công dân Việt Nam hôm nay đã được Campuchia trao trả về Việt Nam. Số người này chủ yếu qua Campuchia làm thuê.
-- Thành ủy TP.HCM có quyết định kiện toàn Ban Chỉ đạo kiểm tra, giám sát, đôn đốc giải quyết các việc tồn đọng, vướng mắc, khiếu kiện đông người.
 ![New](News.png)
 ## Nhịp sống số 
+- Apple đang lên kế hoạch bổ sung tính năng mới cho AirPods, cho phép tai nghe dịch trực tiếp các cuộc hội thoại sang một ngôn ngữ khác.
 - Daikin Vietnam vừa cho ra mắt dòng điều hòa mới, đánh dấu bước tiến đột phá trong việc mang đến không khí lý tưởng dành riêng cho người Việt.
 - Hợp tác với nhiều cái tên lớn về thể thao điện tử như GAM Esports, Flash, FPT đang cho thấy những bước đi chiến lược trong việc thúc đẩy và xây dựng chiến lược dài hạn.
 - Chuyên gia an ninh mạng Ngô Minh Hiếu (Hiếu PC) vừa đăng đàn cảnh báo thông tin sai sự thật mà chính anh là nạn nhân.
@@ -3004,5 +3007,4 @@
 - TTO - Hãng công nghệ Google vừa chính thức lên tiếng khẳng định quan điểm của họ sẽ không cho phép ai sử dụng công nghệ trí tuệ nhân tạo (AI) của họ vào các loại vũ khí quân sự.
 - TTO - Không chỉ luôn cài đặt HTTPS, sử dụng bộ chặn theo dõi hay chọn công cụ tìm kiếm an toàn làm mặc định, bạn có thể áp dụng thêm những cách dưới đây để kiểm soát quyền riêng tư khi online.
 - TTO - Dragon Fire Fighter, ống robot được phát triển bởi các nhà nghiên cứu từ Đại học Tohoku của Nhật Bản và Viện Công nghệ Hachinohe, có thể cân bằng trên không và phun ra tia nước đang được đánh giá cao trong việc dập tắt các đám cháy nguy hiểm.
-- TTO - Vừa qua, dịch vụ thử nghiệm DNA MyHeritage thừa nhận đã bị hacker tấn công 92 triệu tài khoản để truy cập email và mật khẩu mã hóa. Tuy nhiên, câu hỏi đặt ra là tại sao hacker lại muốn đánh cắp thông tin DNA cụ thể?
 ![life](Life.png)
