@@ -1,9 +1,17 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
-- 'Hiện đã có doanh nghiệp sẵn sàng đầu tư xây dựng nhà máy sản xuất chip tại Bạc Liêu nhưng cần tỉnh cần đáp ứng được đủ nguồn nhân lực', Chủ tịch tỉnh Bạc Liêu thông tin tại chương trình tư vấn tuyển sinh hướng nghiệp sáng 16-3.
-- Đề thi tốt nghiệp THPT năm nay sẽ có những câu hỏi phân hóa yêu cầu liên hệ giải quyết các vấn đề thực tiễn. Học sinh cần làm quen để làm tốt bài thi.
-- Chưa xác định được ngành và trường học, nhiều cô cậu học trò từ các tỉnh đã dậy sớm bắt xe đến Ngày hội tư vấn tuyển sinh hướng nghiệp ở Hà Nội để có được định hướng rõ ràng hơn trong kỳ xét tuyển sắp tới.
+- Hệ thống giáo dục Luxembourg nổi tiếng với việc giảng dạy đa ngôn ngữ, giúp học sinh thành thạo nhiều thứ tiếng.
+- Thay vì lo lắng, băn khoăn, các bạn trẻ cần trang bị cho mình kiến thức chuyên môn, kỹ năng mềm thật tốt; lựa chọn ngành nghề phù hợp với tố chất, đam mê của mình.
+- Theo hội đồng thi, điểm trung bình của bài thi đánh giá năng lực năm 2025 (kỳ thi HSA) sẽ cao hơn các năm trước. Lý do là thí sinh được lựa chọn phần thi thứ ba phát huy năng lực và sở trường cá nhân.
+- Bộ Công an sẽ có những điều chỉnh trong tuyển sinh Công an nhân dân về đơn vị sơ tuyển thí sinh, phương thức xét tuyển, nội dung bài thi đánh giá của Bộ Công an.
+- Ở rất nhiều quốc gia, những hành vi thiếu chuẩn nơi công cộng thường phải vào khuôn phép vì sự nhắc nhở của những người xung quanh.
+- 750 trẻ mầm non trên khắp TP.HCM đã có dịp tranh tài trở thành họa sĩ nhí trong cuộc thi do Trường tiểu học quốc tế song ngữ Mỹ Việt (quận Bình Tân, TP.HCM) tổ chức.
+- Trong tiết trời nắng ráo ngày 16-3, hàng vạn học sinh được nghe tư vấn tuyển sinh hướng nghiệp, trải nghiệm thực tế xe chữa cháy lưu động, điều khiển robot tự động, check-in với robot Bumblebee khổng lồ...
+- Rapper Dangrangto khuấy động Ngày hội tư vấn tuyển sinh - hướng nghiệp 2025, chúc các tân sinh viên tương lai thi thật tốt và chớ thấy sóng cả mà ngã tay chèo.
+- 'Hiện đã có doanh nghiệp sẵn sàng đầu tư xây dựng nhà máy sản xuất chip tại Bạc Liêu nhưng tỉnh cần đáp ứng được đủ nguồn nhân lực', chủ tịch tỉnh Bạc Liêu thông tin tại chương trình tư vấn tuyển sinh hướng nghiệp sáng 16-3.
+- Thông tin được đại diện tuyển sinh các trường đưa ra trong Ngày hội tư vấn tuyển sinh - hướng nghiệp 2025 đang diễn ra tại Đại học Bách khoa Hà Nội.
+- Chưa xác định được ngành và trường học, nhiều cô cậu học trò từ các tỉnh đã dậy sớm bắt xe đến ngày hội tư vấn tuyển sinh hướng nghiệp ở Hà Nội để có được định hướng rõ ràng hơn trong kỳ xét tuyển sắp tới.
 - Ngày 15-3, chương trình tư vấn tuyển sinh - hướng nghiệp 2025 tại Trường THPT Trần Văn Thời (Cà Mau) thu hút hàng ngàn học sinh tham dự.
 - Sáng 16-3, Ngày hội tư vấn tuyển sinh - hướng nghiệp 2025 diễn ra tại khuôn viên Đại học Bách khoa Hà Nội. Đây là ngày hội quy mô lớn nhất từ trước tới nay với gần 300 khu tư vấn của hơn 100 cơ sở đào tạo trong và ngoài nước.
 - Việc thí điểm học 5 ngày/tuần nhằm tạo điều kiện thuận lợi cho học sinh phát triển toàn diện, đồng thời đồng bộ lịch làm việc của cán bộ, công chức, cơ quan quản lý giáo dục...
@@ -996,16 +1004,39 @@ Trường đại học Văn Lang được QS xếp hạng top 51-100 thế giớ
 - Hiện nay giáo viên đang chịu nhiều áp lực về tài chính, các hoạt động chuyên môn, nhưng áp lực lớn nhất đến từ phụ huynh học sinh.
 - Tiết học của cô Oanh nhen nhóm cho học sinh đam mê tìm tòi, khơi gợi các em hướng khởi nghiệp ngay trên quê nhà.
 - Báo Tuổi Trẻ và Quỹ hỗ trợ xây dựng môi trường xanh Việt Nam sẽ gửi tặng học bổng cho 100 học sinh khó khăn tại huyện Bát Xát (Lào Cai).
-- Nhiều phụ huynh Trường THCS Nguyễn Chánh (Quảng Ngãi) phản ảnh 960 học sinh khám trong 450 phút (chưa đến 30 giây/học sinh)!
-- Năm 2024, ngành giáo dục và đào tạo tỉnh Thanh Hóa đã có nhiều chuyển biến mới, tạo đà cho công tác dạy và học năm học 2024-2025.
-- Trong số 50 nhà giáo nhận giải thưởng Võ Trường Toản năm nay, có 2 người là trưởng phòng giáo dục và đào tạo.
-- Đại học Đà Nẵng sẽ có thêm trường đại học quốc tế trên cơ sở phát triển từ Viện Nghiên cứu và Đào tạo Việt - Anh.
-- Ngày 18-11, các trường học tại New Delhi của Ấn Độ đã chuyển sang học trực tuyến vì tình trạng ô nhiễm không khí ngày càng trầm trọng.
-- Tổng Bí thư Tô Lâm chỉ rõ một số hạn chế của giáo dục, đào tạo kéo dài nhiều năm chưa giải quyết dứt điểm.
-- Quỹ VinFuture chính thức công bố lịch trình Tuần lễ Khoa học công nghệ và lễ trao giải VinFuture 2024 diễn ra từ ngày 4 đến 7-12 tại Hà Nội.
-- Chuyện thầy hiệu trưởng xin đổi hoa 20-11 thành học cụ là một cách mời gọi các nhà quản lý, thầy cô giáo hướng đến tinh thần vì học sinh.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Sáng 17-3, lãnh đạo Phòng cảnh sát giao thông Công an Đà Nẵng cho biết đã giao cho đội nghiệp vụ tiến hành xác minh, xử lý theo đúng quy định liên quan đến đoạn clip trên mạng xã hội ghi lại cảnh đoàn siêu xe vượt đèn đỏ trên địa bàn.
+- Ghi nhận tại một số địa phương, chính quyền, người dân, du khách đã thấy những giá trị lớn của quảng trường trong kết cấu đô thị. Từ đó, có địa phương còn tính đến chuyện xây dựng thêm quảng trường.
+- Ngày 17-3, liên quan vụ nữ tài xế lái ô tô Mercedes tông 10 xe máy ở ngã tư Thủ Đức, TP.HCM, lực lượng chức năng phát hiện trên xe có lá thư viết tay với nội dung tiêu cực.
+- Hà Nội chuẩn bị dỡ bỏ tòa nhà "hàm cá mập" để mở rộng quảng trường Đông Kinh Nghĩa Thục, di dời 11 trụ sở cơ quan quanh hồ Gươm để cải tạo không gian đô thị.
+- Trước quảng cáo 'lọc máu giúp phòng ngừa đột quỵ, loại bỏ độc chất', Sở Y tế TP.HCM đã mời các chuyên gia thảo luận và khẳng định quảng cáo này không có cơ sở.
+- Hôm nay 17-3, thời tiết Bắc Bộ rét, có nơi rét đậm. Trung Bộ mưa rào, Nam Bộ nắng nóng.
+- Chiến thắng Kon Tum ngày 16-3-1975 trên chiến trường Tây Nguyên đã cổ vũ quân và dân ta tiến tới giải phóng hoàn toàn miền Nam, thống nhất đất nước.
+- Liên quan vụ nữ tài xế lái ô tô Mercedes tông 10 xe máy ở ngã tư Thủ Đức (TP.HCM), tối 16-3, nguồn tin của Tuổi Trẻ Online xác nhận bước đầu lực lượng chức năng xác định người này có nồng độ cồn trong người.
+- Sau hơn 3 ngày chia sẻ lên mạng xã hội, người phụ nữ ở Bắc Ninh cho hay đã tìm được ân nhân cho vay 8 chỉ vàng để chữa bệnh u máu cho con cách đây 20 năm.
+- Làm việc với cảnh sát giao thông, ông D. thừa nhận vừa lái xe vừa cầm điện thoại để quay cảnh vật ven đường.
+- Liên quan vụ nữ tài xế lái ô tô Mercedes tông văng 10 xe máy ở ngã tư Thủ Đức (TP.HCM), lực lượng chức năng ban đầu xác định ô tô đi không đúng phần đường quy định gây tai nạn.
+- Cửa hàng đầu tiên của thương hiệu trà sữa Chagee đặt tại giao lộ Đồng Khởi - Nguyễn Thiệp (quận 1, TP.HCM) là nơi có mặt bằng đắt đỏ bậc nhất Việt Nam. Song việc dùng bản đồ có hình lưỡi bò phi pháp đã vấp phải làn sóng tẩy chay của người tiêu dùng.
+- Bộ trưởng Phạm Thị Thanh Trà cho hay sau Hội nghị Trung ương sẽ có một hội nghị toàn quốc để triển khai sáp nhập cấp tỉnh và sắp xếp lại cấp xã.
+- Hiện nay các tỉnh, TP cả nước chuẩn bị sáp nhập một số đơn vị cấp xã. Sở Nội vụ Khánh Hòa vừa trình UBND tỉnh xin chủ trương thuê tư vấn xây dựng đề án sắp xếp đơn vị hành chính cấp xã của tỉnh.
+- Chiều 16-3, khách sạn trên đường Hoàng Hữu Nam (TP Thủ Đức, TP.HCM) bốc cháy. Cảnh sát phòng cháy chữa cháy Công an TP.HCM đã kịp thời cứu thoát 6 người trong đám cháy.
+- Đứt dây chằng là một trong những chấn thương khá phổ biến khi chơi thể thao, tuy nhiên không phải ai cũng biết mình bị đứt dây chằng.
+- Tìm ân nhân để trả vàng mượn 20 năm trước; Bị phạt nguội  nhiều lần tới lui vẫn chưa được đóng phạt... là các vấn đề thu hút nhiều bạn đọc.
+- Ban quản lý Khu bảo tồn loài - sinh cảnh Phú Mỹ (huyện Giang Thành, tỉnh Kiên Giang) hôm nay 16-3 ghi nhận thêm 23 con sếu đầu đỏ về kiếm ăn ở vùng lõi của khu bảo tồn này.
+- Trong nửa tháng cầu Câu Lâu mới trên quốc lộ 1 ở Quảng Nam được sửa chữa đợt 2, phải cấm ô tô. Như vậy xe cộ đi đường nào?
+- Thành phố Huế sẽ nỗ lực đến hết năm 2025 xóa bỏ toàn bộ những lối đi dân sinh tự mở trên tuyến đường sắt Bắc - Nam qua địa phương này.
+- Tòa án nhân dân cấp cao tại Đà Nẵng vừa có quyết định đưa ra xét xử phúc thẩm vụ nữ giám đốc 2 doanh nghiệp ở Đà Nẵng trốn thuế với số tiền hơn 37 tỉ đồng.
+- Đây là thông tin Phó giám đốc Sở Nội vụ TP.HCM Nguyễn Bắc Nam nêu ra khi được hỏi về những chính sách hỗ trợ cán bộ, công chức, người lao động dôi dư khi sắp xếp bộ máy.
+- Người dân xúm kéo nạn nhân mắc kẹt trong vụ tai nạn liên hoàn giữa 4 ô tô ở huyện Krông Nô (tỉnh Đắk Nông).
+- Lực lượng Vùng Cảnh sát biển 4 vừa kịp thời cứu hai ngư dân trôi trên biển. Sức khỏe hai ngư dân hiện ổn định.
+- Cựu binh Mỹ Mike Boehm đã bay nửa vòng trái đất về Khu chứng tích Sơn Mỹ kéo khúc vĩ cầm dưới chân tượng đài để tưởng nhớ 504 thường dân vô tội bị thảm sát cách đây 57 năm.
+- Chuyên gia cho rằng khi sáp nhập tỉnh thành, việc chọn tên sẽ theo nhiều tiêu chí nhưng có thể nghiên cứu lấy tên một tỉnh, thành hiện có để chọn làm tên mới.
+- Ở rất nhiều quốc gia, những hành vi thiếu chuẩn nơi công cộng thường phải vào khuôn phép vì sự nhắc nhở của những người xung quanh.
+- Trong quá trình sắp xếp tinh gọn bộ máy, nhiều cử tri TP.HCM quan tâm đến việc hồ sơ thủ tục có phải điều chỉnh lại hay không.
+- Khu đất cảng Trường Thọ, nông trường dừa và một nhà máy ở Thủ Đức (TP.HCM) dự kiến được đấu giá trong năm 2025 để làm mô hình đô thị nén TOD.
+- Tuần này thời tiết Nam Bộ vẫn duy trì nắng đến nắng nóng, Bắc Bộ rét còn Trung Bộ có mưa.
+- Do bận việc không đi đóng phạt được, sau đó ông Th. đi đóng phạt nguội tại địa phương thì bị từ chối và được hướng dẫn phải đến địa phương vi phạm để đóng phạt.
 - Khi cán bộ cấp xã thêm việc, thêm nhiệm vụ, làm sao để đảm đương công việc hiệu quả, giúp ích cho dân hơn trên tinh thần tinh gọn?
 - Hôm nay 16-3, thời tiết Bắc Bộ chuyển rét, Trung Bộ có nơi mưa to, còn Nam Bộ trời nắng, nhiều nơi nắng nóng.
 - Hơn 28 triệu đồng/tháng là mức thu nhập bình quân của mỗi nhân viên Công ty cổ phần Bến xe Miền Tây trong năm vừa qua, tăng gần 11% so với năm 2023.
@@ -1975,39 +2006,9 @@ Trường đại học Văn Lang được QS xếp hạng top 51-100 thế giớ
 - 6 thứ trưởng Bộ Nông nghiệp và Phát triển nông thôn và 4 thứ trưởng Bộ Tài Nguyên và Môi trường tham gia Ban Chấp hành, Ban Thường vụ Đảng bộ Bộ Nông nghiệp và Môi trường.
 - Sáng 25-2, Phó chủ tịch UBND TP.HCM Bùi Xuân Cường tham dự hội thảo quản lý phát triển TP.HCM theo mô hình giao thông công cộng nhanh sức chở lớn TOD.
 - Mạng xã hội chia sẻ clip ghi lại sự việc một cô gái bị té ngã khi vừa lái xe đạp vừa cầm dù che mưa. Theo quy định, hành vi này bị xử phạt ra sao?
-- Liên quan đến vụ cháy lớn tại tiệm bánh kem trên đường Nguyễn Thái Học, quận 1, TP.HCM, hiện còn 2 trẻ đang thở máy tại Bệnh viện Nhi đồng 1 (TP.HCM).
-- Loạt cột điện dọc đường Dương Quảng Hàm, quận Gò Vấp (TP.HCM) sẽ được ngầm hóa, di dời xong vào cuối tháng 3.
-- Thủ tướng Phạm Minh Chính yêu cầu cần tập trung xử lý các dự án tồn đọng, vướng mắc về đất đai nhằm giải phóng nguồn lực cho phát triển.
-- Mưa trái mùa sẽ giảm ở TP.HCM và Nam Bộ từ nay tới cuối tháng, trời nắng tốt, nhiều nơi nắng nóng.
-- Ngày 25-2, Công an tỉnh Bình Thuận công bố, trao quyết định nghỉ công tác hưởng chế độ hưu trí đối với 23 cán bộ là lãnh đạo cấp phòng, công an cấp huyện.
-- Sáng 25-2, tại Hà Nội, Tổng Bí thư Tô Lâm dự, chúc mừng lễ khánh thành hai tòa nhà của Bệnh viện Trung ương Quân đội 108. Công trình góp phần nâng cao chất lượng khám, chữa bệnh cho cán bộ cấp cao và nhân dân.
-- Sáng 25-2, TP.HCM tổ chức lễ kỷ niệm 70 năm Ngày Thầy thuốc Việt Nam, đón nhận các danh hiệu thi đua, hình thức khen thưởng cấp nhà nước của ngành y tế TP.HCM.
-- HĐND TP Hà Nội quyết nghị miễn nhiệm chức vụ phó chủ tịch UBND TP Hà Nội với ông Hà Minh Hải.
-- Bà Lê Thị Thúy Sen - vụ trưởng Vụ Truyền thông Ngân hàng Nhà nước, tác giả cuốn truyện tranh Khéo khôn với tiền - được điều động, bổ nhiệm làm tổng biên tập Thời báo Ngân Hàng từ ngày 1-3.
-- HĐND TP Hà Nội quyết nghị bổ sung danh mục các dự án thu hồi đất năm 2025 tại 8 quận, huyện, thị xã với tổng diện tích 772,5ha để xây nhiều khu đô thị cao cấp, nhà ở tập trung.
-- Bà Virginia Mary Lockett, một chuyên gia vật lý trị liệu người Mỹ, đã đón nhận Huân chương Hữu nghị tại lễ kỷ niệm 70 năm Ngày Thầy thuốc Việt Nam.
-- Sáng 25-2, Bộ Tư lệnh TP.HCM tổ chức lễ ra quân huấn luyện năm 2025 và phát động đợt thi đua cao điểm “Thần tốc - Quyết thắng”, làm trước cho toàn quân.
-- Rất nhiều con kênh ở TP.HCM ngập rác. Bạn đọc đề nghị cần xử lý thật nặng hành vi vứt rác bừa bãi để cứu những con kênh này trở lại trong xanh.
-- Sáng 25-2, với đa số đại biểu tán thành, HĐND TP Hà Nội đã thông qua nghị quyết phê duyệt chủ trương đầu tư, điều chỉnh chủ trương đầu tư một số dự án đầu tư công của TP, trong đó có 3 cây cầu Trần Hưng Đạo, Ngọc Hồi và Tứ Liên.
-- Ông Nguyễn Ngọc Cảnh, phó chủ tịch Ủy ban Quản lý vốn nhà nước - được điều động, bổ nhiệm làm phó thống đốc Ngân hàng Nhà nước, từ 1-3.
-- Hà Nội là địa phương có số đơn vị cấp huyện nhiều nhất cả nước với 30 đơn vị. Tiếp đó là Thanh Hóa, TP.HCM. Hà Nam là tỉnh có số cấp huyện ít nhất.
-- Ông H. và bà T. ở Hà Tĩnh nhận cuộc gọi từ kẻ lạ thông báo sim điện thoại đang sử dụng kêu gọi từ thiện với số tiền lớn, yêu cầu hai ông bà chuyển tiền vào tài khoản kẻ lạ nếu không sẽ phải đến công an làm việc.
-- Trong số 5 trưởng các ban, đơn vị thuộc Trung ương Hội Nông dân Việt Nam có đơn tự nguyện xin nghỉ hưu trước tuổi, có một trưởng ban còn 10 năm công tác.
-- Trong khi một số ít bệnh viện quận huyện chậm bứt phá, đã có nhiều bệnh viện nỗ lực chuyển mình.
-- Bệnh viện tuyến dưới - đó là từ người ta hay ngần ngại mỗi khi phải đi bệnh viện. Họ ngại chuyên môn y bác sĩ, ngại cơ sở vật chất, nhỡ đâu bệnh không chữa được lại thêm phiền.
-- Sáng 25-2, với 100% đại biểu có mặt tán thành, HĐND TP Hà Nội đã thông qua nghị quyết về việc thành lập, tổ chức lại các cơ quan chuyên môn và tổ chức hành chính thuộc UBND TP.
-- Từ khu vực nhà ga đi, ga đến, thậm chí cả lối vào nhà vệ sinh hay khu vực giữ xe ở sân bay Tân Sơn Nhất, hàng quán mọc lên như nấm. Một tô phở bò tại hệ thống Big Bowl từ 88.000 - 138.000 đồng, phở bò Wagyu 274.000 - 333.000 đồng/tô.
-- Ông Hoàng Phú Hiền và ông Phùng Thành Vinh được bầu giữ chức phó chủ tịch UBND tỉnh Nghệ An nhiệm kỳ 2021-2026.
-- Ngày 25-2, một lãnh đạo UBND xã Quang Vĩnh (huyện Đức Thọ, Hà Tĩnh) cho biết một công dân trên địa bàn vừa bị UBND tỉnh Hà Tĩnh ra quyết định xử phạt hành chính số tiền 62,5 triệu đồng vì không chấp hành lệnh gọi nhập ngũ.
-- UBND TP Đà Nẵng vừa công khai danh mục các khu đất, lô đất cho thuê ngắn hạn trên địa bàn. Theo đó, thành phố cho thuê đất đối với 11 khu đất, mục đích sử dụng là đất công trình giao thông (bãi đỗ xe).
-- Thầy thuốc nhân dân Bạch Văn Cam hiện đã 77 tuổi nhưng vẫn tiếp tục cống hiến giành lại sự sống cho những bệnh nhi nặng. Thầy còn đào tạo đội ngũ y, bác sĩ nhi khoa trên cả nước để những bệnh nhi ở các vùng xa không bị thiệt thòi trong điều trị.
-- Chính phủ vừa ban hành nghị định số 28 quy định chức năng, nhiệm vụ, quyền hạn và cơ cấu tổ chức của Bộ Ngoại giao.
-- Đây là một trong các vụ án ở Đồng Nai được Ban Chỉ đạo trung ương về phòng chống tham nhũng, tiêu cực đưa vào diện theo dõi, chỉ đạo.
-- Chính phủ vừa ban hành nghị định số 30 quy định tiêu chí xác định người lao động có thu nhập thấp thuộc Chương trình mục tiêu quốc gia giảm nghèo bền vững giai đoạn 2021 - 2025.
-- Một số tin tức đáng chú ý: Tháng Công nhân 2025 có những hoạt động mới gì?; Đề xuất tháo gỡ khó khăn cho 5 dự án ở TP.HCM; Tổng giá trị trái phiếu riêng lẻ đáo hạn năm 2025 là khoảng 203.000 tỉ đồng, tăng 8,5% so với cùng kỳ.
-- Hôm nay 25-2, thời tiết cả nước có mưa dông, nhiều nơi mưa to, riêng miền Bắc trời lạnh đến rét.
 ![New](News.png)
 ## Nhịp sống số 
+- 253 tài năng trẻ thiết kế đồ họa trong cả nước đang tranh tài giành tấm vé ở Cuộc thi Vô địch thiết kế đồ họa thế giới (ACP) 2025.
 - Apple đang lên kế hoạch bổ sung tính năng mới cho AirPods, cho phép tai nghe dịch trực tiếp các cuộc hội thoại sang một ngôn ngữ khác.
 - Daikin Vietnam vừa cho ra mắt dòng điều hòa mới, đánh dấu bước tiến đột phá trong việc mang đến không khí lý tưởng dành riêng cho người Việt.
 - Hợp tác với nhiều cái tên lớn về thể thao điện tử như GAM Esports, Flash, FPT đang cho thấy những bước đi chiến lược trong việc thúc đẩy và xây dựng chiến lược dài hạn.
@@ -3006,5 +3007,4 @@ Trường đại học Văn Lang được QS xếp hạng top 51-100 thế giớ
 - TTO - Mỹ lại vừa vượt qua Trung Quốc, giành lại ngôi số một trong cuộc đua chế tạo siêu máy tính nhanh nhất thế giới.
 - TTO - Hãng công nghệ Google vừa chính thức lên tiếng khẳng định quan điểm của họ sẽ không cho phép ai sử dụng công nghệ trí tuệ nhân tạo (AI) của họ vào các loại vũ khí quân sự.
 - TTO - Không chỉ luôn cài đặt HTTPS, sử dụng bộ chặn theo dõi hay chọn công cụ tìm kiếm an toàn làm mặc định, bạn có thể áp dụng thêm những cách dưới đây để kiểm soát quyền riêng tư khi online.
-- TTO - Dragon Fire Fighter, ống robot được phát triển bởi các nhà nghiên cứu từ Đại học Tohoku của Nhật Bản và Viện Công nghệ Hachinohe, có thể cân bằng trên không và phun ra tia nước đang được đánh giá cao trong việc dập tắt các đám cháy nguy hiểm.
 ![life](Life.png)
