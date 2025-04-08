@@ -1,6 +1,10 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- "Con tôi đã đóng học phí theo quy định nhưng vẫn phải đóng tiền học buổi hai. Cùng một chương trình học, như thế là phải đóng tiền hai lần không?".
+- Việc các trường học ở TP.HCM tổ chức thi học kỳ 2 sớm, từ ngày 8-4, đã dấy lên tranh luận của nhiều phụ huynh.
+- Ngành y ở Nhật Bản nổi bật với độ khó vào cao, chi phí học tập không nhỏ. Hãy tìm hiểu cách các sinh viên vượt qua thử thách này và những tài liệu không thể thiếu cho tân sinh viên ngành y.
+- Trương Thanh Xuân, nữ sinh duy nhất được chọn vào đội tuyển quốc gia dự thi Olympic Toán học quốc tế (IMO), chia sẻ không thức khuya, không "cày đề" mà tìm kiếm "linh hồn", ý tưởng trong từng đề bài.
 - Từ tối ưu hóa bán dẫn, xử lý khí thải đến bao bì tan trong nước và nuôi cua bằng robot, nhiều công trình được giới chuyên môn đánh giá rất cao về tính thực tiễn trong Giải thưởng Sáng tạo TP.HCM năm 2025.
 - Thi vào khoa y tại Nhật không chỉ yêu cầu điểm cao mà còn đòi hỏi sự chuẩn bị kỹ lưỡng môn tiếng Nhật, toán và các môn tự nhiên.
 - Chiều 6-4, tại buổi họp báo Chính phủ thường kỳ, Thứ trưởng thường trực Bộ Giáo dục và Đào tạo Phạm Ngọc Thưởng đã thông tin chính thức về việc "học sinh cấp THCS, THPT sẽ phải học 2 buổi/ngày" được dư luận quan tâm nhiều trong thời gian qua.
@@ -1000,12 +1004,41 @@ Trường đại học Văn Lang được QS xếp hạng top 51-100 thế giớ
 - Nhiều chuyên gia kiến nghị cần phải phối hợp các cơ quan khác nhau, thực hiện các biện pháp pháp lý, đặc biệt ứng dụng công nghệ blockchain, AI để xác định vi phạm sở hữu trí tuệ.
 - 150 trường đại học, các tổ chức giáo dục và kiểm định chất lượng của Việt Nam và các nước ASEAN họp hội nghị bàn về đảm bảo chất lượng giáo dục đại học.
 - Không mặc đồng phục, không đeo phù hiệu nhưng học sinh vẫn dễ dàng điểm danh nhờ phần mềm 'nhà làm' của trường.
-- UBND TP.HCM tiếp tục chính sách đặc thù hỗ trợ học phí năm học 2024-2025, với mức hỗ trợ từ 30.000 - 60.000 đồng/tháng theo từng khu vực.
-- Xét thấy hoàn cảnh đặc biệt khó khăn của Nguyễn Ngọc Như Uyên, hiệu trưởng Trường đại học Công nghiệp TP.HCM quyết định miễn toàn bộ học phí cho sinh viên là 'đôi mắt sáng' của cha mẹ mù này.
-- Kế hoạch ứng dụng bộ sách giáo khoa điện tử tích hợp công nghệ trí tuệ nhân tạo (AI) của Hàn Quốc đang gặp khó do vướng tranh cãi từ các giáo viên, phụ huynh...
-- Nhằm giúp tiết học trở nên sinh động, các giáo viên Trường tiểu học Tân Quới 2 (huyện Thanh Bình, tỉnh Đồng Tháp) đã tự bỏ tiền túi mua tivi giảng dạy cho học sinh.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Thông tin từ Thảo cầm viên Sài Gòn cho biết tối 10-4, đơn vị sẽ tiếp nhận sếu đầu đỏ từ Thái Lan về chăm sóc trước khi thả ra Vườn Quốc gia Tràm Chim, Đồng Tháp.
+- Quý 1- 2025 chứng kiến con số kỷ lục chưa từng có trong lịch sử du lịch Việt Nam.
+- Thị trường xe máy đang điều chỉnh giá tăng đáng kể trong tháng 4-2025, tập trung chủ yếu ở các mẫu xe tay ga của Honda và Yamaha. Ngoài ra, giá xe máy giữa các đại lý bán ra cũng có sự chênh lệch nhất định, đi kèm quà tặng thu hút khách mua.
+- Vụ lật xe khách xảy ra trên quốc lộ 19C đoạn qua huyện Tuy Phước (Bình Định) làm 1 người chết, nhiều người bị thương.
+- Bộ Xây dựng kiến nghị lãnh đạo Chính phủ chấp thuận chủ trương bố trí nguồn vốn tăng thu ngân sách trung ương năm 2024 để mở rộng 83km cao tốc Nội Bài - Lào Cai lên 4 làn xe hoàn chỉnh.
+- Tin tức đáng chú ý: Thủ tướng yêu cầu gỡ dứt điểm vướng mắc dự án ngăn triều 10.000 tỉ ở TP.HCM; Cảnh sát giao thông dùng flycam ghi hình xe vi phạm; Cứu cụ ông bị rắn hổ đất cắn...
+- Hôm nay 8-4, thời tiết miền Bắc nóng ẩm kèm mưa, miền Nam lại nóng bức với nền nhiệt ban ngày cao tới 36 độ C.
+- Sau khoảng 1 tuần thực hiện nhiệm vụ tại Myanmar, đoàn đã độc lập đưa được 7 thi thể nạn nhân bị mắc kẹt trong các tòa nhà bị đổ sập để bàn giao cho gia đình.
+- Nghiên cứu thêm giải pháp hỗ trợ doanh nghiệp căn cứ các kết quả đàm phán, bao gồm việc nghiên cứu chính sách thuế, phí, lệ phí, giảm lãi suất.
+- Một doanh nghiệp bất động sản cho biết do một số nguyên nhân khó khăn nên chậm thanh toán số nợ lãi trái phiếu gần 5 tỉ đồng.
+- Đàn cò nhạn hàng trăm con xuất hiện ở đồng ruộng và gần nhà dân trong một tháng qua, tuy nhiên đông nhất trong khoảng 3 ngày qua.
+- Nha Trang vừa thông báo 'UBND TP Nha Trang không có thẩm quyền và không yêu cầu' dừng, tạm dừng, không giải quyết các thủ tục đăng ký biến động đất đai.
+- Chiều 7-4, xe cộ đông đúc đổ dồn về TP.HCM sau kỳ nghỉ lễ, cao tốc TP.HCM - Long Thành - Dầu Giây ùn ứ nghiêm trọng.
+- Chiếc xe Lexus đang di chuyển trên đường ở Sơn La thì lao lên vỉa hè rồi tông vào một người đi bộ và một chiếc xe máy điện.
+- Trong bối cảnh khí tượng thay đổi thất thường, xe cộ ngày càng tăng... TP.HCM đang đối mặt với thách thức ô nhiễm không khí.
+- Đà Nẵng đang triển khai hàng loạt dự án đình đám như cảng Liên Chiểu, Nobu Residences, New Town, FPT… Vậy tiến độ các dự án đang như thế nào?
+- Dự thảo Bộ luật Hình sự sửa đổi, Bộ Công an đề xuất bổ sung 27 tội dù chỉ chuẩn bị phạm tội vẫn bị xử lý hình sự, trong đó có sản xuất hàng giả là thực phẩm.
+- Lực lượng biên phòng Hải Phòng đã nhanh chóng cứu 4 thuyền viên gặp nạn trên vùng biển Cát Bà (Hải Phòng).
+- Trong năm 2024 và 3 tháng đầu năm 2025, trên địa bàn Đội cảnh sát giao thông An Sương quản lý đã xảy ra 4 vụ tai nạn giao thông liên quan đến người đi bộ, làm 3 người chết.
+- Người nổi tiếng quảng cáo sai sự thật sẽ gây ra nhiều thiệt hại cho xã hội, cho người tiêu dùng, vì vậy cần xử phạt nghiêm khắc hơn so với các trường hợp vi phạm khác.
+- Khi đi trên đường dọc kênh Phú Ninh, nam thanh niên bị ngã xe, rơi xuống kênh, bị trôi nhưng may mắn được lực lượng công an phát hiện và cứu sống.
+- Dịp giỗ Tổ Hùng Vương, đông đảo bạn trẻ và du khách trong lẫn ngoài nước đã đổ về Bảo tàng tranh 3D Đà Nẵng - nơi được xem là bảo tàng tranh 3D lớn nhất Việt Nam.
+- Vụ việc kẹo rau củ Kera bị thu hồi, kết quả kiểm nghiệm sản phẩm không đúng như hồ sơ tự công bố... khiến nhiều người đặt câu hỏi: Tại sao sản phẩm có thành phần công bố không đúng lại được phép đưa ra thị trường?
+- Ngày 7-4, Thủ tướng Phạm Minh Chính đã dẫn đầu đoàn đại biểu Việt Nam viếng và dự lễ truy điệu  nguyên Chủ tịch Đảng Nhân dân cách mạng Lào, nguyên Chủ tịch nước Lào Khamtay Siphandone.
+- Ý kiến góp ý về đề xuất của Bộ Công an bỏ phạt tử hình, thay bằng phạt tù chung thân không xét giảm án với tội tham ô tài sản, nhận hối lộ.
+- Gần 100 con cò nhạn quý hiếm được phát hiện ở TP Huế. Kiểm lâm địa phương này đã lập tức lên kế hoạch bảo vệ.
+- Tỉnh Bà Rịa - Vũng Tàu đang triển khai các bước để sắp xếp lại đơn vị hành chính cấp xã. Tên gọi các xã, phường của tỉnh này sẽ được đặt theo hướng nào?
+- Dự án đường cao tốc Gia Nghĩa - Chơn Thành có thể áp dụng lựa chọn nhà đầu tư trong trường hợp đặc biệt thay cho hình thức đấu thầu rộng rãi trong nước mà không phải điều chỉnh chủ trương đầu tư.
+- Nhiều bạn đọc bày tỏ mong muốn cơ quan chức năng có giải pháp để việc đóng tiền thu gom, vận chuyển rác thuận tiện như đóng tiền điện, nước.
+- Đắk Lắk xuống biển Phú Yên có nhiều tuyến đường, nhưng tuyến huyết mạch và ngắn nhất là quốc lộ 29 lại khá nhỏ hẹp, xuống cấp, đang được đề xuất mở rộng, nâng cấp.
+- Theo cơ quan bảo hiểm, viên chức làm việc tại các đơn vị sự nghiệp chưa đủ điều kiện hưởng lương hưu sẽ được hưởng bảo hiểm thất nghiệp.
+- Liên quan đến nghi án mẹ giết con trục lợi bảo hiểm, trước đó công an làm việc với người livestream trên TikTok không đúng sự thật về vụ việc và chỉ nhắc nhở, không xử phạt.
+- Trong mưa xuân lất phất, dòng người trật tự, thành kính nối tiếp nhau lên các đền thờ Vua Hùng dâng lễ giỗ Tổ sáng 7-4.
 - Sáng nay 7-4, người dân TP.HCM đi qua khu vực bến Bạch Đằng thích thú với dàn pháo lễ được đặt ngay ngắn tại đây để chuẩn bị cho dịp đại lễ 30-4.
 - Thủ tướng Phạm Minh Chính vừa ký công điện số 33/CĐ-TTg về việc tổ chức lễ khởi công, khánh thành các công trình, dự án trọng điểm quốc gia và các công trình chào mừng 50 năm Giải phóng miền Nam, thống nhất đất nước.
 - Chủ tịch nước Lương Cường cùng một số lãnh đạo Đảng, Nhà nước và tỉnh Phú Thọ đã kính cẩn thực hiện nghi lễ dâng hương Quốc Tổ trong ngày giỗ Tổ Hùng Vương tại Đền Hùng, tỉnh Phú Thọ.
@@ -1973,39 +2006,6 @@ Trường đại học Văn Lang được QS xếp hạng top 51-100 thế giớ
 - Hà Nội dự kiến sẽ đặt km0 tại trung tâm sân Khánh tiết, trước khu vực vườn hoa Lý Thái Tổ (quận Hoàn Kiếm, Hà Nội).
 - Trong lúc lái xe, tài xế xe khách vừa lái xe vừa dùng điện thoại chơi game khiến hành khách và người dân bức xúc.
 - Căn nhà 6 tầng trong ngõ xảy ra hỏa hoạn lúc rạng sáng 21-3. Tám người mắc kẹt được giải cứu ra ngoài an toàn, trong đó có trẻ sơ sinh.
-- Giáo sư Nguyễn Văn Tuấn đối thoại cùng Tuổi Trẻ quanh nghị quyết 57, cơ chế thu hút, sử dụng người tài trong nước và quốc tế.
-- Sáng 21-3, UBND TP.HCM tổ chức hội thảo khoa học Xây dựng Trung tâm công nghệ cao đa mục tiêu tại TP.HCM.
-- Bốn ngày trôi qua kể từ vụ tàu chìm làm 3 người mất tích, gia đình các ngư dân ở Nghệ An vẫn mong chờ một phép màu.
-- Văn phòng UBND TP ban hành thông báo chỉ đạo của Chủ tịch UBND TP Trần Sỹ Thanh tại buổi họp nghe báo cáo về việc cải tạo sông Tô Lịch.
-- Sáng 21-3, Hạt Kiểm lâm huyện Tuy Phong, tỉnh Bình Thuận cho biết đã dập tắt đám cháy xảy ra trên núi Tàu, xã Phước Thể, huyện Tuy Phong.
-- Giao hàng cho khách nữ ở tỉnh Bình Dương, nam shipper xảy ra mâu thuẫn dẫn đến cãi vã, bị hai vợ chồng hành hung dẫn đến thương tích.
-- Một trong những vấn đề của kinh tế đêm TP.HCM hiện nay là sự phát triển tự phát, thiếu kiểm soát, đặc biệt là tình trạng "kinh tế vỉa hè" lộn xộn.
-- UBND quận Hoàn Kiếm (Hà Nội) đang triển khai việc lấy ý kiến dân cư với đồ án quy hoạch không gian khu vực quảng trường Đông Kinh - Nghĩa Thục.
-- Vụ tai nạn giao thông nghiêm trọng xảy ra trên quốc lộ 25, thuộc xã Suối Bạc (huyện Sơn Hòa, Phú Yên) giữa 2 xe tải khiến 2 người thiệt mạng.
-- Ngư dân 'tố' nhóm bao chiếm mặt biển Tây Nam ném gạch, đá và bom xăng vào các tàu cá khi đánh bắt do không "chung chi".
-- Làm sao để không tái diễn vụ cựu bí thư Tỉnh ủy Hoàng Thị Thúy Lan giơ ngón tay trỏ bàn tay phải và được Hậu "Pháo" hối lộ 1 triệu USD?
-- Cục Phát thanh, truyền hình và thông tin điện tử đã xử phạt số tiền 140 triệu đồng với Hằng Du Mục và Quang Linh Vlogs do quảng cáo sai sự thật.
-- Một số tin tức đáng chú ý: Giá đất bị 'thổi' cao sau tin sáp nhập; Dự báo lãi suất huy động bình quân 12 tháng về 4,8% năm nay; Một sếp Tập đoàn C.E.O xin nghỉ ngay trước cuộc họp quan trọng; Bị phạt vì quảng cáo, mời chào mua cổ phiếu riêng lẻ.
-- Hôm nay 21-3, thời tiết Nam Bộ tiếp tục nắng nóng oi bức. Bắc Bộ ngày nắng nhưng đêm và sáng rét, Trung Bộ mưa rào.
-- Bé trai 5 tuổi đã phải nhập viện khẩn cấp sau khi nhét cây bút chì dài khoảng 8-10cm vào vùng hậu môn.
-- Chỉ trong thời gian ngắn, nhiều bệnh nhân tại TP.HCM đã nhập viện trong tình trạng suy hô hấp, vật vã, lơ mơ vì sử dụng ma túy "nước biển".
-- Tối 20-3, các lực lượng chức năng huyện Tuy Phong, tỉnh Bình Thuận đang túc trực khu vực núi Tàu để triển khai phương án chữa cháy.
-- Nhắc lại cuộc điện đàm giữa Tổng Bí thư Tô Lâm và Tổng thống Donald Trump khi ông vừa đắc cử, Thượng nghị sĩ Steve Daines khẳng định đây chính là thông điệp coi trọng của nhà lãnh đạo Mỹ với Việt Nam.
-- Đó là thông tin Công an TP.HCM đưa ra tại họp báo định kỳ về tình hình kinh tế - xã hội TP.HCM chiều 20-3, về chỉ đạo xử lý nghiêm cán bộ để xảy ra tình trạng "xe dù, bến cóc" tại địa phương.
-- Trưởng Ban Tổ chức Trung ương Lê Minh Hưng cho hay việc sắp xếp các tổ chức chính trị - xã hội, các hội quần chúng do Đảng, Nhà nước giao nhiệm vụ trực thuộc MTTQ Việt Nam xong trước 15-7.
-- Từ ngày 21 đến 31-3, người dân TP.HCM có thể tham gia bình chọn hoặc đề cử 50 sự kiện nổi bật trong suốt chiều dài lịch sử 50 năm.
-- Bộ Công Thương cho biết vừa tổ chức hội nghị giao ban và trao các quyết định về công tác cán bộ, do bộ trưởng Bộ Công Thương chủ trì.
-- Thủ tướng Phạm Minh Chính đánh giá cao, hoan nghênh những nỗ lực của tỉnh Bà Rịa - Vũng Tàu, các nhà thầu thi công cao tốc Biên Hòa - Vũng Tàu.
-- Việc tỉnh Bình Dương đấu thầu tìm nhà đầu tư làm đường vành đai 4 TP.HCM là một bước tiến mới, trong hành trình triển khai dự án đặc biệt quan trọng của vùng Đông Nam Bộ.
-- Đây là thông tin Phó giám đốc Sở Nội vụ TP.HCM Nguyễn Bắc Nam nêu ra khi thông tin về các chế độ, chính sách hỗ trợ cán bộ, công chức khi sắp xếp, tinh gọn bộ máy.
-- Quận Bình Thạnh (TP.HCM) đã có một số cách chấn chỉnh tình trạng lấn chiếm lòng đường, vỉa hè. Dù có phần nào thay đổi nhưng thực tế vẫn còn những tồn tại, tái diễn khi lực lượng chức năng rút đi.
-- Bộ Nội vụ nhấn mạnh nghiêm cấm chiếm giữ, chuyển giao, hủy trái phép, làm hỏng, thất lạc tài liệu, cơ sở dữ liệu tài liệu trong quá trình sắp xếp bộ máy.
-- 5 phường thuộc quận 3 (TP.HCM) tăng cường tuần tra sau phản ánh của Tuổi Trẻ Online về việc 'ná thủ' bắn lươn, cá trên kênh Nhiêu Lộc - Thị Nghè.
-- Bộ Quốc phòng đang dự thảo nghị định quy định đối với tàu quân sự nước ngoài đến Việt Nam và tàu quân sự Việt Nam đi nước ngoài, thay thế nghị định số 104 của Chính phủ ban hành ngày 5-12-2012.
-- Chiều 20-3, Thủ tướng Phạm Minh Chính đã tiếp đại diện một số nhà đầu tư trực tiếp nước ngoài lớn tại Việt Nam, với tổng số vốn đầu tư lên đến hàng chục tỉ USD. Công ty Hồ Tràm là một trong số đó.
-- Tập đoàn Vingroup đề xuất đầu tư dự án đường sắt đô thị nối trung tâm TP.HCM với huyện Cần Giờ trong vòng 3 năm (từ 2025-2028).
-- Bộ Ngoại giao Việt Nam cho biết nhiều dự án hợp tác giữa Việt Nam và Mỹ đang tiếp tục được triển khai hoặc khởi động lại, trong đó có dự án rà phá bom mìn.
-- UBND thành phố Quy Nhơn (Bình Định) vừa có báo cáo phương án sắp xếp các đơn vị hành chính cấp xã trên địa bàn thành phố khi bỏ chính quyền cấp huyện.
 ![New](News.png)
 ## Nhịp sống số 
 - Theo nguồn tin đáng tin cậy, tin tặc đã đánh cắp tiền tiết kiệm từ một số thành viên của quỹ hưu trí lớn nhất Úc, và xâm phạm hơn 20.000 tài khoản.
