@@ -1,6 +1,8 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Tới trường đón con nghi sau khi đã có uống rượu, phụ huynh hành hung, túm tóc cô giáo ở Nghệ An và bắt cô đứng giữa mưa.
+- Một nhóm học sinh khởi nghiệp khiến nhiều người bất ngờ khi đưa hạt K'nia, loại hạt đặc trưng của núi rừng Đắk Lắk, Tây Nguyên ra thị trường nhằm lan tỏa thông điệp bảo vệ rừng, phát triển cộng đồng.
 - Sau quá trình kiểm tra, Bộ Giáo dục và Đào tạo quyết định hủy kết quả đạt giải nhất và thu hồi giải thưởng, giấy chứng nhận đạt giải của dự án "Hệ thống phân loại rác thông minh tích hợp trí tuệ nhân tạo và cảm biến âm thanh".
 - Lãnh đạo tỉnh Quảng Nam đề nghị bổ sung vào đề án sắp xếp đơn vị hành chính cấp tỉnh, trong đó điều chỉnh địa điểm quy hoạch xây dựng Làng đại học Đà Nẵng vào TP Tam Kỳ.
 - Sáng 29-4, TP.HCM đã làm lễ ra quân cho các học sinh ưu tú tham dự hai cuộc thi quốc tế Olympic toán học và khoa học kỹ thuật.
@@ -1002,10 +1004,43 @@ Trường đại học Văn Lang được QS xếp hạng top 51-100 thế giớ
 - Nhân dịp kỷ niệm 30 năm thành lập (26-4-1995 - 26-4-2025), Trường đại học Công nghệ TP.HCM (HUTECH) công bố chính sách học bổng đặc biệt.
 - Ký túc xá mới tại cơ sở 3 Trường đại học Luật TP.HCM được xây dựng với các phòng như một căn hộ thu nhỏ, có thể cho 4-6 sinh viên ở chung, có trang bị bếp, chỗ để máy giặt, máy lạnh…
 - 805 sinh viên ngành sư phạm Trường đại học Sài Gòn được chi trả sinh hoạt phí theo quy định. Trong đó có 498 sinh viên nhận hơn 127 triệu đồng/người.
-- Trường đại học Nông Lâm TP.HCM vừa công bố thông tin tuyển sinh đại học, cao đẳng năm 2025 với 5 phương thức, trong đó đối với xét điểm thi tốt nghiệp THPT và xét học bạ hầu hết tổ hợp xét tuyển đều có môn toán.
-- Ông Bạch Văn Mạnh - giám đốc Sở Nội vụ Đắk Lắk - cho biết tiếp tục đôn đốc các đơn vị, địa phương sớm thực hiện các thủ tục để chi tiền thưởng theo nghị định số 73 ngày 30-6 của Chính phủ.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Cầu Văn Lang bắc qua sông Hồng nối huyện Ba Vì (Hà Nội) với TP Việt Trì (Phú Thọ) đã bị trơ móng, lòi cọc từ tháng 1-2025 đến nay.
+- TP.HCM sẽ không trình diễn 10.500 drone vào tối nay (ngày 1-5) như kế hoạch đã thông tin trước đó.
+- Hôm nay 1-5, thời tiết Bắc Bộ mưa rào đến mưa to, Nam Bộ ngày nắng nhưng về chiều tối mưa dông vài nơi.
+- Lễ 30-4 và 1-5, khách du lịch nội địa đến Phú Quốc nhộn nhịp. Nhiều đơn vị lữ hành du lịch trong nước hôm nay khảo sát và hiến kế là cần củng cố, làm mới tour tuyến du lịch để du khách đến Phú Quốc nhiều hơn.
+- TP.HCM trình diễn chính thức 10.500 chiếc drone vào lúc 21h20 tối nay, 30-4, tại công viên bờ sông Sài Gòn.
+- Tại dự Luật sửa đổi, bổ sung một số điều của Luật Xử lý vi phạm hành chính đã đề xuất sửa đổi thời hiệu xử phạt vi phạm hành chính, mức phạt không lập biên bản.
+- Nhiều loại vũ khí, xe VF9… "made in Việt Nam" tại lễ diễu binh, diễu hành ngày 30-4 đã tạo ấn tượng với người dân.
+- Hướng dẫn chi tiết cách tính chế độ với cán bộ nghỉ hưu trước tuổi, nghỉ thôi việc khi sắp xếp bộ máy theo quy định tại nghị định 178 và 67.
+- Sau 15 năm sống chật vật trong dự án "treo", người dân khu vực tái định cư 24 hecta ở TP Gia Nghĩa, Đắk Nông vui mừng khi tỉnh dừng hoàn toàn dự án này.
+- 50 năm sau ngày thống nhất, vẫn còn những người lính vẫn kiên cường chiến đấu với vết thương chiến tranh không bao giờ lành.
+- Ngồi xem lễ mít tinh mừng 50 năm thống nhất đất nước trên tivi bên các con cháu ở Hà Nội, thiếu tá Phạm Văn Bá rưng rưng nhớ về những đồng đội đã ngã xuống cho hòa bình, và biết ơn cái ngày đã sinh ra ông một lần nữa: ngày 30-4-1975.
+- Ngày đầu của kỳ nghỉ lễ có những tín hiệu tích cực về an toàn giao thông khi số vụ tai nạn, người chết và bị thương giảm sâu. Tuy nhiên do lượng xe cộ tăng cao, tình trạng ùn tắc đã xảy ra tại các cửa ngõ Hà Nội và TP.HCM.
+- Sân bay Tân Sơn Nhất đón hơn 115.000 lượt khách ngày 30-4, tấp nập người về quê, du lịch và dự lễ 50 năm thống nhất đất nước. Công nghệ VNeID giúp làm thủ tục chuyến bay nhanh hơn.
+- Hội Kiến trúc sư tỉnh Khánh Hòa vừa mở cuộc thi tuyển phương án kiến trúc dự án xây dựng Bệnh viện Đa khoa tỉnh Khánh Hòa thành bệnh viện khu vực duyên hải Nam Trung Bộ, tại khu quy hoạch đô thị, ở xã Vĩnh Thái, TP Nha Trang.
+- Trong lúc tắm hồ thủy lợi Hóc Răm (xã Hòa Tân Tây, huyện Tây Hòa, Phú Yên) nam sinh lớp 7 bị đuối nước tử vong.
+- Dịp đại lễ 30-4 tại TP.HCM có hơn 500 đoàn viên, thanh niên tình nguyện hỗ trợ các lực lượng chức năng đảm bảo an ninh trật tự và giao thông.
+- Trưa 30-4, Tổng công ty Đường sắt Việt Nam đã long trọng tổ chức lễ đón gần 900 hành khách trên "Đoàn tàu Thống Nhất", nhân dịp kỷ niệm 50 năm Ngày Giải phóng miền Nam, thống nhất đất nước tại ga Đà Nẵng.
+- TP Vinh sẽ lấy ý kiến cử tri cho tên 6 phường mới sau sắp xếp, trong đó các phường đều có chữ 'Vinh', trừ phường Cửa Lò.
+- Chiếc tàu chở hàng T.C. chạy đến vùng biển xã Nam Du (huyện Kiên Hải, Kiên Giang) bất ngờ bốc cháy dữ dội. Vụ cháy lớn đã khiến thiệt hại nhiều tài sản nhưng rất may không ảnh hưởng đến con người.
+- Hôm nay, cựu chiến binh 81 tuổi từ Nghệ An - ông Trần Hồng Kỳ đã thỏa ước nguyện khi được xem diễu binh trực tiếp từ tòa soạn Tuổi Trẻ.
+- Đến Việt Nam vì áp lực của cha, cảm xúc từ phản đối cuộc chiến của Mỹ tại Việt Nam rồi lại luôn đau đáu làm thế nào để hàn gắn vết thương chiến tranh là câu chuyện của cựu thủy quân lục chiến Mỹ, ông Ted Hammett.
+- Trong đoàn diễu binh, diễu hành mừng 50 năm ngày đất nước thống nhất sáng 30-4, các nữ chiến sĩ luôn thu hút ánh nhìn của người dân với gương mặt sáng, vóc dáng cao ráo.
+- Cầu qua cửa Thuận An - cây cầu vượt biển dài nhất miền Trung đã chính thức được hợp long, sẵn sàng hoàn thiện để thông xe kỹ thuật vào dịp 2-9 tới.
+- Đại tá Nguyễn Thế Dũng và thượng tá Đặng Đình Kiên xúc động chia sẻ sau khi hoàn thành nhiệm vụ đặc biệt: dẫn đầu đội hình tiêm kích Su-30mk2 sáng nay 30-4.
+- Trung tâm Điều dưỡng thương binh Nghệ An trở thành mái nhà thứ hai với những thương, bệnh binh mang thương tật sau chiến tranh.
+- Từ sáng sớm tinh mơ đến gần trưa, dòng người khắp nơi như thác đổ hướng về lăng Chủ tịch Hồ Chí Minh, hân hoan, hào hùng chào mừng 50 năm Ngày Giải phóng miền Nam, thống nhất đất nước.
+- Sau lễ diễu binh, nhiều người dân TP.HCM mong chờ chương trình bắn pháo hoa vào tối nay 30-4. Dự kiến TP.HCM sẽ bắn pháo hoa tại 30 điểm dịp đại lễ.
+- Mời bạn đọc xem lại hình ảnh lịch sử của cuộc Tổng tiến công và nổi dậy mùa xuân 1975.
+- Sáng 30-4, tại di tích lịch sử quốc gia đặc biệt Đôi bờ Hiền Lương - Bến Hải, nơi một thời hội tụ đầy đủ, sinh động nhất khát vọng thống nhất đất nước, tỉnh Quảng Trị long trọng tổ chức lễ thượng cờ Thống nhất non sông.
+- Nhánh bên phải hầm số 3 trên cao tốc Quảng Ngãi - Hoài Nhơn, hầm dài nhất cao tốc Bắc - Nam (dài 3.200m) được đào thông, vượt tiến độ 6 tháng.
+- Sau vụ nổ súng dẫn đến chết người xuất phát từ vụ tai nạn giao thông ở Vĩnh Long, Bộ Công an cử tổ công tác đến kiểm tra lại hồ sơ.
+- Dù đã chuẩn bị trước nhiều phương án nhưng tình trạng ùn ứ, kẹt xe vẫn xảy ra tại khu vực cầu Rạch Miễu trong ngày 30-4 vì người dân về quê quá đông.
+- Gopro Tuổi Trẻ Online gắn trên khoang lái của tiêm kích Su-30MK2 do phi công Đặng Đình Kiên lái sáng 30-4 ghi lại những hình ảnh ấn tượng, ngoạn mục.
+- Những gì tôi thấy trên đường phố dịp 30-4 không chỉ là không khí rộn ràng. Đó là lời nhắc nhở rằng: một dân tộc đoàn kết sẽ mạnh mẽ hơn bất kỳ thử thách nào.
+- Chiều 29-4, Bộ Ngoại giao phối hợp cùng UBND TP.HCM tổ chức chuyến tham quan thực tế di tích lịch sử Đền tưởng niệm liệt sĩ Bến Dược - Địa đạo Củ Chi trong khuôn khổ Tuần lễ báo chí.
 - Sau khi hoàn tất phần diễu binh chính tại khán đài đường Lê Duẩn sáng 30-4, các khối diễu binh tiếp tục qua đường Nam Kỳ Khởi Nghĩa, phố đi bộ Nguyễn Huệ và đường Tôn Đức Thắng, trong tiếng vỗ tay từ người dân đứng hai bên đường.
 - UBND tỉnh Đắk Lắk đã ban hành đề án sắp xếp các tỉnh Đắk Lắk và Phú Yên gửi Chính phủ. Đây là đề án đã có sự thống nhất giữa hai tỉnh Phú Yên và Đắk Lắk.
 - Tuổi Trẻ Online trân trọng giới thiệu nội dung diễn văn của Tổng Bí thư Tô Lâm tại Lễ kỷ niệm 50 năm Ngày Giải phóng miền Nam, thống nhất đất nước (30-4-1975 - 30-4-2025).
@@ -1015,10 +1050,9 @@ Trường đại học Văn Lang được QS xếp hạng top 51-100 thế giớ
 - Thượng tướng Nguyễn Văn Nghĩa, phó tổng tham mưu trưởng Quân đội nhân dân Việt Nam, điều hành lễ diễu binh, diễu hành sáng 30-4 tại TP.HCM.
 - Kỷ niệm 50 năm Giải phóng miền Nam, thống nhất đất nước, lễ chào cờ và cử Quốc thiều đã được tổ chức trang nghiêm tại quảng trường Ba Đình (Hà Nội) vào sáng nay 30-4.
 - Sáng 30-4, lễ kỷ niệm cấp quốc gia 50 năm giải phóng miền Nam, thống nhất đất nước với chương trình diễu binh, diễu hành bắt đầu. Tổng Bí thư Tô Lâm và nhiều lãnh đạo cao cấp Đảng, Nhà nước và khách mời các nước bạn cùng hàng ngàn người dân tham dự.
-- Sau nhiều ngày tập luyện bài bản với quyết tâm cao độ, sáng nay các biên đội bay thuộc Không quân nhân dân Việt Nam sẽ mở đầu Cuộc diễu binh, diễu hành.
+- Sau nhiều ngày tập luyện bài bản với quyết tâm cao độ, sáng nay các biên đội bay thuộc Không quân nhân dân Việt Nam mở đầu cuộc diễu binh, diễu hành.
 - Sáng 30-4, không khí tại khu trung tâm TP.HCM nóng hừng hực, rực màu cờ đỏ với hàng vạn người dân đón chào các đoàn diễu binh, diễu hành.
 - Hôm nay 30-4, thời tiết Bắc Bộ mưa to, Nam Bộ nắng nóng, oi bức, người dân cần chú ý khi tham gia hoạt động lễ, hội ngoài trời.
-- Lúc 4h40, nhiều đại biểu, khách mời đến sớm để kiểm tra an ninh và ổn định chỗ ngồi trên khán đài. Lực lượng an ninh cũng kiểm tra, rà soát kỹ lưỡng các khán đài để đảm bảo an toàn tuyệt đối.
 - Chương trình “Sức sống Trường Sa” với hình thức chính luận nghệ thuật chào mừng kỷ niệm 50 năm giải phóng Trường Sa (29-4-1975 - 29-4-2025) gây ấn tượng mạnh với nhiều cung bậc cảm xúc.
 - Người đàn ông xông vào trường đấm, túm tóc cô giáo, bắt đứng giữa mưa ở Nghệ An bị tạm giữ hình sự.
 - Sở Nông nghiệp và Môi trường tỉnh Khánh Hòa vừa báo cáo kết quả kiểm tra, rà soát liên quan kiến nghị dỡ hàng rào bãi biển Nha Trang tại khu vực dự án 2 công ty Hoàn Cầu “con” ở sông Lô, xã Phước Đồng, TP Nha Trang.
@@ -1972,40 +2006,6 @@ Trường đại học Văn Lang được QS xếp hạng top 51-100 thế giớ
 - Các đại biểu thống nhất thông qua đề án sắp xếp đơn vị hành chính cấp xã của tỉnh Quảng Ngãi năm 2025, sau sắp xếp Quảng Ngãi giảm 67,65% số xã.
 - Chủ tịch UBND TP Biên Hòa (Đồng Nai) cho hay đang thương thảo hợp đồng với đơn vị xử lý rác, không để xảy ra tình trạng ngưng trệ việc thu gom rác.
 - Dự báo đợt nắng nóng diện rộng đầu tiên trong năm 2025 sẽ kéo dài tới khoảng ngày 22-4, riêng Nam Bộ sẽ kéo dài hơn.
-- Sáng 16-4, Đại tướng Phan Văn Giang đã dẫn đầu đoàn đại biểu cấp cao Bộ Quốc phòng Việt Nam sang Trung Quốc.
-- Trong buổi tổng hợp luyện diễu binh tại sân bay Biên Hòa sáng nay 16-4, không khí càng hào hùng hơn khi các lực lượng đã nhuần nhuyễn sau nhiều ngày tập luyện.
-- Thủ tướng Phạm Minh Chính nhấn mạnh mục tiêu chuyển từ thụ động phục vụ nhân dân sang tích cực chủ động phục vụ nhân dân, với định hướng chính quyền phải gần dân, sát dân, hiểu dân.
-- Cục Cảnh sát giao thông vừa có phương án phân luồng giao thông từ xa, giải quyết ùn tắc giao thông khu vực TP.HCM và các địa phương liên quan.
-- Từ tin báo người dân, Đoàn kinh tế - quốc phòng 337 tìm thấy 2 hài cốt liệt sĩ trong hốc đá với nhiều di vật.
-- Chuyển 100% biên chế cấp huyện hiện có để bố trí biên chế cấp xã, trong đó đội ngũ cán bộ lãnh đạo cấp huyện hiện nay được bố trí làm nòng cốt tại đơn vị cấp xã mới.
-- Chính phủ thống nhất với việc không tổ chức cơ quan điều tra của Viện Kiểm sát nhân dân tối cao theo đúng quy định của Hiến pháp.
-- Nghị quyết mới của Ủy ban Thường vụ Quốc hội quy định cách đặt tên, quy mô dân số, diện tích cấp tỉnh, xã, phường sáp nhập.
-- Chủ tịch Quốc hội Trần Thanh Mẫn cho biết bầu cử Quốc hội khóa XVI và HĐND các cấp sẽ diễn ra sớm (dự kiến 15-3-2026). Quốc hội dự kiến có 500 đại biểu.
-- Sau sáp nhập, đường từ trung tâm Sóc Trăng và Hậu Giang về trung tâm thành phố Cần Thơ chỉ khoảng 60km nhưng di chuyển mất rất nhiều thời gian và chi phí qua trạm thu phí cũng khá cao.
-- Từ nay đến 30-4, một loạt dự án giao thông trong cả nước sẽ rộn ràng khởi công, khánh thành chào mừng kỷ niệm 50 năm thống nhất đất nước.
-- Trong buổi tổng hợp luyện tại sân bay Biên Hòa trước khi hội quân về TP.HCM, Đại tướng Nguyễn Tân Cương - tổng tham mưu trưởng Quân đội nhân dân Việt Nam - trực tiếp chỉ đạo.
-- Theo đề án sắp xếp hệ thống cơ quan thanh tra, bộ máy của Thanh tra Chính phủ sẽ sắp xếp cơ sở kết thúc hoạt động 12 thanh tra bộ và 5 đơn vị cấp vụ, đồng thời hợp nhất 2 đơn vị khác.
-- Đến nay, các địa phương đã công bố xin ý kiến người dân và chuẩn bị tổ chức lại các đơn vị phường, xã. Cụ thể thế nào?
-- Trung tướng Lê Văn Tuyến, thứ trưởng Bộ Công an, cho hay qua hơn 15 năm triển khai thực hiện Luật Tương trợ tư pháp, quy định về dẫn độ đã bộc lộ một số hạn chế.
-- Sáng 16-4, hàng ngàn cán bộ, chiến sĩ bước vào buổi tổng hợp luyện diễu binh cuối cùng tại sân bay Biên Hòa (Đồng Nai).
-- Thông tin Sở Giáo dục và Đào tạo thành phố Đà Nẵng đưa môn pickleball vào trường học đã nhận về nhiều ý kiến trái chiều, khiến lãnh đạo sở phải lên tiếng giải thích thêm.
-- Liên tục xuất hiện nhiều tài khoản ẩn danh phản ánh suất ăn bán trú không đúng bản chất, lãnh đạo quận Hải Châu (TP Đà Nẵng) đã đề nghị công an vào cuộc xác minh.
-- Tuấn lập nhóm trên mạng xã hội có tên “Lan Quế Phường” có hơn 14.600 thành viên, qua đó để môi giới mại dâm. Nghi phạm đã bị các đơn vị của Công an Đà Nẵng bắt giữ để phục vụ công tác điều tra.
-- Một số tin tức đáng chú ý: Công ty Phú Tài bất ngờ thay chủ tịch; Hai ứng viên được cổ đông lớn đề cử ngồi hội đồng quản trị Vinamilk; Dành 100.000 tỉ đồng cho vay với ngành nông, lâm, thủy sản...
-- Hôm nay 16-4, thời tiết cả nước ngày nắng đến nắng nóng, riêng tại Nam Bộ ban ngày nắng nhưng về chiều tối khả năng mưa dông xuất hiện.
-- Về việc sáp nhập tỉnh Bình Dương, Bà Rịa - Vũng Tàu vào TP.HCM, Bí thư Thành ủy TP.HCM Nguyễn Văn Nên cho rằng TP.HCM đã lớn hơn, phải có tầm nhìn lớn hơn. TP.HCM phối hợp chặt chẽ với hai địa phương bàn phương hướng phát triển nhiệm kỳ mới.
-- Tối 15-4, Thành ủy TP.HCM có thông cáo báo chí liên quan phương án sắp xếp đơn vị hành chính cấp xã ở thành phố.
-- Cơ quan chức năng đang trích xuất camera truy tìm người bỏ rơi cháu bé sơ sinh trước cổng chùa Quán Âm, dẫn tới cháu bé tử vong.
-- Lễ tôn vinh 50 doanh nghiệp - đơn vị tiêu biểu có thương hiệu và sản phẩm chủ lực của TP.HCM diễn ra vào tối 15-4 tại trụ sở UBND TP.HCM.
-- Dự án đường cao tốc Dầu Giây - Tân Phú giai đoạn 1 có chiều dài 60,2km, thực hiện theo hình thức hợp đồng BOT (xây dựng - kinh doanh - chuyển giao).
-- Hàng trăm cựu chiến binh hội ngộ tại dịp kỷ niệm 50 năm giải phóng quần đảo Trường Sa.
-- Tỉnh ủy Bà Rịa - Vũng Tàu thống nhất chọn phương án 30 đơn vị hành chính cấp xã sau sắp xếp, gồm cả đặc khu Côn Đảo. Hiện tỉnh này có 77 xã, phường.
-- Bộ Nông nghiệp và Môi trường vừa ký kết với Tổng cục Hải quan Trung Quốc một số nghị định thư về xuất khẩu ớt, chanh leo, tổ yến, cám gạo sang Trung Quốc.
-- Vietnam Airlines và Vietjet sẽ chuyển một số chuyến bay sang nhà ga T3 Tân Sơn Nhất, trong khi các hãng khác vẫn hoạt động tại T1. Cục Hàng không yêu cầu sân bay thống nhất kế hoạch, bổ sung biển chỉ dẫn tránh nhầm lẫn cho hành khách vào dịp lễ 30-4.
-- Sau phản ánh của Tuổi Trẻ Online, UBND phường 13 (quận Bình Thạnh, TP.HCM) đã triển khai dọn rác tại khu vực dưới cầu đường sắt Bình Lợi mới, số lượng rác thu gom ước tính khoảng 10 tấn.
-- Chiều 15-4, Thủ tướng Phạm Minh Chính đã đón Thủ tướng Ethiopia Abiy Ahmed Ali và Phu nhân tại Phủ Chủ tịch.
-- Tỉnh Phú Yên sau sắp xếp dự kiến còn 34 đơn vị hành chính cấp xã, trong đó có 27 xã và 7 phường.
-- Từ thành công của phim Địa đạo, Bí thư Nguyễn Văn Nên đề nghị các sở ngành nghiên cứu thúc đẩy sáng tạo nghệ thuật trong tư nhân.
 ![New](News.png)
 ## Nhịp sống số 
 - Tham vọng chinh phục thế giới robot hình người của Hãng xe điện Tesla (Mỹ) đang gặp trở ngại lớn, do chính sách xuất khẩu mới nhất của Trung Quốc.
