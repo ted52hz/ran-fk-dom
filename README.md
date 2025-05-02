@@ -1,6 +1,8 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Cơ quan cảnh sát điều tra Công an TP.HCM đã ra quyết định khởi tố bị can, lệnh bắt tạm giam đối với bà Nguyễn Thị Út Em, chủ tịch hội đồng Trường quốc tế AISVN (huyện Nhà Bè, TP.HCM).
+- Cô giáo trong vụ việc bị phụ huynh đánh, túm tóc, bắt đứng giữa mưa ở Nghệ An cho hay cô đã nhận được lời xin lỗi từ gia đình phụ huynh.
 - Tới trường đón con nghi sau khi đã có uống rượu, phụ huynh hành hung, túm tóc cô giáo ở Nghệ An và bắt cô đứng giữa mưa.
 - Một nhóm học sinh khởi nghiệp khiến nhiều người bất ngờ khi đưa hạt K'nia, loại hạt đặc trưng của núi rừng Đắk Lắk, Tây Nguyên ra thị trường nhằm lan tỏa thông điệp bảo vệ rừng, phát triển cộng đồng.
 - Sau quá trình kiểm tra, Bộ Giáo dục và Đào tạo quyết định hủy kết quả đạt giải nhất và thu hồi giải thưởng, giấy chứng nhận đạt giải của dự án "Hệ thống phân loại rác thông minh tích hợp trí tuệ nhân tạo và cảm biến âm thanh".
@@ -1002,10 +1004,34 @@ Trường đại học Văn Lang được QS xếp hạng top 51-100 thế giớ
 - Năm 2025, Trường đại học Luật Hà Nội dự kiến tăng khoảng 150 chỉ tiêu, mở 2 chương trình mới là luật chất lượng cao và luật kinh tế chất lượng cao.
 - Thông qua các trò chơi, gần 1.000 học sinh tiểu học thuộc 6 quận, huyện ở TP.HCM đã có buổi giao lưu thú vị về Tết cổ truyền của dân tộc.
 - Nhân dịp kỷ niệm 30 năm thành lập (26-4-1995 - 26-4-2025), Trường đại học Công nghệ TP.HCM (HUTECH) công bố chính sách học bổng đặc biệt.
-- Ký túc xá mới tại cơ sở 3 Trường đại học Luật TP.HCM được xây dựng với các phòng như một căn hộ thu nhỏ, có thể cho 4-6 sinh viên ở chung, có trang bị bếp, chỗ để máy giặt, máy lạnh…
-- 805 sinh viên ngành sư phạm Trường đại học Sài Gòn được chi trả sinh hoạt phí theo quy định. Trong đó có 498 sinh viên nhận hơn 127 triệu đồng/người.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Hôm nay 2-5, thời tiết Nam Bộ và các tỉnh Nam Trung Bộ giảm nắng, nhiều nơi mưa rào đến mưa to. Bắc Bộ giảm mưa, ngày nắng.
+- Sau khi hoàn thành xuất sắc nhiệm vụ, các khối diễu binh, diễu hành đầu tiên đã lên tàu trở ra miền Trung, miền Bắc trong niềm hân hoan của đông đảo người dân.
+- Chiều 1-5, tại vùng biển huyện Mộ Đức, Quảng Ngãi xảy ra liên tiếp 2 vụ đuối nước khiến 4 học sinh mất tích, lực lượng chức năng đang tích cực tìm kiếm.
+- Ban Chỉ đạo Trung ương về hoàn thiện thể chế, pháp luật do Tổng Bí thư Tô Lâm làm trưởng ban. Hai phó ban là Thủ tướng Phạm Minh Chính và Chủ tịch Quốc hội Trần Thanh Mẫn.
+- Lễ kỷ niệm 50 năm Ngày Giải phóng miền Nam, thống nhất đất nước (30-4-1975 - 30-4-2025) đã được tổ chức trọng thể và thành công tốt đẹp tại TP.HCM.
+- Du khách đến Phú Quốc chơi lễ 30-4 và 1-5 không chỉ tắm biển, ăn hải sản mà còn mê thích trải nghiệm du lịch sinh thái, coi đua heo, đánh golf và bắt vịt trên biển.
+- Ông Đặng Ngọc Dũng, nguyên ủy viên Ban Thường vụ Tỉnh ủy, nguyên trưởng Ban Tuyên giáo Tỉnh ủy Quảng Ngãi, nghỉ hưu trước tuổi 54 tháng.
+- Dịp lễ Ngày Giải phóng miền Nam, thống nhất đất nước và Ngày Quốc tế lao động năm nay có 98 phạm nhân ở các trại tạm giam và trại giam trong tỉnh Cà Mau được đặc xá về nhà.
+- Tổng thống Sri Lanka Anura Kumara Dissanayaka sẽ thăm cấp nhà nước Việt Nam và dự Đại lễ Phật đản Liên hợp quốc Vesak từ ngày 4 đến 6-5 tới.
+- Theo dõi lễ diễu binh sáng 30-4, nhiều người bày tỏ sự xúc động khi được nhìn thấy những khí tài do chính Việt Nam sản xuất.
+- 30 nhà khoa học của Nga và Việt Nam phối hợp khảo sát đa dạng sinh học và hóa sinh trên Biển Đông trên tàu Viện sĩ Oparin nổi tiếng.
+- Dự thảo sửa Luật Xử lý vi phạm hành chính đề xuất tăng mức phạt tiền tối đa lĩnh vực vi phạm giao thông đường bộ từ 75 triệu đồng lên 150 triệu đồng.
+- Các trường hợp cán bộ có đơn tự nguyện xin nghỉ việc phải thực hiện đánh giá, rà soát theo tiêu chí xác định đối tượng nghỉ theo quy định nghị định 178, 67.
+- Lễ công bố đặc xá cho 58 phạm nhân tại Trại giam Kênh 7 là dịp để những người này tái hòa nhập cộng đồng. Những cái ôm và giọt nước mắt đã tạo nên không khí ấm áp và tràn đầy tình cảm.
+- Sau cơn mưa buổi sáng, chiều 1-5 các tuyến đường ở Hà Nội vắng vẻ. Các cửa ngõ, trục vành đai là điểm nóng ùn tắc nay cũng thưa thớt xe cộ.
+- Cùng Tuổi Trẻ Online nhìn lại những hình ảnh đẹp trong dịp đại lễ 30-4 tại TP.HCM những ngày qua.
+- Cô giáo trong vụ việc bị phụ huynh đánh, túm tóc, bắt đứng giữa mưa ở Nghệ An cho hay cô đã nhận được lời xin lỗi từ gia đình phụ huynh.
+- Ghi nhận của Tuổi Trẻ Online cho thấy một số hồ đẹp ở quận Hoàng Mai và quận Nam Từ Liêm (Hà Nội) lại tiếp tục bị san lấp, quây tôn.
+- Ngày 1-5, Trại giam Thủ Đức - Z30D ở huyện Hàm Tân, tỉnh Bình Thuận công bố quyết định đặc xá của Chủ tịch nước cho 276 phạm nhân.
+- Ngày 1-5, lãnh đạo UBND phường Phước Long (Nha Trang) cho biết người dân vừa phát hiện 3 thi thể tại một ngôi nhà ở phường này.
+- Một vụ việc gây bàng hoàng xảy ra tại TP Hà Tiên rạng sáng nay. Một du khách bất ngờ nhảy xuống sông Đông Hồ, bỏ lại vợ và con thơ. Chính quyền đã huy động nhiều lực lượng tìm kiếm suốt 6 tiếng đồng hồ vẫn chưa tìm thấy.
+- Sáng 1-5, trại giam Xuân Lộc (Bộ Công an) tổ chức lễ công bố quyết định đặc xá của Chủ tịch nước cho các phạm nhân đang chấp hành án nơi đây.
+- Ngày 1-5, tại Khánh Hòa, Trại giam A2 công bố quyết định đặc xá năm 2025 của Chủ tịch nước cho 69 phạm nhân đang chấp hành án ở đây.
+- Trong dịp lễ, hàng trăm công nhân, kỹ sư vẫn làm việc tại dự án nâng cấp mặt đường tuyến Lộ Tẻ - Rạch Sỏi (Cần Thơ  - Kiên Giang).
+- Quảng Trị đề xuất điều chỉnh giờ tàu Bắc - Nam tại 2 ga Đông Hà và Đồng Hới, đáp ứng nhu cầu đi lại gần 1.300 công chức sau sáp nhập tỉnh.
+- Cơ quan chức năng tại Đà Nẵng vừa có phản hồi người dân về dự án bến du thuyền bên sông Hàn liên quan Vũ ‘nhôm’.
 - Cầu Văn Lang bắc qua sông Hồng nối huyện Ba Vì (Hà Nội) với TP Việt Trì (Phú Thọ) đã bị trơ móng, lòi cọc từ tháng 1-2025 đến nay.
 - TP.HCM sẽ không trình diễn 10.500 drone vào tối nay (ngày 1-5) như kế hoạch đã thông tin trước đó.
 - Hôm nay 1-5, thời tiết Bắc Bộ mưa rào đến mưa to, Nam Bộ ngày nắng nhưng về chiều tối mưa dông vài nơi.
@@ -1980,32 +2006,6 @@ Trường đại học Văn Lang được QS xếp hạng top 51-100 thế giớ
 - Theo đề án sắp xếp đơn vị hành chính cấp xã của tỉnh Quảng Ngãi năm 2025 được biểu quyết thông qua, tỉnh Quảng Ngãi tổ chức lại huyện đảo Lý Sơn thành đơn vị hành chính cấp xã có tên gọi là đặc khu Lý Sơn.
 - Đề xuất thí điểm viện kiểm sát nhân dân khởi kiện vụ án dân sự để bảo vệ quyền dân sự của các chủ thể là nhóm dễ bị tổn thương, hoặc bảo vệ lợi ích công.
 - Đại tướng Phan Văn Giang và Thượng tướng Đổng Quân đã thăm cửa khẩu Hữu Nghị Quan, Đại đội Biên phòng, mô hình cửa khẩu thông minh, thôn kiểu mẫu Chu Liên và trường tiểu học tại khu tự trị dân tộc Choang Quảng Tây, Trung Quốc.
-- Một số dự án xây dựng cơ sở vật chất tại các trường đại học gặp nhiều khó khăn trong việc triển khai do vướng nhiều thủ tục.
-- Đập Sabo đầu tiên tại Việt Nam được thiết kế theo tiêu chuẩn Nhật Bản giúp giảm lũ ống, lũ quét vừa được khánh thành tại Sơn La.
-- Tuổi Trẻ Online trân trọng đăng toàn văn bài phát biểu chỉ đạo của Tổng Bí thư Tô Lâm tại Hội nghị toàn quốc quán triệt, triển khai thực hiện Nghị quyết Hội nghị lần thứ 11 Ban Chấp hành Trung ương Đảng khóa XIII.
-- Theo kế hoạch, Long An sẽ lấy ý kiến về sắp xếp địa phương 2 cấp từ nay đến ngày 21-4, để thông qua HĐND cấp xã dự kiến trước ngày 24-4.
-- Sở Nội vụ tỉnh Đồng Nai vừa nhắc nhở nhiều đơn vị, địa phương trên địa bàn tỉnh khẩn trương cung cấp số liệu để làm đề án sắp xếp, sáp nhập các đơn vị hành chính.
-- Nhiều tỉnh ở miền Tây đều có huyện Châu Thành, riêng tỉnh Hậu Giang có 2 huyện mang tên địa danh này. Sau khi bỏ cấp huyện, địa danh Châu Thành có còn được giữ lại?
-- Sở Xây dựng Hà Nội vừa ký quyết định số 3725 về việc bố trí các địa điểm cho 5 đơn vị di dời phục vụ phương án quy hoạch, cải tạo không gian khu vực phía đông hồ Hoàn Kiếm.
-- Sở Văn hóa, Thể thao và Du lịch tỉnh Quảng Ninh sẽ làm việc với các đơn vị liên quan vụ người đàn ông lao xuống biển khi đang chơi pickleball trên boong tàu du lịch.
-- Tuyến Lộ Tẻ - Rạch Sỏi là đường huyết mạch về tỉnh Kiên Giang đang được thi công nâng cấp giai đoạn 2. Thế nhưng nhiều người phản ánh thi công ì ạch.
-- Liên hệ không được, Sở Nội vụ Quảng Nam phải cử người vào tận TP.HCM gặp chủ doanh nghiệp may mặc để đòi quyền lợi cho công nhân.
-- Ông Lê Minh Hưng cho hay sau khi sáp nhập, tỉnh mới có thể nghiên cứu quy hoạch, lựa chọn xây dựng các trung tâm chính trị - hành chính mới phù hợp.
-- UBND tỉnh Vĩnh Long sắp trình Ban Chấp hành tỉnh thông qua đề án sắp xếp 102 xã phường xuống 35, và dự kiến không còn ký hiệu phường bằng số.
-- Vietjet chính thức khai thác các chuyến bay TP.HCM, Hà Nội - Côn Đảo từ ngày 19-4, đồng thời ra mắt dịch vụ giỏ lễ xanh phục vụ du khách hành hương.
-- Bí thư Nguyễn Văn Nên làm trưởng Ban Chỉ đạo thực hiện sắp xếp, tổ chức lại đơn vị hành chính các cấp và xây dựng mô hình tổ chức chính quyền địa phương 2 cấp.
-- Bí thư Tỉnh ủy Quảng Ngãi giao Sở Giáo dục tính toán điều kiện học hành cho con em của cán bộ theo cha mẹ từ Kon Tum xuống Quảng Ngãi sau sáp nhập.
-- Thành phố Đà Nẵng mới sau khi sáp nhập tỉnh Quảng Nam với thành phố Đà Nẵng hiện nay có 3 di sản thế giới được UNESCO công nhận.
-- Những ngày biển lặng, người dân làng chài Mân Thái (quận Sơn Trà, TP Đà Nẵng) í ới gọi nhau kéo lưới rùng.
-- 50 anh hùng lực lượng vũ trang nhân dân, Bà mẹ Việt Nam anh hùng, cựu chiến binh vừa có buổi gặp mặt tại Hội trường Thống Nhất (TP.HCM) sáng 16-4.
-- Chỉ cần cung cấp vài thông tin cơ bản, một số cá nhân khẳng định có thể làm luôn cho khách hàng chứng chỉ hành nghề khám, chữa bệnh "giả" với đủ phạm vi hoạt động.
-- Tổng Bí thư Tô Lâm lưu ý khi thực hiện sáp nhập cần vượt qua những tâm lý, tâm trạng vùng miền để hướng tới tư duy, tầm nhìn rộng lớn hơn đất nước là quê hương.
-- Công an phường Điện Minh, thị xã Điện Bàn, Quảng Nam cho hay vừa giúp một người dân ở tỉnh Đắk Lắk nhận lại số tiền 410 triệu đồng do sơ ý chuyển nhầm.
-- 70km cao tốc Vân Phong - Nha Trang trên tuyến cao tốc Bắc - Nam phía đông sẽ đưa vào khai thác sử dụng vào ngày 19-4.
-- Sáng 16-4, UBND xã Gio An (huyện Gio Linh, tỉnh Quảng Trị) tổ chức lễ động thổ, đặt viên đá đầu tiên xây dựng đền thờ chúa tiên Nguyễn Hoàng tại thôn An Nha.
-- Các đại biểu thống nhất thông qua đề án sắp xếp đơn vị hành chính cấp xã của tỉnh Quảng Ngãi năm 2025, sau sắp xếp Quảng Ngãi giảm 67,65% số xã.
-- Chủ tịch UBND TP Biên Hòa (Đồng Nai) cho hay đang thương thảo hợp đồng với đơn vị xử lý rác, không để xảy ra tình trạng ngưng trệ việc thu gom rác.
-- Dự báo đợt nắng nóng diện rộng đầu tiên trong năm 2025 sẽ kéo dài tới khoảng ngày 22-4, riêng Nam Bộ sẽ kéo dài hơn.
 ![New](News.png)
 ## Nhịp sống số 
 - Tham vọng chinh phục thế giới robot hình người của Hãng xe điện Tesla (Mỹ) đang gặp trở ngại lớn, do chính sách xuất khẩu mới nhất của Trung Quốc.
