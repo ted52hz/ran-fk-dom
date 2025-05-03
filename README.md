@@ -1,6 +1,16 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- UBND tỉnh Đắk Lắk yêu cầu truy thu hơn 125 tỉ đồng chi sai phụ cấp ưu đãi cho giáo viên và xử lý trách nhiệm các tập thể, cá nhân liên quan.
+- Theo báo cáo ban đầu, khi thấy con rắn chết trong nồi thức ăn, đầu bếp nhà trường đã gắp nó ra và vẫn múc thức ăn cho học sinh. Sau bữa ăn, hơn 100 em bị bệnh.
+- Trong bối cảnh chỉ tiêu lớp 10 vào các trường THPT công lập tại TP.HCM tăng lên tới khoảng 80% trong năm nay, 'miếng bánh' dành cho các trường nghề tuyển 9+ thu hẹp đáng kể.
+- Sở Tài chính tỉnh Khánh Hòa vừa trình UBND tỉnh chỉ đạo chi trả tiền hỗ trợ tất cả sinh viên sư phạm đào tạo theo nhu cầu xã hội 2 khóa của Trường đại học Khánh Hòa từ các năm 2022, 2023 đến nay.
+- Huyện Tuy Đức (Đắk Nông) tổ chức đưa nghệ nhân vào trường học, trực tiếp truyền dạy cho học sinh cách đánh cồng chiêng.
+- Dù đã có bản án từ năm 2022, 6 giáo viên thắng kiện ở huyện Krông Pắk (Đắk Lắk) vẫn chưa nhận được tiền bồi thường.
+- Một giáo viên tố cáo hiệu trưởng 'sờ soạng', quấy rối tình dục nhiều cô giáo khác; đồng thời đã vận động xã hội hóa bất minh nhiều nguồn.
+- Có trường hợp sinh viên chương trình liên kết đào tạo Trường đại học Mở TP.HCM nhập học 10 năm sau mới có quyết định công nhận sinh viên.
+- Sở Giáo dục và Đào tạo TP.HCM chính thức mở cổng tuyển sinh lớp 10 tại địa chỉ ts10.hcm.edu.vn từ 15h chiều nay, 2-5.
+- 50 năm trước, tháng 4-1975 tôi ở châu Âu nhìn về Tổ quốc, nhìn về cuộc tiến quân vĩ đại với niềm tự hào và cả nước mắt của quân dân Việt Nam để giành lại hòa bình, thống nhất.
 - Cơ quan cảnh sát điều tra Công an TP.HCM đã ra quyết định khởi tố bị can, lệnh bắt tạm giam đối với bà Nguyễn Thị Út Em, chủ tịch hội đồng Trường quốc tế AISVN (huyện Nhà Bè, TP.HCM).
 - Cô giáo trong vụ việc bị phụ huynh đánh, túm tóc, bắt đứng giữa mưa ở Nghệ An cho hay cô đã nhận được lời xin lỗi từ gia đình phụ huynh.
 - Tới trường đón con nghi sau khi đã có uống rượu, phụ huynh hành hung, túm tóc cô giáo ở Nghệ An và bắt cô đứng giữa mưa.
@@ -994,18 +1004,31 @@ Trường đại học Văn Lang được QS xếp hạng top 51-100 thế giớ
 - Khi còn giữ chức vụ hiệu trưởng Trường đại học Sư phạm Huế, ông Lê Anh Phương (giám đốc Đại học Huế) cùng cấp dưới đã chiếm đoạt của sinh viên hơn 2,6 tỉ đồng.
 - 400 học sinh có hoàn cảnh đặc biệt tại TP.HCM sẽ được cấp học bổng học tập toàn diện, bền vững, bắt đầu từ năm 2025.
 - Chiều 18-1, kỳ thi đánh giá tư duy đợt 1 của Đại học Bách khoa Hà Nội chính thức diễn ra. Đợt thi này có khoảng 14.000 thí sinh dự thi, đây cũng là đợt thi khởi động cho mùa xét tuyển đại học năm 2025 trên cả nước.
-- Ngày 18-1, Bộ Giáo dục và Đào tạo công bố kết quả chấm thi chọn học sinh giỏi quốc gia năm 2025.
-- Sáng 18-1, Trường THPT Lê Quý Đôn (quận 3, TP.HCM) đã tổ chức lễ kỷ niệm 150 năm thành lập trường.
-- Ông Lê Anh Phương, giám đốc Đại học Huế, vừa bị Công an TP Huế khởi tố, bắt tạm giam để điều tra về tội lạm dụng chức vụ, quyền hạn chiếm đoạt tài sản.
-- Bị các đối tượng lừa đảo thao túng và đe dọa, sinh viên một trường đại học ở TP.HCM nhiều lần xin gia đình chuyển khoản 1,1 tỉ đồng.
-- Bộ trưởng Bộ Giáo dục và Đào tạo Nguyễn Kim Sơn đã có trả lời về đề nghị quan tâm điều chỉnh hệ số lương của giáo viên mầm non cũng như có chế độ với cô nuôi.
-- Một chương trình nhiều sách giáo khoa được áp dụng khi triển khai Chương trình giáo dục phổ thông 2018.
-- Gia sư là một trong những công việc phổ biến của sinh viên để kiếm thêm thu nhập. Khi các nền tảng dạy từ xa trở nên phổ biến, nhiều gia sư cũng dạy online, nhưng lại gặp phải tình trạng éo le: bị quỵt tiền.
-- Năm 2025, Trường đại học Luật Hà Nội dự kiến tăng khoảng 150 chỉ tiêu, mở 2 chương trình mới là luật chất lượng cao và luật kinh tế chất lượng cao.
-- Thông qua các trò chơi, gần 1.000 học sinh tiểu học thuộc 6 quận, huyện ở TP.HCM đã có buổi giao lưu thú vị về Tết cổ truyền của dân tộc.
-- Nhân dịp kỷ niệm 30 năm thành lập (26-4-1995 - 26-4-2025), Trường đại học Công nghệ TP.HCM (HUTECH) công bố chính sách học bổng đặc biệt.
 ![Edu](Edu.png)
 ## Thời Sự 
+- UBND tỉnh Đắk Lắk yêu cầu truy thu hơn 125 tỉ đồng chi sai phụ cấp ưu đãi cho giáo viên và xử lý trách nhiệm các tập thể, cá nhân liên quan.
+- Tin tức đáng chú ý: Đà Nẵng rực rỡ cờ hoa đón chào đoàn tàu chở các chiến sĩ diễu binh trở về; Tri ân, tưởng niệm các anh hùng liệt sĩ và đồng bào yêu nước tại Côn Đảo...
+- Thủ tướng Phạm Minh Chính vừa ký công điện số 55 ngày 2-5 yêu cầu các bộ ngành, địa phương tăng cường phối hợp, xử lý nghiêm các tổ chức, cá nhân liên quan đến sản xuất, buôn bán thuốc chữa bệnh giả, sữa giả và thực phẩm bảo vệ sức khỏe giả.
+- Đó là tình cảm, lời gửi gắm của những bạn trẻ, người dân Đồng Nai đến toàn thể cán bộ, chiến sĩ các khối diễu binh, diễu hành trước giờ lên tàu ngược ra miền Trung, miền Bắc.
+- Nhiều ngân hàng tiếp tục thực hiện tái cấu trúc, tinh gọn bộ máy, cắt giảm nhân sự trong quý 1 năm nay. Có nơi số nhân sự bị cắt giảm lên tới hơn 1.600 người.
+- Sau vụ mô tô nước mất lái lao vào bờ, tông một bé gái thiệt mạng (xã Nhơn Hải, TP Quy Nhơn, Bình Định),  UBND TP Quy Nhơn có văn bản tạm dừng hoạt động mô tô nước, ca nô không đủ điều kiện trên địa bàn kể từ ngày 2-5.
+- Để ứng phó với chính sách thuế mới, nhiều doanh nghiệp Việt tận dụng thời gian gia hạn 90 ngày của Mỹ để đẩy mạnh xuất khẩu.
+- Tại thời điểm cuối quý 1-2025, Petrolimex có gần 25.000 tỉ đồng gửi ngân hàng lấy lãi, 3.200 tỉ đồng đang được đầu tư vào trái phiếu…
+- Trung tâm Y tế huyện Thanh Ba (Phú Thọ) khen thưởng kíp cấp cứu đã cứu sống bệnh nhi 12 tuổi bị sốc phản vệ khi tiêm kháng sinh.
+- 10 ngư dân của tàu cá Bà Rịa - Vũng Tàu được các ngư dân khác kịp thời cứu vớt trên vùng biển Côn Đảo sau khi tàu cá họ bị tàu hàng đâm chìm.
+- Trong ngày nghỉ lễ thứ 3, cảnh sát giao thông xử lý 2.107 trường hợp vi phạm nồng độ cồn, 2.234 trường hợp vi phạm về tốc độ…
+- Hai ngày qua Phú Quốc liên tục xuất hiện những cơn mưa. Khách du lịch trong và ngoài nước che dù, mặc áo mưa đi chơi lễ 30-4 và 1-5 ở hòn đảo xinh đẹp này cùng với gia đình, bạn bè.
+- Lãnh đạo UBND phường Võ Thị Sáu cho biết phường vừa gửi tờ trình UBND quận 3 ban hành quyết định xử phạt bãi giữ xe 'hét giá' 100.000 đồng/lượt giữ xe máy.
+- Sau gần 2 thập kỷ bị lãng quên, cây ca cao đang 'lội ngược dòng' khi giá thị trường tăng vọt chưa từng có, nông dân phấn khởi tái đầu tư.
+- Đại biện lâm thời Đại sứ quán Myanmar tại Việt Nam, ông Soe Ko Ko, cảm kích tấm lòng ủng hộ của bạn đọc báo Tuổi Trẻ sau trận động đất kinh hoàng tại Myanmar và cho biết toàn bộ số tiền sẽ được chuyển về nước hỗ trợ các nạn nhân.
+- Sau gần hai ngày nỗ lực tìm kiếm, lực lượng chức năng và người dân đã tìm thấy bé gái 7 tuổi đi lạc trên núi từ ngày 30-4.
+- Từ  ngày 1-5-2025, giá dịch vụ quản lý vận hành chung cư tối thiểu 700 đồng và tối đa 16.500 đồng/m²/tháng, tùy thuộc từng loại nhà.
+- Mây dông đang gây mưa cho các quận, huyện ngoại thành và được dự báo mở rộng vào khu trung tâm TP.HCM.
+- Viện trưởng Viện Kiểm sát nhân dân Vĩnh Long đã căn cứ, lập luận vào đâu để bác đơn khiếu nại vụ xe tải cán tử vong nữ sinh ở Trà Ôn?
+- Chiều 1-5, Quảng Ngãi có 13 người tắm biển bị sóng cuốn, 8 người ở bãi biển Mỹ Khê được cứu; 5 người đuối nước ở vùng biển vắng vẻ khiến 4 người mất tích.
+- Dự Luật Tổ chức chính quyền địa phương (sửa đổi) đề xuất Hà Nội và TP.HCM được bầu 125 đại biểu HĐND khi thực hiện chính quyền địa phương 2 cấp.
+- Do vụ việc xảy ra đã lâu, không có thương tích để giám định nên không đủ yếu tố xử lý hình sự. Công an đang củng cố hồ sơ, xem xét xử lý theo hướng vi phạm hành chính về hành vi đánh đập thành viên gia đình.
+- Phát hiện bé trai 8 tuổi bị sóng cuốn khi tắm biển Cửa Tùng, 6 người trên bờ đã lần lượt lao xuống tiếp sức nhau để cứu người.
 - Hôm nay 2-5, thời tiết Nam Bộ và các tỉnh Nam Trung Bộ giảm nắng, nhiều nơi mưa rào đến mưa to. Bắc Bộ giảm mưa, ngày nắng.
 - Sau khi hoàn thành xuất sắc nhiệm vụ, các khối diễu binh, diễu hành đầu tiên đã lên tàu trở ra miền Trung, miền Bắc trong niềm hân hoan của đông đảo người dân.
 - Chiều 1-5, tại vùng biển huyện Mộ Đức, Quảng Ngãi xảy ra liên tiếp 2 vụ đuối nước khiến 4 học sinh mất tích, lực lượng chức năng đang tích cực tìm kiếm.
@@ -1983,29 +2006,6 @@ Trường đại học Văn Lang được QS xếp hạng top 51-100 thế giớ
 - Ban Chấp hành Đảng bộ tỉnh Cà Mau thống nhất cao và thông qua đề án sắp xếp đơn vị hành chính cấp xã, giảm từ 100 còn 39 đơn vị cấp xã.
 - Tôi đồng thuận với việc phải cân nhắc và thảo luận trong nhân dân về việc đặt tên gắn với đơn vị hành chính mới. Trong đó yếu tố lịch sử cần được chú trọng hơn.
 - Tin tức đáng chú ý: Ưu tiên bố trí trụ sở dôi dư làm trường học, thư viện, bệnh viện; TP.HCM tiếp tục khan hiếm căn hộ bình dân; Ca mắc sởi, tay chân miệng tại Hà Nội tăng...
-- Hôm nay 17-4, thời tiết cả nước nắng nóng diện rộng, nhiều nơi nắng nóng gay gắt, độ ẩm thấp dẫn tới nguy cơ cháy nổ rất cao.
-- Một vụ cháy rừng kéo dài từ chiều đến đêm 16-4 ở phường Ba Sao, thị xã Kim Bảng (Hà Nam) vẫn chưa được dập tắt hoàn toàn.
-- Chiều 16-4, 20 học sinh Trường tiểu học số 4, TP Bằng Tường (Khu tự trị dân tộc Choang Quảng Tây, Trung Quốc) đã cùng các học sinh Việt Nam tham gia các hoạt động giao lưu, tìm hiểu và trải nghiệm văn hóa Việt Nam như vẽ nón lá, làm gốm.
-- Chủ tịch UBND TP.HCM Nguyễn Văn Được đánh giá cao đề xuất của Tập đoàn Vingroup về các ý tưởng, đề xuất chuyển đổi xanh cho TP.
-- Tiếp Bộ trưởng Ngoại giao Hàn Quốc ngày 16-4, các lãnh đạo Việt Nam đề nghị hỗ trợ vốn vay ưu đãi cho đường sắt, giúp Việt Nam phát triển công nghiệp văn hóa.
-- Kiên Giang vừa có quyết định về việc xác định các khu vực có ý nghĩa quan trọng trên địa bàn TP Phú Quốc, trong có 37 khu vực quan trọng góp phần phát triển kinh tế - xã hội trên hòn đảo xinh đẹp này.
-- Thanh tra Sở Văn hóa, Thể thao và Du lịch tỉnh Quảng Ninh đã xử phạt 12,5 triệu đồng chủ tàu để khách chơi pickleball trên boong. Đã có người lao xuống biển khi đỡ bóng.
-- Nhiều khách sạn, cơ sở du lịch tại Quảng Bình bị kẻ xấu lập fanpage mạo danh. Trang giả mạo này đưa ra các chương trình khuyến mãi hấp dẫn. Nhiều du khách tưởng thật, chuyển tiền cọc rồi không liên lạc được.
-- Theo đề án sắp xếp đơn vị hành chính cấp xã, sau sáp nhập, phường mới ở Bình Phước dự kiến có các tên Bình Phước, Đồng Xoài, Bình Long và Phước Long.
-- Ngày 16-4, cảnh sát giao thông An Sương phát hiện tài xế xe buýt vi phạm nồng độ cồn 0,148mg/l khí thở. Tài xế sẽ bị phạt tiền từ 6-8 triệu đồng, trừ 4 điểm giấy phép lái xe và tạm giữ phương tiện.
-- UBND TP.HCM vừa có quyết định phân công công tác chủ tịch, phó chủ tịch UBND TP.HCM và các ủy viên UBND TP.HCM.
-- Chủ tịch nước khẳng định 100 gương mặt tiêu biểu có mặt hôm nay là những 'bông hoa' rất đẹp, rất thật, là những 'câu chuyện cổ tích giữa đời thường'.
-- Đà Nẵng mới sau khi sáp nhập sẽ là thành phố rộng nhất nước. Đây cũng là thành phố có bờ biển dài nhất và có tới 2 sân bay.
-- Liên quan vụ 600 loại sữa giả, Chủ nhiệm Ủy ban Công tác đại biểu Nguyễn Thanh Hải cho rằng cần xem có tồn tại những lỗ hổng, khoảng trống trong quản lý, các văn bản pháp lý.
-- Theo tờ trình của UBND TP Nha Trang, dự kiến thành phố này còn 3 phường gồm phường Nha Trang, phường Bắc Nha Trang và phường Nam Nha Trang.
-- Tại TP Buôn Ma Thuột (Đắk Lắk), nhiều công trình vi phạm vẫn đang đua nhau mọc lên để săn view, đặc biệt ở các khu vực có tiềm năng phát triển du lịch, dịch vụ.
-- 'Chúng tôi đã giành lại Tổ quốc với biết bao xương máu của đồng bào, đồng chí. Mong thế hệ trẻ giữ gìn và phát triển đất nước làm sao xứng đáng với tầm vóc của những người đã ngã xuống'. Câu chuyện của những người lính xe tăng 390.
-- Một học sinh lớp 7 ở Huế bị sóng biển cuốn mất tích khi đang tắm biển cùng nhóm bạn.
-- Chiều 16-4, Đại tướng Phan Văn Giang, bộ trưởng Bộ Quốc phòng, đã có buổi làm việc với Tỉnh ủy Lạng Sơn.
-- Những năm gần đây, tình trạng xâm thực khiến bờ biển sạt lở, ngày càng tiến sát vào khu dân cư khiến hàng trăm hộ dân lo lắng, bất an.
-- Theo đề án sắp xếp đơn vị hành chính cấp xã của tỉnh Quảng Ngãi năm 2025 được biểu quyết thông qua, tỉnh Quảng Ngãi tổ chức lại huyện đảo Lý Sơn thành đơn vị hành chính cấp xã có tên gọi là đặc khu Lý Sơn.
-- Đề xuất thí điểm viện kiểm sát nhân dân khởi kiện vụ án dân sự để bảo vệ quyền dân sự của các chủ thể là nhóm dễ bị tổn thương, hoặc bảo vệ lợi ích công.
-- Đại tướng Phan Văn Giang và Thượng tướng Đổng Quân đã thăm cửa khẩu Hữu Nghị Quan, Đại đội Biên phòng, mô hình cửa khẩu thông minh, thôn kiểu mẫu Chu Liên và trường tiểu học tại khu tự trị dân tộc Choang Quảng Tây, Trung Quốc.
 ![New](News.png)
 ## Nhịp sống số 
 - Tham vọng chinh phục thế giới robot hình người của Hãng xe điện Tesla (Mỹ) đang gặp trở ngại lớn, do chính sách xuất khẩu mới nhất của Trung Quốc.
