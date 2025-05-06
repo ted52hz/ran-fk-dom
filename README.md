@@ -1,6 +1,19 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Việc chính quyền ông Trump gây sức ép buộc Đại học Harvard thay đổi chính sách nội bộ đang thổi bùng tranh cãi về sự can thiệp của chính phủ vào lĩnh vực giáo dục.
+- Đại học Bách khoa Hà Nội vừa công bố phổ điểm thi đánh giá tư duy năm 2025 và minh họa cách tính điểm xét tuyển đại học theo điểm thi đánh giá tư duy.
+- Các tiểu vương quốc Ả Rập thống nhất (UAE) sẽ đưa các bài giảng về trí tuệ nhân tạo (AI) vào chương trình học cho học sinh ở mọi lứa tuổi, là sáng kiến mới nhằm giữ vị thế đi đầu trong công nghệ này.
+- Bức xúc trước vụ việc một phụ huynh đánh, túm tóc cô giáo, bắt đứng giữa mưa ở Nghệ An, nhiều người đề nghị xử lý nghiêm để làm gương.
+- Năm nay lần đầu tiên Học viện Công nghệ bưu chính viễn thông và Trường đại học Xây dựng Hà Nội xét đại học bằng kết quả thi đánh giá năng lực, do Trường đại học Sư phạm Hà Nội tổ chức.
+- Đó là khẳng định của ông Đặng Huy Hồng - giám đốc Trung tâm Lao động ngoài nước (Bộ Nội vụ) - trong kỳ thi tiếng Hàn thuộc chương trình EPS lớn nhất trong năm 2025.
+- Sau khi có những ý kiến trái chiều, Trường đại học Văn hóa Hà Nội đã bỏ cộng 3 điểm xét tuyển cho thí sinh có IELTS từ 4.0 mà trường dự kiến thực hiện.
+- Chương trình Tiếp sức mùa thi 2025 sẽ đưa trí tuệ nhân tạo vào hỗ trợ thí sinh ôn luyện, định hướng nghề nghiệp.
+- Nhiều trường đại học tuyển sinh y khoa, sư phạm điều chỉnh tổ hợp xét tuyển sau khi báo chí phản ánh.
+- Phong trào khởi nghiệp ở Việt Nam đang phát triển sôi động. Khẩu hiệu 'Quốc gia khởi nghiệp' lan tỏa từ chính sách đến truyền thông, trường học và cộng đồng doanh nhân trẻ.
+- Bộ Giáo dục và Đào tạo vừa ban hành kế hoạch triển khai Chiến lược phát triển giáo dục đến năm 2030, tầm nhìn đến năm 2045 theo quyết định số 1705/QĐ-TTg của Thủ tướng Chính phủ.
+- Theo Bộ GD-ĐT, đến hết năm học 2024-2025, cả nước còn khoảng 60.000 biên chế giáo viên được giao nhưng chưa tuyển dụng được.
+- Dự kiến cách phân tuyến tuyển sinh đầu cấp tại Hà Nội từ năm học 2026-2027 sẽ được điều chỉnh theo hướng sắp xếp để học sinh được học gần nhà nhất.
 - Mô hình lớp học thực hành - nơi mô phỏng môi trường làm việc thực tế đã trở thành phương pháp đào tạo đặc trưng của HUFLIT.
 - Thành thạo toán không chỉ đơn thuần là khả năng nhớ và tính toán nhanh, mà còn bao gồm khả năng nhận biết và vận dụng các mối quan hệ số học khi giải toán.
 - UBND tỉnh Đắk Lắk yêu cầu truy thu hơn 125 tỉ đồng chi sai phụ cấp ưu đãi cho giáo viên và xử lý trách nhiệm các tập thể, cá nhân liên quan.
@@ -991,21 +1004,61 @@ Trường đại học Văn Lang được QS xếp hạng top 51-100 thế giớ
 - Hàng loạt trường huyện nằm ở vùng sâu, vùng xa nhưng có nhiều học sinh đoạt giải học sinh giỏi quốc gia. Thậm chí còn đoạt giải cao nhất tỉnh.
 - Trương Quang Khải, học sinh lớp 12 Hóa, Trường THPT chuyên Lương Văn Chánh (Phú Yên) đoạt giải nhất học sinh giỏi quốc gia môn hóa.
 - Đại học Quốc gia TP.HCM tiếp tục tổ chức thi đánh giá năng lực, với hai đợt thi vào ngày 30-3 và ngày 1-6 tại 25 tỉnh/thành, tương tự năm 2024.
-- Nhiều bạn trẻ Việt đang chọn học nghề pha chế cà phê trước khi du học để dễ dàng tìm việc làm thêm và thích nghi với cuộc sống mới.
-- Lê Nguyễn Thùy Dương - học sinh lớp 11 chuyên văn 1, Trường THPT chuyên Lê Hồng Phong (TP.HCM) - vừa trở thành thủ khoa môn ngữ văn.
-- Giáo dục về gốc rễ, văn hóa là chìa khóa để thế hệ trẻ Việt Nam tự tin hội nhập quốc tế, tự hào giữ vững bản sắc dân tộc.
-- Lê Quý Huân, chàng trai đoạt giải nhất quốc gia môn sinh, mơ điều chế vắc xin ngừa ung thư.
-- Hầu hết học sinh đoạt giải học sinh giỏi quốc gia ở các tỉnh phía Bắc đến từ trường chuyên. Ở phía Nam, học sinh trường thường đoạt giải không ít.
-- Có nhiều quan điểm khác nhau liên quan đến trường hợp sinh viên và gia đình bị lừa đảo qua mạng 1,1 tỉ đồng.
-- Trường THPT chuyên Lê Hồng Phong (TP.HCM) dẫn đầu bảng xếp hạng các trường THPT kỳ thi học sinh giỏi quốc gia năm học 2024-2025.
-- Có những phụ huynh muốn con luôn phải giỏi, phải hơn người, con làm bài điểm 9 thì hỏi: 'Thế học sinh cao điểm nhất lớp là mấy điểm?'...
-- Tối 18-1, Trường THPT Nguyễn Thị Minh Khai (quận 3, TP.HCM) đã tổ chức đêm nhạc hội Tuổi Hồng lần thứ 29 với dàn sao khủng, thu hút 4.000 khán giả tham gia.
-- Nhiều học sinh tại quận Gò Vấp, TP.HCM đã cùng cha mẹ đến học gói bánh chưng, bánh tét để cảm nhận không khí Tết Nguyên đán đang đến thật gần.
-- Nhiều sinh viên quốc tế thích thú khi tự tay viết thư pháp, gói bánh chưng, chơi các trò chơi dân gian, ăn tất niên và tìm hiểu Tết Việt.
-- Tại buổi ra mắt cuốn sách 'Dạy con trong hạnh phúc' ngày 18-1, tác giả Bùi Gia Hiếu đã khuyên các phụ huynh không nên cho con xem TikTok.
-- Khi còn giữ chức vụ hiệu trưởng Trường đại học Sư phạm Huế, ông Lê Anh Phương (giám đốc Đại học Huế) cùng cấp dưới đã chiếm đoạt của sinh viên hơn 2,6 tỉ đồng.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Một dự án nghiên cứu không đạt được kết quả như kỳ vọng, tổ chức nghiên cứu sẽ không phải chịu trách nhiệm bồi thường như trước và được miễn trừ trách nhiệm dân sự.
+- Nguyễn Thiên Hương Jenny, Nguyễn Đức Hiếu Johnny vừa gia tăng số lượng cổ phiếu tại ACB, qua đó tăng tỉ lệ sở hữu tại ngân hàng này. Cả hai đều là con của bà Ngô Thu Thúy - chủ tịch HĐQT Công ty cổ phần Âu Lạc.
+- Dự kiến từ hôm nay (6-5) bắt đầu lấy ý kiến nhân dân về việc sửa đổi, bổ sung một số điều của Hiến pháp năm 2013 và sẽ kéo dài trong khoảng một tháng.
+- Chính phủ đã hoàn thành rà soát và đang đề xuất Bộ Chính trị, Quốc hội tháo gỡ vướng mắc cho trên 2.200 dự án với tổng vốn gần 5,9 triệu tỉ đồng (tương đương khoảng 235 tỉ USD) và tổng quy mô sử dụng đất khoảng 347.000ha.
+- Dự thảo nghị quyết sửa đổi, bổ sung một số điều của Hiến pháp năm 2013 đề xuất Thủ tướng chỉ định chủ tịch, phó chủ tịch UBND các tỉnh, TP sau sáp nhập.
+- Người dân có thể góp ý trực tiếp về sửa Hiến pháp trên VNeID, Cổng thông tin điện tử Quốc hội, Chính phủ hoặc gửi ý kiến bằng văn bản đến các cơ quan có trách nhiệm tổng hợp ý kiến.
+- 23 tuổi, Hậu 'Pháo' bắt đầu thành lập doanh nghiệp với quy mô ban đầu chỉ ở cấp huyện. Chỉ bốn năm sau, Hậu bắt đầu nổi danh trong giới bất động sản và bắt đầu thiết lập mối quan hệ với một số bí thư, chủ tịch tỉnh để thâu tóm nhiều dự án.
+- Dư luận đang xôn xao về món lòng se điếu với nghi vấn được "phù phép" từ lòng heo bình thường và ngâm hóa chất gây hại sức khỏe.
+- Ba dự án ì ạch ở Cần Thơ vừa bị Thủ tướng 'điểm danh' tại buổi tiếp xúc cử tri Cần Thơ mới đây vẫn đang rất... ì ạch.
+- Tin tức đáng chú ý: Năm 2025 dự kiến quy mô kinh tế Việt Nam trên 500 tỉ USD, bình quân 5.000 USD/người; Bệnh viện K phát động phong trào 'Găng tay không thay vệ sinh tay'; 2 công ty chứng khoán liên hệ với HoSE để hỗ trợ ngày KRX 'go-live'...
+- Hôm nay 6-5, thời tiết Bắc Bộ nắng nóng diện rộng, có nơi nắng gay gắt, Nam Bộ ngày nắng, chiều tối mưa rào và dông.
+- Tổng thống Sri Lanka đánh giá cao việc Việt Nam là mô hình phát triển kinh tế thành công, bày tỏ mong muốn học tập những kinh nghiệm này từ Việt Nam.
+- Qua khảo sát hơn 4.500 nhà thuốc trên địa bàn TP.HCM, phát hiện một cơ sở tại quận Bình Thạnh kinh doanh sữa giả.
+- Tổng Bí thư Tô Lâm và Phu nhân đã đến Astana. Tổng thống Kazakhstan đã ra tận sân bay đón nhà lãnh đạo Việt Nam.
+- Chủ tịch Quốc hội Trần Thanh Mẫn yêu cầu từ ngày mai (6-5) sẽ tổ chức công bố lấy ý kiến nhân dân về sửa đổi, bổ sung một số điều của Hiến pháp 2013.
+- Do nhiệm kỳ Quốc hội cách xa thời gian Đại hội Đảng nên sau Đại hội Đảng, Quốc hội thường tiến hành kỳ họp bất thường để kiện toàn các chức danh Nhà nước.
+- Phó chủ tịch UBND TP.HCM Võ Văn Hoan vừa ký ban hành đề án sắp xếp tỉnh Bà Rịa - Vũng Tàu, tỉnh Bình Dương và TP.HCM. Sau sắp xếp, TP.HCM mới có 113 phường, 54 xã và đặc khu Côn Đảo.
+- Cơ quan công an đề nghị cung cấp hồ sơ xây dựng có dấu hiệu sai phạm tại khách sạn Mường Thanh Buôn Ma Thuột, Đắk Lắk.
+- Khi xe di chuyển từ vòng xoay Kim Cúc hướng về hồ Xuân Hương (Đà Lạt), tài xế taxi vừa lái xe vừa gác chân lên cửa.
+- Bạc Liêu và Cà Mau đưa ra 3 kịch bản tăng trưởng cho tỉnh Cà Mau (mới), nhằm có những giải pháp phát triển kinh tế - xã hội phù hợp.
+- Việc sửa đổi dự án Luật Năng lượng nguyên tử (sửa đổi) nhằm đáp ứng yêu cầu phát triển và xã hội hóa ứng dụng năng lượng nguyên tử, triển khai các dự án điện hạt nhân.
+- Ngày 5-5, Phòng cảnh sát hình sự Công an tỉnh Quảng Nam cho biết cơ quan này đã tạm giữ 11 người liên quan đến các hành vi bắt cóc nhằm chiếm đoạt tài sản và đánh bạc.
+- Chủ tịch nước Lương Cường và Tổng thống Sri Lanka Anura Kumara Dissanayaka đều cho rằng tiềm năng hợp tác kinh tế, thương mại giữa hai nước còn rất lớn. Trước mắt, hai bên phấn đấu đạt 1 tỉ USD kim ngạch thương mại song phương.
+- Một người đàn ông ở huyện Krông Năng (Đắk Lắk) tử vong sau khi bị xe taxi tông từ phía sau trên đường liên xã.
+- Các doanh nghiệp thủy sản Việt Nam đang tăng tốc xuất khẩu sang Mỹ trong hai tháng tới, nhằm 'chạy đua' với chính sách thuế quan mới có hiệu lực từ ngày 9-7. Tôm và cá tra là hai mặt hàng chủ lực trong giai đoạn nước rút này.
+- Ông ngoại chở cháu trên xe máy đều tử vong vì tai nạn giao thông. Đáng chú ý, người ông bị tai nạn tử vong được cơ quan điều tra xác định là 'người có hành vi nguy hiểm cho xã hội đã chết' nên không khởi tố vụ án.
+- Hồ chứa nước ngọt tại xã Khánh An, huyện U Minh, Cà Mau đã hoàn thành với diện tích 102ha, chứa được 3,85 triệu m3 nước. Tuy nhiên người dân sống gần hồ vẫn thiếu nước do chưa có nhà máy xử lý  và 'kịch bản' vận hành vẫn đang... viết.
+- Lực lượng cảnh sát đã bắt quả tang 19 người tham gia đá gà ăn thua bằng tiền qua mạng. Số tiền thu giữ trên người các nghi phạm hơn 10 triệu đồng. Cảnh sát đã cho gia đình các con bạc bảo lãnh để tiếp tục điều tra.
+- Chủ tịch Quốc hội Trần Thanh Mẫn làm chủ tịch Ủy ban Dự thảo sửa đổi, bổ sung một số điều của Hiến pháp năm 2013.
+- Tổ chức, cá nhân cung cấp dịch vụ mạng xã hội, dịch vụ truyền thông trực tuyến không được yêu cầu hình ảnh, video chứa nội dung đầy đủ hoặc một phần căn cước, căn cước công dân, chứng minh nhân dân làm yếu tố xác thực tài khoản.
+- Đài khí tượng thủy văn Nam Bộ và Tây Nguyên cho biết một số nơi Nam Bộ đã vào mùa mưa.
+- Con rùa biển bị dính 'lưới ma' trôi dạt trên biển được ngư dân Lý Sơn cứu. Thời điểm cứu, chú rùa xanh quý hiếm dính lưới bị thương, hai chi trước bị lưới siết chặt gây lõm thịt.
+- Thông tin từ Bộ Nội vụ cho biết đến thời điểm hiện tại, tất cả các tỉnh, thành phố đã gửi hồ sơ đề án sáp nhập đơn vị hành chính (đơn vị) cấp tỉnh, cấp xã.
+- Ô tô chở đoàn người đưa tang bốc cháy ngùn ngụt trên cao tốc Nội Bài - Lào Cai vào chiều 5-5. Tài xế và những người trên ô tô đã kịp thoát ra ngoài, chạy xuống lề đường.
+- Nông dân trồng lúa gần cao tốc Cần Thơ - Cà Mau, đoạn qua huyện Long Mỹ, tỉnh Hậu Giang đã được nhà thầu bồi thường thiệt hại.
+- Trưa 5-5, sau cuộc hội đàm thành công, Chủ tịch nước Lương Cường và Tổng thống Sri Lanka Anura Kumara Dissanayaka đã tới thăm Khu di tích Chủ tịch Hồ Chí Minh, trong đó có nhà sàn Bác Hồ.
+- Trưa 5-5, Tổng Bí thư Tô Lâm và Phu nhân rời Hà Nội, bắt đầu chuyến công tác đến Nga, Kazakhstan, Azerbaijan và Belarus. Đây là 4 nước bạn bè truyền thống, có quan hệ hữu nghị lâu đời với Việt Nam.
+- Chính phủ dự kiến sẽ thực hiện kinh phí 44.000 tỉ đồng phục vụ cho việc triển khai chủ trương sắp xếp, tổ chức lại đơn vị hành chính các cấp.
+- Cơ quan chức năng xác định có 1 người tử vong và 3 người bị thương trong vụ nổ lớn ở TP Phổ Yên, tỉnh Thái Nguyên xảy ra sáng nay 5-5.
+- Xe công cho cấp xã là cần thiết, làm thế nào để sử dụng xe công hợp lý, hiệu quả và tiết kiệm?
+- Ngày 5-5, Sở Y tế tỉnh Nam Định đã có báo cáo liên quan đến công tác khám, cấp cứu cho cháu bé 4 tuổi bị tai nạn giao thông trong clip tố bệnh viện ‘nộp đủ tiền mới cấp cứu’.
+- Tổng Bí thư Tô Lâm nêu rõ lần sửa này chỉ sửa đổi một số điều của Hiến pháp nhưng các cơ quan soạn thảo, Quốc hội, Chính phủ đã chuẩn bị hết sức chu đáo.
+- Ủy ban Thường vụ Quốc hội trình Quốc hội tờ trình về việc sửa đổi, bổ sung một số điều của Hiến pháp năm 2013 và thành lập Ủy ban Dự thảo sửa đổi, bổ sung một số điều của Hiến pháp.
+- Trên mạng xã hội đang chia sẻ đoạn clip ghi lại cảnh một tài xế GrabBike bị một người đàn ông (là hành khách) dùng mũ bảo hiểm đánh tới tấp giữa đêm ở Đà Nẵng.
+- Nghị quyết mới của Bộ Chính trị được Tổng Bí thư Tô Lâm ký ban hành nhấn mạnh kinh tế tư nhân là  một động lực quan trọng nhất của nền kinh tế quốc gia.
+- Đoàn Chủ tịch Ủy ban Trung ương Mặt trận Tổ quốc Việt Nam đề nghị sớm ban hành chính sách hỗ trợ cho cán bộ, công chức, viên chức phải di chuyển nơi ở đến làm việc ở trung tâm hành chính mới.
+- Nhiều biển hiệu quảng cáo cửa hàng tạp hóa, quán cơm, cửa hàng kinh doanh ở huyện Anh Sơn, Nghệ An có nội dung trang website cờ bạc, cá cược bóng đá.
+- Cảnh sát giao thông Đà Nẵng sẽ tiến hành tổ chức sát hạch lái xe cơ giới đường bộ từ ngày 6-5. Đây là lần đầu tiên đơn vị này thực hiện việc sát hạch, cấp bằng lái xe.
+- Lễ đón chính thức Tổng thống Sri Lanka Anura Kumara Dissanayaka diễn ra trang trọng tại Phủ Chủ tịch, dưới sự chủ trì của Chủ tịch nước Lương Cường sáng 5-5.
+- Trước việc Mỹ công bố chính sách thuế quan mới, chúng ta đã bình tĩnh, bản lĩnh, chủ động tiến hành đồng bộ nhiều biện pháp ứng phó và đạt kết quả bước đầu tích cực.
+- Sáng 5-5, người dân phát hiện cô giáo một trường tiểu học tại xã Krong (huyện Kbang, tỉnh Gia Lai) nằm chết bên đường với nhiều vết thương nghi bị dao đâm.
+- Thủ tướng Phạm Minh Chính vừa ký ban hành văn bản số 500 về việc phân định thẩm quyền giải quyết thủ tục hành chính của chính quyền cấp huyện.
+- Nhiều cán bộ, đảng viên đã tự nguyện hy sinh quyền lợi cá nhân vì sự phát triển chung của cơ quan, đơn vị mình, vì sự phát triển của đất nước.
 - Luật sửa đổi, bổ sung một số điều của Luật Bảo hiểm y tế (năm 2024) có hiệu lực từ ngày 1-7 có nhiều thay đổi liên quan đến người tham gia bảo hiểm y tế.
 - Chủ tịch UBND TP Hà Nội Trần Sỹ Thanh giao UBND quận Bắc Từ Liêm chủ trì, phối hợp đơn vị liên quan khẩn trương kiểm tra, làm rõ thông tin báo chí phản ánh về việc dòng mương Hoàng Quốc Việt - Trần Đăng Ninh chảy qua khu dân cư ô nhiễm nghiêm trọng.
 - Trước thềm khai mạc, các đại biểu cùng đòi hỏi chính mình và kỳ vọng Quốc hội sẽ phát huy hết tâm huyết, trách nhiệm để có các quyết định quan trọng, đúng đắn trong một "kỳ họp lịch sử" vì sự phát triển vững chắc của đất nước trong kỷ nguyên mới.
@@ -1953,61 +2006,9 @@ Trường đại học Văn Lang được QS xếp hạng top 51-100 thế giớ
 - Tại bãi đất vừa được đào lên để làm hố nhảy xa, nhóm học sinh lớp 6 phát hiện quả đạn cối 40mm.
 - Các đơn vị chức năng đã phối hợp dọn rác trên vỉa hè và ven đường Phan Thúc Duyện, đoạn gần cổng nhà ga T3 sân bay Tân Sơn Nhất (TP.HCM).
 - Nhiều người dân TP.HCM đặt câu hỏi vào khung giờ tổng hợp luyện tối nay (18-4), xe cộ có đi qua khu vực hầm Thủ Thiêm được không?
-- Sở Giáo dục và Đào tạo TP.HCM vừa giải thích về kỳ khảo sát năng lực tiếng Anh toàn bộ giáo viên trên toàn thành phố sắp tới.
-- Tập đoàn Hòa Phát tiếp tục đầu tư 14.000 tỉ đồng vào Khu kinh tế Dung Quất, Quảng Ngãi để làm nhà máy sản xuất ray thép.
-- Từ nay tới 2045, TP.HCM xác định làm 10 tuyến metro với tổng chiều dài 510km, trong đó tới năm 2035 dự kiến làm 7 tuyến với chiều dài 355km.
-- TP Hải Phòng sẽ đón nhận danh hiệu 'Thành phố anh hùng' vào đúng dịp kỷ niệm 70 năm Ngày Giải phóng Hải Phòng và Lễ hội Hoa phượng đỏ - Hải Phòng 2025.
-- Sở Nội vụ Quảng Trị vừa gửi đề án sắp xếp các đơn vị hành chính cấp xã để lấy ý kiến người dân.
-- Người dân khi được lấy ý kiến về đề án sắp xếp đơn vị hành chính các cấp đều đồng thuận với việc sáp nhập Khánh Hòa và Ninh Thuận.
-- Ông Dương Văn Trang, bí thư Tỉnh ủy Kon Tum, đề nghị sau khi sáp nhập Quảng Ngãi, Kon Tum thành tỉnh mới, cần sửa chữa, nâng cấp 62km quốc lộ 24 vì hiện có mặt đường ngang với đường cấp 5 miền núi.
-- Nhiều tỉnh, thành ở miền Tây từng là một tỉnh, sau đó được chia tách để phù hợp từng thời kỳ phát triển và nay lại trở về 'mái nhà xưa'.
-- Hội đồng nhân dân TP.HCM thống nhất hợp nhất Sở Giao thông công chánh vào Sở Xây dựng, bãi bỏ chính sách hỗ trợ thêm cho nhân sự dôi dư vì tổ chức bộ máy.
-- Đồng Tháp dự kiến còn 45 đơn vị hành chính cấp xã, gồm 7 phường và 38 xã sau sắp xếp. Trong đó tên phường mới đặt theo tên ba thành phố trực thuộc tỉnh gồm Cao Lãnh, Sa Đéc, Hồng Ngự.
-- Tối nay 18-4, TP.HCM sẽ cấm người dân đi lại; cấm dừng đỗ nhiều tuyến đường khu vực trung tâm để đảm bảo an toàn giao thông tổ chức tổng hợp luyện đại lễ 30-4.
-- Hải Phòng khởi công dự án đầu tư xây dựng và kinh doanh kết cấu hạ tầng KCN Tiên Thanh, huyện Tiên Lãng với quy mô 410,46ha.
-- Quốc lộ 8C ở Hà Tĩnh thi công hai năm nay, song đến thời điểm hiện tại hệ thống cột điện, đường dây nằm trong dự án vẫn chưa di dời.
-- Sau những ngày nắng, mưa hôm nay đã xuất hiện vòi rồng lớn ở vùng biển phường An Thới (TP Phú Quốc, tỉnh Kiên Giang).
-- HĐND TP.HCM thông qua chủ trương đầu tư dự án đường vành đai 4 TP.HCM, cầu đường Bình Tiên kết nối các tỉnh Đông Nam Bộ.
-- Hoạt động được mong chờ nhất của tuyến kỷ niệm 50 năm đất nước thống nhất là chương trình Lễ kỷ niệm cấp quốc gia tổ chức từ 6h ngày 30-4.
-- Trên các diễn đàn và trang mạng xã hội sáng nay (18-4) ngập tràn tiếc thương và cảm phục sự hy sinh của thượng úy Nguyễn Đăng Khải.
-- Chủ tịch HĐND TP.HCM Nguyễn Thị Lệ cho rằng người Việt Nam dù đi đâu, ở đâu đều nhớ Sài Gòn không chỉ là tên gọi.
-- Sau cù lao Ngũ Hiệp, đến lượt cù lao Tân Phong (huyện Cai Lậy) nằm giữa sông Tiền đã có cầu bắc qua, nối với đất liền.
-- TP Huế dự kiến còn 40 phường, xã sau khi sắp xếp và sẽ lấy ý kiến người dân từ ngày 19-4.
-- Tỉnh Đồng Nai đang tổ chức kiểm tra các đối tượng thuê, mua nhà tại các dự án nhà ở xã hội để chấn chỉnh công tác quản lý, sử dụng.
-- Khu di tích lịch sử cấp quốc gia Ngã tư Đức Hòa sẽ được tôn tạo, xây dựng thêm nhà lưu niệm Võ Văn Tần, Võ Văn Ngân với kinh phí hơn 112 tỉ đồng.
-- Sở Y tế Hà Nội vừa công bố 65 cơ sở khám, chữa bệnh đủ điều kiện khám và cấp giấy khám sức khỏe lái xe liên thông trên địa bàn.
-- Phú Quốc kêu gọi các doanh nghiệp làm du lịch địa phương đẩy mạnh ưu đãi, giảm giá tour, tuyến du lịch để thu hút khách dịp lễ 30-4 và 1-5.
-- Ngoài gạo ST25, Sóc Trăng cũng đang phối hợp các nhà khoa học nghiên cứu chiết xuất từ hành tím Vĩnh Châu làm thành viên nang bảo vệ sức khỏe.
-- Bí thư Tỉnh ủy Bà Rịa - Vũng Tàu Phạm Viết Thanh cho biết đề án sáp nhập TP.HCM, Bình Dương và Bà Rịa - Vũng Tàu sẽ trình Chính phủ trước ngày 1-5.
-- Ngày 18-4, Sở Nội vụ tỉnh Bình Định đã thông tin phương án dự kiến sắp xếp các đơn vị hành chính cấp xã phường tại tỉnh này.
-- Thành phố Đà Lạt dự kiến sau sắp xếp có thêm phần trung tâm huyện Lạc Dương lân cận và được tổ chức lại với 5 phường.
-- Tỉnh Quảng Nam thống nhất tạm dừng, không phê duyệt dự án đầu tư sửa chữa trụ sở làm việc ở tỉnh và mua sắm trang thiết bị.
-- Hội đồng nhân dân TP.HCM đã tán thành phương án sắp xếp và tên 102 phường, xã mới của TP.HCM; tán thành sáp nhập TP.HCM, Bình Dương, Bà Rịa - Vũng Tàu.
-- Tỉnh Quảng Trị mới có diện tích 12.700km², dân số 1,86 triệu người, với 78 đơn vị hành chính cấp xã, trung tâm hành chính đặt tại tỉnh Quảng Bình.
-- Vườn quốc gia Bạch Mã (huyện Phú Lộc, TP Huế) vừa công bố kế hoạch cho thuê hơn 2.500ha rừng để phát triển các dịch vụ du lịch sinh thái, nghỉ dưỡng và giải trí.
-- Sau 4 giờ căng thẳng, lực lượng Công an xã Bình Ninh, tỉnh Tiền Giang đã khống chế thành công Tâm khi đang cầm dao cố thủ trong nhà.
-- Với người đứng đầu cơ quan chuyên môn cấp tỉnh có thể tăng cường làm lãnh đạo cấp xã, được bảo lưu phụ cấp chức vụ.
-- Bộ trưởng Bộ Nội vụ đã giải trình như trên tại phiên họp của Ủy ban Thường vụ Quốc hội cho ý kiến về về việc thực hiện cải cách tiền lương.
-- Sở Giao thông công chánh TP.HCM cho biết kẻ vạch mắt võng tại giao lộ Điện Biên Phủ - Cách Mạng Tháng Tám đã phát huy hiệu quả.
-- Thu nhập bình quân hằng tháng của người lao động trên cả nước trong ba tháng đầu năm liên tục tăng, đạt ngưỡng 8,3 triệu đồng/người/tháng.
-- Chủ tịch Hội đồng nhân dân TP.HCM cho rằng sắp xếp đơn vị hành chính cấp tỉnh, xã sẽ mở rộng không gian để quy hoạch đầu tư, phát triển.
-- Sở Xây dựng tỉnh Đồng Nai vừa kiến nghị UBND tỉnh Đồng Nai làm việc với TP.HCM để bổ sung quy hoạch 2 cầu vượt sông Đồng Nai kết nối với TP.HCM.
-- TP.HCM mới có diện tích 6.772km², dân số khoảng 13,7 triệu người, 190 đơn vị hành chính trực thuộc, hình thành siêu đô thị mới ở Đông Nam Bộ.
-- Sáng nay 18-4, người dân được chiêm ngưỡng máy bay thả cờ Đảng và cờ Tổ quốc trên bầu trời  TP.HCM. Bên dưới, tại bến Bạch Đằng, đại bác cũng luyện tập từ sớm.
-- UBND TP.HCM vừa có tờ trình gửi HĐND TP.HCM đề nghị ban hành nghị quyết thành lập Sở Xây dựng trên cơ sở hợp nhất Sở Xây dựng và Sở Giao thông công chánh, đổi tên Sở Tài nguyên và Môi trường thành Sở Nông nghiệp và Môi trường.
-- Sau sắp xếp, sáp nhập, tỉnh Lào Cai dự kiến sẽ giảm từ 151 xã, phường, thị trấn xuống còn 48 xã, phường.
-- Hiện nay trên mạng xuất hiện nhiều website và hội nhóm trên mạng xã hội quảng cáo các dịch vụ làm giả chứng chỉ, giấy phép hành nghề.
-- Ngày 17-4, nhà ga hành khách quốc nội T3 sân bay Tân Sơn Nhất (TP.HCM), có vốn đầu tư lên tới 11.000 tỉ đồng, đã chính thức đi vào hoạt động.
-- Tỉnh Đồng Nai vừa đề xuất phương án xây cầu Cát Lái để tạo thành tuyến giao thông liên vùng giữa Đồng Nai và TP.HCM.
-- Dù gấp rút, các cơ quan có thẩm quyền của TP.HCM đã tổ chức nhiều cuộc họp bàn và đưa ra hệ thống tên gọi cho 102 phường mới sau sáp nhập.
-- Lực lượng cứu nạn, cứu hộ của cảnh sát phòng cháy, chữa cháy Đà Nẵng đã tiếp cận và đưa được thi thể của nam du khách nước ngoài từ dưới vực sâu ở bán đảo Sơn Trà (Đà Nẵng) lên mặt đất.
-- Dù nhà trường nói đây là hình thức tự nguyện, nhiều học sinh cho biết nếu không có “giấy vào cổng”, các em sẽ không được xem chương trình văn nghệ do bạn bè và chính học sinh trong trường biểu diễn.
-- Tin tức đáng chú ý: Hôm nay các máy bay trực thăng kéo cờ và tổng luyện; Chỉ 61% bể chứa nước chung cư TP.HCM đạt chuẩn; Giá USD tự do bất ngờ đi xuống sau khi lập đỉnh...
-- Hôm nay 18-4, thời tiết cả nước phổ biến nắng nóng, nền nhiệt cao kết hợp mặt đệm bê tông khiến nhiều nơi nhiệt độ cảm nhận tới 40 độ C.
-- Theo tờ trình của UBND TP.HCM trình HĐND TP.HCM, TP.HCM sẽ còn 102 phường, xã. TP.HCM sẽ có phường Sài Gòn, Chợ Lớn, Gia Định.
-- Kiểm tra thực địa tại dự án cơ sở 2 của Bệnh viện Việt Đức và Bạch Mai, Phó thủ tướng Lê Thành Long đưa ra những yêu cầu bức thiết phải hoàn thành hai dự án trong năm nay.
 ![New](News.png)
 ## Nhịp sống số 
+- Những chiếc smartphone tầm trung giá 10 triệu đồng, thậm chí thấp hơn, với nhiều tính năng công nghệ xịn sò được một loạt hãng điện thoại đua nhau ‘chào sân’ thị trường Việt Nam.
 - Tham vọng chinh phục thế giới robot hình người của Hãng xe điện Tesla (Mỹ) đang gặp trở ngại lớn, do chính sách xuất khẩu mới nhất của Trung Quốc.
 - Viettel cam kết góp phần hiện thực hóa Nghị quyết 57 về thúc đẩy khoa học, công nghệ, đổi mới sáng tạo, và chuyển đổi số quốc gia, hướng tới mục tiêu kinh tế số đạt 30% GDP vào 2030.
 - Theo nguồn tin đáng tin cậy, tin tặc đã đánh cắp tiền tiết kiệm từ một số thành viên của quỹ hưu trí lớn nhất Úc, và xâm phạm hơn 20.000 tài khoản.
@@ -3006,5 +3007,4 @@ Trường đại học Văn Lang được QS xếp hạng top 51-100 thế giớ
 - TTO - Ngày 9-6-2018 được xem là một dấu mốc quan trọng của đoàn Công nghiệp – Viễn thông Quân đội (Viettel) trên đất Myanmar. Đó là ngày Mytel – mạng di động quốc tế thứ 10 của Viettel chính thức khai trương với đầu số 096.
 - TTO - PetBacker là một dạng ứng dụng kết nối tương tự như Uber, nhưng đối tượng hướng đến là các chủ sở hữu vật nuôi với những người nhận giữ hộ thú cưng trong thời gian ngắn hạn.
 - TTO - Việt Nam luôn được xếp trong top những quốc gia về mã độc nhiều nhất trên thế giới, là thị trường tiềm năng của ngành công nghiệp mã độc.
-- TTO - Một loạt các nhà bán lẻ bao gồm Amazon, Target, Walmart vẫn đang tiếp tục bán đồ chơi thông minh không an toàn cho trẻ em mặc dù đã nhận được cảnh báo từ các chuyên gia bảo mật vào tháng 2 năm ngoái.
 ![life](Life.png)
