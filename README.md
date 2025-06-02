@@ -1,7 +1,16 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
-- Theo Trường đại học Fulbright Việt Nam, nhà hoạt động xã hội và nhà khoa học người Mỹ gốc Việt Amanda Nguyễn sẽ đến Việt Nam vào đầu tháng 6 để tham gia một số hoạt động cộng đồng và giáo dục.
+- Kỳ thi vào lớp 10 ở Hà Nội diễn ra từ ngày 7 đến 9-6. Từ ngày 4 đến ngày 6-7 công bố điểm thi, điểm chuẩn.
+- Có một lớp học tình thương đặc biệt đã chắp cánh cho nhiều trẻ tự kỷ, Down hoặc khuyết tật... vươn lên ở Tây Ninh.
+- Sáng 2-6, 11.860 thí sinh dự thi vào lớp 10 THPT năm học 2025-2026 tại Đà Nẵng, giáo viên nhắc thí sinh cần lưu ý "5 không".
+- Phu nhân Tổng Bí thư Tô Lâm đã đến thăm và tặng quà cho các em học sinh tại hai điểm trường vùng biên tỉnh Điện Biên.
+- Theo đại diện Trường cao đẳng Kinh tế TP.HCM, lần đầu tiên trường có một sinh viên tốt nghiệp với điểm số tuyệt đối (4.0).
+- Cha mẹ ở thành phố thường muốn đưa con về quê chơi mỗi dịp hè. Và con, 'lội ngược dòng' để hít thở bầu không khí của thành phố sôi động như TP.HCM.
+- Sáng 1-6, Tổng Bí thư Tô Lâm đã đến thăm, tặng quà thầy cô và học sinh Trường Phổ thông cơ sở Nguyễn Đình Chiểu và Phổ thông cơ sở Xã Đàn, Hà Nội nhân dịp Ngày Quốc tế thiếu nhi 1-6.
+- Đợt 2 kỳ thi đánh giá năng lực của Đại học Quốc gia TP.HCM năm nay đã kết thúc lúc 11h trưa nay 1-6, nhiều thí sinh tự tin kết quả thi sẽ tốt.
+- Hôm nay (1-6) là Ngày Quốc tế thiếu nhi. Lịch nghỉ hè vừa bắt đầu cũng là lúc nhiều gia đình "lăn tăn" khi con nghỉ dài ngày, còn người lớn vẫn bận đi làm từ sáng tới tối.
+- Theo Trường đại học Fulbright Việt Nam, nhà hoạt động xã hội và nhà khoa học người Mỹ gốc Việt Amanda Nguyễn sẽ đến Việt Nam vào đầu tháng 6.
 - Khoảng một tháng nữa kỳ thi tốt nghiệp THPT 2025 diễn ra với dự báo nhiều thay đổi trong nội dung đề thi. Ôn thi "nước rút", thí sinh phải "chốt" nội dung kiến thức và cần lưu ý những gì?
 - Sáng 1-6, kỳ thi đánh giá năng lực Đại học Quốc gia TP.HCM đợt 2 năm 2025 diễn ra với hơn 97.000 thí sinh tham dự, gấp đôi so với đợt thi năm ngoái.
 - Với những hoạt động trong thời kỳ làm giáo viên ở Nha Trang cách đây 100 năm, Hà Huy Tập - Tổng Bí thư thứ ba của Đảng Cộng sản Việt Nam - là một trong những người có công lớn trong việc thành lập Đảng bộ tỉnh Khánh Hòa.
@@ -994,17 +1003,36 @@ Trường đại học Văn Lang được QS xếp hạng top 51-100 thế giớ
 - Buổi họp mặt truyền thống của nhiều thế hệ thầy trò Trường Sư phạm Tây Nam Bộ (T3) để lại nhiều cảm xúc qua những câu chuyện kể về truyền thống của ngôi trường huyền thoại.
 - Nhiều đại học chưa thực hiện đúng các quy định khi đầu tư mua sắm trang thiết bị. Nhiều gói thầu liên quan đến AIC.
 - Trước việc học sinh ở nhiều điểm trường sốt cao nhiều ngày, trong đó có một trẻ đã tử vong, hiệu trưởng trường bán trú cấp 1, cấp 2 ở Nam Trà My (Quảng Nam) đã dùng xe cá nhân đưa học sinh đi cấp cứu.
-- Sở GD-ĐT Hà Tĩnh yêu cầu các trường đưa nội dung chuyển đổi số vào chương trình giảng dạy, các hoạt động ngoại khóa ở các cấp học, bậc học.
-- Để khắc phục tình trạng sinh viên sư phạm không được hưởng hoặc chậm được hưởng chính sách hỗ trợ, nghị định 60 đã điều chỉnh quy định phương thức hỗ trợ kinh phí cho sinh viên sư phạm.
-- Ngày 6-3, UBND quận 1, TP.HCM đã tổ chức lễ công bố và trao quyết định bổ nhiệm cán bộ giữ chức vụ trưởng Phòng Giáo dục và Đào tạo.
-- Ngày 6-3, chủ tịch UBND huyện Mường Lát đã chỉ đạo các phòng chức năng, ban giám hiệu nhà trường rà soát để giải quyết chế độ phụ cấp độc hại cho viên chức thư viện - thiết bị, thiết bị - thí nghiệm.
-- Để đảm bảo an ninh, tạo điều kiện tham gia trong dịp Lễ hội cà phê Buôn Ma Thuột lần thứ 9 năm 2025, học sinh các cấp trên địa bàn TP Buôn Ma Thuột (Đắk Lắk) sẽ được nghỉ học ngày 10-3.
-- Dù đã có biển cấm đỗ xe nhưng nhiều ô tô vẫn đỗ tràn ra lòng đường, vỉa hè, trước cổng trường học gây ách tắc giao thông.
-- Bộ trưởng Bộ Giáo dục Mỹ Linda McMahon cho biết cần có sự chấp thuận của Quốc hội để đóng cửa cơ quan này.
-- Quy mô đào tạo chênh lệch không nhiều nhưng số lượng trường đại học tại Đồng bằng sông Hồng nhiều gần gấp đôi vùng Đông Nam Bộ.
-- Nhiều trường THPT có "đầu vào" không cao nhưng vẫn có học sinh đoạt giải tại kỳ thi học sinh giỏi ở TP.HCM năm học 2024-2025.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Đoàn kiểm tra liên ngành tỉnh Sóc Trăng đã hoàn tất việc kiểm tra 4 cửa hàng Fresh Shop của Công ty cổ phần Chăn nuôi C.P. tại Sóc Trăng. Chiều nay đoàn sẽ mời chủ cơ sở làm việc.
+- Từ một lời kêu gọi hãy 'thử một lần', thanh toán không tiền mặt đã lặng lẽ đi qua hành trình 6 năm để trở thành phương thức thanh toán phổ biến nhất hiện nay.
+- Ủy ban Thường vụ Quốc hội sẽ cho ý kiến về đề án sắp xếp đơn vị hành chính cấp tỉnh, thông qua về nguyên tắc các nghị quyết sáp nhập xã.
+- Sáng sớm 2-6, ngọn lửa đỏ rực kèm cột khói đen cháy dữ dội tại nhà xưởng trên địa bàn xã Xuân Thới Thượng, huyện Hóc Môn, TP.HCM, nhiều tài sản bị thiêu rụi.
+- Sáng 2-6, 11.860 thí sinh dự thi vào lớp 10 THPT năm học 2025-2026 tại Đà Nẵng, giáo viên nhắc thí sinh cần lưu ý "5 không".
+- Tin tức đáng chú ý: Sẽ tăng phụ cấp nghề cho cán bộ y tế, cao nhất lên 70% lương; Chính phủ cho phép đầu tư mở rộng sân bay Phú Quốc; Bạc Liêu chuyển đổi công năng 2 khu nhà ở sinh viên thành nhà ở xã hội...
+- Hôm nay 2-6, nắng nóng diện rộng với cường độ gay gắt tiếp tục duy trì ở miền Bắc và miền Trung, còn thời tiết miền Nam ngày nắng, chiều tối mưa rào.
+- Đại úy Nguyễn Hoàng Minh thuộc Tiểu đoàn 4, Lữ đoàn Đặc công nước 5 (Binh chủng Đặc công) đã xả thân cứu sống 3 trẻ bị đuối nước tại vùng biển Bình Định.
+- Không dừng xe khi cảnh sát giao thông yêu cầu, huấn luyện viên thể hình này còn chửi bới rồi quật ngã thượng úy Lê Duy Khánh làm anh ngã xuống đường, chảy máu đầu.
+- Khám xét địa điểm sản xuất ở Hòa Bình, công an thu giữ hàng trăm tấn phân bón và nguyên liệu làm phân bón giả.
+- Sau khi hợp nhất hai tỉnh Bạc Liêu và Cà Mau, Sở Nông nghiệp và Môi trường tỉnh Cà Mau (mới) có hơn 2.200 cán bộ, công chức, viên chức.
+- Bác sĩ vừa livestream vừa khám thai, có đúng quy định?; Thông tim bào thai cho sản phụ Singapore thành công... là những nội dung được nhiều bạn đọc quan tâm.
+- Công an đã liên hệ với chủ ô tô 5 chỗ đậu bên đường gần chung cư 1050 (phường 12, quận Bình Thạnh, TP.HCM) suốt thời gian dài.
+- Sau hơn hai tháng khởi công mở rộng, hai nút giao trọng điểm ở trung tâm TP Cần Thơ vẫn chưa được thi công.
+- Kiến nghị bỏ cấp giấy phép xây dựng nhận được rất nhiều ý kiến ủng hộ của bạn đọc Tuổi Trẻ Online.
+- Chiều nay 1-6, mây dông hình thành ngoài biển khu vực Bà Rịa - Vũng Tàu kéo qua Tiền Giang, Đồng Tháp và có xu hướng mở rộng gây mưa cho một số nơi lân cận.
+- Trong ngày đầu tiên của đợt nắng nóng diện rộng tại Bắc Bộ, ngay từ sáng, Hà Nội, Hòa Bình và Hà Nam nắng 'cháy da', đến trưa và chiều nhiệt độ chạm ngưỡng 40 độ C.
+- Tiết kiệm và chống lãng phí là hai thành tố gắn bó hữu cơ với nhau, là hai trụ cột để đi tới thịnh vượng, giàu có đối với cả phạm vi gia đình, đất nước và xã hội.
+- Ngày 1-6, đại diện Phòng Cảnh sát giao thông (PC08) Công an TP.HCM cho biết vừa có kế hoạch tổng kiểm soát các tàu, thuyền có gắn thiết bị bơm, hút cát, sỏi và tàu vận chuyển cát, sỏi trên đường thủy TP.HCM.
+- Sáng 1-6, Tổng Bí thư Tô Lâm đã đến thăm, tặng quà thầy cô và học sinh Trường Phổ thông cơ sở Nguyễn Đình Chiểu và Phổ thông cơ sở Xã Đàn, Hà Nội nhân dịp Ngày Quốc tế thiếu nhi 1-6.
+- Từ ngày 1-6-2025, Trung tâm Phục vụ hành chính công TP Hà Nội tiếp nhận 100% hồ sơ đăng ký biện pháp bảo đảm về đất đai trực tuyến.
+- Tại dự thảo nghị định mới, Bộ Nội vụ đề xuất quy định cụ thể về tổ chức các phòng, cơ quan chuyên môn thuộc UBND cấp xã mới sau sáp nhập.
+- Thủ tướng vừa chỉ đạo Bộ Xây dựng cắt giảm thủ tục cấp phép xây dựng cho các công trình nhằm tiết kiệm thời gian và chi phí cho người dân, doanh nghiệp; đề xuất chuyển hướng quản lý điều kiện kinh doanh sang hậu kiểm.
+- Từ tháng 7-2025, hồ sơ nhận bảo hiểm xã hội một lần được quy định thế nào?
+- Chiến dịch được triển khai tại Kiên Giang, nhắm vào hoạt động khai thác và vận chuyển khoáng sản bất hợp pháp nhằm lập lại trật tự, kỷ cương trong quản lý, khai thác khoáng sản.
+- Biển báo chỉ dẫn khu vực cổng vào nhà ga T3 sân bay Tân Sơn Nhất còn chưa rõ, bị che khuất dẫn đến xe cộ đi sai, chưa đảm bảo an toàn giao thông.
+- Chỉ trong vòng 2 năm, TP.HCM ghi nhận gần 1.000 "trẻ em sinh ra trẻ em", đây là con số đáng báo động.
+- Tuần đầu tháng 6 Bắc Bộ và Trung Bộ có một vài ngày nắng xong chuyển mưa, Nam Bộ mưa dông.
 - Viện Kinh tế tài nguyên và môi trường TP.HCM vừa có kiến nghị về việc bỏ cấp giấy phép xây dựng tại TP.HCM từ ngày 1-7-2025.
 - Công an TP Huế đã ra quyết định khởi tố vụ án, khởi tố bị can, bắt tạm giam người bẻ gãy bảo vật quốc gia ngai vàng triều Nguyễn.
 - Trong dự thảo nghị định, Bộ Nội vụ đề xuất Hà Nội, TP.HCM tổ chức không quá 15 sở.
@@ -1977,36 +2005,9 @@ Trường đại học Văn Lang được QS xếp hạng top 51-100 thế giớ
 - Nếu không sớm thay đổi biện pháp thi công trong bối cảnh thiếu cát san lấp, mục tiêu cơ bản hoàn thành dự án vành đai 3 TP.HCM vào cuối năm nay là một thách thức rất lớn.
 - Dự kiến có 4.405 cán bộ, công chức, viên chức của tỉnh Vĩnh Phúc và tỉnh Hòa Bình đăng ký lưu trú tại tỉnh Phú Thọ sau khi hợp nhất.
 - Đại biểu Nguyễn Thị Yến Nhi đề xuất làm việc từ xa, làm việc trực tuyến là phương thức làm việc hợp pháp trong khu vực công, phù hợp vị trí việc làm.
-- Thiếu tá Trần Duy Hiển - phó giám đốc Trung tâm Dữ liệu quốc gia về dân cư cho biết đã có gần 745.000 người dân tham gia góp ý sửa Hiến pháp qua ứng dụng VNeID, trong đó ngành công an dẫn đầu với hơn 16.000 cán bộ tham gia.
-- Sở Giáo dục và Đào tạo tỉnh Đắk Lắk xác nhận việc một trường THPT hướng dẫn một số học sinh lớp 12 viết đơn 'tự nguyện' nghỉ học là không đúng quy định.
-- Tuyến quốc lộ 12A lên cửa khẩu quốc tế Cha Lo (Quảng Bình) đang tê liệt, hàng trăm xe tải ùn ứ do tuyến đường phía Lào hư hỏng nặng.
-- Dự án cầu Tam Tiến và đường dẫn ở huyện Núi Thành sau nhiều năm thi công 'rùa bò', gia hạn thời gian thực hiện hợp đồng đến 8 lần, đến nay vẫn dở dang.
-- Người đàn ông ở Quảng Nam đã lừa đổi vé số giả trúng thưởng, chiếm đoạt 2,2 triệu đồng của người khuyết tật đi xe lăn bán vé số.
-- Chiều 14-5, Phòng cảnh sát giao thông Công an TP.HCM tổ chức đợt thi sát hạch xe máy đầu tiên tại Trung tâm Sát hạch lái xe Tân Phú, với 300 học viên tham gia.
-- UBND tỉnh Quảng Ngãi cho rằng Khu kinh tế Dung Quất là trọng điểm thu hút đầu tư, đóng góp ngân sách. Hàng hóa vài chục triệu tấn/năm, có lợi thế cảng biển nước sâu… phù hợp đầu tư đường sắt kết nối.
-- Tỉnh Bình Thuận vừa báo cáo các thủ tục liên quan về dự án Hồ chứa nước Ka Pét đến các cơ quan trung ương và dự kiến hoàn thành giữa năm 2028.
-- Theo dự luật đề xuất cán bộ, công chức, viên chức nhà nước cũng có thể được cử tham gia lực lượng gìn giữ hòa bình của Liên hợp quốc.
-- Lãnh đạo UBND TP Buôn Ma Thuột (Đắk Lắk) cho biết đang lên kế hoạch xử lý hàng loạt công trình săn view trên đất lúa, nông nghiệp mà Tuổi Trẻ Online phản ánh.
-- Ngày 14-5, TAND tỉnh Kiên Giang mở phiên sơ thẩm, tuyên phạt Triệu Thị Huyền Trang (29 tuổi, ở phường Dương Đông, TP Phú Quốc) 30 năm tù giam về các tội lừa đảo chiếm đoạt tài sản và sử dụng con dấu hoặc tài liệu giả của cơ quan, tổ chức.
-- Chính phủ đề xuất hai phương án phân chia giữa ngân sách trung ương và địa phương khi trình dự thảo Luật Ngân sách nhà nước sửa đổi tại Quốc hội chiều 14-5.
-- Bí thư Tỉnh ủy Cà Mau Nguyễn Hồ Hải và đoàn công tác đã đến thăm và động viên nhiều chiến sĩ, cán bộ đang công tác tại đảo Hòn Khoai.
-- Ngày 14-5, thông tin từ Ban chỉ huy Phòng thủ dân sự - phòng, chống thiên tai và tìm kiếm cứu nạn TP Cần Thơ cho biết vẫn đang theo dõi diễn biến vụ sạt lở đoạn đường giao thông mới đưa vào sử dụng tại phường Long Hưng, quận Ô Môn, TP Cần Thơ.
-- Dự án cảng hành khách Rạch Giá gần 410 tỉ đồng sắp đi vào hoạt động trước khi hoàn thiện nhà ga, để phục vụ du khách đi Phú Quốc và các đảo du lịch dịp hè.
-- Xe cấp cứu chở bệnh nhân đang trên đường chuyển viện thì va chạm với ô tô con chạy ngược chiều, khiến xe cứu thương lật ngang giữa đường, gây hậu quả 1 người chết.
-- Ngày 14-5, Công ty cổ phần Đầu tư và Phát triển đường sắt cao tốc VinSpeed đã chính thức đăng ký đầu tư dự án đường sắt cao tốc Bắc - Nam.
-- Ban quản lý dự án đường Hồ Chí Minh cho biết đang hoàn thiện các thủ tục cần thiết để có thể bắt đầu dự án thi công mở rộng cao tốc Cam Lộ - La Sơn vào tháng 8 tới.
-- Thủ tướng yêu cầu trước hết mở đợt tấn công cao điểm đấu tranh, truy quét, ngăn chặn, đẩy lùi buôn lậu, gian lận thương mại, sản xuất.
-- Bộ trưởng Phạm Thị Thanh Trà đã có giải trình rõ hơn về các trường hợp 'cần thiết' mà chủ tịch tỉnh được đề xuất sẽ điều hành công việc ở xã.
-- UBND TP.HCM vừa ban hành quyết định xử phạt với công ty tại Hóc Môn vì sử dụng hàng tấn nguyên liệu hết hạn để sản xuất các sản phẩm bột đạm.
-- UBND huyện Lắk cho rằng đã nhiều lần chỉ đạo, nhưng UBND thị trấn Liên Sơn không xử lý xong được nhà hàng lấn danh thắng hồ Lắk do chưa xác định được ranh giới.
-- Cựu tỉnh ủy viên Tỉnh ủy Bình Dương, cựu bí thư Bến Cát Nguyễn Hồng Khanh liên tục kêu oan trong vòng 7 năm kể từ khi bị khởi tố, tới nay bất ngờ bị thay đổi tội danh và đình chỉ điều tra bị can.
-- Một loạt vụ án nghiêm trọng liên quan tới hàng giả, gian lận thương mại được đánh giá là lớn và điển hình gần đây đã được khởi tố.
-- Đại biểu Nguyễn Văn Cảnh đề xuất giấy tờ mới của người dân, doanh nghiệp cần ghi cả địa chỉ trước và sau sáp nhập đơn vị hành chính.
-- Chính phủ nêu rõ quy định tuyển dụng công chức vào vị trí việc làm lãnh đạo là quy định mới để thu hút, trọng dụng người có tài năng theo vị trí việc làm.
-- Sáng 14-5, Phòng cảnh sát giao thông (PC08) Công an TP.HCM tổ chức sát hạch lái xe đợt đầu tiên cho 200 học viên. Tuổi Trẻ Online ghi nhận cận cảnh quy trình tổ chức buổi sát hạch này.
-- Chủ tịch UBND tỉnh Khánh Hòa yêu cầu khi có phản ánh các vấn đề về du lịch lên mạng, Trung tâm Giám sát điều hành thông minh Khánh Hòa phải xử lý ngay.
 ![New](News.png)
 ## Nhịp sống số 
+- PUBG Mobile tiếp tục khẳng định đẳng cấp khi đưa nội dung hợp tác Attack On Titan đến với đời thực, thu hút quan khách và người hâm mộ.
 - Gen Z học công nghệ qua TikTok đang là hiện tượng nổi bật, vừa mang lại kiến thức nhanh vừa gây tranh cãi về độ sâu sắc. Liệu đây là xu hướng bền vững hay chỉ là trào lưu nửa mùa?
 - Bạn có bao giờ tự hỏi tại sao thông tin bạn thấy trên mạng luôn trùng khớp với sở thích của mình? Filter Bubble, hiện tượng 'bong bóng lọc', đang định hình thế giới trực tuyến của chúng ta, liệu nó có đang che mắt bạn?
 - Mỗi lần bạn lướt web, click chuột hay vuốt màn hình, dữ liệu cá nhân bạn đang âm thầm bị thu thập. Điều đáng lo là bạn gần như không thể thoát khỏi nó, ngay cả khi xóa cookie hay dùng chế độ ẩn danh.
@@ -3005,5 +3006,4 @@ Trường đại học Văn Lang được QS xếp hạng top 51-100 thế giớ
 - TTO - Google vừa tung ra ứng dụng podcast độc lập dành riêng cho thiết bị Android. Ứng dụng có tên đơn giản là Google Podcasts gồm những đề xuất được cá nhân hóa với từng người dùng.
 - TTO - Sàn giao dịch tiền điện tử Bithumb của Hàn Quốc cho biết 35 tỉ won (31,5 triệu USD) giá trị tiền điện tử đã vừa bị hacker đánh cắp trong vụ tấn công mạng vừa xảy ra.
 - TTO - Sẽ xử lý nghiêm các trường hợp vi phạm bản quyền giải bóng đá World Cup 2018. Đó là ý kiến chỉ đạo của Bộ trưởng Bộ TT&amp;TT đối với việc xử lý tình trạng vi phạm bản quyền đang diễn ra trên các kênh của YouTube, mạng xã hội.
-- TTO - Một nghiên cứu gần đây cho thấy 81% các thiết bị công nghệ đều dính vi khuẩn có hại, vậy phải làm sao để vệ sinh chúng một cách an toàn nhất?
 ![life](Life.png)
