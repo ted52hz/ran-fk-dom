@@ -1,6 +1,12 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Sáng 16-6, 4.851 học sinh lớp 5 ở TP.HCM đã bước vào kỳ khảo sát lớp 6 Trường THCS và THPT Trần Đại Nghĩa.
+- Phân tích điểm thi cả 3 môn trong kỳ thi vào lớp 10 THPT công lập TP Đà Nẵng năm 2025 cho thấy điểm bài thi ngữ văn và tiếng Anh giảm mạnh, trong khi điểm thi môn toán tăng rõ rệt.
+- Khi khối C bị hắt hủi, điểm tựa nào cho những bạn trẻ ở nông thôn hiếu học vượt khó, thiếu thốn điều kiện học hành vẫn nuôi dưỡng giấc mơ vào đại học?
+- Chiều 15-6, Sở Giáo dục và Đào tạo TP Đà Nẵng công bố điểm chuẩn kỳ thi vào lớp 10. Năm nay Trường THPT Phan Châu Trinh có điểm chuẩn lớp 10 cao nhất với 32 điểm.
+- Lời chia sẻ của thầy hiệu trưởng như sợi dây cảm xúc kết nối trái tim của học sinh, phụ huynh và thầy cô trong buổi lễ đầy ý nghĩa này.
+- Chia sẻ thành tích học tập của con cái lên mạng, một hành động tưởng chừng vô hại nhưng lại tiềm ẩn nhiều nguy cơ đáng báo động.
 - Năm học đã kết thúc, nhưng những ngày này các trường THPT vẫn mở cổng để học sinh lớp 12 đến ôn tập, chuẩn bị cho một kỳ thi tốt nghiệp THPT nhiều thay đổi.
 - Trường đại học Kinh tế - Luật (Đại học Quốc gia TP.HCM) bắt đầu hồ sơ minh chứng theo yêu cầu các phương thức xét tuyển từ ngày 15-6.
 - Bộ GD-ĐT đã xác định một số môn học chịu tác động trực tiếp từ việc thay đổi địa giới hành chính gồm: Lịch sử và Địa lý lớp 4, lớp 5, lớp 9; Địa lý lớp 12; Lịch sử và Giáo dục kinh tế và pháp luật lớp 10.
@@ -995,14 +1001,46 @@
 - Ngày 24-3, Bộ GD-ĐT công bố hướng dẫn tổ chức thi tốt nghiệp THPT năm 2025. Học sinh lớp 12 bắt đầu đăng ký dự thi từ ngày 21-4.
 - Sau khi tốt nghiệp đại học, nhiều người trẻ tự hài lòng với vốn kiến thức đã có, không nỗ lực cập nhật thêm kiến thức mới.
 - Nhiều thí sinh hiện vẫn chưa xem được giấy báo dự thi đánh giá năng lực Đại học Quốc gia TP.HCM đợt 1 năm 2025.
-- Mùa hè này sẽ khác khi việc dạy thêm, học thêm không còn là một "học kỳ 3" với nhiều học sinh và thầy cô giáo.
-- Học sinh Hà Nội nộp hồ sơ đăng ký dự tuyển vào lớp 10 năm học 2025-2026 vào ngày 18-4. Kỳ thi sẽ diễn ra từ ngày 7 đến 9-6.
-- Giáo dục trẻ sử dụng tiền rất quan trọng, sẽ giúp trẻ biết tiêu xài hợp lý, rèn luyện tư duy, trách nhiệm và thái độ đúng đắn đối với tài chính trong tương lai.
-- Nguyễn Xuân Hiếu (học sinh lớp 12A3 Trường THPT Hạ Hòa, tỉnh Phú Thọ) vừa được Công an xã Ấm Hạ (Hạ Hòa) nhận làm con nuôi đầu tháng 3-2025 khi mẹ của em qua đời.
-- Ở tuổi 88, nhà giáo Bùi Long Biên đã cùng vợ, con, học trò cũ đến Đại học Bách khoa Hà Nội trao tặng 1 tỉ đồng cho sinh viên nghèo vượt khó trong học tập.
-- Thông tư 29 đã phần nào dẹp bỏ được tình trạng dạy thêm tràn lan, song vẫn còn lo ngại việc dạy thêm đang 'lách luật'.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Sáng 16-6, với 451/460 đại biểu có mặt tán thành, Quốc hội đã thông qua Luật Nhà giáo với nhiều chính sách mới về tuyển dụng, tiền lương của nhà giáo.
+- Luật Quảng cáo mới được Quốc hội thông qua đã bổ sung các quy định mới về quyền và nghĩa vụ của người chuyển tải sản phẩm quảng cáo, nhất là người nổi tiếng.
+- Quốc hội thông qua Luật Tổ chức chính quyền địa phương (sửa đổi) chuyển đổi mô hình tổ chức chính quyền địa phương từ 3 cấp thành 2 cấp.
+- Chính phủ vừa ban hành nghị định số 154 ngày 15-6 quy định về tinh giản biên chế, có hiệu lực thi hành từ ngày 16-6.
+- Với 100% đại biểu có mặt tán thành, Quốc hội đã thông qua nghị quyết của Quốc hội sửa đổi, bổ sung một số điều của Hiến pháp năm 2013.
+- Hôm nay (16-6), Quốc hội biểu quyết thông qua dự thảo nghị quyết sửa đổi, bổ sung một số điều của Hiến pháp năm 2013.
+- Liên quan vụ ô tô gây tai nạn khiến 2 người tử vong, qua tìm hiểu, chủ xe là người đàn ông có tên L.H.T. (ngụ TP.HCM), đồng thời là chủ quán bar tại quận 1.
+- Tin tức đáng chú ý: Sáng nay Quốc hội sẽ thông qua sửa đổi Hiến pháp 2013; Đề xuất mở thêm các đợt sát hạch giải quyết thiếu lái xe hạng FC; Các ngân hàng lãi 66.000 tỉ đồng...
+- Sau mưa bão thời tiết cả nước ổn định hơn, ban ngày trời nắng, có nơi nắng nóng, chiều tối vài nơi mưa dông.
+- Trong 4 ngày đàm phán, đoàn đàm phán Việt Nam và Mỹ đã đạt được nhiều tiến bộ, thu hẹp khoảng cách trong tất cả các lĩnh vực đàm phán.
+- Công an đã vào cuộc xác minh vụ việc hai người vùng cao tố bị hai xe ôm và một taxi thu 4,9 triệu đồng cho quãng đường từ bến xe Mỹ Đình (Hà Nội) đến lối vào cao tốc Nội Bài - Lào Cai.
+- Tối 15-6, trên đường Kinh Dương Vương, quận Bình Tân (TP.HCM), một ô tô 'điên' bất ngờ tông đổ lan can, lao qua làn đường xe máy tông nhiều người đi đường rồi lao lên vỉa hè. Vụ việc làm hai phụ nữ là mẹ và con gái chết tại chỗ.
+- Mặc dù việc Bình Dương sáp nhập với TP.HCM và Bà Rịa - Vũng Tàu là có thật nhưng tấm ảnh có bảng hiệu “phường Thuận An thuộc TP.HCM” được lan truyền trong ngày 15-6 chỉ là ảnh giả.
+- Trước khi chính thức vận hành chính quyền địa phương hai cấp từ ngày 1-7, Khánh Hòa sẽ vận hành thử nghiệm hoạt động cấp xã mới.
+- Kể từ ngày mai 16-6, đồng loạt 36 xã phường sau sáp nhập tại Bình Dương hoạt động thử nghiệm, bảng hiệu điểm tiếp nhận thủ tục của người dân tại nhiều xã phường mới bắt đầu được thay.
+- Liên quan clip quay cảnh đoàn kiểm tra liên ngành kiểm tra một cơ sở cây giống, nhiều người đặt vấn đề: việc kiểm tra cơ sở cây giống dựa theo quy định nào?
+- Nhiều tiểu thương tại chợ trung tâm huyện Đầm Dơi, tỉnh Cà Mau đã đóng cửa hàng vì sợ kiểm tra, xử phạt hàng hóa vi phạm quy định về hóa đơn, chứng từ.
+- Nếu chỉ quan tâm vào tấm bằng đại học mà không xét đến năng lực thực chất của công chức cấp xã sẽ dẫn đến những hệ lụy đáng lo ngại.
+- Cục Hàng không Việt Nam đánh giá vật thể bay không người lái xuất hiện tại khu vực sân bay Thọ Xuân trong hai ngày liên tiếp khó kiểm soát, tiềm ẩn nguy cơ uy hiếp an toàn với hàng không dân dụng.
+- Một người đàn ông ở Khánh Hòa nằm giữa đường ray và bị xe lửa tông tử vong.
+- Chở 120 con heo từ Cần Thơ về Bạc Liêu tiêu thụ nhưng không có giấy tờ kiểm dịch theo quy định, lực lượng chức năng lập biên bản tạm giữ số heo này, chờ xử lý các bước tiếp theo.
+- Chính phủ vừa ban hành nghị định số 153 sửa đổi, bổ sung một số điều của nghị định số 72 của Chính phủ quy định tiêu chuẩn, định mức sử dụng xe ô tô công.
+- UBND TP.HCM giao Sở Nông nghiệp và Môi trường báo cáo trước ngày 25-6 việc cấp sổ hồng và việc cấp tách đất hơn 5.000m² ở chung cư Saigon Gateway.
+- Thủ tướng Phạm Minh Chính đã nhấn mạnh như vậy khi kết luận hội nghị toàn quốc ngày 15-6.
+- Trạm dừng nghỉ tạm trước đây tại Km199 cao tốc Vĩnh Hảo - Phan Thiết đã 'hết hạn' nhưng xe cộ vẫn còn ra vào, gây nhếch nhác, mất an toàn…
+- Thường trực Ban Bí thư Trần Cẩm Tú ký ban hành quy định 305 của Bộ Chính trị về chức năng, nhiệm vụ, tổ chức bộ máy của tỉnh ủy, thành ủy trực thuộc trung ương.
+- Mỗi cán bộ thôi việc, nghỉ hưu trước tuổi ở Nghệ An sẽ được nhận hơn 1,1 tỉ đồng nếu được thẩm định, phê duyệt.
+- Thành phố Thủ Đức vừa công bố địa chỉ 12 phường mới sáp nhập trên địa bàn để người dân đến liên hệ giải quyết các thủ tục hành chính.
+- Một bé trai ở Nghệ An chới với giữa dòng nước lũ được thượng úy cảnh sát giao thông Nghệ An cứu an toàn.
+- Ban Thường vụ Tỉnh ủy Vĩnh Long vừa chỉ định, công bố danh sách bí thư, chủ tịch HĐND, UBND 35 xã, phường mới. Đa số là cán bộ cấp trên chuyển về.
+- Nghi phạm đã làm giả Facebook của con gái nạn nhân đang ở Mỹ rồi nhắn tin mượn tiền, người mẹ tin tưởng 2 lần chuyển khoản và bị lừa 680 triệu đồng.
+- Đó là đề xuất của UBND tỉnh Bình Dương tại tờ trình báo cáo nghiên cứu tiền khả thi dự án đường sắt đô thị số 1 (TP mới - Suối Tiên).
+- Có nhiều ý kiến khác nhau liên quan đến clip quay lại cảnh đoàn kiểm tra liên ngành kiểm tra tại một cơ sở cây giống ở Hậu Giang.
+- Thi thể 2 chị em mất tích khi đi bắt ếch trong đợt mưa lũ đã được tìm thấy ở đoạn sông tại địa phương.
+- Bộ Quốc phòng chính thức công bố khu vực cấm bay, khu vực hạn chế bay đối với tàu bay không người lái và các phương tiện bay khác trong vùng trời Việt Nam.
+- Tuần này thời tiết Bắc Bộ đến Trung Bộ ngày nắng nóng, có nơi nắng nóng gay gắt. Nam Bộ nhiều mây, chiều tối mưa dông.
+- Người cha đã tìm được con; BHXH yêu cầu chấm dứt tình trạng 'muốn phòng mát phải trả thêm tiền'... là những thông tin thu hút bạn đọc phản hồi tuần qua.
+- Đẩy mạnh phân cấp phân quyền, phân định rõ thẩm quyền và nhiệm vụ các cấp khi thực hiện mô hình chính quyền hai cấp, đảm bảo phục vụ người dân, doanh nghiệp hiệu quả hơn.
 - Theo ông Nguyễn Văn Dũng - phó chủ tịch UBND TP.HCM, thanh toán không tiền mặt đã và đang trở thành xu hướng phổ biến.
 - Dự thảo nghị định sửa đổi nghị định 105/2012 đề xuất bổ sung một số trường hợp được tổ chức lễ tang theo hình thức lễ tang cấp cao.
 - Một số tin tức đáng chú ý: Con gái bầu Đức thu về tiền tỉ từ bán cổ phiếu Hoàng Anh Gia Lai; Một công ty chứng khoán bị phạt vì đặt sai giá bán trái phiếu; Số ca chấn thương mùa mưa tăng tại TP.HCM...
@@ -1019,7 +1057,7 @@
 - Đại biểu Quốc hội đã biểu quyết thông qua Luật Công nghiệp công nghệ số với 441/445 tán thành (tỉ lệ tán thành 92,26%).
 - Bộ Chính trị đã có quyết định mới về chức năng, nhiệm vụ, tổ chức bộ máy Cơ quan Ủy ban Trung ương Mặt trận Tổ quốc Việt Nam.
 - Lực lượng chức năng ở Hà Tĩnh đang vào cuộc làm rõ vụ việc khiến một người đàn ông bám vào nắp ca pô chiếc ô tô đang di chuyển trên đường.
-- Trao đổi với Tuổi Trẻ Online chiều 14-6, một lãnh đạo UBND huyện Củ Chi (TP.HCM) cho biết các đơn vị chức năng đang khắc phục sự cố sạt lở khoảng 70m đê bao sông Sài Gòn (thuộc ấp 3, xã Bình Mỹ, huyện Củ Chi).
+- Trao đổi với Tuổi Trẻ Online chiều 14-6, một lãnh đạo UBND huyện Củ Chi (TP.HCM) cho biết các đơn vị chức năng đang khắc phục sự cố sạt lở khoảng 70m bờ bao sông Sài Gòn (thuộc ấp 3, xã Bình Mỹ, huyện Củ Chi).
 - Triển khai mô hình chính quyền hai cấp sẽ đẩy mạnh phân cấp, phân quyền, đi đôi với phân bổ nguồn lực, nâng cao năng lực thực thi và tăng cường giám sát, kiểm tra, thực hiện.
 - Nước lũ rút đi, những ruộng hoa màu như bắp, đậu, mè, dưa hấu ở 'rốn lũ' Đại Lộc, Quảng Nam ngã rạp, bùn non ngập ngụa, hư hỏng nặng nề, nhiều nông dân trắng tay sau lũ trái mùa.
 - Trưa 14-6, ghi nhận của Tuổi Trẻ Online, tại các tuyến đường khu vực ngã tư Thủ Đức (TP.HCM) diễn ra tình trạng kẹt xe nghiêm trọng, nguyên nhân do đâu?
@@ -1965,44 +2003,6 @@
 - Thay vì cấp thuốc bảo hiểm y tế hàng tháng, nhiều người mắc bệnh mạn tính như tiểu đường, huyết áp... mong được cấp thuốc 2 hoặc 3 tháng/lần để giảm thời gian chờ khám và giảm tải bệnh viện.
 - Hôm nay 28-5, thời tiết Bắc Bộ nhiều mây, chiều tối và đêm mưa tăng. Trung Bộ có nơi mưa to, Nam Bộ mưa tăng trở lại.
 - Tối 27-5, không lâu sau khi đến Hà Nội, Tổng thống Hungary Sulyok Tamas và Phu nhân đã cùng nắm tay nhau, dạo bước trên bờ hồ Hoàn Kiếm và cảm nhận cuộc sống về đêm tại Việt Nam.
-- Tổng Bí thư Tô Lâm nhấn mạnh nhân sự lãnh đạo các cấp trong giai đoạn mới phải hội tụ đủ đức, đủ tài, đủ tâm, đủ tầm, đủ sức, đủ nhiệt huyết cách mạng để gánh vác trọng trách lịch sử của đất nước.
-- Cục Quản lý dược vừa ra quyết định thu hồi giấy chứng nhận “Thực hành tốt sản xuất mỹ phẩm” (CGMP-ASEAN) của Công ty EBC Đồng Nai - nhà máy sản xuất các mỹ phẩm cho nhà Đoàn Di Băng vừa bị thu hồi thời gian qua.
-- "Chúng tôi không phải hướng tới sản xuất giày thể thao và áo thun. Chúng tôi muốn sản xuất thiết bị quân sự, làm những thứ lớn lao, phát triển trí tuệ nhân tạo (AI)", ông Trump nói.
-- Ngày Quốc tế thiếu nhi 1-6 đang đến gần, tiếp nối sau đó là du lịch cao điểm hè, nhiều điểm vui chơi giải trí đã rộn ràng tung hàng loạt khuyến mãi, hoạt động hấp dẫn dành cho trẻ em và gia đình.
-- Do khó khăn nên gần 10 tháng qua không được tái khám, không uống thuốc khiến tình hình sức khỏe cháu N. bị tổn thương 90%, ngày càng yếu. Hiện cháu N. đang được cấp cứu tại Bệnh viện sản nhi Sóc Trăng.
-- Gặp Thủ tướng Trung Quốc Lý Cường, Thủ tướng Phạm Minh Chính đề nghị dành ưu tiên hàng đầu thúc đẩy hợp tác đường sắt, quyết tâm khởi công tuyến Lào Cai - Hà Nội - Hải Phòng trong năm 2025.
-- Việt Nam đang đứng trước yêu cầu cấp thiết phải tái thúc đẩy tăng trưởng, trong đó việc phát triển kinh tế tư nhân không thể chỉ dừng lại ở thông điệp, mà cần các đột phá thể chế cụ thể.
-- Chiều 27-5, Sở Xây dựng Đà Nẵng cho biết vừa có thông báo về việc mở bán nhà ở xã hội tại khối nhà A, B dự án chung cư cho người thu nhập thấp An Trung 2, giá bán căn hộ là hơn 16,2 triệu đồng/m².
-- Thấy nữ du khách nước ngoài đang đi xe đạp trên đường ở Hội An, nam thanh niên chạy xe máy phía sau áp sát, giật túi xách có tiền, điện thoại rồi tẩu thoát.
-- Theo hình ảnh trên hệ thống quản lý cấp chứng chỉ nghiệp vụ chuyên môn về đấu thầu của Bộ Tài chính, chứng chỉ hành nghề đấu thầu của ông Vũ Ngọc Trụ - tổ trưởng tổ chuyên gia chấm thầu gói thầu của Tập đoàn Sơn Hải - chỉ có thời hạn đến 18-10-2023.
-- Theo EuroCham, bất cập về giấy phép lao động cho người nước ngoài của Việt Nam gây ra nhiều khó khăn, có trường hợp một chuyên gia logistics 25 năm kinh nghiệm mất sáu tháng mới được nhập cảnh.
-- Cơ quan chức năng xác định vụ 7 người mặc đồ đen, bịt mặt đập phá quán phở ở Đắk Lắk là gây áp lực để đòi nợ… người con rể trong gia đình này.
-- Viện trưởng Viện Kiểm sát nhân dân tối cao Nguyễn Huy Tiến dẫn báo cáo Bộ Công an cho biết mỗi xã sau sáp nhập tùy theo địa bàn có thể bố trí 30 - 60 cán bộ công an, trong đó từ 6 -10 điều tra viên.
-- Người dân cho biết khoảng thời điểm 15h chiều 27-5, trước căn nhà 25F Cát Linh (gần nơi đào hầm dự án metro Nhổn - ga Hà Nội), bùn từ dưới lòng đất bỗng nhiên phụt lên, cao gần 1m.
-- Lực lượng cứu hộ dùng máy bơm công suất lớn hút nước để tìm kiếm người lao xe máy xuống 'hố tử thần' ở Na Rì, Bắc Kạn.
-- Tổng thống Pháp Macron, Phó chủ tịch nước Võ Thị Ánh Xuân và lãnh đạo cấp cao hai nước bấm nút khởi công Nhà máy vắc xin và sinh phẩm VNVC, hiện thực hóa hợp tác chuyển giao công nghệ sản xuất vắc xin giữa hai đối tác chiến lược toàn diện.
-- Phòng Giáo dục và Đào tạo TP Phú Quốc xác nhận hiệu trưởng Trường mầm non Dương Đông vừa có báo cáo về vụ cô D. dạy lớp lá 5 nghi đánh cô T. - phó hiệu trưởng cùng trường - gây xôn xao dư luận.
-- Đại lý đổi ngoại tệ chỉ được mua ngoại tệ bằng tiền mặt, và bán lại số ngoại tệ tiền mặt đổi được cho tổ chức tín dụng ủy quyền theo đúng quy định về quản lý ngoại hối.
-- Ban Chấp hành Đảng bộ tỉnh Cà Mau sau hợp nhất có 61 thành viên, Ban Thường vụ Tỉnh ủy có 23 thành viên. Mục tiêu tăng trưởng giai đoạn 2026-2030 hơn 10%/năm.
-- Cơ quan khí tượng cho biết từ chiều tối 28-5, mưa dông tại TP.HCM, Nam Bộ gia tăng trở lại trong vài ngày.
-- Tình huống nêu trong bài 'Tài xế ô tô mở cửa xe bất cẩn, hắt văng tài xế xe ôm công nghệ ở Thủ Đức' không phải là cá biệt.
-- Bùn từ lòng đất lại trào lênh láng ra khu vực phố Cát Linh (Đống Đa) trong quá trình đào hầm để thi công dự án metro Nhổn - ga Hà Nội.
-- Phó chủ tịch UBND thành phố Thủ Đức - ông Đỗ Anh Khang - đã chỉ đạo phòng chuyên môn xem xét giải quyết kiến nghị tính lại tiền sử dụng đất của hộ ông Đặng Hữu Phước.
-- Kiên Giang vừa có kế hoạch triển khai thực hiện các dự án phục vụ APEC 2027 ở TP Phú Quốc, gồm 21 dự án được chia làm hai nhóm đầu tư công và đầu tư theo phương thức đối tác công tư (PPP).
-- Chiều 27-5, thừa ủy quyền của Thủ tướng, Bộ trưởng Bộ Xây dựng Trần Hồng Minh trình bày tờ trình về dự án Luật Đường sắt (sửa đổi).
-- Thủ tướng có quyền đề nghị Ủy ban Thường vụ Quốc hội ban bố tình trạng khẩn cấp. Trường hợp Ủy ban Thường vụ không thể họp ngay, Thủ tướng đề nghị Chủ tịch nước công bố tình trạng khẩn cấp trong cả nước hoặc ở từng địa phương.
-- Cơn lũ dữ bất ngờ xuất hiện trong đêm đã cuốn đi nhiều tài sản của đôi vợ chồng mới khởi nghiệp ở Hà Tĩnh.
-- Một ban quản lý dự án tại Đắk Lắk đang bị thanh tra tỉnh kiểm tra sau khi sử dụng nguồn thu nhập tăng thêm của cán bộ, nhân viên để xây dựng trụ sở làm việc mới với tổng mức đầu tư gần 29 tỉ đồng.
-- Tỉnh Lào Cai dự kiến hỗ trợ 35 triệu đồng cho cán bộ, công chức, viên chức và người lao động trên địa bàn tỉnh chuyển về làm việc tại Yên Bái ngay sau khi sáp nhập.
-- Liên quan vụ Tập đoàn Sơn Hải phản đối vì bỏ giá thấp nhất nhưng rớt thầu, tổ chuyên gia đấu thầu nêu lý do gì trong báo cáo đánh giá hồ sơ dự thầu?
-- Cần Thơ đã giải quyết chế độ, chính sách cho 40 cán bộ, công chức, viên chức và người lao động bị ảnh hưởng do thực hiện việc sắp xếp theo nghị định số 177 và nghị định số 178 của Chính phủ với số tiền hơn 41 tỉ đồng.
-- Một con cá sấu xuất hiện dưới sông Rạch Tràm. UBND thị trấn Bình Phú, huyện Cai Lậy, tỉnh Tiền Giang đã ra thông báo khẩn cảnh báo đến người dân.
-- Cuối tháng 5 đầu tháng 6 tới, Ban Thường vụ Tỉnh ủy Quảng Ngãi sẽ phê duyệt chức danh lãnh đạo chủ chốt của 55 xã và đặc khu Lý Sơn. Trong sắp xếp bộ máy, công tác cán bộ, Tỉnh ủy Quảng Ngãi thực hiện phương châm dân chủ, khách quan.
-- Ngày 27-5, chủ một đại lý vé số ở quận 12, TP.HCM cho biết hôm 17-5, bà bị một người đàn ông lừa đổi hai tờ vé số giả trúng thưởng giải tư.
-- Cơ quan chức năng ở Hà Tĩnh đã yêu cầu chủ tàu Công Thành 07 lập phương án trục vớt, thu gom hết dầu ở trên tàu để đảm bảo an toàn khu vực, tránh gây ô nhiễm vùng biển.
-- Cơ quan điều tra Viện Kiểm sát nhân dân tối cao đã tiếp nhận tố giác về tội phạm trong quá trình giải quyết vụ tai nạn giao thông ở huyện Trà Ôn, tỉnh Vĩnh Long.
-- Khoảng 350 tấn giá đỗ được ủ hóa chất có hại cho sức khỏe được phân phối đến nhiều chợ dân sinh, cửa hàng rau củ trên địa bàn tỉnh Lào Cai và các địa phương lân cận trong khoảng 1 năm qua.
-- Ngày càng nhiều bác sĩ 'vô tư' đăng tải hình ảnh, video quá trình thăm khám, điều trị của bệnh nhân lên kênh mạng xã hội như TikTok, Facebook...
 ![New](News.png)
 ## Nhịp sống số 
 - Cuối buổi sáng nay 14-6, hàng loạt thuê bao của Vinaphone bị gián đoạn liên lạc tại nhiều tỉnh, thành phố.
