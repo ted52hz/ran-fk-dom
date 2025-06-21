@@ -1,6 +1,12 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Báo giới đang tưng bừng kỷ niệm 100 năm Ngày Báo chí cách mạng Việt Nam, Tuổi Trẻ cũng chào mừng ngày của nghề theo cách riêng.
+- PGS.TS Vũ Quang Hào, một trong những giảng viên - nhà đào tạo báo chí, truyền thông hàng đầu Việt Nam, khẳng định như vậy trong cuộc trao đổi với Tuổi Trẻ nhân kỷ niệm 100 năm Ngày Báo chí Cách mạng Việt Nam.
+- Triển lãm độc đáo mang tên “Đa dạng sắc màu côn trùng Việt Nam” sẽ diễn ra từ ngày 20-6 đến 13-7-2025 tại Bảo tàng Đà Nẵng.
+- Chiều 20-6, Bộ trưởng Nguyễn Kim Sơn cùng đoàn kiểm tra của Bộ Giáo dục và Đào tạo kiểm tra công tác chuẩn bị thi tốt nghiệp THPT tại Hà Nội, địa phương có số thí sinh đông nhất trên cả nước.
+- Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) vừa quyết định không thu lệ phí tuyển sinh nữa, và sẽ hoàn trả phí cho thí sinh đã nộp.
+- Từ khóa tuyển sinh năm 2025 Trường đại học Kinh tế - Luật (Đại học Quốc gia TP.HCM) xác định học phí theo ngôn ngữ giảng dạy với mức thu khác nhau.
 - Tại hội nghị toàn quốc triển khai kỳ thi tốt nghiệp THPT năm 2025, Thủ tướng Chính phủ Phạm Minh Chính đã nêu yêu cầu chuẩn bị cho việc thí điểm thi tốt nghiệp THPT trên máy tính vào năm 2027.
 - Nhiều đại biểu quan tâm đến vấn đề dạy thêm, học thêm khi chất vấn Bộ trưởng Bộ Giáo dục và đào tạo Nguyễn Kim Sơn ngày 19-6.
 - Theo chương trình, sáng nay (20-6), Quốc hội tiếp tục tiến hành chất vấn về nhóm vấn đề thứ hai thuộc lĩnh vực giáo dục và đào tạo.
@@ -995,14 +1001,50 @@
 - Bộ Giáo dục và Đào tạo yêu cầu các trường đại học sử dụng dữ liệu điểm thi tốt nghiệp THPT, hoặc dữ liệu học bạ THPT làm gốc để xây dựng quy tắc quy đổi điểm xét tuyển năm 2025.
 - Năm nay việc tuyển sinh đầu cấp ở TP.HCM có thay đổi không? Khi nào TP công bố kế hoạch tuyển sinh đầu cấp?
 - Từ ngày 16-7 đến 28-7, thí sinh chính thức đăng ký xét tuyển, điều chỉnh nguyện vọng xét tuyển đại học năm 2025.
-- Bộ Y tế vừa có công văn yêu cầu TP.HCM tích cực điều tra, xử lý vụ nghi ngờ ngộ độc thực phẩm xảy ra tại hệ thống trường Tuệ Đức.
-- Dự kiến Trường THCS-THPT Trần Đại Nghĩa, TP.HCM sẽ tuyển sinh lớp 6 vào tháng 6-2025 thay vì tháng 7 như mọi năm.
-- Suất ăn 20.000 đồng của học sinh Trường phổ thông dân tộc nội trú THCS Mường Lát khá tươm tất, với 4 món thực phẩm và cơm trắng.
-- Đây là chia sẻ của lãnh đạo Sở Giáo dục và Đào tạo Hà Nội và TP.HCM tại hội nghị về công tác tuyển sinh đầu cấp, thi tốt nghiệp THPT 2025, đánh giá việc triển khai thông tư số 29 quy định về dạy thêm, học thêm.
-- Đồng Tháp tố chức thi tuyển sinh lớp 10 trong năm học 2025-2026 sau ba năm áp dụng hình thức xét tuyển.
-- Hơn 1.000 học sinh Vĩnh Long dự Đại hội thể dục thể thao chào mừng 50 năm Ngày Giải phóng miền Nam, thống nhất đất nước (30-4).
 ![Edu](Edu.png)
 ## Thời Sự 
+- Sáng 21-6, Tổng Bí thư Tô Lâm, các lãnh đạo, nguyên lãnh đạo Đảng, Nhà nước và các đại biểu dự Lễ kỷ niệm 100 năm Ngày Báo chí Cách mạng Việt Nam.
+- Phóng sự ảnh Lũ quét Làng Nủ: Sự sống nảy sinh từ cái chết... không để ai bị bỏ lại phía sau của phóng viên Nguyễn Khánh đạt giải A Giải báo chí quốc gia.
+- Báo giới đang tưng bừng kỷ niệm 100 năm Ngày Báo chí cách mạng Việt Nam, Tuổi Trẻ cũng chào mừng ngày của nghề theo cách riêng.
+- Phóng sự Lần theo 10.000km hàng Trung Quốc vào Việt Nam của nhóm phóng viên Tuổi Trẻ được ghi nhận với hành trình tác nghiệp dấn thân xuyên biên giới.
+- Một số tin tức đáng chú ý: Chứng khoán Maybank có chủ tịch mới; Báo cáo sai lệch, một công ty bất động sản bị phạt nặng...
+- Hôm nay 21-6, thời tiết miền Bắc có mưa rào kèm dông, miền Nam chiều tối có nơi mưa to đến rất to và rải rác có dông.
+- Tối 20-6, Thủ tướng Phạm Minh Chính chủ trì cuộc họp quán triệt, triển khai các chỉ đạo của Bộ Chính trị, Tổng Bí thư Tô Lâm về triển khai mô hình tổ chức chính quyền địa phương 2 cấp từ ngày 1-7.
+- Bộ trưởng Lương Tam Quang đề nghị người làm báo Công an nhân dân phải vừa hồng, vừa chuyên, thật sự là thư ký của thời đại, "người gác cổng" của nhân dân.
+- Chiều 20-6, Phó thủ tướng Nguyễn Chí Dũng chủ trì họp về triển khai, cung cấp dịch vụ công trực tuyến theo hướng chủ động, hoàn toàn dựa trên dữ liệu.
+- Bộ trưởng Trần Hồng Minh đảm bảo riêng đường vành đai 4 TP.HCM, lượng cát của Long An, Tiền Giang và một số tỉnh lân cận sẽ đảm bảo đáp ứng đủ.
+- Chiến dịch trấn áp buôn lậu, gian lận thương mại quy mô lớn tại An Giang kết thúc với những kết quả đáng chú ý.
+- Ngày 20-6, Cục An toàn thực phẩm, Bộ Y tế có văn bản đề nghị các đơn vị thu hồi thực phẩm bảo vệ sức khỏe Siro ăn ngon Hải Bé - sản phẩm do TikToker Hải Sen quảng cáo, bán ra thị trường.
+- 4 trong tổng số 13 ủy viên Ban Thường vụ Tỉnh ủy Long An được trao quyết định nghỉ hưu trước tuổi, 9 người còn lại đủ tiêu chuẩn, điều kiện tái cử kỳ Đại hội Đảng bộ tới.
+- Chiều 20-6, cơn mưa lớn xảy ra trên diện rộng tại TP Cần Thơ, gây ngập hầu hết các tuyến đường nội ô thành phố, giao thông đi lại khó khăn.
+- Quảng Ngãi công bố danh sách dự kiến nhân sự chủ chốt là bí thư, phó bí thư, chủ tịch UBND 56 xã, phường, đặc khu. Trong đó có cán bộ tỉnh về xã, cán bộ huyện về xã.
+- Hàng trăm tấn rác thải các loại từ biển dạt vào các bãi biển Nhật Lệ và Bảo Ninh. Đây là hai bãi biển nổi tiếng nhất tại Quảng Bình.
+- Trước thời điểm nhập tỉnh, tổ chức chính quyền 2 cấp, lãnh đạo tỉnh Gia Lai chỉ đạo các cơ quan, đơn vị thực hiện nghiêm việc xử lý tài sản công, không để xảy ra thất thoát dù là nhỏ nhất.
+- Sau gần một năm công bố dịch sởi trên toàn TP.HCM, đến nay đã có 100% phường, xã tại thành phố đủ điều kiện công bố hết dịch sởi.
+- Ban Quản lý dự án đầu tư xây dựng hạ tầng đô thị TP.HCM đã báo cáo UBND TP tình hình triển khai dự án nạo vét, cải tạo môi trường, xây dựng hạ tầng rạch Xuyên Tâm.
+- Ngày 20-6, bí thư Tỉnh ủy Gia Lai cho biết Ban Thường vụ Tỉnh ủy đã chỉ định các chức danh chủ chốt của 77 xã phường mới sau sắp xếp đơn vị hành chính cấp xã.
+- Đề xuất Chính phủ được điều chỉnh một số quy định có liên quan tại luật, nghị quyết của Quốc hội do Chính phủ trình, báo cáo Ủy ban Thường vụ Quốc hội, Quốc hội tại phiên họp, kỳ họp gần nhất.
+- Gần hai tháng qua, ông Nguyễn Đức Quân (ở TP Dĩ An, tỉnh Bình Dương) cùng vợ rong ruổi trên chiếc xe tải đi nhiều nơi tự nguyện hút đinh, vá xe, thay ruột xe miễn phí và tặng xăng giúp người đi đường.
+- Nhiều bạn đọc đã thẳng thắn đặt câu hỏi: Ai chịu trách nhiệm nếu chậm tiến độ ở dự án nút giao An Phú (TP Thủ Đức)?
+- Ông L‏‏ê ‏‏Huy To‏‏à‏‏n - ‏t‏‏ổ‏‏ng bi‏‏ê‏‏n t‏‏ậ‏‏p b‏‏á‏‏o B‏‏ì‏‏nh Thu‏‏ậ‏‏n - được bổ nhiệm gi‏‏ữ ‏‏ch‏‏ứ‏‏c v‏‏ụ ‏‏t‏‏ổ‏‏ng bi‏‏ê‏‏n t‏‏ậ‏‏p Báo và ‏‏Đà‏‏i phát thanh - truyền hình tỉnh B‏‏ì‏‏nh Thu‏‏ậ‏‏n sau hợp nhất.
+- UBND TP.HCM phê duyệt dự án xây dựng Nhà văn hóa Thanh niên với tổng vốn đầu tư hơn 2.240 tỉ đồng, gồm 25 tầng.
+- Sáng 20-6, hội nghị quán triệt triển khai vận hành thử nghiệm hệ thống chính quyền địa phương 2 cấp ở tỉnh Bắc Ninh mới đã diễn ra.
+- Bí thư Bà Rịa - Vũng Tàu Phạm Viết Thanh yêu cầu các xã mới sau khi sáp nhập không được để trở ngại, gián đoạn vận hành hệ thống chính trị, nhất là trong phục vụ nhân dân và doanh nghiệp.
+- Nhân kỷ niệm 100 năm Ngày Báo chí cách mạng Việt Nam 21-6, Tuổi Trẻ Online trân trọng giới thiệu bài viết của Ủy viên Bộ Chính trị, Bí thư Trung ương Đảng, Trưởng Ban Tuyên giáo và Dân vận Trung ương Nguyễn Trọng Nghĩa.
+- Sau một buổi sáng nắng “giòn tan”, trời trong xanh thì trưa nay 20-6, mây dông phát triển nhanh khiến bầu trời TP.HCM đen kịt, mưa sắp trút xuống.
+- Sở Xây dựng Hà Nội đang phối hợp Công an thành phố triển khai phương án phân làn bằng dải phân cách cứng trên tuyến đường Võ Chí Công (vành đai 2) và Phạm Văn Đồng (vành đai 3).
+- Chủ tịch nước phong tặng danh hiệu Anh hùng Lực lượng vũ trang nhân dân cho Ban An ninh Phú Yên (nay là Công an tỉnh Phú Yên).
+- Trụ sở HĐND - UBND xã Hồ Tràm ở Bà Rịa - Vũng Tàu đã hiển thị thuộc TP.HCM trên bảng hiệu ở cổng ra vào. Trụ sở này trước đây là nơi làm việc của HĐND - UBND huyện Xuyên Mộc.
+- Ông Nguyễn Mạnh Cường - ủy viên Ban thường vụ Thành ủy, trưởng Ban Tuyên giáo và Dân vận Thành ủy TP.HCM - mong Tuổi Trẻ phát huy và tiếp tục thực hiện tốt các nhiệm vụ được giao trong thời gian tới.
+- Sáng 20-6, 58 xã phường mới của tỉnh Bình Định đã tổ chức vận hành thử nghiệm hệ thống tiếp nhận, xử lý hồ sơ thủ tục hành chính đối với một số thủ tục và đạt kết quả tốt.
+- Năm 2024, Bộ Y tế kiểm tra 354.000 cơ sở, phát hiện 22.073 cơ sở vi phạm về an toàn thực phẩm; trong đó đã xử lý 9.043 cơ sở (43,9%), xử phạt trên 33 tỉ đồng.
+- Ông Võ Văn Quý - phó giám đốc Đài phát thanh và truyền hình tỉnh Tây Ninh - được bổ nhiệm làm phó tổng biên tập và giao phụ trách Báo và Đài phát thanh - truyền hình tỉnh Tây Ninh.
+- Ban Thường trực Ủy ban Trung ương Mặt trận Tổ quốc Việt Nam đã có quyết định kết thúc hoạt động của Ủy ban Mặt trận Tổ quốc Việt Nam TP.HCM từ ngày 30-6 và thành lập Ủy ban Mặt trận Tổ quốc Việt Nam TP.HCM mới từ 1-7.
+- Liên quan đến vụ việc khoảng ngàn chai nước mắm, nước chấm bị vứt ven đường ở xã Tam Thái, huyện Phú Ninh, Quảng Nam, cơ quan chức năng đã triệu tập 2 người lên làm việc.
+- Phó thủ tướng thường trực Nguyễn Hòa Bình báo cáo làm rõ các vấn đề liên quan và trực tiếp trả lời chất vấn của đại biểu Quốc hội.
+- Mạng lưới đường sắt đô thị sẽ được rà soát tổng thể theo mô hình, tầm nhìn mới, phù hợp với bối cảnh mở rộng địa giới hành chính khi hợp nhất Bình Dương, Bà Rịa - Vũng Tàu vào TP.HCM.
+- Hơn 1,23 triệu biển số xe vừa được niêm yết trên cổng thông tin điện tử Bộ Công an, trang thông tin điện tử Cục Cảnh sát giao thông để người dân lựa chọn đấu giá.
+- UBND tỉnh Bà Rịa - Vũng Tàu vừa có quyết định điều chỉnh quy hoạch thời kỳ 2021-2030, tầm nhìn đến năm 2050. Theo đó bổ sung cao tốc Hồ Tràm - Long Thành, bỏ sân bay Gò Găng và duy trì sân bay Vũng Tàu.
 - Sau thời gian tạm tuyển, thực hiện chủ trương của Bộ Công an, Công an tỉnh Long An đã tuyển dụng chính thức đối với chị Nguyễn Thị Thúy Diễn, em ruột liệt sĩ Nguyễn Xuân Hào.
 - Nhiều đại biểu quan tâm đến vấn đề dạy thêm, học thêm khi chất vấn Bộ trưởng Bộ Giáo dục và đào tạo Nguyễn Kim Sơn ngày 19-6.
 - Ngày 19-6, Quốc hội chất vấn Bộ trưởng Bộ Tài chính Nguyễn Văn Thắng giữa nhiều vấn đề thời sự nổi lên của ngành, liên hệ trực tiếp đến đời sống người dân.
@@ -1012,7 +1054,7 @@
 - Theo chương trình, sáng nay (20-6), Quốc hội tiếp tục tiến hành chất vấn về nhóm vấn đề thứ hai thuộc lĩnh vực giáo dục và đào tạo.
 - Trong vụ án làm giả sữa bột mang nhãn hiệu HIUP vừa bị khởi tố, cơ quan chức năng xác định ban đầu ít nhất ba doanh nghiệp có liên quan, đóng vai trò khác nhau trong chuỗi sản xuất phân phối sản phẩm ra thị trường.
 - Sau khi biên tập viên Quang Minh lên tiếng cho rằng mình bị lừa vụ quảng bá cho sữa Hiup, đến lượt Nguyễn Thanh Vân - MC Vân Hugo, cũng lên tiếng rằng 'tôi đã bị lừa'.
-- Tin tức đáng chú ý: Toàn bộ 168 phường, xã, đặc khu của TP.HCM mới sẵn sàng hoạt động từ 1-7; Sáng nay, Thủ tướng Phạm Minh Chính trả lời chất vấn tại Quốc hội; Bầu Đức chi hàng trăm tỉ đồng gom thêm cổ phiếu Hoàng Anh Gia Lai...
+- Tin tức đáng chú ý: Toàn bộ 168 phường, xã, đặc khu của TP.HCM mới sẵn sàng hoạt động từ 1-7; Sáng nay, Phó thủ tướng thường trực Nguyễn Hòa Bình trả lời chất vấn tại Quốc hội; Bầu Đức chi hàng trăm tỉ đồng gom thêm cổ phiếu Hoàng Anh Gia Lai...
 - Hôm nay 20-6, thời tiết Bắc Bộ và Nam Bộ mưa to, Trung Bộ nắng nóng đến nắng nóng gay gắt.
 - Tối 19-6, máy móc cùng công nhân đã được huy động để bắt đầu tiến hành phá dỡ, hạ giải tòa nhà Hàm cá mập.
 - Nhân kỷ niệm 100 năm Ngày Báo chí cách mạng Việt Nam, chiều 19-6, Thủ tướng Phạm Minh Chính chủ trì cuộc gặp mặt của Thường trực Chính phủ với lãnh đạo, nguyên lãnh đạo các cơ quan báo chí.
@@ -1961,50 +2003,11 @@
 - Nhiều hộ dân  bức xúc vì nhà thầu lấp suối, đặt cống làm cầu tạm thi công cao tốc Biên Hòa - Vũng Tàu gây ngập úng vườn tược, nhà cửa.
 - Chính phủ đã tiếp thu, bổ sung yêu cầu trong trường hợp giao chủ tịch UBND cấp tỉnh trực tiếp chỉ đạo, điều hành công việc của cấp xã khi cần thiết.
 - Thủ tướng Chính phủ Phạm Minh Chính ký ban hành quyết định số 1061/QĐ-TTg thành lập Ban Chỉ đạo Trung ương các chương trình mục tiêu quốc gia giai đoạn 2021 - 2025 (Ban Chỉ đạo Trung ương).
-- Ngành điện, nước đang đẩy mạnh số hóa, mang đến nhiều cải tiến trong dịch vụ và nâng cao trải nghiệm khách hàng.
-- Lãnh đạo UBND tỉnh Ninh Thuận chưa đồng ý đề xuất của Sở Nông nghiệp và Môi trường Ninh Thuận về đầu tư 16 - 20 tỉ đồng để “sửa lỗi” cho dự án cấp nước sinh hoạt miền núi 24 tỉ đồng mà Tuổi Trẻ Online từng phản ánh.
-- Ngày 3-6, Trung tâm Quản lý giao thông công cộng (thuộc Sở Xây dựng TP.HCM) đã đình chỉ tài xế xe buýt bị phản ánh tạt đầu, chèn ép ô tô con trên đường Võ Nguyên Giáp.
-- Người dân bức xúc với một quy hoạch hiện hành tại Vũng Tàu bởi khu vực nơi họ đang sinh sống ổn định bỗng biến thành ‘đất cơ quan’. Và quyền lợi chính đáng của họ đã bị ảnh hưởng.
-- Đó là thông tin ông Trần Quang Lâm - quyền giám đốc Sở Xây dựng TP.HCM - nêu ra tại phiên họp kinh tế - xã hội tháng 5 diễn ra vào sáng 3-6.
-- Sự đồng bộ và rõ ràng giữa yêu cầu kỹ thuật và tiêu chuẩn đánh giá kỹ thuật là điều kiện tiên quyết để đảm bảo công bằng, minh bạch và hiệu quả trong đấu thầu xây lắp.
-- Nhiều thí sinh tham dự kỳ thi tuyển sinh vào lớp 10 ở Nghệ An khi được hỏi đều nhận xét rằng đề thi không khó nhưng phần đọc hiểu quá dài.
-- Khu vực voi rừng quật chết người cũng là nơi cách nay một tháng có voi rừng con bị rơi xuống giếng chết.
-- Việc hợp nhất ba tỉnh Vĩnh Long, Bến Tre và Trà Vinh thành một đơn vị hành chính - kinh tế không chỉ đơn thuần là giải pháp tổ chức lại địa giới hành chính mà còn là lựa chọn có tính đột phá.
-- Ban giám đốc Sở Xây dựng TP.HCM vừa họp để xây dựng đề án thí điểm miễn cấp giấy phép xây dựng và cắt giảm thủ tục vào chiều 2-6.
-- Chủ tịch Quốc hội Trần Thanh Mẫn nhắc đến thực tế "hàng gian, hàng giả, hàng nhái, hàng kém chất lượng xảy ra, không có cơ quan nào chịu trách nhiệm chính".
-- Sáng 3-6, các cơ quan chức năng tỉnh Bình Thuận tiếp tục phối hợp cùng người thân tìm kiếm một nạn nhân mất tích tại cửa biển sông Cà Ty, TP Phan Thiết.
-- Chỉ thị của Bộ Chính trị yêu cầu không đưa vào danh sách ứng cử người đứng đầu cơ quan, tổ chức, đơn vị để xảy ra các vụ việc tham nhũng, lãng phí, tiêu cực, mất đoàn kết nghiêm trọng.
-- Dự án cầu Cần Thơ 2 được nghiên cứu với tổng chiều dài khoảng 17,2km, trong đó cầu chính là cầu dây văng 6 làn xe.
-- Anh Bảo Phúc - người nhanh trí và quên mình - cùng 2 người khác được khen thưởng vì dũng cảm cứu người đuối nước giữa sông Thạch Hãn vào 10 ngày trước.
-- Dương mặc đồ "cảnh sát cơ động dỏm", mang theo còng số 8 cùng với Quý mặc đồ dân quân tự vệ chạy xe tay ga trên quốc lộ 28B để lấy tiền người đi đường.
-- 263 trạm y tế hiện hữu của Cần Thơ, Hậu Giang và Sóc Trăng sẽ được giữ nguyên sau khi hợp nhất, thành lập thành phố Cần Thơ mới.
-- Chánh án Lê Minh Trí cho hay tới đây có thể thẩm phán cao cấp sẽ về làm việc ở tòa khu vực chứ không phải như trước là chỉ có thẩm phán sơ cấp.
-- Chủ tịch UBND TP.HCM Nguyễn Văn Được cho rằng thực phẩm giả gây ảnh hưởng trực tiếp đến giống nòi, sức khỏe của nhân dân, cần quyết liệt phòng chống.
-- Những người dân bị ảnh hưởng bởi dự án cầu Rạch Miễu 2 sẽ được bố trí một nơi ở mới, nơi được kỳ vọng sẽ giúp người dân cùng nhau phát triển thịnh vượng.
-- Nữ cựu phó phòng Tòa án nhân dân cấp cao tại Đà Nẵng bị cáo buộc đã nhận tiền môi giới hối lộ hàng loạt vụ.
-- Nhiều doanh nghiệp logistics trong và ngoài nước đang dồn dập đặt hàng vỏ container "made in Vietnam" thay vì phụ thuộc hàng nhập khẩu.
-- Sau hơn 1 giờ, tổ công tác của Đội cảnh sát giao thông đường bộ số 6 xử lý trên 20 tài xế xe máy đi lên vỉa hè. Khoảng 10 trường hợp khác được gửi thông báo phạt nguội.
-- Luật Bảo hiểm xã hội 2024 mở rộng nhóm đóng bảo hiểm xã hội bắt buộc, đó là những nhóm nào?
-- Chỉ số giá tiêu dùng (CPI) trong 5 tháng đầu năm của TP.HCM tăng 4,27%, trong đó 8/11 nhóm có chỉ số giá tăng, mức tăng cao nhất là thuốc và dịch vụ y tế với 17%.
-- Sáng 3-6, mây dông hình thành bao phủ miền Nam, nhiều nơi đã có mưa, TP.HCM dự báo mưa sớm.
-- Chủ tịch Quốc hội Trần Thanh Mẫn cho biết dự kiến sẽ trình Quốc hội xem xét, quyết định chủ trương đầu tư dự án đường vành đai 4 TP.HCM vào đợt 2 kỳ họp thứ 9.
-- Ngoài giấy chứng nhận cơ sở đủ điều kiện an toàn thực phẩm của 3 cửa hàng hết hiệu lực, các cửa hàng này cũng chưa xuất trình được bản gốc giấy chứng nhận đăng ký địa điểm kinh doanh và giấy xác nhận tập huấn kiến thức an toàn thực phẩm…
-- Lãnh đạo thành phố Sóc Trăng đã nắm được vụ việc cán bộ một phường đi du lịch ở Phú Quốc trong ngày làm việc và đang yêu cầu làm giải trình.
-- Quy định pháp luật hiện hành yêu cầu việc xây dựng phải được cấp phép, kèm với đó là các quy định tương ứng về hình thức xử lý lỗi xây dựng sai phép, không phép. Tuy nhiên, khi bỏ cấp phép xây dựng, các lỗi vi phạm trên sẽ không cần đặt ra nữa.
-- 'Chúng ta đòi hỏi Nhà nước trao quyền tự chịu trách nhiệm, ngược lại chính đơn vị tư vấn và người dân cũng phải nghiêm túc chấp hành pháp luật', tiến sĩ Phạm Viết Thuận cho hay.
-- Dự thảo nghị định quy định về thành lập, quản lý, sử dụng Quỹ giảm thiểu thiệt hại tai nạn giao thông đường bộ được Bộ Công an soạn thảo đang được Bộ Tư pháp thẩm định.
-- Một số tin tức đáng chú ý: Chứng khoán Việt Nam có hiệu suất tốt nhờ đâu?; Đại gia thủy sản trả thu nhập nhân sự bình quân 6,5 triệu/tháng; Tia cực tím có thể gây bỏng da ngay trong những ngày trời râm mát...
-- Hôm nay 3-6, thời tiết Bắc Bộ và Nam Bộ mưa to về chiều tối. Trung Bộ ngày nắng đến nắng nóng gay gắt.
-- Thay mặt Ban Chấp hành Trung ương Đảng, Tổng Bí thư Tô Lâm đã ký ban hành quy định 294 về thi hành Điều lệ Đảng, với nhiều điểm rất mới.
-- Thiếu tướng Rah Lan Lâm, giám đốc Công an tỉnh Gia Lai, nghỉ công tác hưởng chế độ hưu trí từ ngày 1-6-2025. Đại tá Phạm Hữu Trường, phó giám đốc, được giao phụ trách Công an tỉnh.
-- Trong cơn mưa dông lớn, bức tường rào cao khoảng 4m cùng trụ tường khoảng 8m của công ty bên cạnh bất ngờ đổ sập xuống nhà bà L., khiến bà và cháu ngoại 1 tuổi tử vong tại chỗ, con dâu bà bị thương nặng.
-- Khi phát hiện heo sau giết mổ có dấu hiệu bệnh về da, nhân viên thú y cần xác định đó là bệnh lý hay do quá trình vận chuyển gây ra để xử lý theo đúng quy định.
-- Bộ Chính trị, Ban Bí thư giao Chính phủ, các bộ, địa phương khẩn trương hoàn tất đề án nhân sự, tổ chức, trụ sở, chuẩn bị vận hành bộ máy cấp mới.
-- Trước thông tin một số hạng mục trên tuyến đường sắt đô thị Cát Linh -  Hà Đông xuống cấp, hư hỏng, thông tin từ Hà Nội Metro ngày 2-6 cho biết đơn vị này đã xây dựng phương án sửa chữa, khắc phục khẩn cấp một số hạng mục.
-- Sau khi Tuổi Trẻ đăng phóng sự ảnh 'Tận diệt cá dưới chân cầu Long Biên', Sở Nông nghiệp và Môi trường Hà Nội cho biết đã phối hợp với chính quyền địa phương đi kiểm tra.
-- Thủ tướng Phạm Minh Chính và Phu nhân sẽ dự Hội nghị Đại dương Liên hợp quốc tại Pháp, thăm chính thức Estonia, Thụy Điển từ ngày 5 đến 14-6.
 ![New](News.png)
 ## Nhịp sống số 
+- Liên minh AI Âu Lạc được thành lập với mục đích phát triển các mô hình ngôn ngữ lớn (LLM) có khả năng xử lý tiếng Việt chính xác, tự nhiên, phù hợp với văn hóa và bản sắc Việt Nam.
+- Một lỗ hổng bảo mật nghiêm trọng trong Microsoft Copilot khiến dữ liệu người dùng có thể bị đánh cắp mà không cần thao tác nào. Sự cố này đặt ra câu hỏi lớn: Trí tuệ nhân tạo đang giúp ta, hay đẩy ta vào thế rủi ro?
+- Mỗi ngày bạn đăng nhập, xác thực, dọn thông báo, cập nhật phần mềm, phản hồi hệ thống..., những việc tưởng như phục vụ chính bạn hóa ra lại đang nuôi sống các nền tảng số.
 - Công nghệ giúp con người sắp xếp cuộc sống hiệu quả hơn, từ nhắc nhở công việc đến học tập, giải trí. Nhưng trong sự tiện lợi ấy, nhiều người lại đánh mất quyền kiểm soát thời gian.
 - Ngày 26-6, TPHCM sẽ trở thành tâm điểm công nghệ khi DCCI Summit 2025 - hội nghị thường niên quy mô lớn nhất về trung tâm dữ liệu và điện toán đám mây của Việt Nam - chính thức trở lại.
 - Trong khi thế giới đang bước vào kỷ nguyên AI với tốc độ chưa từng thấy, một câu hỏi lớn đặt ra: Ai sẽ bị bỏ lại phía sau? Vì mỗi ngày có thêm một phần mềm mới, một ứng dụng AI mới, không phải ai cũng bắt kịp.
@@ -3002,7 +3005,4 @@
 - TTO - Công việc bận rộn, nhịp sống tất bật, di chuyển khắp nơi, đam mê trải nghiệm… là những phần không thể thiếu trong cuộc sống năng động mà phần lớn chúng ta đang trải qua mỗi ngày.
 - TTO - Với Zozosuit và Zozo Inc, người dùng không còn phải lo lắng về kích cỡ hay màu sắc sản phẩm khi mua sắm thời trang trực tuyến nữa.
 - TTO - Ngày 9-7, Bộ trưởng Bộ Thông tin và truyền thông Trương Minh Tuấn cho biết Google và Facebook đã ngăn chặn, gỡ bỏ gần 8.000 clip, đường link vi phạm pháp luật Việt Nam.
-- TTO - Nhiều nghiên cứu cho thấy ánh sáng xanh phát ra từ màn hình máy tính hoặc điện thoại dễ gây ra các triệu chứng rối loạn giấc ngủ ở trẻ em.
-- TTO - Trong ngày 4-7 bách khoa toàn thư trực tuyến mở Wikipedia dừng hoạt động tại ít nhất 3 nước châu Âu để phản đối việc Nghị viện châu Âu chuẩn bị thông qua luật bản quyền số.
-- Bên cạnh 1001 áp lực từ công việc, đối tác, dân văn phòng còn thường xuyên phải đối mặt với những rắc rối không ngờ đến từ chính ví tiền của họ.
 ![life](Life.png)
