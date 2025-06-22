@@ -1,6 +1,10 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Trong kỳ thi tốt nghiệp THPT năm 2025, thời tiết ba miền phổ biến ngày nắng, chiều tối có mưa rào và dông vài nơi.
+- Lễ tri ân và trưởng thành ở Trường THPT Nguyễn Thị Diệu, quận 3, TP.HCM có những phút giây lắng đọng rồi vỡ òa cảm xúc…
+- Điểm thi và điểm chuẩn vào lớp 10 công lập, lớp 6 Trường Trần Đại Nghĩa sẽ được Sở Giáo dục và Đào tạo TP.HCM công bố ngày 23-6 tới.
+- Trường cao đẳng Sài Gòn (SaigonTech) sẽ đến với khán giả chương trình 'Khám phá trường học' của báo Tuổi Trẻ lúc 19h tối nay 21-6.
 - Báo giới đang tưng bừng kỷ niệm 100 năm Ngày Báo chí cách mạng Việt Nam, Tuổi Trẻ cũng chào mừng ngày của nghề theo cách riêng.
 - PGS.TS Vũ Quang Hào, một trong những giảng viên - nhà đào tạo báo chí, truyền thông hàng đầu Việt Nam, khẳng định như vậy trong cuộc trao đổi với Tuổi Trẻ nhân kỷ niệm 100 năm Ngày Báo chí Cách mạng Việt Nam.
 - Triển lãm độc đáo mang tên “Đa dạng sắc màu côn trùng Việt Nam” sẽ diễn ra từ ngày 20-6 đến 13-7-2025 tại Bảo tàng Đà Nẵng.
@@ -997,13 +1001,41 @@
 - PGS.TS Nguyễn Phong Điền - phó giám đốc Đại học Bách khoa Hà Nội - cho rằng việc quy đổi tương đương điểm giữa các phương thức, tổ hợp không đến nỗi quá rắc rối, khó hiểu như nhiều người đang nghĩ.
 - Ngày hội giáo dục STEM có chủ đề Vui học - sáng tạo cùng AI thu hút sự tham gia của hơn 6.000 học sinh, giáo viên tiểu học, THCS và THPT ở TP.HCM.
 - Viện Bán dẫn và Vật liệu tiên tiến không chỉ tập trung vào nghiên cứu lý thuyết, mà còn xây dựng một hệ sinh thái tích hợp giữa nghiên cứu - ứng dụng - đào tạo.
-- Trường THCS-THPT Trần Đại Nghĩa, TP.HCM dự kiến tuyển 350 học sinh lớp 6 cho năm học 2025-2026.
-- Bộ Giáo dục và Đào tạo yêu cầu các trường đại học sử dụng dữ liệu điểm thi tốt nghiệp THPT, hoặc dữ liệu học bạ THPT làm gốc để xây dựng quy tắc quy đổi điểm xét tuyển năm 2025.
-- Năm nay việc tuyển sinh đầu cấp ở TP.HCM có thay đổi không? Khi nào TP công bố kế hoạch tuyển sinh đầu cấp?
-- Từ ngày 16-7 đến 28-7, thí sinh chính thức đăng ký xét tuyển, điều chỉnh nguyện vọng xét tuyển đại học năm 2025.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Sáng 21-6, Tổng Bí thư Tô Lâm, các lãnh đạo, nguyên lãnh đạo Đảng, Nhà nước và các đại biểu dự Lễ kỷ niệm 100 năm Ngày Báo chí Cách mạng Việt Nam.
+- Tin tức đáng chú ý: Việt Nam có tỉ lệ người béo phì tăng nhanh nhất Đông Nam Á; Cuộc kiểm soát hàng giả đang làm thay đổi cục diện cạnh tranh; Tập trung thực hiện các trọng tâm để triển khai mô hình chính quyền địa phương 2 cấp từ 1-7...
+- Hôm nay 22-6, mưa to vẫn duy trì ở Nam Bộ và Bắc Bộ. Mưa liên tục nên cần đề phòng lũ quét, sạt lở đất nguy hiểm.
+- Thủ tướng Phạm Minh Chính nói về 100 năm đầy vẻ vang của báo chí cách mạng Việt Nam, trong đó có những người làm báo dũng cảm, kiên trì, dấn thân và cống hiến.
+- Báo Tuổi Trẻ có ba tác phẩm đoạt Giải báo chí quốc gia, trong đó phóng sự ảnh xúc động về Làng Nủ giành giải A.
+- Tài xế xe đầu kéo bị tạm giữ hình sự sau vụ tai nạn thảm khốc với xe khách trên đường cao tốc Đà Nẵng - Quảng Ngãi khiến 2 người chết, nhiều người bị thương.
+- Bộ chỉ huy quân sự hai tỉnh hợp nhất lấy tên là Bộ Chỉ huy quân sự tỉnh Tây Ninh, thuộc Quân khu 7.
+- Cần cân đối, bố trí đủ kinh phí từ ngân sách, nguồn tiết kiệm chi và cấp ngân sách để chi trả kịp thời chính sách, chế độ cho người thụ hưởng.
+- Theo kết luận, các cơ quan sẽ trình Thường trực Ban Bí thư ký các quyết định chỉ định nhân sự bí thư, phó bí thư... của 23 tỉnh, thành phố mới.
+- Vụ cháy xảy ra ở quán karaoke Minh Nhật, quận Hải An, TP Hải Phòng làm một khách hàng tử vong.
+- Chiều 21-6, nhiều khu vực tại Bắc Giang mưa lớn, nhiều tuyến đường ở trung tâm TP Bắc Giang lại ngập sâu.
+- Chiều 21-6, lực lượng chức năng đã giải quyết hiện trường vụ tai nạn giao thông trên đường Kênh 19-5 (phường Sơn Kỳ, quận Tân Phú, TP.HCM) khiến hai tài xế bị thương, mắc kẹt trong cabin.
+- Chủ tịch UBND tỉnh Ninh Thuận ghi nhận những đóng góp hàng chục năm qua của cán bộ, công chức, viên chức tỉnh và đề nghị tiếp tục đoàn kết, xây dựng tỉnh Khánh Hòa phát triển sau sáp nhập.
+- Trước thời điểm nhập tỉnh, bỏ huyện, nhập xã cận kề, tỉnh Kon Tum đã thành lập tổ thường trực hướng dẫn các cơ quan, đơn vị, địa phương việc sắp xếp, xử lý tài sản công của tỉnh.
+- Ngày 21-6, Thủ tướng Phạm Minh Chính chủ trì phiên họp Chính phủ chuyên đề pháp luật tháng 6-2025, cho ý kiến về 8 nội dung quan trọng.
+- Lực lượng chức năng phường Bình Hưng Hòa, quận Bình Tân, TP.HCM, đang xác minh xử lý xe tải đổ trộm rác thải gần cầu Sa.
+- Lực lượng chức năng vừa tạm giữ 1 tấn chân gà đông lạnh có nguồn gốc từ Paraguay nhưng không có hóa đơn, chứng từ theo quy định.
+- Công an tỉnh Quảng Nam đã tạm giữ hình sự tài xế xe đầu kéo trong vụ tai nạn nghiêm trọng với xe khách trên cao tốc Đà Nẵng - Quảng Ngãi khiến hai người trên xe khách tử vong hôm 19-6.
+- Quảng Trị đã chỉ đạo các cơ quan liên quan dừng thực hiện thủ tục kiểm tra một cửa một lần dừng tại cặp cửa khẩu quốc tế Lao Bảo - Densavan.
+- Hai tháng qua, chị N. (47 tuổi) miệt mài tìm việc sau khi mất việc tại một nơi gắn bó hơn 25 năm, do tổ chức này đột ngột ngừng hoạt động.
+- Ban Thường vụ Tỉnh ủy Kiên Giang thông báo chế độ hỗ trợ cán bộ đi lại sau sáp nhập tỉnh An Giang gây chú ý với mức hỗ trợ 5,5 triệu đồng/người/tháng.
+- Tốt nghiệp khoa văn Đại học Tổng hợp Hà Nội năm 1971, tôi về làm phóng viên báo Phụ Nữ Việt Nam tại Hà Nội.
+- Sai phạm về đất đai tại hàng loạt lô đất vàng của Công ty Lương thực Đà Nẵng được chuyển đến cơ quan điều tra thụ lý.
+- Biển tên nhiều xã, phường ở Bình Dương đã thể hiện thuộc TP.HCM mới, nhân sự cũng đã được dự kiến, chờ chính thức hợp nhất với TP.HCM.
+- Chiều qua đến sáng nay, mưa lớn khiến nhiều nơi ở tỉnh Thái Nguyên ngập sâu. Nước dâng cao, người dân phải leo lên mái nhà cầu cứu.
+- Ông Nguyễn Trọng Nghĩa nhấn mạnh báo chí sẽ bước vào hành trình 100 năm tiếp theo với những khát vọng, quyết tâm, nỗ lực lớn lao để hoàn thành xuất sắc vai trò, sứ mệnh mà Đảng, Nhà nước, nhân dân tin tưởng giao phó.
+- Tổng Bí thư Tô Lâm yêu cầu báo chí phải trở thành lực lượng kiến tạo niềm tin, cổ vũ khát vọng phát triển góp phần hiện thực hóa mục tiêu xây dựng một nước Việt Nam hùng cường, thịnh vượng, trường tồn.
+- Chính phủ vừa có văn bản chấp thuận chủ trương cho Đồng Nai điều chỉnh quy hoạch để xây cầu Mã Đà kết nối Bình Phước.
+- Ngày 21-6, các xã, phường mới tại tỉnh Khánh Hòa đã bắt đầu việc chạy thử chính quyền cấp xã đạt kết quả tích cực, vận hành trơn tru.
+- Liên quan vụ cả ngàn chai nước mắm, nước chấm bị vứt bỏ ven đường ở Quảng Nam, nhiều nguời cho rằng cần điều tra, xử phạt nghiêm minh.
+- Tập đoàn Metro Quảng Châu (Trung Quốc) cho biết sẽ sẵn sàng đồng hành, hỗ trợ trong quá trình phát triển đô thị theo mô hình TOD tại TP.HCM.
+- Ban Chỉ đạo của Chính phủ định hướng có thể sắp xếp kéo dài việc sử dụng người hoạt động không chuyên trách ở cấp xã đến trước 31-5-2026.
+- Đài khí tượng thủy văn Cần Thơ dự báo thành phố này còn những cơn mưa 'khủng trên 100mm trong vài ngày tới.
+- Sáng 21-6, Tổng Bí thư Tô Lâm, các lãnh đạo, nguyên lãnh đạo Đảng, Nhà nước và các đại biểu dự Lễ kỷ niệm 100 năm Ngày Báo chí cách mạng Việt Nam.
 - Phóng sự ảnh Lũ quét Làng Nủ: Sự sống nảy sinh từ cái chết... không để ai bị bỏ lại phía sau của phóng viên Nguyễn Khánh đạt giải A Giải báo chí quốc gia.
 - Báo giới đang tưng bừng kỷ niệm 100 năm Ngày Báo chí cách mạng Việt Nam, Tuổi Trẻ cũng chào mừng ngày của nghề theo cách riêng.
 - Phóng sự Lần theo 10.000km hàng Trung Quốc vào Việt Nam của nhóm phóng viên Tuổi Trẻ được ghi nhận với hành trình tác nghiệp dấn thân xuyên biên giới.
@@ -1034,7 +1066,7 @@
 - Sau một buổi sáng nắng “giòn tan”, trời trong xanh thì trưa nay 20-6, mây dông phát triển nhanh khiến bầu trời TP.HCM đen kịt, mưa sắp trút xuống.
 - Sở Xây dựng Hà Nội đang phối hợp Công an thành phố triển khai phương án phân làn bằng dải phân cách cứng trên tuyến đường Võ Chí Công (vành đai 2) và Phạm Văn Đồng (vành đai 3).
 - Chủ tịch nước phong tặng danh hiệu Anh hùng Lực lượng vũ trang nhân dân cho Ban An ninh Phú Yên (nay là Công an tỉnh Phú Yên).
-- Trụ sở HĐND - UBND xã Hồ Tràm ở Bà Rịa - Vũng Tàu đã hiển thị thuộc TP.HCM trên bảng hiệu ở cổng ra vào. Trụ sở này trước đây là nơi làm việc của HĐND - UBND huyện Xuyên Mộc.
+- Trụ sở HĐND - UBND xã Hồ Tràm ở Bà Rịa - Vũng Tàu đã hiển thị thuộc TP.HCM trên biển tên ở cổng ra vào. Trụ sở này trước đây là nơi làm việc của HĐND - UBND huyện Xuyên Mộc.
 - Ông Nguyễn Mạnh Cường - ủy viên Ban thường vụ Thành ủy, trưởng Ban Tuyên giáo và Dân vận Thành ủy TP.HCM - mong Tuổi Trẻ phát huy và tiếp tục thực hiện tốt các nhiệm vụ được giao trong thời gian tới.
 - Sáng 20-6, 58 xã phường mới của tỉnh Bình Định đã tổ chức vận hành thử nghiệm hệ thống tiếp nhận, xử lý hồ sơ thủ tục hành chính đối với một số thủ tục và đạt kết quả tốt.
 - Năm 2024, Bộ Y tế kiểm tra 354.000 cơ sở, phát hiện 22.073 cơ sở vi phạm về an toàn thực phẩm; trong đó đã xử lý 9.043 cơ sở (43,9%), xử phạt trên 33 tỉ đồng.
@@ -1315,7 +1347,7 @@
 - Tối 15-6, trên đường Kinh Dương Vương, quận Bình Tân (TP.HCM), một ô tô 'điên' bất ngờ tông đổ lan can, lao qua làn đường xe máy tông nhiều người đi đường rồi lao lên vỉa hè. Vụ việc làm hai phụ nữ là mẹ và con gái chết tại chỗ.
 - Mặc dù việc Bình Dương sáp nhập với TP.HCM và Bà Rịa - Vũng Tàu là có thật nhưng tấm ảnh có bảng hiệu “phường Thuận An thuộc TP.HCM” được lan truyền trong ngày 15-6 chỉ là ảnh giả.
 - Trước khi chính thức vận hành chính quyền địa phương hai cấp từ ngày 1-7, Khánh Hòa sẽ vận hành thử nghiệm hoạt động cấp xã mới.
-- Kể từ ngày mai 16-6, đồng loạt 36 xã phường sau sáp nhập tại Bình Dương hoạt động thử nghiệm, bảng hiệu điểm tiếp nhận thủ tục của người dân tại nhiều xã phường mới bắt đầu được thay.
+- Kể từ ngày mai 16-6, đồng loạt 36 xã phường sau sáp nhập tại Bình Dương hoạt động thử nghiệm, biển tên điểm tiếp nhận thủ tục của người dân tại nhiều xã phường mới bắt đầu được thay.
 - Liên quan clip quay cảnh đoàn kiểm tra liên ngành kiểm tra một cơ sở cây giống, nhiều người đặt vấn đề: việc kiểm tra cơ sở cây giống dựa theo quy định nào?
 - Nhiều tiểu thương tại chợ trung tâm huyện Đầm Dơi, tỉnh Cà Mau đã đóng cửa hàng vì sợ kiểm tra, xử phạt hàng hóa vi phạm quy định về hóa đơn, chứng từ.
 - Nếu chỉ quan tâm vào tấm bằng đại học mà không xét đến năng lực thực chất của công chức cấp xã sẽ dẫn đến những hệ lụy đáng lo ngại.
@@ -1971,40 +2003,10 @@
 - Không chỉ lĩnh vực cấp phép xây dựng, nhiều ý kiến cho rằng cần chuyển đổi phương thức quản lý từ tiền kiểm sang hậu kiểm rộng khắp các lĩnh vực.
 - Phenoxyethanol là chất gì, có ảnh hưởng đến sức khỏe không mà khiến nhiều nhãn hàng 'giấu nhẹm'?
 - Hôm nay 4-6, thời tiết Bắc Bộ và Nam Bộ vẫn xuất hiện mưa to, Trung Bộ nắng nóng từ Thanh Hóa đến Bình Thuận.
-- Hàng trăm gian hàng ở chợ Đồng Hới - chợ đầu mối lớn nhất tỉnh Quảng Bình - đã đóng cửa, ngừng kinh doanh suốt 3 ngày qua.
-- Chiều 3-6, Thủ tướng Phạm Minh Chính, Bí thư Đảng ủy Chính phủ đã chủ trì hội nghị lần thứ hai Ban Chấp hành Đảng bộ Chính phủ nhiệm kỳ 2020-2025.
-- Chỉ thị số 09 ngày 3-6 được chủ tịch UBND TP Hà Nội ký yêu cầu như vậy về việc triển khai các nhiệm vụ thực hiện sắp xếp đơn vị hành chính cấp xã tại thủ đô.
-- Báo và Đài Phát thanh - Truyền hình Quảng Trị được thành lập trên cơ sở hợp nhất báo Quảng Trị và Đài phát thanh - Truyền hình Quảng Trị.
-- Bí thư Nguyễn Văn Nên cho rằng nếu mọi việc suôn sẻ, TP.HCM có thể vận hành thử bộ máy mới trong khoảng từ ngày 15 đến 20-6.
-- 125 tác phẩm đã được Hội đồng chung khảo Giải Báo chí quốc gia lần thứ 19 năm 2024 chọn để trao giải vào tối 21-6 tới.
-- Phóng xe bán tải trên bãi biển Tuy Hòa, liên tục bóp còi lúc đông người đang vui chơi, tắm biển, tài xế ở tỉnh Phú Yên bị khởi tố hình sự tội 'gây rối trật tự công cộng'.
-- Cảnh sát bắt nghi phạm khi vừa tiếp nhận lô hàng thuốc lắc được ngụy trang trong các gói thực phẩm chức năng giảm cân.
-- Dự kiến ngày 15-6 sẽ vận hành thử phường Bình Dương, là một trong những phường trọng điểm của tỉnh.
-- Ngoài chủ động nắm chắc tình hình trên vùng biển, Vùng 5 Hải quân còn giải quyết tốt những vấn đề phát sinh và đặc biệt là điểm tựa vững chắc cho ngư dân bám biển.
-- Đại tá Võ Đức Nguyện, giám đốc Công an tỉnh Bình Định, nghỉ công tác để hưởng chế độ hưu trí từ ngày 1-6-2025. Đại tá Ngô Cự Vinh, phó giám đốc, được giao phụ trách Công an tỉnh.
-- Báo Bình Định, Đài Phát thanh và Truyền hình Bình Định, Trang thông tin điện tử Đảng bộ tỉnh Bình Định hợp nhất thành báo Bình Định.
-- Các bác sĩ Bệnh viện Chợ Rẫy (TP.HCM) vừa cứu sống nữ bệnh nhân trong vụ sập tường tại Long An khiến hai bà cháu tử vong.
-- Hiện nay việc cấp phép xây dựng nhà ở riêng lẻ tại TP.HCM căn cứ các mẫu theo quy chế quản lý kiến trúc.
-- Phải chăng đang có tình trạng 'cha chung không ai khóc' đối với metro Cát Linh - Hà Đông, khi nhiều hạng mục hư hỏng nhưng chậm trễ khắc phục?
-- Dự báo trong chiều tối nay, một số quận huyện ở Hà Nội sẽ có mưa dông, sau đó có khả năng lan rộng ra các nơi khác.
-- Ban Chỉ đạo phòng, chống tham nhũng, lãng phí, tiêu cực TP.HCM thống nhất việc sắp xếp bộ máy phải gắn với làm trong sạch đội ngũ cán bộ.
-- Đại tá Phan Ngọc Tính - phó giám đốc - được giao phụ trách Công an tỉnh Vĩnh Long thay Thiếu tướng Nguyễn Trọng Dũng nghỉ hưu hưởng chế độ.
-- Ngày 3-6, Cổng thông tin điện tử Chính phủ tổ chức tọa đàm 'Mái ấm cho đồng bào: Những nỗ lực phi thường'.
-- Lãnh đạo Cục Môi trường cho biết thời điểm bắt đầu kiểm định khí thải xe máy tại Hà Nội và TP.HCM sẽ được lùi lại đến ngày 1-7-2027.
-- Kiểm tra chiếc xe khách lưu thông trên quốc lộ 1, cảnh sát phát hiện trên xe vận chuyển gần 112.000 gói măng tẩm ướp gia vị không rõ nguồn gốc xuất xứ.
-- Chủ tịch UBND TP.HCM Nguyễn Văn Được cho biết lãnh đạo TP.HCM rất ủng hộ doanh nghiệp Việt đăng ký làm hệ thống đường sắt của TP.HCM.
-- Theo Pháp lệnh Dân số mới được Ủy ban Thường vụ Quốc hội thông qua, mỗi cặp vợ chồng, cá nhân được quyết định về thời gian sinh con, số con.
-- Hai ngày nữa, một vùng nhiễu động ở giữa Biển Đông được hình thành nối với rãnh thấp sẽ gây mưa to đến rất to cho Nam Bộ.
-- Để chuẩn bị đón khách mùa cao điểm du lịch hè, các cơ sở lưu trú tỉnh Bình Định, Phú Yên đã tập trung chỉnh trang, nâng cấp cơ sở vật chất, ngoài ra các địa phương cũng tung ra loạt chương trình, sự kiện hấp dẫn.
-- Chiếc ô tô 7 chỗ không gắn biển số đậu suốt khoảng hai năm qua bên đường ở quận Bình Tân (TP.HCM), không rõ chủ xe là ai.
-- Dự Luật Cán bộ, công chức sửa đổi bổ sung quy định cho phép ký hợp đồng với doanh nhân tiêu biểu, chuyên gia làm nhiệm vụ công chức lãnh đạo
-- Tinh giản biên chế với công chức không hoàn thành nhiệm vụ 1 năm nhằm xây dựng nền hành chính chuyên nghiệp, trách nhiệm, liêm chính, phục vụ, nhưng...
-- Một doanh nghiệp trồng sâm Ngọc Linh nuôi cấy mô xin cấp mã số vùng trồng bị Chi cục Nông nghiệp tỉnh Kon Tum từ chối vì không đủ cơ sở, nhưng rồi chi cục đột ngột 'quay xe' cấp mã vùng trồng cho doanh nghiệp.
-- Nhiều hộ dân  bức xúc vì nhà thầu lấp suối, đặt cống làm cầu tạm thi công cao tốc Biên Hòa - Vũng Tàu gây ngập úng vườn tược, nhà cửa.
-- Chính phủ đã tiếp thu, bổ sung yêu cầu trong trường hợp giao chủ tịch UBND cấp tỉnh trực tiếp chỉ đạo, điều hành công việc của cấp xã khi cần thiết.
-- Thủ tướng Chính phủ Phạm Minh Chính ký ban hành quyết định số 1061/QĐ-TTg thành lập Ban Chỉ đạo Trung ương các chương trình mục tiêu quốc gia giai đoạn 2021 - 2025 (Ban Chỉ đạo Trung ương).
 ![New](News.png)
 ## Nhịp sống số 
+- Search Live cho phép người dùng đặt câu hỏi bằng giọng nói và nhận ngay phản hồi âm thanh từ AI. Lịch sử trò chuyện được lưu trong AI Mode, giúp bạn dễ dàng tra cứu lại khi cần.
+- Ứng dụng này thì bắt chữ hoa, nền tảng kia lại cần ký tự đặc biệt. Mỗi nơi một kiểu, người dùng quay cuồng với hàng chục mật khẩu khó nhớ.
 - Liên minh AI Âu Lạc được thành lập với mục đích phát triển các mô hình ngôn ngữ lớn (LLM) có khả năng xử lý tiếng Việt chính xác, tự nhiên, phù hợp với văn hóa và bản sắc Việt Nam.
 - Một lỗ hổng bảo mật nghiêm trọng trong Microsoft Copilot khiến dữ liệu người dùng có thể bị đánh cắp mà không cần thao tác nào. Sự cố này đặt ra câu hỏi lớn: Trí tuệ nhân tạo đang giúp ta, hay đẩy ta vào thế rủi ro?
 - Mỗi ngày bạn đăng nhập, xác thực, dọn thông báo, cập nhật phần mềm, phản hồi hệ thống..., những việc tưởng như phục vụ chính bạn hóa ra lại đang nuôi sống các nền tảng số.
@@ -3003,6 +3005,4 @@
 - TTO - Sao chép mã từ chìa khóa xe ô tô không khó đối với các hacker. Do đó, để bảo vệ xế hộp không bị trộm, bạn nên bọc khóa điều khiển từ xa bên trong giấy nhôm hoặc giấy bạc.
 - TTO - Mạng xã hội YouTube vừa công bố một loạt tính năng mới với hy vọng giúp tin tức video trên nền tảng của họ tin cậy và giảm nguy cơ bị thao túng hơn.
 - TTO - Công việc bận rộn, nhịp sống tất bật, di chuyển khắp nơi, đam mê trải nghiệm… là những phần không thể thiếu trong cuộc sống năng động mà phần lớn chúng ta đang trải qua mỗi ngày.
-- TTO - Với Zozosuit và Zozo Inc, người dùng không còn phải lo lắng về kích cỡ hay màu sắc sản phẩm khi mua sắm thời trang trực tuyến nữa.
-- TTO - Ngày 9-7, Bộ trưởng Bộ Thông tin và truyền thông Trương Minh Tuấn cho biết Google và Facebook đã ngăn chặn, gỡ bỏ gần 8.000 clip, đường link vi phạm pháp luật Việt Nam.
 ![life](Life.png)
