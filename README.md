@@ -1,8 +1,1063 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Sau khi TP.HCM công bố điểm thi vào lớp 10, nhiều giáo viên dự báo điểm chuẩn lớp 10 thường ở thành phố năm nay sẽ tăng nhẹ hoặc như năm trước.
+- Kỳ thi tốt nghiệp THPT năm 2025 sẽ diễn ra trong hai ngày 26 và 27-6. Chiều 25-6, thí sinh đến các điểm thi làm thủ tục.
+- Khi cả thế giới luôn "trực tuyến" thì khả năng chọn lọc và chủ động "ngắt kết nối" đúng lúc chính là dấu hiệu của việc sử dụng công nghệ hiệu quả.
+- Tỉnh Khánh Hòa vừa ban hành phương án sắp xếp bộ máy hành chính cấp chính quyền cơ sở, trong đó có 426 trường học các cấp cùng trên 12.530 người thuộc biên chế viên chức giáo dục tại các huyện, thị xã, TP hiện tại.
+- q
+- Sở Giáo dục và Đào tạo TP.HCM vừa công bố điểm thi, điểm chuẩn vào lớp 6 Trường THCS - THPT Trần Đại Nghĩa năm 2025. Thí sinh có thể xem nhanh trên Tuổi Trẻ Online.
+- Kỳ thi đánh giá năng lực hành nghề khám bệnh, chữa bệnh cấp quốc gia đầu tiên dự kiến được tổ chức vào năm 2027.
+- Trong kỷ nguyên mà tuổi thọ con người chạm mốc 100 tuổi, mô hình giáo dục đại học truyền thống đứng trước những thách thức và cơ hội tái cấu trúc sâu sắc.
+- Bình tĩnh đối diện với điểm thi lớp 10, chấp nhận năng lực thực tế của bản thân và mạnh mẽ, kiên định xác định lối rẽ.
+- Ngày 23-6, Sở Giáo dục và Đào tạo TP.HCM đã công bố điểm chuẩn vào lớp 10 chuyên và lớp 10 tích hợp năm 2025.
+- Hơn 1 triệu sĩ tử trên cả nước sắp bước vào kỳ thi tốt nghiệp THPT năm 2025. Giáo viên các bộ môn đã có nhiều chia sẻ hữu ích để giúp học sinh chinh phục kỳ thi trọn vẹn nhất.
+- Sở Giáo dục và Đào tạo TP.HCM vừa công bố điểm thi lớp 10 năm học 2025-2026, thí sinh có thể tra cứu nhanh trên Tuổi Trẻ Online.
+- Trong số 3 môn thi tuyển sinh lớp 10 ở TP.HCM thì kết quả bài thi môn văn không thay đổi nhiều.
+- Chương trình học bổng Doanh nghiệp tài trợ tại Trường đại học Quốc tế Sài Gòn (SIU) trở thành bệ phóng cho sinh viên nhờ vào sự đồng hành chặt chẽ từ đối tác.
+- Điểm thi môn toán trong kỳ thi tuyển sinh lớp 10 ở TP.HCM năm 2025 cao hơn hẳn so với năm trước.
+- Kết quả thi tuyển sinh lớp 10 ở TP.HCM khiến nhiều người bất ngờ, nhất là môn ngoại ngữ.
+- Sau lần thi SAT đầu tiên bị hủy kết quả không rõ nguyên nhân, ở lần thi thứ hai Phạm Trần Tiến Khánh chỉ ôn luyện trước 3 tuần, rồi giành điểm tuyệt đối 1.600/1.600.
+- Học bổng Chính phủ New Zealand bậc trung học (NZSS) là chương trình học bổng mà New Zealand thiết kế duy nhất cho học sinh trung học Việt Nam.
+- Toàn tỉnh có 11.350 thí sinh trúng tuyển vào lớp 10, trong đó Trường THPT Phan Chu Trinh lấy điểm chuẩn cao nhất với 17,25 điểm. Thấp nhất là Trường THPT Nguyễn Văn Trỗi với 6,25 điểm.
+- Bộ trưởng Bộ Giáo dục và Đào tạo vừa có công điện yêu cầu các địa phương ứng phó với thời tiết khắc nghiệt để tổ chức an toàn kỳ thi tốt nghiệp THPT.
+- 8h30 sáng mai 23-6, Sở Giáo dục và Đào tạo TP.HCM sẽ công bố điểm thi lớp 10 và lớp 6 ở TP.HCM, mời bạn đọc xem điểm trên Tuổi Trẻ Online.
+- Gần 500 giảng viên Đại học Bách khoa Hà Nội đã được chia ngẫu nhiên thành 300 hội đồng, phỏng vấn trực tiếp và trực tuyến 3.000 thí sinh.
+- Tuổi Trẻ ghi nhận ý kiến của học sinh, phụ huynh, giáo viên, cán bộ quản lý, chuyên gia giáo dục.
+- Trường đại học Luật TP.HCM bắt đầu nhận hồ sơ minh chứng, theo yêu cầu các phương thức xét tuyển từ sáng mai 23-6.
+- Kết quả chấm thi lớp 10 ở TP.HCM năm 2025 cho thấy phổ điểm các môn thay đổi khá nhiều so với năm 2024.
+- Trong kỳ thi tốt nghiệp THPT năm 2025, thời tiết ba miền phổ biến ngày nắng, chiều tối có mưa rào và dông vài nơi.
+- Lễ tri ân và trưởng thành ở Trường THPT Nguyễn Thị Diệu, quận 3, TP.HCM có những phút giây lắng đọng rồi vỡ òa cảm xúc…
+- Điểm thi và điểm chuẩn vào lớp 10 công lập, lớp 6 Trường Trần Đại Nghĩa sẽ được Sở Giáo dục và Đào tạo TP.HCM công bố ngày 23-6 tới.
+- Trường cao đẳng Sài Gòn (SaigonTech) sẽ đến với khán giả chương trình 'Khám phá trường học' của báo Tuổi Trẻ lúc 19h tối nay 21-6.
+- Báo giới đang tưng bừng kỷ niệm 100 năm Ngày Báo chí cách mạng Việt Nam, Tuổi Trẻ cũng chào mừng ngày của nghề theo cách riêng.
+- PGS.TS Vũ Quang Hào, một trong những giảng viên - nhà đào tạo báo chí, truyền thông hàng đầu Việt Nam, khẳng định như vậy trong cuộc trao đổi với Tuổi Trẻ nhân kỷ niệm 100 năm Ngày Báo chí Cách mạng Việt Nam.
+- Triển lãm độc đáo mang tên “Đa dạng sắc màu côn trùng Việt Nam” sẽ diễn ra từ ngày 20-6 đến 13-7-2025 tại Bảo tàng Đà Nẵng.
+- Chiều 20-6, Bộ trưởng Nguyễn Kim Sơn cùng đoàn kiểm tra của Bộ Giáo dục và Đào tạo kiểm tra công tác chuẩn bị thi tốt nghiệp THPT tại Hà Nội, địa phương có số thí sinh đông nhất trên cả nước.
+- Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) vừa quyết định không thu lệ phí tuyển sinh nữa, và sẽ hoàn trả phí cho thí sinh đã nộp.
+- Từ khóa tuyển sinh năm 2025 Trường đại học Kinh tế - Luật (Đại học Quốc gia TP.HCM) xác định học phí theo ngôn ngữ giảng dạy với mức thu khác nhau.
+- Tại hội nghị toàn quốc triển khai kỳ thi tốt nghiệp THPT năm 2025, Thủ tướng Chính phủ Phạm Minh Chính đã nêu yêu cầu chuẩn bị cho việc thí điểm thi tốt nghiệp THPT trên máy tính vào năm 2027.
+- Nhiều đại biểu quan tâm đến vấn đề dạy thêm, học thêm khi chất vấn Bộ trưởng Bộ Giáo dục và đào tạo Nguyễn Kim Sơn ngày 19-6.
+- Theo chương trình, sáng nay (20-6), Quốc hội tiếp tục tiến hành chất vấn về nhóm vấn đề thứ hai thuộc lĩnh vực giáo dục và đào tạo.
+- So với năm 2019, số lượng trẻ mầm non đến tháng 6-2025 của TP.HCM giảm 26.445 trẻ.
+- Ngày 19-6, Sở Giáo dục và Ðào tạo TP Cần Thơ đã họp báo thông tin về công tác chuẩn bị kỳ thi tốt nghiệp THPT năm 2025. Năm nay là năm khá đặc biệt, công tác chuẩn bị, tập huấn quy chế thi được triển khai sớm.
+- Sở Giáo dục và Đào tạo TP.HCM vừa công bố đề thi và đáp án kỳ khảo sát lớp 6 Trường THCS và THPT Trần Đại Nghĩa năm 2025.
+- Trong công bố kết quả xếp hạng các đại học trên thế giới năm 2026, thứ hạng của các trường đại học Việt Nam biến động bất ngờ.
+- Ngày 19-6, Mỹ mở lại chương trình cấp visa cho du học sinh quốc tế, đồng thời tuyên bố sẽ siết chặt kiểm tra mạng xã hội của ứng viên.
+- Chiều 19-6, Quốc hội chất vấn các vấn đề thuộc lĩnh vực giáo dục và đào tạo, với người trả lời là Bộ trưởng Nguyễn Kim Sơn.
+- Những hình ảnh sĩ tử mùa thi, từ buộc tóc treo ngược lên để chống buồn ngủ, luyện đề thi… qua nét vẽ ngộ nghĩnh của các cây bút trẻ.
+- Theo các chuyên gia, nhiều học sinh đang không nhận ra mình có vấn đề về tâm lý. Ngay cả phụ huynh của các em cũng xem nhẹ điều này.
+- Tổng số hồ sơ đăng ký đủ điều kiện dự tuyển vào 20 trường quân đội năm 2025 là 33.205 hồ sơ, tăng gần 42% so với năm 2024.
+- Lãnh đạo Phòng Giáo dục và Đào tạo thị xã Sơn Tây cho rằng với trường hợp thầy giáo vi phạm kỷ luật, đánh người thì không nên ở lại trong ngành.
+- Trường đại học Công nghệ TP.HCM (HUTECH) sẽ đến với khán giả chương trình Khám phá trường học của báo Tuổi Trẻ lúc 19h tối nay 19-6.
+- Sở GD-ĐT Hà Nội vừa có quyết định giao bổ sung hơn 11.000 chỉ tiêu tuyển sinh lớp 10 năm học 2025-2026.
+- Thủ tướng yêu cầu các cấp, ngành phối hợp chặt chẽ, nhịp nhàng, bảo đảm tổ chức kỳ thi nghiêm túc, công bằng, hiệu quả.
+- Đại học Huế đã hoàn thành mọi thủ tục đánh giá lại luận án tiến sĩ bị tố đạo văn và gửi kết quả đến Bộ Giáo dục và Đào tạo.
+- Hai ngày hội lựa chọn nguyện vọng xét tuyển ĐH-CĐ năm 2025 do báo Tuổi Trẻ tổ chức sẽ diễn ra đồng thời tại TP.HCM và Hà Nội ngày 19-7.
+- 'Cô trò rất vui vì có ngôi trường mới khang trang, sạch đẹp. Điểm trường cũng được đầu tư sân chơi cho các con trải nghiệm, vui chơi. Đây là động lực để các cô giáo hoàn thành nhiệm vụ chăm sóc, nuôi dạy trẻ'.
+- Chiều 18-6, Thủ tướng Phạm Minh Chính đã chỉ đạo như vậy khi chủ trì Hội nghị toàn quốc về công tác tổ chức kỳ thi tốt nghiệp THPT năm 2025.
+- Tại tọa đàm 'Đào tạo truyền thông và báo chí trong kỷ nguyên số', nhiều chuyên gia cho rằng các cơ sở đào tạo báo chí, truyền thông cần điều chỉnh chương trình đào tạo, để sinh viên 'tắm mình' vào môi trường thực tế.
+- Chiều 18-6, Thủ tướng Phạm Minh Chính chủ trì và chỉ đạo Hội nghị toàn quốc về công tác chuẩn bị kỳ thi tốt nghiệp THPT năm 2025.
+- Một thí sinh khiếm thị được bố trí phòng thi riêng có camera giám sát, giáo viên hỗ trợ đọc đề và ghi bài. Một thí sinh khuyết tật vận động sẽ có người hỗ trợ và bàn ghế phù hợp trong kỳ thi tốt nghiệp THPT 2025.
+- Hội đồng xét xử nêu quan điểm việc ông Dương Thế Hảo cho rằng Đại học Kinh tế quốc dân giữ bằng của ông trong 25 năm là không có căn cứ, nên bác yêu cầu đòi bồi thường 46 tỉ của cựu sinh viên.
+- Đại diện viện kiểm sát nhận định ông Dương Thế Hảo "có lỗi" vì sau khi tốt nghiệp đã không quay lại trường làm thủ tục nhận hồ sơ, nhận bằng; còn Đại học Kinh tế quốc dân chậm trả bằng "vì nguyên nhân khách quan".
+- Bộ Giáo dục và Đào tạo vừa ra quyết định về việc đình chỉ hoạt động đào tạo các trình độ của giáo dục đại học đối với Trường đại học Hà Hoa Tiên.
+- Trường đại học Sư phạm Hà Nội lưu ý thí sinh không cần tự quy đổi điểm, nhà trường sẽ quy đổi đảm bảo tuân thủ các quy định, hướng dẫn.
+- Phiên tòa xét xử vụ cựu sinh viên kiện Đại học Kinh tế quốc dân được mở lại để xem xét các căn cứ mà bên nguyên đơn đưa ra yêu cầu phía nhà trường bồi thường 44 tỉ vì bị giữ bằng 25 năm.
+- "Không có ChatGPT sao làm khóa luận?" - câu hỏi tưởng như đùa này lại phản ánh thực tế đáng lo ngại trong các mùa tốt nghiệp vài năm gần đây, khi ngày càng nhiều sinh viên lệ thuộc vào công cụ trí tuệ nhân tạo.
+- Sự phổ biến của các app học ngoại ngữ giúp người dùng tiếp cận kiến thức dễ dàng hơn, nhưng cũng làm lu mờ ranh giới giữa học thật và học cho có.
+- Đây là nhận định của nhiều chuyên gia, nhà khoa học, nhà quản lý đến từ Trung tâm Chuyển đổi số TP.HCM, AI Education, AI Singapore...
+- 300 cán bộ coi thi tại tỉnh Lâm Đồng đã được học cách nhận diện hành vi gian lận thi cử bằng thiết bị công nghệ cao từ lực lượng an ninh mạng.
+- Đơn vị đầu tiên này được TP.HCM phê duyệt tham gia đề án hình thành trung tâm nghiên cứu đạt chuẩn quốc tế, với khoản tài trợ 85 tỉ đồng.
+- Kỳ thi tốt nghiệp THPT đang đến gần, nhiều học sinh lớp 12 đã chọn cho mình một chiến lược an tâm, an toàn để tiến tới ngưỡng cửa đại học, đó là đăng ký xét học bạ để nhận học bổng và vững tâm bước vào chặng đua nước rút.
+- Trí tuệ nhân tạo đang trở thành công cụ hỗ trợ quan trọng giúp cá nhân hóa giáo dục, cải thiện hiệu quả học tập và giảm thiểu phân hóa.
+- Sáng 16-6, một dấu mốc lịch sử đã được ghi nhận khi Quốc hội chính thức thông qua Luật Nhà giáo - đạo luật chuyên ngành đầu tiên quy định đầy đủ về vị trí pháp lý, quyền, nghĩa vụ và các chính sách dành cho đội ngũ nhà giáo.
+- Trường đại học Ngân hàng TP.HCM vừa công bố thông tin điều kiện và cách thức tính điểm xét tuyển các phương thức tuyển sinh đại học chính quy.
+- Trong mùa tuyển sinh 2025, tại HUFLIT, bộ ba ngành Truyền thông đa phương tiện, Marketing và Kỹ thuật phần mềm nổi lên như một lựa chọn 'đón sóng' thị trường lao động.
+- Hai tỉnh Đắk Lắk và Đắk Nông đồng loạt công bố điểm tuyển sinh lớp 10 và dự kiến điểm chuẩn có thể cao hơn năm trước.
+- Trường quốc tế Á Châu (Asian School) chú trọng duy trì nề nếp trong môi trường quốc tế để học sinh không chỉ vững tri thức mà còn rèn luyện tính kỷ luật, tôn trọng và chuẩn mực.
+- 171 điểm thi tốt nghiệp THPT năm 2025 là những trường phổ thông có cơ sở vật chất đảm bảo các tiêu chuẩn an toàn, thuận lợi cho thí sinh.
+- Với 451/460 đại biểu có mặt tán thành, Quốc hội ngày 16-6 đã thông qua Luật Nhà giáo với nhiều quy định ưu đãi về lương, phụ cấp, nhà ở và trao quyền chủ động tuyển dụng cho ngành giáo dục.
+- Để khắc phục sự cố lỗi hệ thống thi đánh giá năng lực đợt 2 năm 2025, Đại học Quốc gia TP.HCM vừa mở thêm kênh tra cứu kết quả.
+- Trường THPT Huỳnh Thúc Kháng là trường có điểm trúng tuyển vào lớp 10 cao nhất ở Nghệ An năm học 2025-2026, với 24,25 điểm.
+- Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) dành hầu hết chỉ tiêu tuyển sinh đại học cho phương thức xét tuyển tổng hợp hoàn toàn khác biệt với các trường.
+- Nhiều thí sinh cho biết đề khảo sát vào lớp 6 Trường THCS và THPT Trần Đại Nghĩa, TP.HCM khá gần gũi, nhất là phần tiếng Việt.
+- Melbourne Polytechnic Việt Nam sẽ đến với khán giả chương trình Khám phá trường học của báo Tuổi Trẻ lúc 19h tối nay 16-6.
+- Bộ trưởng Nguyễn Kim Sơn khẳng định đang chuẩn bị các văn bản liên quan được ban hành kịp thời, đồng bộ với nghị quyết về miễn học phí cho học sinh.
+- Khi quyền tự chủ đại học ngày càng được mở rộng, một câu hỏi được đặt ra: đâu là triết lý phát triển bền vững, nhân văn và có trách nhiệm xã hội cho các trường đại học trong thế kỷ 21?
+- Các sinh viên khóa 4 khoa truyền thông sáng tạo của Trường đại học Nguyễn Tất Thành đã có buổi tác nghiệp ở Lễ hội Ngày không tiền mặt 2025.
+- Nhiều đại biểu kiến nghị mở rộng đối tượng phổ cập học sinh mầm non và áp dụng miễn học phí gắn với nâng cao chất lượng giáo dục.
+- Nhiều thí sinh vẫn chưa thể tra cứu kết quả thi đánh giá năng lực Đại học Quốc gia TP.HCM đợt 2 năm 2025 vì không đăng nhập được hệ thống.
+- Sáng 16-6, 4.851 học sinh lớp 5 ở TP.HCM đã bước vào kỳ khảo sát lớp 6 Trường THCS và THPT Trần Đại Nghĩa.
+- Phân tích điểm thi cả 3 môn trong kỳ thi vào lớp 10 THPT công lập TP Đà Nẵng năm 2025 cho thấy điểm bài thi ngữ văn và tiếng Anh giảm mạnh, trong khi điểm thi môn toán tăng rõ rệt.
+- Khi khối C bị hắt hủi, điểm tựa nào cho những bạn trẻ ở nông thôn hiếu học vượt khó, thiếu thốn điều kiện học hành vẫn nuôi dưỡng giấc mơ vào đại học?
+- Chiều 15-6, Sở Giáo dục và Đào tạo TP Đà Nẵng công bố điểm chuẩn kỳ thi vào lớp 10. Năm nay Trường THPT Phan Châu Trinh có điểm chuẩn lớp 10 cao nhất với 32 điểm.
+- Lời chia sẻ của thầy hiệu trưởng như sợi dây cảm xúc kết nối trái tim của học sinh, phụ huynh và thầy cô trong buổi lễ đầy ý nghĩa này.
+- Chia sẻ thành tích học tập của con cái lên mạng, một hành động tưởng chừng vô hại nhưng lại tiềm ẩn nhiều nguy cơ đáng báo động.
+- Năm học đã kết thúc, nhưng những ngày này các trường THPT vẫn mở cổng để học sinh lớp 12 đến ôn tập, chuẩn bị cho một kỳ thi tốt nghiệp THPT nhiều thay đổi.
+- Trường đại học Kinh tế - Luật (Đại học Quốc gia TP.HCM) bắt đầu hồ sơ minh chứng theo yêu cầu các phương thức xét tuyển từ ngày 15-6.
+- Bộ GD-ĐT đã xác định một số môn học chịu tác động trực tiếp từ việc thay đổi địa giới hành chính gồm: Lịch sử và Địa lý lớp 4, lớp 5, lớp 9; Địa lý lớp 12; Lịch sử và Giáo dục kinh tế và pháp luật lớp 10.
+- Trường đại học Khoa học xã hội và Nhân văn chính thức công bố thông tin tuyển sinh năm 2025 và điểm sàn của các phương thức xét tuyển.
+- Ngày 14-6, thông tin từ Sở Giáo dục và Đào tạo TP Cần Thơ cho biết đã công bố kết quả kỳ thi tuyển sinh vào lớp 10 THPT năm học 2025-2026.
+- Năm nay, học phí các chương trình chuẩn của Đại học Bách khoa Hà Nội ở mức 28 - 35 triệu đồng/năm, tăng 3 - 5 triệu đồng/năm so với năm ngoái.
+- Bài phát biểu của hiệu trưởng Trường THPT Hùng Vương, quận 5, TP.HCM tại lễ tri ân và trưởng thành dành cho học sinh lớp 12 đã gây ấn tượng đặc biệt.
+- 457 học sinh ở tỉnh Bạc Liêu có nhu cầu chuyển trường về trung tâm tỉnh Cà Mau, sau khi hai tỉnh này hợp nhất.
+- Trường đại học Luật TP.HCM vừa công bố các phương thức tuyển sinh đại học chính quy năm 2025 khác với dự kiến thông tin trước đó.
+- Đến nay đã có khoảng 40 trường đại học trên cả nước công bố điểm sàn (ngưỡng đảm bảo chất lượng đầu) vào theo phương thức xét điểm thi đánh giá năng lực, tư duy năm 2025.
+- Từ chiếc USB, tivi và bộ máy tính, lớp học nơi đảo xa trở nên sống động và gần hơn với đất liền.
+- Từ sau ngày 1-7, khi TP.HCM chính thức vận hành mô hình chính quyền 2 cấp, nếu học sinh chưa có chỗ học mầm non, lớp 1, lớp 6 thì phụ huynh sẽ tìm đến đâu để được bố trí chỗ học?
+- Chiều 13-6, Sở Giáo dục và Đào tạo tỉnh Vĩnh Phúc thông tin về việc đề thi môn toán vào lớp 10 Trường THPT chuyên Vĩnh Phúc vừa qua có sai sót và hướng xử lý.
+- Năm 2025, Trường đại học Khoa học sức khỏe (Đại học Quốc gia TP.HCM) tuyển 1.060 chỉ tiêu cho 5 ngành đào tạo đại học chính quy.
+- Nữ sinh huyện Đô Lương đạt thủ khoa kỳ thi tuyển sinh vào lớp 10 ở Nghệ An năm học 2025-2026 với 29,25 điểm.
+- Tại TH School, hạnh phúc có thể thấy trong từng khoảnh khắc nhỏ: một ánh mắt được thấu hiểu, một câu hỏi không bị đánh giá, một lời khích lệ đúng lúc, một không gian nơi các em được là chính mình.
+- Trong tập phát sóng tiếp theo của Khám phá trường học 2025, mời khán giả cùng chương trình đến thăm Trường đại học Xây dựng miền Trung.
+- Ngày 13-6, Trung ương Đoàn TNCS Hồ Chí Minh phối hợp cùng Tổ chức Giáo dục IIG Việt Nam tổ chức lễ tổng kết và trao giải cho sinh viên giành giải tại Cuộc thi Vô địch Thiết kế đồ họa thế giới - ACP World Championship 2025.
+- Trường đại học Khoa học, Đại học Thái Nguyên vừa công bố 5 chương trình đào tạo mới từ năm 2025, gồm khoa học tự nhiên tích hợp STEM, chăm sóc sắc đẹp từ dược liệu, quản lý kinh tế, luật kinh tế, quản trị truyền thông.
+- Kỳ thi vào lớp 10 được xem là một trong những kỳ thi áp lực cao, nhiều thí sinh phải ôn tập cường độ cao suốt nhiều tháng trời, có khi là nhiều năm học thêm không ngơi nghỉ.
+- TP Nha Trang, Khánh Hòa vừa điều chỉnh kế hoạch đầu tư công, bổ sung dự án và vốn đầu tư cho 20 trường học sửa chữa, xây mới nhà vệ sinh ngay trong hè này.
+- Kỷ niệm 30 năm thành lập (26-4-1995 - 26-4-2025), Trường đại học Công nghệ TP.HCM (HUTECH) tặng học bổng trị giá 25% học phí cho thí sinh đăng ký xét học bạ đáp ứng đủ điều kiện.
+- Ngoài lần đầu xét tổ hợp A00 (toán, lý, hóa), năm nay Trường đại học Y Hà Nội tăng chỉ tiêu xét tuyển thẳng cho mỗi ngành lên tới 40% (tăng 15% so với năm ngoái).
+- Thượng tá Hoàng Văn Hiều cho hay hiện nay ma túy tổng hợp ẩn nấp dưới nhiều dạng khác nhau, ngay cả trong bánh kẹo, nước uống tại những cuộc giao lưu, sinh nhật.
+- Đại học Quốc gia TP.HCM vừa công bố thông tin kết quả kỳ thi đánh giá năng lực đợt 2 năm 2025, thí sinh có điểm thi cao nhất là 1.122 và thấp nhất 81 điểm.
+- Qua 60 năm hình thành và phát triển, Học viện Cán bộ TP.HCM đã và đang không ngừng nâng cao chất lượng, đáp ứng nhu cầu cách mạng thực tiễn.
+- Những chiếc TVC (clip quảng cáo truyền hình) của sinh viên đậm chất gen Z, giàu cảm xúc và sáng tạo bất ngờ đã biến bảo tàng lịch sử thành nơi chốn của cảm hứng và kết nối.
+- Ngày 12-6, thông tin từ lãnh đạo Trường đại học Cần Thơ cho biết Bộ Giáo dục và Đào tạo đã có văn bản đồng ý về chủ trương chuyển Trường đại học Cần Thơ thành Đại học Cần Thơ.
+- Nhiều giáo viên và phụ huynh tại Trường tiểu học Trung Sơn Trầm (thị xã Sơn Tây, Hà Nội) bày tỏ bất an khi thầy giáo dạy thể dục được trở lại trường làm việc, dù từng đánh bảo vệ trường chấn thương sọ não.
+- Theo một số giáo viên chấm thi lớp 10 ở TP.HCM, điểm thi năm nay khá khả quan. Sau ngày chấm thi đầu tiên đã có điểm 10 môn toán.
+- Toàn bộ thành viên trong ban điều hành Học bổng Ngoại giao Fulbright thông báo từ chức vào ngày 11-6, đồng thời cáo buộc chính quyền của Tổng thống Mỹ Donald Trump đã can thiệp chính trị vào chương trình trao đổi danh giá này.
+- Kỳ thi tốt nghiệp THPT là một trong những kỳ thi quan trọng nhất của học sinh Việt Nam, đánh dấu bước chuyển quan trọng từ giáo dục phổ thông sang các bậc học cao hơn.
+- Hàn Quốc đang là nhà đầu tư hàng đầu tại Việt Nam, nhu cầu nhân lực được đào tạo bài bản theo tiêu chuẩn Hàn Quốc ngày càng tăng.
+- 923 giáo viên và nhà trường ở huyện Bắc Hà (Lào Cai) không đủ điều kiện xét khen thưởng hoặc trình cấp trên khen thưởng năm học 2024-2025 do không tham gia công tác xã hội, từ thiện.
+- Chính phủ Liên bang Nga dành 1.000 chỉ tiêu học bổng các trình độ đại học, thạc sĩ, tiến sĩ, thực tập chuyên ngành và tiếng Nga cho công dân Việt Nam mỗi năm.
+- Năm nay, Trường đại học Việt Nhật, Đại học Quốc gia Hà Nội, mở rộng từ 14 lên 33 tổ hợp xét tuyển, trong đó lần đầu xét tổ hợp 3 môn văn, sử, địa cho ngành Nhật Bản học.
+- Vượt qua những “đối thủ” mạnh nhất đến từ các trường đại học hàng đầu thế giới, đội tuyển Dongry Corporation đến từ Đại học (ĐH) Duy Tân đã xuất sắc giành ngôi vô địch cuộc thi ERPsim International Competition 2025 vào ngày 5-6-2025.
+- Trường đại học Y Dược TP.HCM công bố thành lập 3 trường “con” đã khiến nhiều người thắc mắc tại sao trường đại học lại thành lập thêm trường để làm gì và trường này có phải là đại học chưa?
+- Năm 2025, Trường đại học Y Dược Cần Thơ có nhiều phương thức xét tuyển nhất, với 5 phương thức.
+- Ngày 11-6, Trường cao đẳng Kỹ thuật Cao Thắng (TP.HCM) công bố kết quả xét tuyển bằng học bạ THPT năm 2025.
+- Một học sinh 14 tuổi tại Pháp đã đâm chết nhân viên kiểm tra an ninh và làm bị thương một cảnh sát kiểm tra cặp sách tại trường trung học.
+- Sở Giáo dục và Đào tạo TP.HCM vừa công bố đáp án kỳ thi tuyển sinh lớp 10 năm 2025.
+- Nhiều người cho rằng tổ hợp xét tuyển vào các trường đại học hiện nay là sản phẩm của chương trình phân ban 2006. Thật ra ngược lại.
+- Danh mục sản phẩm vi mạch chiến lược trong khung chương trình sẽ bao gồm các chip có tính ứng dụng cao, khả năng thương mại hóa lớn.
+- Năm nay Trường đại học Y Dược, Đại học Quốc gia Hà Nội, tuyển 720 sinh viên cho 6 ngành đào tạo.
+- Ba trường vừa được thành lập thuộc Trường đại học Y Dược TP.HCM gồm Trường Y, Trường Dược và Trường Điều dưỡng - Kỹ thuật y học.
+- Royal School sẽ đến với khán giả trong chương trình Khám phá trường học của báo Tuổi Trẻ lúc 19h hôm nay 10-6.
+- Sáng 10-6, Đại học Quốc gia TP.HCM công bố triển khai phương thức ưu tiên xét tuyển học sinh giỏi, tài năng của các trường THPT.
+- Sau sáp nhập, sẽ có 208 học sinh tỉnh Phú Yên theo cha mẹ lên Đắk Lắk trọ học ở TP Buôn Ma Thuột.
+- Sau những lý giải của Bộ trưởng Nguyễn Kim Sơn về lý do cấm giáo viên dạy thêm học sinh chính khóa của mình, nhiều bạn đọc góp thêm ý kiến.
+- Bộ Ngoại giao Mỹ đảo ngược quyết định về vấn đề cấp thị thực cho sinh viên Đại học Harvard, sau khi thẩm phán chặn bước đi của chính quyền Trump.
+- 'Thí sinh thuận lợi hơn khi chỉ ngồi tại một phòng thi nhưng cán bộ tại điểm thi sẽ vất vả hơn', GS.TS Huỳnh Văn Chương, cục trưởng Cục Quản lý chất lượng (Bộ GD-ĐT), nói khi kiểm tra việc chuẩn bị thi tốt nghiệp THPT ở Bắc Giang.
+- Sở Giáo dục và Đào tạo tỉnh Phú Yên vừa công bố điểm chuẩn trúng tuyển vào lớp 10 Trường THPT chuyên Lương Văn Chánh.
+- Trường Phổ thông Năng khiếu, Đại học Quốc gia TP.HCM vừa công bố điểm thi, điểm chuẩn lớp 10 năm học 2025-2026.
+- Theo Sở GD-ĐT Hà Nội, trong kỳ thi tốt nghiệp THPT sắp tới, Hà Nội sẽ áp dụng bản đồ số để hỗ trợ thí sinh, phụ huynh tìm điểm thi.
+- Hiện nay các trường đại học đã tuyển sinh theo nhiều phương thức xét tuyển đa dạng nhưng việc xét tuyển theo khối thi có còn phù hợp với Chương trình giáo dục phổ thông 2018?
+- Trường đại học VinUni chính thức công bố chiến lược tăng tốc phát triển giai đoạn 2 với mục tiêu trở thành một trong 100 đại học xuất sắc nhất toàn cầu.
+- Trường Phổ thông Năng khiếu, Đại học Quốc gia TP.HCM cho biết sẽ công bố điểm thi, điểm chuẩn lớp 10 năm học 2025-2026 vào khoảng 10h-11h hôm nay (10-6).
+- Đã có những tỉnh thành đầu tiên công bố điểm thi, điểm chuẩn lớp 10 năm 2025. Dự kiến trong nửa cuối tháng 6, hàng loạt địa phương sẽ công bố kết quả.
+- Ở tuổi 19, Mạnh Đức đi thi vào lớp 10 và dắt theo em gái nhỏ. Đến cổng trường, nam sinh nhờ các tình nguyện viên trông em gái giúp và vội vàng vào phòng thi.
+- Báo cáo gửi đại biểu Quốc hội trước phiên chất vấn kỳ họp thứ 9, Bộ trưởng Nguyễn Kim Sơn tiếp tục đề xuất đưa dạy thêm, học thêm vào danh mục ngành nghề kinh doanh có điều kiện.
+- Sau 150 phút làm bài thi ngữ văn vào lớp 10 chuyên ở Hà Nội, nhiều thí sinh bước ra khỏi điểm thi với gương mặt vui tươi và nhận định đề thi "dễ hơn tưởng tượng", "mang tính cá nhân cao"...
+- Dự Luật Nhà giáo quy định lương nhà giáo được xếp cao nhất trong hệ thống thang bậc lương. Nhưng ông Phan Văn Mãi đề xuất cần có chế độ gấp đôi, gấp ba để tuyển chọn những người ưu tú nhất.
+- Hơn 102.000 thí sinh Hà Nội vừa trải qua kỳ thi dành cho khối không chuyên để tuyển sinh vào lớp 10 công lập. Mối quan tâm bây giờ là điểm chuẩn vào các trường liệu có biến động mạnh không?
+- Bộ trưởng Nguyễn Kim Sơn nêu rõ, trong trách nhiệm thực thi công vụ, giáo viên phải hoàn thành việc trang bị kiến thức cho học sinh của mình ngay trong giờ chính khóa.
+- Bên cạnh việc đào tạo thực hành, thực chiến dài hạn, xuyên suốt nguyên một học kỳ tại báo Tuổi Trẻ như lâu nay, chương trình Làm báo cùng Tuổi Trẻ mở ra một mô hình mới trong hợp tác đào tạo báo chí - truyền thông.
+- Học bổng trị giá 1 triệu đồng/suất dành cho các em nghèo hiếu học ở Kiên Giang cố gắng phấn đấu, vượt qua khó khăn, đi học để viết tiếp tương lai.
+- Trò chuyện với một cô giáo dạy văn trong lúc chờ học trò thi môn văn của kỳ thi tuyển sinh vào lớp 10 Hà Nội, bắt đầu với con số thật ấn tượng: một năm học, học trò được tiếp cận 86 văn bản và tác phẩm.
+- Dự kiến từ ngày 4 đến 7-7 sẽ công bố điểm thi lớp 10 trên cổng thông tin của Sở GD-ĐT Hà Nội và công bố điểm chuẩn vào các trường THPT công lập.
+- Mời bạn đọc tham khảo bài giải môn toán thi lớp 10 tại Hà Nội.
+- 'Với tôi, văn hóa Việt Nam là vượt qua mọi thử thách, là vươn lên không ngừng để chạm đến điều mình đã đặt ra, giống như tinh thần của một con rồng', Amanda Nguyễn chia sẻ.
+- Hết giờ thi toán vào lớp 10, nhiều thí sinh ở Hà Nội tươi rói, có thí sinh hét lớn 'thắng rồi', '9 điểm rồi'... Một số em cho biết câu khó để phân hóa học sinh chiếm 10%.
+- Năm nay Trường đại học Khoa học tự nhiên sử dụng 28 tổ hợp xét tuyển (tăng 18 tổ hợp). Ngoài tổ hợp D10 (toán, lý, địa) đã xét năm ngoái, trường bổ sung thêm 9 tổ hợp có môn sử hoặc địa.
+- Ngày 7-6, thí sinh ở Hà Nội đã dự thi môn văn, ngoại ngữ kỳ thi tuyển sinh vào lớp 10 năm học 2025-2026.
+- Nhiều giáo viên dự đoán điểm thi lớp 10 ở TP.HCM năm nay sẽ tăng nhẹ. Dự kiến điểm thi sẽ được công bố vào ngày 23-6.
+- 93 sinh viên Trường đại học Cửu Long (tỉnh Vĩnh Long) vừa có chuyến trải nghiệm tác nghiệp, chụp ảnh trên tàu metro số 1 ở TP.HCM.
+- Ngày 7-6, Trường đại học Nông Lâm TP.HCM tổ chức hội thảo khoa học "Nâng cao chất lượng đào tạo ngành quản lý đất đai - bất động sản trong bối cảnh mới", với sự tham gia của đông đảo chuyên gia, giảng viên và sinh viên.
+- Trường đại học Mở Hà Nội đã mở lại tổ hợp C00 (văn, sử, địa) với nhóm ngành luật mà trường thông báo dừng xét tuyển trước đó.
+- Hội đồng chấm thi tuyển sinh lớp 10 sẽ làm việc ngay từ ngày mai (8-6), dự kiến công bố điểm thi vào ngày 23-6.
+- Theo giáo sư Trần Văn Thọ, người trẻ Việt Nam không chỉ cần giỏi tiếng Anh mà tiếng Việt cũng phải chuẩn, đồng thời cần giỏi lịch sử, văn hóa, văn học để có thể thích ứng với nhiều hoàn cảnh công việc.
+- Trong cơn mưa lớn chiều 7-6, một phòng thi tuyển sinh lớp 10 tại điểm thi Trường THPT Nguyễn Hữu Thọ, quận 4 đã bị dột.
+- Mời bạn đọc tham khảo bài giải 24 mã đề tiếng Anh thi lớp 10 tại Hà Nội. Thí sinh và giáo viên đều nhận xét đề vừa sức thí sinh.
+- Chiều 7-6, gần 104.000 học sinh Hà Nội dự thi môn thứ hai của kỳ thi tuyển sinh vào lớp 10 là ngoại ngữ, thời gian làm bài 60 phút. Nhiều thí sinh tự tin lấy điểm 8, 9.
+- Amanda Nguyễn chia sẻ 4 bài học từ những trải nghiệm của cô với sinh viên Trường đại học Fulbright Việt Nam trong ngày tốt nghiệp.
+- Đây là chương trình đào tạo được Tuổi Trẻ thiết kế đặc biệt cho sinh viên các trường đại học nằm ngoài TP.HCM mong muốn học tập tại tòa soạn.
+- Kỳ thi tuyển sinh đại học toàn quốc (cao khảo - gaokao) của Trung Quốc năm nay chính thức bắt đầu từ ngày 7 và kéo dài đến ngày 10-6.
+- Đề thi môn văn kỳ thi tuyển sinh lớp 10 ở TP.HCM thể hiện rất rõ yêu cầu cấp thiết: đổi mới việc dạy và học văn trong trường phổ thông.
+- Mạng xã hội lan truyền đoạn video ở một quán cơm bình dân. Người đăng viết ngắn gọn: "Về lý thì không sai, nhưng về tình sao xót chú quá".
+- Mời bạn đọc tham khảo bài giải môn toán thi lớp 10 tại TP.HCM. Đề thi năm nay được nói là bám sát đề minh họa, chỉ có câu 6, 7 mang tính phân loại thí sinh.
+- Thủ tướng Phạm Minh Chính đã ký chỉ thị số 17 về việc tổ chức dạy học 2 buổi/ngày và tổ chức sinh hoạt hè cho trẻ em, học sinh.
+- Mời bạn đọc tham khảo gợi ý bài giải môn văn thi lớp 10 tại Hà Nội. Đề thi năm nay được thí sinh khen hay, gần gũi.
+- Nhiều thí sinh khối C bỗng nhiên hoang mang khi ít nhất 5 trường đại học lớn phía Bắc bất ngờ loại tổ hợp C00 (văn, sử, địa) khỏi nhiều ngành.
+- Hơn 76.000 thí sinh ở TP.HCM vừa hoàn thành bài thi toán. Nhiều thí sinh nói đề năm nay khó với các em, nhưng cũng không ít em tự tin lấy điểm 7, 8.
+- Sáng 7-6, gần 104.000 học sinh Hà Nội dự thi môn đầu tiên của kỳ thi tuyển sinh lớp 10 năm nay: môn ngữ văn.
+- Đây là động thái mới nhất của nhà trường sau phản ứng từ thí sinh về việc trường bất ngờ bỏ xét tổ hợp C00 (văn, sử, địa) ở 17 ngành.
+- Trường đại học Công nghệ TP.HCM (HUTECH) chính thức triển khai chương trình cử nhân chuyển tiếp quốc tế cùng Đại học Auckland (University of Auckland - UoA), New Zealand.
+- Lựa chọn học tập tại một đại học đảm bảo về chất lượng với các chương trình đạt kiểm định TedQual và “nhập khẩu” từ Mỹ cùng cơ sở hiện đại bậc nhất, sinh viên Đại học (ĐH) Duy Tân thuộc khối ngành Du lịch luôn có nhiều cơ hội việc làm đỉnh cao.
+- Năm nay đề thi văn sẽ không dùng ngữ liệu có trong sách giáo khoa. Thí sinh phải nắm vững kiến thức, có kỹ năng đọc hiểu, viết văn.
+- Trường đại học Khoa học xã hội và Nhân văn (Đại học Quốc gia Hà Nội) mở thêm tổ hợp C03 và C04 cho tất cả 28 ngành đào tạo của trường.
+- Theo Bộ trưởng Bộ Giáo dục và Đào tạo Nguyễn Kim Sơn, kỳ thi tốt nghiệp THPT 2025 có nhiều đổi mới từ khâu tổ chức thi tới đề thi, môn thi và là kỳ thi đầu tiên thi theo chương trình giáo dục phổ thông mới.
+- Hội đồng tuyển sinh Trường đại học Khoa học xã hội và Nhân văn vừa quyết định mở thêm tổ hợp C03 (toán, văn, sử) và C04 (toán, văn, địa) cho tất cả 28 ngành đào tạo của nhà trường năm 2025.
+- Thí sinh thi lớp 10 tại điểm thi THCS Trần Hưng Đạo, Q.12, TP.HCM đã sử dụng 2 màu mực để làm bài thi môn ngữ văn. Em vẫn được làm bài thi nhưng bị lập biên bản bất thường và được gửi cảnh báo.
+- Chiều 6-6, Đại học Quốc gia TP.HCM công bố kết quả trúng tuyển chương trình thu hút các nhà khoa học trẻ xuất sắc, nhà khoa học đầu ngành về công tác tại Đại học Quốc gia TP.HCM đợt 1 năm 2025.
+- Mời bạn đọc theo dõi bài giải môn tiếng Anh thi lớp 10 tại TP.HCM vừa diễn ra chiều nay.
+- Hội đồng thi đánh giá năng lực Đại học Quốc gia TP.HCM vừa chính thức thông tin về việc xử lý sự cố tại một số phòng thi trong kỳ thi đánh giá năng lực đợt 2 năm 2025.
+- Bộ trưởng Bộ Giáo dục và Đào tạo Nguyễn Kim Sơn cho rằng việc tập trung đầu tư một vài trường phổ thông có chất lượng nổi trội hơn mặt bằng chung là sai lầm, bởi giáo dục phổ thông phải hướng tới sự công bằng.
+- Chiều 6-6, kỳ thi tuyển sinh vào lớp 10 ở TP.HCM tiếp tục với môn thi thứ hai là tiếng Anh. Trao đổi nhanh với nhiều thí sinh, các em cho biết đề nhẹ nhàng, dễ lấy điểm 8, 9.
+- Trước phản ánh của thí sinh khi nhiều trường bất ngờ thay đổi tổ hợp xét tuyển đại học cận kề kỳ thi tốt nghiệp THPT, Bộ Giáo dục và Đào tạo yêu cầu các trường đại học chịu trách nhiệm giải trình với những thay đổi.
+- Phải chăng, thời đại AI đang dần lấy đi tuổi thơ trong mỗi con người, không chỉ trẻ nhỏ, mà cả với người lớn?
+- Ngày 6-6, gần 11.000 thí sinh tại TP Cần Thơ tham gia thi môn ngữ văn kỳ thi tuyển sinh vào lớp 10 THPT năm học 2025-2026.
+- Sinh viên Trường đại học Ngoại ngữ - Tin học TP.HCM (HUFLIT) được đào tạo chuyên sâu nghiệp vụ môn học 'Phân tích và bình luận sự kiện quốc tế' tại báo Tuổi Trẻ.
+- Sáng 6-6, nhiều thí sinh thi vào lớp 10 đã đến nhầm điểm thi Trường THPT Khương Đình và Trường THCS Khương Đình, quận Thanh Xuân, Hà Nội.
+- Mời bạn đọc theo dõi gợi ý bài giải môn văn thi lớp 10 tại TP.HCM. Đề thi năm nay được khen gần gũi với lứa tuổi 15 của học sinh.
+- Có một thí sinh đặc biệt được giáo viên viết hộ bài thi tuyển sinh lớp 10 tại điểm thi Trường THCS Ngô Chí Quốc, TP Thủ Đức, TP.HCM.
+- 10h sáng, thí sinh hết giờ làm bài môn thi ngữ văn kỳ thi vào lớp 10 ở TP.HCM. Nhiều thí sinh nhận xét đề hay, gần gũi và vừa sức với đa số học sinh.
+- Đầu tháng 6, nhiều trường đại học bất ngờ thông báo không xét tuyển tổ hợp văn - sử - địa (khối C) trong đợt tuyển sinh năm 2025.
+- Theo Thứ trưởng Hoàng Minh Sơn, khi các trường đại học bỏ xét tuyển tổ hợp C00, đưa ra những tổ hợp thay thế không phù hợp sẽ ảnh hưởng đến quyền lợi của thí sinh.
+- Kỳ thi lớp 10 năm nay ở Hà Nội, thí sinh không được mang vào phòng thi atlat địa lý, bảng tuần hoàn và bảng tính tan.
+- Trước giờ thi môn ngữ văn, nhiều thí sinh dự thi vào lớp 10 ở TP.HCM năm nay chia sẻ các em thấy thoải mái, tự tin vì đã ôn bài kỹ lưỡng.
+- Hôm nay 6-6, hơn 76.000 thí sinh tại TP.HCM sẽ bước vào kỳ thi tuyển sinh lớp 10 với môn ngữ văn (buổi sáng) và ngoại ngữ (buổi chiều).
+- PGS.TS Phạm Mạnh Hà, Trường đại học Giáo dục, Đại học Quốc gia Hà Nội, nói ông không khỏi ngậm ngùi và trăn trở khi quan sát một xu hướng trong chiến lược tuyển sinh tại các trường đại học hàng đầu Việt Nam hiện nay.
+- Sinh viên Trường cao đằng Văn hóa nghệ thuật TP.HCM 'kêu cứu' vì không được cho thi tốt nghiệp ngoài trường.
+- Phó chủ tịch UBND TP Hà Nội Vũ Thu Hà vừa ký tờ trình gửi HĐND TP về việc dự thảo nghị quyết quy định cơ chế hỗ trợ bữa ăn bán trú cho học sinh tiểu học tại thủ đô trong năm học 2025-2026.
+- Viện Khảo thí giáo dục Mỹ (ETS) vừa thông báo cập nhật mô hình thi, nội dung và thang điểm bài thi TOEFL iBT.
+- Sinh viên có ý tưởng sáng tạo, khởi nghiệp độc đáo nhất sẽ được trao giải thưởng 100 triệu đồng cùng nhiều giải thưởng khác như học bổng tham gia các khóa đào tạo.
+- Năm 2025, Học viện Hàng không Việt Nam tuyển sinh đào tạo ngành học đặc biệt với mức học phí lên đến 80.000 USD/năm.
+- Sáng 5-6, hơn 76.000 thí sinh đã đến các điểm thi làm thủ tục thi tuyển sinh lớp 10 năm học 2025-2026 ở TP.HCM.
+- Tổng thống Trump cho rằng việc Đại học Harvard nhận sinh viên quốc tế là "mối đe dọa đối với nước Mỹ", và đã ký sắc lệnh siết chặt việc cấp visa cho du học sinh muốn theo học tại trường này.
+- Nhiều thí sinh chủ động lựa chọn những hướng đi khác trước kỳ thi tuyển sinh lớp 10 tại TP.HCM, nhằm giảm bớt áp lực cũng như tìm kiếm những cơ hội mới phù hợp với bản thân.
+- 2025 là năm đầu tiên học sinh lớp 9 sẽ thi tuyển sinh lớp 10 theo Chương trình giáo dục phổ thông 2018. Vì vậy cấu trúc và nội dung đề thi cũng sẽ thay đổi.
+- Năm nay, Học viện Báo chí và tuyên truyền, Trường đại học Luật (Đại học Quốc gia Hà Nội) chính thức bỏ xét khối C truyền thống (văn, sử, địa); Trường đại học Khoa học xã hội và Nhân văn giảm xét tổ hợp văn - sử - địa ở 17 ngành.
+- Trường đại học Quản lý và Công nghệ TP.HCM (UMT) sẽ đến với khán giả chương trình Khám phá trường học của báo Tuổi Trẻ lúc 19h ngày 5-6.
+- Sở Giáo dục và Đào tạo TP.HCM vừa công bố kế hoạch tổ chức kỳ thi Kỹ năng nghề cấp thành phố năm 2025, dự kiến diễn ra vào tháng 8 với 27 nghề được tổ chức thi.
+- Chương trình thạc sĩ Quản trị kinh doanh (MBA) do Đại học Lincoln (Hoa Kỳ) hợp tác với Trường đại học Công nghệ TP.HCM (HUTECH) triển khai là lựa chọn của nhiều người để nắm bắt cơ hội.
+- Chiều 4-6, đoàn 10 sinh viên xuất sắc nhất và thầy cô của khoa truyền thông sáng tạo Trường đại học Nguyễn Tất Thành đã đến thăm, tìm hiểu hoạt động và sự phát triển của văn phòng đại diện báo Tuổi Trẻ tại Hà Nội.
+- Đến 17h chiều nay 4-6, hầu hết các trường có chương trình đặc thù trên địa bàn TP.HCM sẽ công bố kết quả tuyển sinh lớp 1, lớp 6.
+- Một trường cao đẳng ở Trung Quốc bị chỉ trích sau khi phạt một giáo viên vì bắt đầu lớp học trễ một phút và một giáo viên khác vì kết thúc sớm hai phút, làm dấy lên tranh cãi về sự nhân văn trong môi trường giáo dục.
+- Khi đang lưu thông trên đường, một thầy giáo ở huyện Duy Xuyên, Quảng Nam đã bị người đàn ông lao vào hành hung, dùng gạch đập vào mũ bảo hiểm trên đầu, đấm đá túi bụi vào mặt.
+- Tối 3-6, trên mạng xã hội lan truyền thông tin sinh viên Đại học Bách khoa Hà Nội phản ánh bị đau bụng, nôn mửa sau bữa cơm quân sự buổi trưa 29-5, nghi ngộ độc thực phẩm.
+- Sau khi kết thúc môn thi ngữ văn vào lớp 10 sáng nay 4-6, nhiều thí sinh tại Bình Định chia sẻ đề thi năm nay rất mở, yêu cầu liên hệ đời sống cao, gần gũi nhưng khó đạt điểm tuyệt đối.
+- Sáng 4-6, sau mưa lớn, nhiều tuyến đường ở thành phố Bắc Giang ngập sâu, lực lượng cảnh sát giao thông đã dùng xe đặc chủng đưa nhiều thí sinh đến các điểm thi tuyển sinh vào lớp 10.
+- Một nam sinh đạp xe đi thi vào lớp 10 nhưng giữa đường xe hư. Các chiến sĩ cảnh sát giao thông nhìn thấy đã hỏi thăm và lấy xe chở em đi thi kịp giờ.
+- Trí tuệ nhân tạo đang làm thay đổi cách học tiếng Anh của sinh viên, với nhiều công cụ AI hỗ trợ cải thiện kỹ năng ngôn ngữ một cách hiệu quả và tiết kiệm.
+- Kỳ thi tuyển sinh vào lớp 10 công lập được xem là kỳ thi quan trọng đầu đời của những cô cậu học sinh 15 tuổi. Làm sao để tránh được những sự cố trong kỳ thi này?
+- Trong kỳ thi vào lớp 10 ở Hà Nội (từ ngày 6 đến 9-6), thời tiết thủ đô phổ biến ban ngày nắng, có hôm nắng nóng với nhiệt độ cao nhất 35 độ C.
+- Năm nay, Trường đại học Công nghệ, Đại học Quốc gia Hà Nội xét tuyển thêm 2 tổ hợp mới có môn tin học và dự kiến là năm cuối cùng tuyển sinh bằng tổ hợp D01 (toán, văn, tiếng Anh).
+- Ngày 31-5, Trường đại học Công nghệ TP.HCM (HUTECH) tổ chức lễ khai giảng chương trình đào tạo trình độ thạc sĩ và tiến sĩ khóa 2025 - đợt 1.
+- Hội đồng thi đánh giá năng lực Đại học Quốc gia TP.HCM đợt 2 tại cụm thi Trường đại học Công nghiệp TP.HCM đã lên tiếng sau khi có thông tin thí sinh khiếu nại việc không được dự thi.
+- Trên mạng đang tràn ngập các video 'khối nghỉ hè tấn công khối nghỉ hưu' với nội dung không tốt khiến không ít cha mẹ lo lắng có thể gây tác hại đến con trẻ.
+- Nhiều thí sinh tham dự kỳ thi tuyển sinh vào lớp 10 ở Nghệ An khi được hỏi đều nhận xét rằng đề thi không khó nhưng phần đọc hiểu quá dài.
+- Ngày 3-6, Phòng Giáo dục và Đào tạo quận 1, TP.HCM đã có văn bản điều chỉnh thời gian tuyển sinh đầu cấp năm học 2025-2026. Công tác này sẽ hoàn thành trước ngày 15-6.
+- Hơn 11.000 thí sinh Khánh Hòa vừa kết thúc bài thi môn văn kỳ thi vào lớp 10, đề văn nghị luận xã hội nói về vấn đề lựa chọn cách 'sống chậm' hay 'sống vội' ở tuổi 15 khiến học sinh thích thú, thoải mái bày tỏ quan điểm.
+- Đề thi toán vào lớp 10 công lập Đà Nẵng được đánh giá có nhiều câu hỏi thực tế, phù hợp xu hướng đổi mới, nhưng lại thiếu vắng câu Vi-ét từng là 'đặc sản' nhiều năm.
+- Sở Giáo dục và Đào tạo TP.HCM có thông báo yêu cầu Trung tâm ngoại ngữ Thần Đồng 8 dừng hoạt động, đồng thời trả lại học phí đã thu cho người học.
+- Trường đại học Y Dược TP.HCM vừa phát đi cảnh báo thủ đoạn lừa đảo mạo danh nhân viên bưu điện, nhà trường, yêu cầu thí sinh chuyển tiền để nhận giấy báo dự thi tuyển sinh.
+- Kỳ thi vào lớp 10 tại Hà Nội năm 2025 sẽ diễn ra trong hai ngày 7 và 8-6. Năm học 2025 - 2026, Hà Nội có khoảng 64% số học sinh đăng ký dự thi trúng tuyển vào lớp 10 THPT công lập. Nhưng kỳ thi này vẫn không hề giảm nhiệt.
+- Kỳ thi tuyển sinh lớp 10 ở TP.HCM sẽ diễn ra ngày 6 và 7-6-2025. Năm nay là năm đầu tiên các học sinh sẽ thi theo quy chế mới của Bộ Giáo dục - Đào tạo.
+- Sở Giáo dục và Đào tạo TP.HCM vừa phát hành Cẩm nang định hướng giáo dục nghề nghiệp cho năm học 2025 - 2026, cung cấp thông tin tuyển sinh từ các cơ sở giáo dục nghề nghiệp trên địa bàn.
+- Chiều 2-6, sau khi hoàn thành bài thi tiếng Anh, môn thi thứ hai trong kỳ thi vào lớp 10 ở TP Đà Nẵng, nhiều thí sinh rời phòng thi với tâm trạng phấn khởi.
+- Chính sách này dành cho tất cả học sinh dùng tàu hỏa đi thi tốt nghiệp trung học phổ thông, đại học, cao đẳng, trung học chuyên nghiệp và dạy nghề năm 2025.
+- HUTECH khánh thành hai phòng thực hành ngành nghệ thuật số, đảm bảo đáp ứng yêu cầu thực hành chuyên môn của sinh viên.
+- Các học sinh xuất sắc nhất cuộc thi Olympic Trí tuệ nhân tạo 2025 sẽ được lựa chọn tham dự Olympic Trí tuệ nhân tạo quốc tế năm 2025 (IOAI).
+- Năm nay ngoài xét tuyển thẳng, Trường đại học Sư phạm TP.HCM có nhiều phương thức xét tuyển.
+- Giáo dục đại học cần được nhìn nhận lại, định vị lại, không chỉ là nơi đào tạo nhân lực mà là trung tâm đổi mới sáng tạo, nền tảng tri thức.
+- Sau khi kết thúc môn thi Ngữ văn vào lớp 10 sáng nay 2-6, nhiều thí sinh tại Đà Nẵng chia sẻ đề thi năm nay 'trúng tâm lý' lứa tuổi học trò.
+- Mời bạn đọc theo dõi gợi ý bài giải môn văn thi tuyển sinh lớp 10 tại Đà Nẵng. Bài giải được cập nhật liên tục.
+- Hội đồng thi Đại học Quốc gia TP.HCM đợt 2 năm 2025 tại cụm thi số 9 Trường Đại học Công nghệ TP.HCM xác nhận giám thị đã thiếu sót.
+- Kỳ thi vào lớp 10 ở Hà Nội diễn ra từ ngày 7 đến 9-6. Từ ngày 4 đến ngày 6-7 công bố điểm thi, điểm chuẩn.
+- Có một lớp học tình thương đặc biệt đã chắp cánh cho nhiều trẻ tự kỷ, Down hoặc khuyết tật... vươn lên ở Tây Ninh.
+- Sáng 2-6, 11.860 thí sinh dự thi vào lớp 10 THPT năm học 2025-2026 tại Đà Nẵng, giáo viên nhắc thí sinh cần lưu ý "5 không".
+- Phu nhân Tổng Bí thư Tô Lâm đã đến thăm và tặng quà cho các em học sinh tại hai điểm trường vùng biên tỉnh Điện Biên.
+- Theo đại diện Trường cao đẳng Kinh tế TP.HCM, lần đầu tiên trường có một sinh viên tốt nghiệp với điểm số tuyệt đối (4.0).
+- Cha mẹ ở thành phố thường muốn đưa con về quê chơi mỗi dịp hè. Và con, 'lội ngược dòng' để hít thở bầu không khí của thành phố sôi động như TP.HCM.
+- Sáng 1-6, Tổng Bí thư Tô Lâm đã đến thăm, tặng quà thầy cô và học sinh Trường Phổ thông cơ sở Nguyễn Đình Chiểu và Phổ thông cơ sở Xã Đàn, Hà Nội nhân dịp Ngày Quốc tế thiếu nhi 1-6.
+- Đợt 2 kỳ thi đánh giá năng lực của Đại học Quốc gia TP.HCM năm nay đã kết thúc lúc 11h trưa nay 1-6, nhiều thí sinh tự tin kết quả thi sẽ tốt.
+- Hôm nay (1-6) là Ngày Quốc tế thiếu nhi. Lịch nghỉ hè vừa bắt đầu cũng là lúc nhiều gia đình "lăn tăn" khi con nghỉ dài ngày, còn người lớn vẫn bận đi làm từ sáng tới tối.
+- Theo Trường đại học Fulbright Việt Nam, nhà hoạt động xã hội và nhà khoa học người Mỹ gốc Việt Amanda Nguyễn sẽ đến Việt Nam vào đầu tháng 6.
+- Khoảng một tháng nữa kỳ thi tốt nghiệp THPT 2025 diễn ra với dự báo nhiều thay đổi trong nội dung đề thi. Ôn thi "nước rút", thí sinh phải "chốt" nội dung kiến thức và cần lưu ý những gì?
+- Sáng 1-6, kỳ thi đánh giá năng lực Đại học Quốc gia TP.HCM đợt 2 năm 2025 diễn ra với hơn 97.000 thí sinh tham dự, gấp đôi so với đợt thi năm ngoái.
+- Với những hoạt động trong thời kỳ làm giáo viên ở Nha Trang cách đây 100 năm, Hà Huy Tập - Tổng Bí thư thứ ba của Đảng Cộng sản Việt Nam - là một trong những người có công lớn trong việc thành lập Đảng bộ tỉnh Khánh Hòa.
+- Gen Z học công nghệ qua TikTok đang là hiện tượng nổi bật, vừa mang lại kiến thức nhanh vừa gây tranh cãi về độ sâu sắc. Liệu đây là xu hướng bền vững hay chỉ là trào lưu nửa mùa?
+- Thí sinh xét chứng chỉ tiếng Anh quốc tế kết hợp với học bạ vào trường, ngoài có IELTS từ 5.5, phải đạt tối thiểu 8 điểm môn toán đợt thi tốt nghiệp THPT hoặc điểm thi tốt nghiệp môn toán và ngữ văn đạt tối thiểu 15.
+- Câu chuyện mở cánh cửa “tự tin ra thế giới”, “tương lai cho thế hệ trẻ vươn mình” đầy thú vị vừa được những học sinh khóa đầu tiên của TH School Vinh (Nghệ An) chia sẻ trong lễ tốt nghiệp năm học 2024 - 2025.
+- Phát biểu tại buổi lễ tốt nghiệp dành cho học sinh lớp 9 - lứa học sinh đầu tiên học chương trình mới và cũng là lứa học sinh không được dự khai giảng năm lớp 6 vì COVID, một hiệu trưởng ở TP.HCM đã đưa ra những lời khuyên.
+- Đề thi sẽ có nhiều thay đổi cả hình thức lẫn nội dung dành cho thí sinh chương trình giáo dục phổ thông 2006 và 2018 hoàn toàn khác nhau.
+- Áp lực kiểm tra tỉ lệ AI trong luận văn tốt nghiệp khiến nhiều sinh viên Trung Quốc đổ xô tìm cách đối phó.
+- Trường đại học Luật chính thức bỏ xét tuyển khối C00 (văn, sử, địa), thay bằng các tổ hợp bắt buộc có môn toán hoặc tiếng Anh.
+- Với rất nhiều người dân, họ đang chịu gánh nặng tài chính vì thực thi sai chủ trương xã hội hóa giáo dục.
+- Chia tay không phải là kết thúc. Nó chỉ là một dấu phẩy trong đoạn văn dài của cuộc đời. Nhưng đó là dấu phẩy khiến ta phải chậm lại.
+- Không thể phủ nhận có không ít nhà trường coi xã hội hóa giáo dục là "xin tiền phụ huynh".
+- Ở trong nhà riết cũng không ổn. Không gian chơi đùa ngoài trời ở phố phường không có nhiều. Đạp xe đi chơi lo mất an toàn trên đường lắm xe.
+- Trong bối cảnh tuyển sinh đại học ngày càng đa dạng về phương thức cùng với những đổi mới trong năm 2025, xét học bạ trở thành lựa chọn chiến lược của nhiều học sinh lớp 12 và phụ huynh.
+- Theo Hãng tin Reuters, Mỹ sẽ kiểm tra bổ sung với những người xin visa muốn đến Đại học Harvard vì bất kỳ mục đích nào.
+- 17 sinh viên đang theo học ngành thiết kế đồ họa tại Đại học Duy Tân đã giành 21 giải thưởng tại Graphis New Talent Awards 2025, được công bố vào tháng 4-2025.
+- Quận Gò Vấp, TP.HCM vừa điều chỉnh thời gian và địa điểm tiếp nhận hồ sơ tuyển sinh vào lớp 1, lớp 6  năm học 2025-2026, nhằm hoàn thành cơ bản công tác tuyển sinh trước ngày 15-6.
+- Trường THCS-THPT Trần Đại Nghĩa, TP.HCM vừa công bố số thí sinh đăng ký dự tuyển vào lớp 6 năm học 2025-2026.
+- Ngày 29-5, thẩm phán Burroughs tuyên bố tiếp tục đình chỉ hiệu lực của quy định từ chính quyền ông Trump về việc cấm Harvard tuyển sinh quốc tế.
+- Đồng cảm với hoàn cảnh ngặt nghèo của gia đình em Xuân, ban giám hiệu Trường THPT Vĩnh Thạnh quyết định mở tài khoản ngân hàng nhận ủng hộ từ cộng đồng mong em vững tâm tiếp tục ôn thi đại học.
+- Thứ trưởng thường trực Bộ Giáo dục và Đào tạo Phạm Ngọc Thưởng yêu cầu cán bộ thanh tra kỳ thi tốt nghiệp THPT năm 2025 làm việc theo điều lệ, nguyên tắc nhưng hết sức linh hoạt và phải nhẹ nhàng, thân thiện.
+- Học sinh lớp 9 Trường THCS Trần Văn Ơn (quận 1, TP.HCM) được nhà trường tổ chức ôn thi vào lớp 10 miễn phí.
+- Ngày 29-5, UBND tỉnh Thanh Hóa đã có quyết định phê duyệt bổ sung dự toán kinh phí dạy thêm ôn thi tốt nghiệp lớp 9 và lớp 12 (dạy vượt giờ) năm 2025 trên địa bàn tỉnh, với tổng kinh phí hơn 21,8 tỉ đồng.
+- Sáng 30-5, Sở Giáo dục và Đào tạo TP.HCM công bố 142 điểm thi vào lớp 10 năm 2025.
+- Bộ Giáo dục và Đào tạo đã có hướng dẫn về quy đổi điểm xét tuyển đại học nhưng nhiều trường đại học than khó thực hiện.
+- Ngày 29-5, Đại học Quốc gia Hà Nội công bố phổ điểm thi đánh giá năng lực năm 2025 sau 6 đợt thi, với gần 90.000 thí sinh dự thi.
+- Hiệu trưởng mới Trường tiểu học Vĩnh Nguyên 1, TP Nha Trang thông báo sẽ 'xáo lớp' với học sinh ăn hay không ăn bán trú vào năm sau. Phụ huynh thắc mắc đó có phải 'tạo áp lực' để học sinh ăn bán trú không?
+- Tóm tắt lý thuyết, tạo đề thi thử, phân tích bài làm... AI giúp tiết kiệm thời gian, tập trung kiến thức, biến áp lực thi cử thành cơ hội bứt phá.
+- Sáng 29-5, Viện Nghiên cứu kinh tế - xã hội, Trường đại học Sài Gòn (RISE) và Văn phòng đại diện Konrad - Adenauer - Stiftung tại Việt Nam (KAS) ký thỏa thuận hợp tác.
+- Không chỉ sinh viên quốc tế, một số sinh viên trong nước cũng đang cân nhắc chuyển khỏi Harvard vì không muốn học ở môi trường thiếu sinh viên quốc tế.
+- Ngày 29-5, Sở Giáo dục và Đào tạo TP.HCM tổ chức tập huấn công tác coi thi tuyển sinh lớp 10 năm học 2025-2026.
+- Khi du học Mỹ đang là tâm điểm với những quy định 'siết' visa, cùng nhìn lại số lượng du học sinh Việt Nam tại Mỹ trong thời gian qua.
+- Chiều 29-5, Phòng Giáo dục và Đào tạo TP Thủ Đức đã công bố điểm thi và điểm chuẩn lớp 6 vào 3 trường THCS: Trần Quốc Toản 1, Hoa Lư, Bình Thọ.
+- Theo Hiệp hội Các trường đại học, cao đẳng Việt Nam, việc điều chỉnh hệ thống giáo dục quốc dân để đáp ứng sự phát triển kinh tế - xã hội của đất nước ta trong kỷ nguyên mới.
+- Trường đại học Kinh tế - Tài chính TP.HCM (UEF) phát hiện văn bản giả mạo về chương trình trao đổi với Đại học Old Dominion (Mỹ) đang lan truyền trong cộng đồng sinh viên.
+- Hơn 1 triệu học sinh đăng ký thi tốt nghiệp THPT năm nay. Rất nhiều bạn vẫn đang đối mặt với câu hỏi: ‘Liệu mình đang đứng ở vị trí nào trong cuộc đua, có đủ sức thi vào ngành và trường yêu thích?’.
+- Trường đại học Ngoại ngữ - Tin học TP.HCM (HUFLIT) sẽ đến với khán giả chương trình Khám phá trường học của báo Tuổi Trẻ lúc 19h tối nay.
+- Nhiều chuyên gia giáo dục góp ý cần làm rõ giá trị của bằng 'trung học nghề', như liệu có tương đương với bằng tốt nghiệp THPT không, có được liên thông đại học không?
+- Được Nhà nước hỗ trợ nhưng học sinh bán trú chỉ ăn hết hơn một nửa số gạo, thầy hiệu trưởng ở Lai Châu quyết định chia đều, mỗi em được 60kg gạo mang về nghỉ hè.
+- Trước khi được bổ nhiệm chức vụ giám đốc Đại học Kinh tế quốc dân, PGS.TS Bùi Huy Nhượng giữ chức vụ phó giám đốc đại học.
+- Trong bối cảnh giáo dục đại học đang thay đổi nhanh chóng, câu hỏi liệu có nên tiếp tục duy trì mô hình đại học quốc gia đang được nhắc lại với nhiều ý kiến trái chiều.
+- Summer Camp 2025 - chương trình quốc tế mùa hè dành cho học sinh Asian School hứa hẹn mang đến một mùa hè sôi động với trải nghiệm học tập theo dự án sáng tạo, hoạt động ngoại khóa đa dạng và hành trình khám phá đầy cảm hứng.
+- Chính quyền ông Trump vừa thông báo sẽ tích cực thu hồi thị thực (visa) của sinh viên Trung Quốc, một trong những nguồn thu lớn nhất của các trường đại học Mỹ.
+- B.G. (32 tuổi, TP.HCM) chuẩn bị đi học chương trình MBA tại Arizona State University, đang cân nhắc việc chuyển hướng sang Hà Lan nếu không xin được visa du học Mỹ.
+- 11 viện, trường đại học, trường cao đẳng được giao nhiệm vụ đào tạo nguồn nhân lực phục vụ phát triển điện hạt nhân đến năm 2035 tại Việt Nam.
+- Phụ huynh học sinh Trường Tiểu học Vĩnh Nguyên 1 không đồng tình với kế hoạch xáo trộn các lớp, cũng như việc ăn bán trú.
+- Thanh tra Bộ Giáo dục và Đào tạo yêu cầu hai trường đào tạo khối ngành y dược tổ chức kiểm điểm, làm rõ trách nhiệm những người để xảy ra thiếu sót, vi phạm trong đào tạo, tuyển sinh.
+- Đảng ủy xã ở Thanh Hóa công bố quyết định kỷ luật cảnh cáo bà Lê Thị Huệ - hiệu trưởng 1 trường mầm non - từng nói giáo viên là 'gái bao'.
+- Lãnh đạo tỉnh Bình Định khen thưởng bạn Lê Kiến Thành, học sinh xuất sắc đoạt huy chương bạc tại kỳ thi Olympic tin học APIO 2025.
+- Những ý tưởng khởi nghiệp của sinh viên cùng màn thuyết trình đầy lửa đã khiến các 'shark' phải gật đầu cam kết đầu tư ngay tại giảng đường.
+- Trường đại học Gia Định, TP.HCM sẽ tuyển sinh, đào tạo ngành răng - hàm - mặt trình độ đại học chính quy từ năm 2025.
+- Sáng 28-5, Thủ tướng Phạm Minh Chính đã thăm và phát biểu chính sách tại Đại học Quốc gia Malaysia (UKM).
+- Hình ảnh trẻ mầm non mặc áo cử nhân, đội mũ vuông, tay cầm “bằng tốt nghiệp” xuất hiện ngày càng phổ biến.
+- Đó là thông tin đặt ra tại hội nghị tập huấn nghiệp vụ thanh tra, kiểm tra thi tốt nghiệp THPT 2025 cho các sở GD-ĐT và các cơ sở ĐH ngày 27-5.
+- Người phát ngôn của Đệ nhất phu nhân Mỹ bác tin đồn cho rằng Barron bị Đại học Harvard từ chối vì mâu thuẫn giữa ông Trump và trường này.
+- Hiện nay ở nhiều địa phương, công tác tuyển dụng giáo viên không phải do ngành giáo dục chủ trì.
+- Sinh viên ngành truyền thông đa phương tiện Trường đại học Hòa Bình sẽ được học học phần nhiếp ảnh kỹ thuật số tại tòa soạn báo Tuổi Trẻ.
+- Nhật Bản kêu gọi các trường đại học trong nước tiếp nhận những sinh viên Harvard bị ảnh hưởng, coi đây là cơ hội nâng tầm giáo dục nước nhà.
+- Sau sáp nhập, nhiều tỉnh thành có hai trường đại học thuộc tỉnh. Một số tỉnh có trường đại học mang tên địa phương trước sáp nhập.
+- Hãy một lần ngồi xuống, nắm đôi bàn tay của ba, nhìn sâu vào đôi mắt của mẹ, để hiểu rằng ba mẹ vô cùng cực nhọc để có thể lo cho em.
+- Suốt ba năm qua, các địa phương mới chỉ tuyển được gần 6.000 giáo viên trong số 66.000 chỉ tiêu biên chế được giao.
+- Ngoại trưởng Mỹ chỉ đạo tạm dừng cấp lịch phỏng vấn cấp visa du học trong thời gian triển khai kiểm tra mạng xã hội các ứng viên visa.
+- Politico nhận định nếu Washington tiến hành kế hoạch trên, quá trình xử lý thị thực sinh viên có thể bị làm chậm nghiêm trọng.
+- Đội tuyển học sinh Việt Nam đứng thứ năm trong kỳ thi Olympic tin học châu Á - Thái Bình Dương với 1 huy chương vàng, 2 huy chương bạc và 3 huy chương đồng.
+- Đoàn Việt Nam với 3 đội tuyển gồm 9 sinh viên tài năng đã xuất sắc đoạt giải ở cả 3 nội dung thi đấu tại vòng chung kết toàn cầu cuộc thi Huawei ICT Competition 2024 - 2025.
+- Sở Giáo dục và Đào tạo TP.HCM yêu cầu các trường trên địa bàn nghiêm túc thực hiện 5 nội dung trong chủ động triển khai phòng chống dịch COVID-19.
+- Ngày 27-5, Cơ quan Giáo dục New Zealand (ENZ) công bố loạt chính sách hỗ trợ đặc biệt từ toàn bộ tám trường đại học công lập New Zealand dành cho sinh viên Việt Nam.
+- Phòng Giáo dục và Đào tạo TP Phú Quốc xác nhận hiệu trưởng Trường mầm non Dương Đông vừa có báo cáo về vụ cô D. dạy lớp lá 5 nghi đánh cô T. - phó hiệu trưởng cùng trường - gây xôn xao dư luận.
+- Từng chật vật vì trượt chuẩn tiếng Anh đầu vào, ít ai ngờ ở tuổi 22, Nguyễn Ngọc Huyền lại trở thành chủ nhân học bổng tiến sĩ trị giá hơn 10 tỉ đồng cho 5 năm học tại Đại học Massachusetts Amherst (Mỹ).
+- Thứ trưởng Bộ GD-ĐT Phạm Ngọc Thưởng khẳng định kỳ thi tốt nghiệp THPT 2025 có nhiều điểm mới, trong đó cần cảnh giác với gian lận bằng AI, thiết bị công nghệ cao.
+- Các ‘công dân toàn cầu’ Royal School đã cùng với thầy cô, ba mẹ và bạn bè chung vui bằng những phần thưởng, những tràng pháo tay rộn ràng trong lễ tổng kết năm học 2024-2025.
+- Chiều 27-5, Phòng Giáo dục và Đào tạo TP Thủ Đức đã công bố đáp án của các đề khảo sát lớp 6 ba trường THCS Trần Quốc Toản 1, Hoa Lư, Bình Thọ.
+- Một đề thi thử ngữ văn tại TP.HCM sáng 27-5 dẫn dắt học sinh từ những cảm xúc với Hoàng Sa đến câu hỏi về trách nhiệm viết tiếp câu chuyện hòa bình.
+- Những ngày qua, hàng trăm sinh viên học hệ đào tạo từ xa Trường cao đẳng Kinh tế Công nghệ Hà Nội từ khắp nơi đang 'đứng ngồi không yên' vì bị dừng học không thời hạn.
+- Năm nay là năm đầu tiên học sinh cả nước thi tuyển sinh lớp 10 theo chương trình giáo dục phổ thông mới. Cách ra đề thi do vậy cũng có nhiều điểm khác.
+- Tổng thống Trump cho biết ông đang xem xét chuyển 3 tỉ USD tiền tài trợ liên bang đã được cấp cho Đại học Harvard sang các trường dạy nghề, đồng thời khẳng định 'chính phủ sẽ thắng' Harvard.
+- Sáng nay 27-5, hơn 100.000 học sinh lớp 12 ở TP.HCM bước vào kỳ thi thử tốt nghiệp THPT với môn thi ngữ văn.
+- Năm học 2025-2026, Học viện Ngoại giao dự kiến giữ nguyên mức học phí so với năm ngoái, dao động từ 3,4 - 4,5 triệu đồng/tháng.
+- Là một doanh nghiệp nhà nước nhưng Nhà xuất bản Giáo Dục khẳng định hoạt động bình đẳng, 'không hề có lợi thế độc quyền'.
+- Trong vài năm, quy định để được đánh giá luận án tiến sĩ thì nghiên cứu sinh phải có bài báo quốc tế, số lượng nghiên cứu sinh tuyển mới của các trường giảm mạnh.
+- Ngày 26-5, Trường phổ thông Năng khiếu, Đại học Quốc gia TP.HCM đã công bố đề thi tuyển sinh lớp 10 năm học 2025-2026.
+- Hàng trăm vali du lịch dành tặng học sinh giỏi ở Hội An nhận được nhiều quan tâm của dư luận.
+- Mỗi dịp hè về, thay vì được nghỉ ngơi, thư giãn sau một năm học căng thẳng, nhiều gia đình lại rơi vào một 'cuộc chiến âm ỉ' mang tên: cha mẹ kèm con học tại nhà.
+- Hội đồng Giáo sư nhà nước yêu cầu các hội đồng giáo sư ngành, liên ngành, cơ sở nghiêm túc thực hiện quy định xét công nhận chức danh giáo sư, phó giáo sư năm 2025, bảo đảm chất lượng, minh bạch.
+- Chủ nhiệm Ủy ban Văn hóa và Xã hội của Quốc hội, ông Nguyễn Đắc Vinh nhấn mạnh Bộ Giáo dục và Đào tạo dứt khoát phải “quản” việc đào tạo trình độ tiến sĩ và đào tạo các ngành sư phạm, y tế, luật.
+- Lãnh đạo Phòng Giáo dục và Đào tạo TP Phú Quốc xác nhận đã nắm được thông tin và xác minh thực hư vụ cô D. - dạy lớp lá 5 ở Trường mầm non Dương Đông, TP Phú Quốc - nghi đánh cô T. - phó hiệu trưởng cùng trường - đến nằm viện.
+- Trong vòng 5 năm tới, tỉnh Bình Định sẽ đào tạo ít nhất 7.500 nhân lực bán dẫn, trí tuệ nhân tạo (AI), an ninh mạng, với tham vọng trở thành trung tâm khoa học - công nghệ lớn của Việt Nam.
+- Lần đầu tiên, ngày hội tuyển sinh đầu cấp đã diễn ra ở quận 10, TP.HCM. Đặc biệt ngày hội có sự tham gia giới thiệu, tư vấn của các trường công lập và ngoài công lập từ mầm non đến THPT.
+- Học bổng "Vì tương lai Việt Nam" do ấn phẩm Mực Tím (thuộc báo Tuổi Trẻ) mang đến học sinh Đắk Nông như phần thưởng cho những nỗ lực, phấn đấu vượt qua khó khăn của các em.
+- Chánh Thanh tra Bộ Giáo dục và Đào tạo đã ban hành quyết định xử phạt vi phạm hành chính về lĩnh vực giáo dục đối với Trường đại học Kiến trúc TP.HCM và Trường đại học Sân khấu - Điện ảnh TP.HCM.
+- Hằng trăm học sinh, sinh viên Ninh Thuận đã trực tiếp trải nghiệm và tham gia tìm hiểu thông tin về giáo dục, đào tạo nghề và việc làm tại Đức tại chương trình “Chuyến xe hướng nghiệp Đức” được tổ chức tại tỉnh này.
+- Sau khi Bộ GD-ĐT công bố hướng dẫn quy đổi điểm tương đương giữa các phương thức xét tuyển, báo Tuổi Trẻ đã trao đổi với ông Nguyễn Anh Dũng - phó vụ trưởng Vụ Giáo dục đại học, Bộ GD-ĐT.
+- Ông Trần Lưu Quang - bí thư Trung ương Đảng, trưởng Ban Chính sách, Chiến lược Trung ương - nhấn mạnh tầm quan trọng của mô hình hợp tác '3 nhà' (nhà nước, nhà trường và doanh nghiệp), trong đó doanh nghiệp đóng vai trò trung tâm.
+- Nhỏ gọn, thông minh và đầy thử thách, những chiếc xe mô hình tại sân chơi kỹ thuật năm nay đã tạo nên một đường đua 'nóng' từ công nghệ đến chiến thuật.
+- Hôm nay 24-5 là ngày đầu tiên đăng ký tuyển sinh đầu cấp vào trường đặc thù ở TP.HCM. Nhiều phụ huynh phản ánh họ không thể đăng ký được vào các trường tiên tiến hội nhập ở quận Gò Vấp.
+- ‘HUTECH International Job Fair 2025 có ý nghĩa quan trọng với doanh nghiệp trong thời đại chuyển đổi số và toàn cầu hóa.
+- Tổng thống Mỹ Donald Trump hôm 23-5 tuyên bố Đại học Harvard sẽ phải thay đổi cách làm việc, và cho rằng sinh viên Harvard không thể làm phép toán cơ bản.
+- Nhân chuyến thăm Việt Nam sắp tới của Tổng thống Pháp Emmanuel Macron, Hãng tin AFP tìm gặp nữ giáo sư toán học đầu tiên của Việt Nam, giáo sư Hoàng Xuân Sính, người bảo vệ thành công luận án tiến sĩ tại Pháp năm 1975.
+- Sáng 24-5, gần 4.000 học sinh bước vào kỳ thi tuyển sinh lớp 10 của Trường phổ thông Năng khiếu (Đại học Quốc gia TP.HCM).
+- Một trường THPT ở Hội An (Quảng Nam) đã chuẩn bị những món quà khen thưởng độc đáo dành tặng học sinh lớp 12 học tập tốt trong ngày chia tay trường.
+- Nhà xuất bản Giáo dục Việt Nam khẳng định cung cấp miễn phí sách giáo khoa điện tử từ lớp 1-12 theo chương trình giáo dục phổ thông 2018.
+- Trước đó, GS.TS Furuta Motoo - hiệu trưởng Trường đại học Việt Nhật - cũng từng dành phần lớn các giải thưởng, nhuận bút viết sách để trao tặng học bổng cho sinh viên Việt Nam.
+- Truyền thông Trung Quốc phản ứng mạnh sau lệnh cấm tuyển sinh quốc tế với Harvard, khi sinh viên Trung Quốc là nhóm du học sinh đông nhất tại trường này.
+- Trưa 24-5, Phòng Giáo dục và Đào tạo TP Thủ Đức đã công bố đề khảo sát lớp 6 của ba trường THCS Trần Quốc Toản 1, Hoa Lư, Bình Thọ.
+- Tranh luận nhiều chiều của bạn đọc Tuổi Trẻ Online về việc học sinh lớp 5 có cần làm lễ tri ân và trưởng thành.
+- Hôm nay 24-5 là ngày đầu tiên đăng ký tuyển sinh đầu cấp vào trường đặc thù ở TP.HCM. Tuy nhiên, nhiều phụ huynh phản ánh cổng tuyển sinh trực tuyến không có quận Tân Bình.
+- Sau khi thu hồi quyết định công nhận tuyển dụng 61 viên chức giáo viên, chủ tịch UBND huyện Ia Grai (Gia Lai) đã ra quyết định công nhận lại những viên chức này.
+- Kết quả kỳ thi học sinh giỏi toàn TP Đà Nẵng năm học 2024-2025 gây bất ngờ khi lần đầu tiên một học sinh khiếm thị giành giải nhất môn lịch sử.
+- Khi ban hành thông tư 29 siết lại việc dạy thêm, học thêm, Bộ Giáo dục và Đào tạo nhấn mạnh một trong những mục tiêu là để đẩy mạnh năng lực tự học của học sinh.
+- Ông Trump cấm đại học Harvard tuyển sinh quốc tế, ảnh hưởng 7.000 sinh viên có thị thực hợp pháp. Ngay trong ngày, Harvard đã đệ đơn kiện chính quyền. Chuyện gì sẽ xảy ra tiếp theo?
+- Sáng 24-5, gần 4.000 học sinh lớp 9 bước vào kỳ thi lớp 10 đầu tiên ở TP.HCM tại 3 điểm thi.
+- UBND TP Hà Nội đã ủy quyền cho Sở Giáo dục và Đào tạo phê duyệt danh mục lựa chọn sách giáo khoa của các cơ sở giáo dục trên địa bàn thuộc thẩm quyền phê duyệt của UBND TP, từ nay đến hết ngày 31-12-2027.
+- Đây là mức quy đổi điểm trúng tuyển theo kết quả thi đánh giá năng lực của Đại học Quốc gia Hà Nội, về điểm trúng tuyển theo điểm thi tốt nghiệp THPT năm 2024.
+- Đại học Harvard cho rằng động thái cấm trường này tuyển sinh quốc tế là 'vi phạm trắng trợn' Hiến pháp Mỹ và cáo buộc chính phủ đã tìm cách "xóa sổ" 1/4 số sinh viên của trường.
+- Năm 2025, Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) chính thức tuyển sinh và đào tạo ngành kinh tế đất đai - ngành lần đầu tiên được đào tạo tại Việt Nam.
+- Với nhiều sinh viên quốc tế, quyết định theo học hay tốt nghiệp tại Harvard đang trở thành một giấc mơ chông chênh hơn bao giờ hết.
+- Trí tuệ nhân tạo (AI) không chỉ là công cụ, mà sẽ trở thành đồng nghiệp của các thầy cô và sinh viên ngành kinh tế trong tương lai. Do đó cần phải 'bình dân học vụ' AI ngay từ bây giờ, để làm chủ những công cụ trí tuệ nhân tạo.
+- Vừa hoàn thành tất cả các học phần, sinh viên Đỗ Ngọc Huế không may gặp tai nạn giao thông và qua đời. Hôm nay, chị gái của Huế đã lên bục nhận bằng tốt nghiệp thay em, khoảnh khắc khiến nhiều người nghẹn ngào xúc động.
+- Ngày 23-5, thông tin từ Sở Giáo dục và Đào tạo TP Cần Thơ cho biết hôm nay kết thúc thời gian để thí sinh tham gia kỳ thi vào lớp 10 THPT điều chỉnh nguyện vọng, các trường hoàn tất nhập liệu phiếu đăng ký dự thi.
+- Gần 700 học sinh lớp 12 Trường chuyên Lê Hồng Phong (TP.HCM) để lại khoảnh khắc khó quên trong ngày chia tay bằng màn flashmob đầy xúc động.
+- Ngày 23-5, UBND TP.HCM đã ban hành bộ tiêu chuẩn thí điểm đổi mới cơ chế hoạt động của trường thực hiện nội dung giáo dục chất lượng cao, tiên tiến, hội nhập khu vực và quốc tế.
+- Sáng 23-5, Trường tiểu học Nguyễn Bỉnh Khiêm (quận 1, TP.HCM) tổ chức lễ tri ân và trưởng thành lớp 5, giây phút các em học sinh đồng diễn cảm ơn phụ huynh tạo nên khoảnh khắc xúc động.
+- Sở Giáo dục và Đào tạo TP.HCM vừa có hướng dẫn 8 bước phụ huynh cần thực hiện khi đăng ký tuyển sinh đầu cấp vào trường đặc thù, bắt đầu từ ngày mai.
+- Trường Quốc tế Úc Sài Gòn (AIS Saigon) sẽ giới thiệu công nghệ VR và Metaverse trong chương trình "Khám phá trường học" ngày hôm nay.
+- Bộ trưởng Nguyễn Kim Sơn cho biết hiện cả nước có 10 tỉnh, thành phố thực hiện miễn học phí. Đối với các địa phương chưa tự cân đối được, ngân sách trung ương sẽ cấp bù, hỗ trợ.
+- Bắt đầu từ ngày 24-5 đến 17h ngày 29-5, các trường đặc thù, các trường "nóng" ở TP.HCM sẽ nhận hồ sơ xét tuyển.
+- Hè này, Thảo cầm viên tổ chức hơn 20 hoạt động trải nghiệm giúp các em thiếu nhi rèn luyện kỹ năng trong môi trường thiên nhiên trong lành, hướng đến hạn chế sử dụng các thiết bị điện tử như tivi, điện thoại.
+- Nhiều đại biểu Quốc hội băn khoăn về chính sách miễn học phí được giao cho HĐND tỉnh thực hiện, sẽ gây thiếu công bằng khi tỉnh chi ít, tỉnh chi nhiều.
+- Cần tránh việc tổ chức lễ tri ân và trưởng thành rình rang nhằm tạo danh tiếng cho một ngôi trường, hoặc là đẩy cuộc đua ngầm về lối sống ảo, so bì nhau.
+- UBND TP.HCM vừa có văn bản về việc tháo gỡ các vướng mắc liên quan điều kiện thành lập trường tư thục trên địa bàn TP.HCM.
+- 'Khi nghị quyết được Quốc hội thông qua, chúng ta có quyền công bố rộng rãi, chắc chắn chúng ta là nước duy nhất trong ASEAN miễn học phí từ mầm non đến phổ thông'.
+- Nhiều cơ hội đang mở rộng cho học sinh, sinh viên Việt Nam đến học tại Nam Úc. Ngược lại, một số tổ chức giáo dục Nam Úc cũng rất quan tâm đến thị trường TP.HCM.
+- Đại biểu Quốc hội đề nghị cần có cơ chế cho phép phụ huynh tự nguyện không nhận chính sách hỗ trợ, miễn học phí.
+- Nhiều trường đại học quy định đăng ký xét tuyển riêng bắt buộc phải thực hiện mới đủ điều kiện xét tuyển, khiến thí sinh bối rối.
+- Bộ trưởng Nguyễn Kim Sơn cho biết hiện đang triển khai phương án dạy học buổi thứ 2 cho học sinh không thu phí, học phí và sẽ áp dụng từ năm học tới.
+- Năm học 2025 - 2026, Học viện Công nghệ bưu chính viễn thông dự kiến mức học phí 29,6 - 62,5 triệu đồng/năm.
+- Với hơn 1.000 tài khoản đăng ký tham gia, cuộc thi được kỳ vọng sẽ kết nối với hệ sinh thái khởi nghiệp đổi mới của TP.HCM.
+- Cả nước có 28.862 tiến sĩ đang làm giảng viên cơ hữu ở các trường đại học. Bình quân mỗi trường có 119 tiến sĩ.
+- Hàng trăm học sinh lớp 12 tại các tỉnh, thành Tây Nam Bộ nhận học bổng sớm từ Trường Đại học Kinh tế - Tài chính TP.HCM (UEF).
+- Tuyển chọn khoảng 300 ứng viên để đào tạo, bồi dưỡng trong và ngoài nước theo lộ trình trở thành giảng viên, nhà khoa học chất lượng cao.
+- Chính phủ trình Quốc hội hai dự thảo nghị quyết về phổ cập giáo dục mầm non cho trẻ 3-5 tuổi; miễn, hỗ trợ học phí từ năm học 2025-2026.
+- Ngày 22-5, Đại học Bách khoa Hà Nội công bố phương án quy đổi mức điểm chuẩn tương đương giữa 3 phương thức.
+- Trong hành trình chinh phục tri thức, không phải ai cũng may mắn khởi đầu từ những điều kiện thuận lợi. Nhưng ở đâu có ý chí, ở đó luôn có hy vọng.
+- Lễ tốt nghiệp tại Royal School là ngày các em chính thức trưởng thành, mang theo yêu thương của ba mẹ, thầy cô, bạn bè. Từ đây, Royal-ers kiêu hãnh bước ra thế giới với tri thức, bản lĩnh được vun đắp từ ngôi trường hạnh phúc.
+- Ngoài các lớp tiếng Anh, năng khiếu, chương trình hè, các chuyến du lịch... phụ huynh hoàn toàn có thể cho con một mùa hè khỏe hơn với nhiều hoạt động thể dục thể thao.
+- Chủ tịch UBND tỉnh Đồng Nai có văn bản hỏa tốc phê bình chủ tịch UBND huyện Vĩnh Cửu vì để xảy ra vụ việc được báo chí đưa: tính tổ chức đi Hà Giang học tập kinh nghiệm chuyển đổi số.
+- Hợp tác giữa bang Nam Úc và TP.HCM vẫn còn nhiều tiềm năng, nhất là khi thành phố sẽ mở rộng không gian phát triển trong thời gian tới.
+- Sau khi quay cảnh 3 nam sinh nhảy xuống nước, thấy bạn bị đuối nước nam sinh đứng quay clip phía trên đã chạy đi gọi người cứu. Kết quả một nam sinh được cứu, hai người còn lại không qua khỏi.
+- Ngày 20-5, chủ tịch UBND tỉnh Bắc Ninh đã làm việc với Đại học Bách khoa Hà Nội và Trường đại học Ngoại thương về kế hoạch đầu tư xây dựng các cơ sở đào tạo mới.
+- 16 giáo sư quốc tế đã nhận được thư bổ nhiệm của giám đốc Đại học Quốc gia TP.HCM đều cho biết sẽ sớm bắt tay vào công việc thỉnh giảng và nghiên cứu tại đại học này.
+- Bộ Giáo dục và Đào tạo vừa có hướng dẫn tuyển sinh đại học. Có một số quy định mới trong xét tuyển mà các trường đại học phải thực hiện, thí sinh cần lưu ý.
+- Trường đại học Công nghiệp TP.HCM vừa công bố thông tin tuyển sinh đại học hệ chính quy năm 2025, trong đó lần đầu áp dụng phương thức xét tuyển mới.
+- Tỉnh Bạc Liêu tổ chức kỳ thi tuyển sinh vào lớp 10 năm học 2025-2026 sớm nhất cả nước, từ ngày 22 đến 24-5-2025. Vĩnh Long là nơi duy nhất tổ chức kỳ thi vào tháng 7-2025.
+- Với thông tư 29 về dạy thêm học thêm, nhà trường không thể tổ chức dạy các môn học văn hóa trong thời gian hè cho học sinh. Thay vào đó, nhiều trường đã lên kế hoạch hè bằng các hình thức hoạt động câu lạc bộ đa dạng, phong phú.
+- Đại học (ĐH) Duy Tân giảng dạy và huấn luyện bắt buộc các kỹ năng trí tuệ nhân tạo (AI - Artificial Intelligence) và kiến thức Khởi nghiệp cho tất cả các sinh viên bậc đại học kể từ khóa mới K-31 (năm học 2025-2026).
+- GS.TSKH Hoàng Xuân Phú đã được bầu là viện sĩ của Viện hàn lâm Khoa học châu Âu.
+- Trung tâm dạy nghề cho người khuyết tật xây dựng với mục tiêu đào tạo nghề, giúp học viên có nơi thực hành trồng trọt, chăn nuôi, nâng cao tay nghề để tạo ra thu nhập. Thế nhưng trung tâm hoàn thành đi vào sử dụng được 2 năm đã tạm dừng hoạt động.
+- Liên quan đến vụ một huyện ở Đồng Nai tổ chức ra Hà Giang "học tập kinh nghiệm chuyển đổi số giáo dục", trưa 20-5, huyện Vĩnh Cửu đã chỉ đạo tạm dừng đi.
+- UBND tỉnh Gia Lai yêu cầu chấn chỉnh đạo đức nhà giáo và tăng cường phòng chống xâm hại học đường, bảo vệ trẻ em sau một số vụ việc nổi cộm trong ngành giáo dục trên địa bàn.
+- Phòng Giáo dục và Đào tạo huyện Vĩnh Cửu, tỉnh Đồng Nai lên kế hoạch 5 ngày để lãnh đạo, chuyên viên, giáo viên bay ra tỉnh Hà Giang học tập kinh nghiệm chuyển đổi số.
+- Một dự án thay đổi phương pháp dạy giáo dục thể chất được Viện Khoa học giáo dục Việt Nam cho biết đã tác động đến hơn 21.000 giáo viên và 7 triệu học sinh.
+- Sở Giáo dục và Đào tạo tỉnh Tiền Giang không có chủ trương trên và yêu cầu các trường học khác trên địa bàn tỉnh tuyệt đối không được vận động, quyên góp tiền ngoài quy định.
+- Chiếc ghe tạm bợ của gia đình em Song Xuân không may bị chìm. Xuân chỉ kịp với lấy cặp da của mình, còn tất cả gạo, đồ đạc, sách vở đều chìm trong nước.
+- Đến đảo Sinh Tồn, nơi cách đất liền khoảng 200 hải lý, nhà văn Phương Huyền mang theo những cuốn sách thiếu nhi được yêu thích, trao tặng những cô cậu học trò tiểu học.
+- Đó là câu hỏi của nhiều phụ huynh khi năm học 2024-2025 sắp kết thúc và một mùa hè mở ra với những cô cậu học trò.
+- Sở Giáo dục và Đào tạo TP.HCM vừa có báo cáo về tình hình của Trung tâm ngoại ngữ Úc Châu và Úc Châu 1 gởi UBND TP.HCM.
+- Bộ Giáo dục và Đào tạo yêu cầu quy tắc quy đổi điểm tương đương phải được xây dựng dựa trên căn cứ khoa học và thực tiễn; cơ sở đào tạo phải có trách nhiệm giải trình với các bên liên quan về các căn cứ này.
+- Theo các chuyên gia, đơn thuần 'biết AI' sẽ không đủ cho sinh viên sẵn sàng trước những đòi hỏi của thế hệ lao động mới 2.0.
+- Chiều 19-5, Trường THCS Trần Huy Liệu, quận Phú Nhuận, TP.HCM đã khánh thành thư viện thông minh rộng hơn 200m². Đây là công trình nhằm hoàn thiện mô hình giáo dục tiên tiến - hiện đại của ngôi trường 'hot' nhất quận hiện nay.
+- Thông tin Philippines ngừng chương trình giáo dục phổ thông 12 năm gây tranh cãi K-12 khiến dư luận hoang mang, Bộ giáo dục nước này đã nhanh chóng khẳng định đây chỉ là tin giả.
+- Cầu giao thông mang tên Đại học Công nghiệp TP.HCM vừa được khánh thành, và chính thức đưa vào sử dụng tại huyện Chợ Lách, tỉnh Bến Tre.
+- Trong khi nhiều trường học ở Ninh Thuận dừng thì trường học ở các địa phương khác vẫn tổ chức cho giáo viên đi tham quan, du lịch.
+- Năm nay Trường đại học Y Hà Nội chỉ xét tuyển theo hai phương thức tuyển sinh, gồm xét tuyển thẳng và xét điểm thi tốt nghiệp THPT.
+- So với học kỳ I năm học 2023-2024, số lượng học bổng học kỳ II bị cắt giảm đến 66%. Sinh viên cho rằng trường 'không minh bạch' khi xét học bổng.
+- Nguyễn Công Vinh - Trường THPT chuyên Bắc Ninh - vừa giành huy chương vàng Olympic Vật lý châu Á lần thứ 25, chia sẻ nguyên tắc tự học.
+- Chi cục Thuế khu vực XI đã chỉ đạo thành lập đoàn kiểm tra trực tiếp tại một số trường để xác minh việc nộp thuế 2 lần bữa ăn bán trú.
+- Quảng Trị cử 4 giáo viên theo hình thức biệt phái sang Lào giảng dạy tiếng Việt, làm nòng cốt giữ gìn gốc gác Việt Nam cho con em Việt kiều.
+- Sáng 19-5, Trường Phổ thông Năng khiếu, Đại học Quốc gia TP.HCM công bố có 3.509 thí sinh dự thi vào lớp 10 năm học 2025-2026.
+- Sáng 19-5, Phòng Giáo dục và Đào tạo TP Thủ Đức công bố số thí sinh đăng ký dự khảo sát lớp 6 vào 3 trường THCS nổi tiếng trên địa bàn.
+- Dự án dạy tiếng Anh trực tuyến cho gần 2.600 học sinh tiểu học ở Mèo Vạc (Hà Giang) do nhà giáo Nguyễn Xuân Khang hỗ trợ vừa khép lại với một cuộc thi đầy ý nghĩa: "Đường lên đỉnh Mã Pí Lèng".
+- Nam sinh lớp 6 trong lúc cùng bạn ra bờ sông chơi không may bị đuối nước, lực lượng chức năng cùng gia đình tìm kiếm hơn một ngày qua.
+- Nhiều trường học ở Ninh Thuận bị yêu cầu dừng tổ chức tham quan, du lịch ngoài tỉnh sau khi kết thúc năm học 2024-2025 do chỉ đạo của tỉnh.
+- Bộ Giáo dục và Đào tạo yêu cầu môn toán ít nhất phải đạt 8 điểm mới được học vi mạch bán dẫn, điều này có thật sự cần thiết?
+- Đại học Quốc gia TP.HCM mời thêm 12 giáo sư và chuyên gia quốc tế từ nhiều đại học, viện nghiên cứu hàng đầu thế giới làm giáo sư thỉnh giảng.
+- Ông Trần Phong, chủ tịch UBND tỉnh, vừa có chỉ đạo liên quan vụ bữa ăn bán trú của học sinh mầm non và tiểu học công lập phải nộp thuế 2 lần.
+- Đi họp phụ huynh cuối năm, phụ huynh ngỡ ngàng khi được con và các bạn mời vào 'rạp phim mini' và đón nhận từ bất ngờ này đến bất ngờ khác.
+- 'Mong muốn của cha mẹ' là một trong 10 yếu tố hàng đầu tác động đến quyết định lựa chọn nghề nghiệp của học sinh Việt Nam.
+- Chuyến hải trình của đoàn đại biểu TP.HCM kết thúc ngày 17-5, khép lại 7 ngày mang theo tình cảm hậu phương đến với cán bộ, chiến sĩ và nhân dân tại quần đảo Trường Sa và nhà giàn DK-1/12.
+- Ngày 17-5, Hệ thống Trường Việt Mỹ - VA Schools ra mắt bộ nhận diện thương hiệu mới, đánh dấu bước ngoặt trong hành trình gần hai thập kỷ gắn bó và đồng hành cùng giáo dục Việt Nam.
+- Đại học Quốc gia TP.HCM vừa thông qua danh sách 39 ứng viên là các nhà khoa học trẻ xuất sắc, nhà khoa học đầu ngành đủ điều kiện, tiêu chuẩn tham dự phỏng vấn về công tác tại đại học này.
+- Sáng 17-5, vòng chung kết giải Lê Quý Đôn trên ấn phẩm Nhi Đồng TP.HCM do Sở Giáo dục và Đào tạo TP.HCM và ấn phẩm Nhi Đồng (báo Tuổi Trẻ) phối hợp tổ chức, diễn ra tại Trường tiểu học Nguyễn Thái Sơn, quận 3, TP.HCM.
+- Hàng trăm học sinh nhiều trường THPT ở TP.HCM và các tỉnh lân cận đã tỏ ra rất thích thú khi được tham gia trải nghiệm một ngày làm sinh viên luật tại Trường đại học Luật TP.HCM.
+- Dự kiến từ ngày 1-6, Thanh tra Chính phủ sẽ chính thức thực hiện nhiệm vụ thanh tra trong công tác quản lý nhà nước về giáo dục, khi không còn Thanh tra Bộ Giáo dục và Đào tạo.
+- Kỳ thi đánh giá năng lực của Trường đại học Sư phạm Hà Nội năm nay tăng khoảng 6.000 thí sinh so với năm ngoái. Trung bình một thí sinh đăng ký khoảng 3,1 bài thi.
+- Lê Thị Mỹ Quyền - cựu học sinh Trường THPT Giồng Ông Tố (TP.HCM) - tốt nghiệp thủ khoa năm 2024 Trường đại học Quốc tế Sài Gòn.
+- Đại học Quốc gia TPHCM đã đề xuất, kiến nghị với Chính phủ và các bộ, ngành cho phép đại học này được thí điểm áp dụng cơ chế đặc thù đặt hàng đào tạo, tự chủ quyết định học phí một số chương trình đào tạo.
+- Đoàn học sinh Việt Nam đạt thành tích cao nhất từ trước đến nay tại Hội thi Khoa học kỹ thuật quốc tế 2025, với 2 giải nhì, 1 giải ba, 3 giải tư và 4 giải đặc biệt từ các nhà tài trợ.
+- Trống hội, Một vòng Việt Nam, Bắc Bling... sân trường tiểu học trở nên náo nhiệt và hào hứng khi các em học sinh hòa mình hát và gõ nhịp theo các nghệ sĩ với những nhạc cụ có trong tay.
+- Bộ trưởng Bộ Giáo dục và Đào tạo Nguyễn Kim Sơn cho rằng trường học ngay ngắn, dạy học lành mạnh là phải ngăn chặn việc ép học sinh học thêm.
+- Liên quan vụ nhiều cô giáo mầm non về hưu ở huyện Tây Hòa (Phú Yên) khiếu nại nhiều tháng qua, Sở Nội vụ tỉnh Phú Yên trả lời đã có hướng dẫn từ năm 2020.
+- Chiều 16-5, Sở Giáo dục và Đào tạo TP.HCM đã gửi thông báo khẩn về chiêu lừa đảo mạo danh cán bộ tuyển sinh.
+- Theo Thứ trưởng Hoàng Minh Sơn, giáo dục nghề nghiệp là sự lựa chọn, không phải ép buộc; trường nghề không thể vì muốn có nhiều nguồn tuyển sinh hơn mà cản trở con đường học sinh học đại học bằng đề xuất 'siết' chuẩn.
+- Đây là một trong những điều chỉnh tại dự thảo thông tư quy định chế độ trả lương dạy thêm giờ đối với nhà giáo trong các cơ sở giáo dục công lập.
+- Sáng 16-5, Câu lạc bộ các trường thực hành sư phạm (ATTES) đã chính thức ra mắt tại hội trường B, Trường ĐH Sư phạm TP.HCM.
+- Một quyết định cưỡng chế liên quan Trường tiểu học Pháo Đài 1 (Kiên Giang) là buộc nhà trường phải nhận lại nhân viên bảo vệ.
+- Nhiều trường đại học kiến nghị cần sửa đổi quy định xử phạt hành chính trong tuyển sinh với trường hợp tuyển vượt 1 sinh viên cũng bị xử phạt.
+- Trong kỳ thi tuyển sinh 10 tại TP.HCM năm 2025, các bài thi theo nguyện vọng thường, nguyện vọng chuyên sẽ được tính điểm thế nào?
+- Sáng 16-5, Trường THCS Nguyễn Văn Tố, quận 10, TP.HCM đã công bố phương thức tuyển sinh lớp 6 năm học 2025-2026.
+- Dưới sân trường, cô giáo hỏi học sinh có thích đọc sách không. Kỳ lạ thay, không em nào trả lời. Hỏi nhỏ một em, em bảo: 'Em sợ trả lời sai bị phạt'.
+- Nhạc sĩ Nguyễn Văn Chung chia sẻ rằng anh bất ngờ và hạnh phúc khi Viết tiếp câu chuyện hòa bình tiếp tục được lan tỏa qua đề thi văn dành cho học sinh THPT.
+- Tỉnh Khánh Hòa hợp tác với Trường đại học Bách khoa TP.HCM, mở ra cơ hội đào tạo, phát triển nguồn nhân lực chất lượng cao trong các lĩnh vực khoa học, kỹ thuật ở địa phương.
+- Năm 2025, Học viện Công nghệ bưu chính viễn thông lần đầu sử dụng kết quả bài thi đánh giá năng lực do Trường đại học Sư phạm Hà Nội tổ chức; thí sinh đoạt giải học sinh giỏi cấp tỉnh, quốc gia được cộng điểm thưởng từ 1 - 3 điểm.
+- Một trường tiểu học ở Kiên Giang đang kêu cứu khẩn cấp trước bản án của tòa án buộc phải nhận lại  bảo vệ cũ, đồng thời bồi thường một khoản tiền lớn. Thậm chí cơ quan thi hành án cho biết sẽ cưỡng chế nếu không thực hiện.
+- Khái niệm 'đại học' và 'trường đại học' tiếp tục được nhiều lãnh đạo trường đại học đưa ra bàn luận tại hội thảo lấy ý kiến chính sách xây dựng Luật Giáo dục đại học (sửa đổi), diễn ra tại TP.HCM.
+- Trẻ em và học sinh chưa có căn cước công dân, VNeID thì sử dụng thẻ bảo hiểm y tế thế nào?
+- Theo chuẩn đầu vào ngành vi mạch bán dẫn trình độ đại học, thí sinh xét điểm thi tốt nghiệp THPT phải có môn toán đạt ít nhất 8 điểm, tổng điểm 3 môn xét tuyển tối thiểu từ 24 điểm.
+- Công an tỉnh Đắk Lắk cảnh báo các chiêu trò lừa nâng điểm, bán 'phao thi VIP' tràn lan trước kỳ thi tốt nghiệp THPT 2025 để thí sinh, người nhà nhận diện, phòng tránh rủi ro.
+- Liên quan vụ các cô giáo đánh nhiều trẻ em ở Trường mầm non Dương Đông (TP Phú Quốc, Kiên Giang), UBND TP Phú Quốc vừa có quyết định kỷ luật khiển trách hiệu trưởng trường.
+- Thống kê cho thấy gần 50% trường THPT tại TP.HCM có số lượng nguyện vọng 1 lớp 10 thấp hơn chỉ tiêu, trong đó có cả trường tốp đầu.
+- Nếu không vô được trang tuyển sinh đầu cấp: tuyensinhdaucap.hcm.edu.vn; phụ huynh có thể sử dụng trang dự phòng: tuyensinhdaucap2025.hcm.edu.vn.
+- Đại học Bách khoa Hà Nội sẽ mở cổng đăng ký xét tuyển tài năng và xác thực quy đổi chứng chỉ ngoại ngữ từ nay đến hết ngày 5-6.
+- Trường THCS Mạc Đĩnh Chi, quận Tân Bình, TP.HCM vừa công bố phương thức tuyển sinh lớp 6 năm học 2025-2026.
+- Ngày 14-5, Sở GD-ĐT TP.HCM đã công bố số thí sinh đăng ký dự thi tuyển sinh lớp 10 công lập năm học 2025-2026.
+- Chưa kết thúc năm học 2024-2025 nhưng theo ghi nhận của phóng viên Tuổi Trẻ, nhiều phụ huynh và nhà trường đã rục rịch tìm, đặt mua sách giáo khoa cho năm học mới.
+- Tin tức đáng chú ý: Giảm 20% biên chế các ngành nghề sau sắp xếp, tinh gọn nhưng giữ nguyên giáo dục và y tế; Hôm nay, Quốc hội thảo luận tổ về cơ chế chính sách phát triển kinh tế tư nhân; Bắt đầu Tháng hành động vì an toàn thực phẩm...
+- Tại tọa đàm Tham vấn chính sách xây dựng dự án Luật Giáo dục đại học (sửa đổi), các đại biểu đã chỉ ra những bất cập về hoạt động của hội đồng trường.
+- Công chức sở, ngành ở Sóc Trăng chuyển công tác đến TP Cần Thơ có nhu cầu chuyển trường cho con cần đăng ký trước ngày 26-5.
+- Trường đại học Thủ Dầu Một sẽ đến với khán giả chương trình Khám phá trường học của báo Tuổi Trẻ lúc 19h tối nay 14-5.
+- Đó là thực trạng đáng báo động được đưa ra tại diễn đàn 'Điều em muốn nói' lần 3 với chủ đề 'Nói không với thuốc lá, thuốc lá điện tử và chất gây nghiện mới' chiều 14-5.
+- Đại học Kinh tế TP.HCM (UEH) đã định hình vai trò của một đại học đa ngành, sáng tạo và có trách nhiệm trong kỷ nguyên mới.
+- Sở Giáo dục và Đào tạo tỉnh Đắk Lắk xác nhận việc một trường THPT hướng dẫn một số học sinh lớp 12 viết đơn 'tự nguyện' nghỉ học là không đúng quy định.
+- Nhiều vị lãnh đạo trường đại học đã chia sẻ như thế tại tọa đàm Tham vấn chính sách xây dựng dự án Luật Giáo dục đại học (sửa đổi), do Bộ Giáo dục và Đào tạo tổ chức sáng 14-5.
+- Theo Sở Giáo dục và Đào tạo TP.HCM, Trường THCS-THPT Trần Đại Nghĩa, quận 1 có tỉ lệ chọi cao nhất mùa tuyển sinh lớp 10 năm nay.
+- Nhiều nữ giáo viên tại Chư Păh, Gia Lai, phản ánh đột ngột bị cắt chế độ phụ cấp thu hút vùng đặc biệt khó khăn sau khi nghỉ chế độ thai sản.
+- Chương trình Khám phá trường học 2025 tiếp tục đồng hành với thí sinh và phụ huynh trong hành trình trải nghiệm thực tế nhiều ngôi trường trên cả nước.
+- Trường THPT Mạc Đĩnh Chi, quận 6 có số thí sinh đăng ký vào lớp 10 năm học 2025-2026 cao nhất TP.HCM.
+- Trưa 14-5, Sở Giáo dục và Đào tạo TP.HCM đã công bố số thí sinh đăng ký dự thi tuyển sinh lớp 10 công lập năm học 2025-2026.
+- Kỳ thi tốt nghiệp THPT năm 2025, trong khi môn lịch sử, địa lý đều có trên 42% thí sinh đăng ký thì chỉ 21% chọn hóa học, 6,2% chọn sinh học...
+- Nhiều trường đã công bố mở cổng tuyển sinh sớm để thí sinh nộp hồ sơ phục vụ xét tuyển đại học chính quy năm 2025.
+- Nữ phó hiệu trưởng một trường mầm non ở Huế bị kỷ luật cách chức về mặt Đảng do có quan hệ nam nữ bất chính với một người đàn ông đã có gia đình.
+- Đại học Kinh tế TP.HCM (UEH) đã triển khai hai định hướng: thúc đẩy công bố quốc tế gắn với đào tạo đa ngành; phát triển các nghiên cứu ứng dụng gắn với các vấn đề đương đại.
+- Thành phố Đà Nẵng sẽ ưu tiên tuyển sinh học sinh là con cán bộ, công chức, viên chức của tỉnh Quảng Nam đang công tác tại các cơ quan, đơn vị thuộc diện sáp nhập.
+- Chiều 13-5, Sở Giáo dục và Đào tạo Hà Nội công bố số lượng học sinh đăng ký dự tuyển vào lớp 10 THPT của các trường THPT công lập không chuyên và chuyên năm học 2025-2026.
+- Ủy ban Kiểm tra Huyện ủy An Phú, An Giang đã công bố quyết định kỷ luật cảnh cáo hiệu trưởng Trường tiểu học A Quốc Thái vì nhắn tin quấy rối tình dục nhiều giáo viên nữ.
+- Khi đang lưu thông trên đường, một em học sinh lớp 5 ở Hà Tĩnh nhặt được số tiền 61 triệu đồng nên đã báo với cha của mình để đến cơ quan công an trả lại người đánh rơi.
+- UBND quận Bình Tân, TP.HCM vừa cấp phép thành lập Trường tiểu học và THCS VSchool. Trường này bắt đầu tuyển sinh từ năm học 2025-2026.
+- Trường Y Icahn tại Mount Sinai, New York, trở thành trường y đầu tiên ở Mỹ tích hợp trí tuệ nhân tạo (AI) vào chương trình đào tạo bác sĩ.
+- Tỉnh Khánh Hòa phê duyệt nơi xây dựng phân hiệu Trường đại học Bách khoa TP.HCM tại Nha Trang.
+- Bộ Giáo dục và Đào tạo đề xuất bỏ bằng tốt nghiệp THCS, đồng thời giao hiệu trưởng trường THPT cấp bằng tốt nghiệp THPT thay vì sở giáo dục và đào tạo.
+- Bốn học sinh Việt Nam dự kỳ thi Olympic Hóa học quốc tế Mendeleev, được mệnh danh là 'kỳ thi hóa học khó nhất hành tinh', giành được hai huy chương vàng và hai huy chương bạc.
+- Hà Trọng Bách, lớp 12B15 Trung tâm Giáo dục nghề nghiệp - giáo dục thường xuyên quận Tân Phú, TP.HCM, đã giành hai giải nhất học sinh giỏi cấp thành phố môn toán và giải toán trên máy tính cầm tay năm học 2024-2025.
+- Hai nữ sinh lớp 7 tại Tiền Giang đã hẹn 1 nữ sinh lớp 8 cùng trường đến nói chuyện rồi xúm vào đánh và có hành vi làm nhục em này, quay video đăng lên mạng xã hội.
+- Đại học Quốc gia Hà Nội sẽ triển khai mô hình đào tạo cử nhân quốc tế rút gọn từ 4 năm xuống còn 3 năm, thậm chí 2,5 năm, tích hợp trí tuệ nhân tạo, công nghệ số và liên thông thẳng tiến sĩ.
+- Theo Đại học Quốc gia Hà Nội, việc trang bị tư duy số và kiến thức nền tảng về trí tuệ nhân tạo (AI) không còn là sự lựa chọn, mà đã trở thành một yêu cầu bắt buộc đối với các sinh viên đại học.
+- Theo Đại học Bách khoa Hà Nội, tổng số thí sinh có điểm thi đánh giá tư duy năm 2025 là hơn 28.000 thí sinh, nhưng chỉ có 1.860 thí sinh đạt từ 70/100 điểm trở lên.
+- Tối 12-5, UBND quận 1, TP.HCM đã ban hành kế hoạch tuyển sinh lớp 1, lớp 6 năm học 2025-2026.
+- Tối 12-5, Sở Giáo dục và Đào tạo TP.HCM đã có văn bản hướng dẫn tuyển sinh đầu cấp năm học 2025-2026.
+- Sở Giáo dục và Đào tạo Đắk Lắk đã có báo cáo gửi Thường trực Tỉnh ủy về kết quả xác minh vụ nhiều học sinh lớp 12 'tự nguyện' nghỉ học trước kỳ thi tốt nghiệp.
+- Ông Nguyễn Thanh Hiệp - hiệu trưởng Trường đại học Y khoa Phạm Ngọc Thạch, bị kỷ luật với hình thức cảnh cáo, đồng thời đến nhận nhiệm vụ và công tác tại Sở Y tế TP.HCM.
+- Bản kiểm điểm liệu có đủ sức răn đe đối với những học sinh hút thuốc lá điện tử, bạo lực học đường?
+- Sở Giáo dục và Đào tạo TP.HCM vừa có văn bản chính thức về việc khảo sát để tuyển sinh lớp 6 Trường THCS-THPT Trần Đại Nghĩa. Theo đó kỳ khảo sát sẽ diễn ra ngày 16-6.
+- Những tư tưởng của Chủ tịch Hồ Chí Minh về giáo dục như một dân tộc dốt là một dân tộc yếu, học không bao giờ cùng, học để làm người, để phụng sự… được các nhà khoa học khẳng định vẫn là kim chỉ nam dẫn dắt nền giáo dục.
+- Trương Cẩm Đào - lớp 12/20 Trường Quốc tế Á Châu (Asian School) - đã giành được học bổng 100.000 CAD từ University of Toronto.
+- 13 người tổ chức sản xuất, buôn bán sách giáo khoa giả đang phải hầu tòa.
+- UBND TP Buôn Ma Thuột vừa ban hành kế hoạch xét tuyển đặc cách đối với 36 giáo viên hợp đồng ký trước ngày 31-12-2015.
+- Vòng chung kết giải thưởng Lê Quý Đôn năm nay yêu cầu học sinh trong vai những người lính trẻ tính toán lương thực, nhiên liệu, tìm các từ khóa giải mã... để tiến về dinh Độc Lập.
+- TP.HCM dự kiến có 168 đơn vị cấp xã và 1 đặc khu nên việc quản lý giáo dục phải thay đổi mạnh mẽ và toàn diện. Việc sáp nhập và tổ chức bộ máy hành chính không còn quận, huyện và như vậy không còn phòng giáo dục và đào tạo.
+- Việc thực hiện dạy học 2 buổi/ngày không thu phí như tinh thần chỉ đạo của Tổng Bí thư Tô Lâm được kỳ vọng sẽ chấm dứt nạn dạy thêm, học thêm tràn lan.
+- Tin tức đáng chú ý: Đề xuất các điểm mới sửa Luật Giáo dục, có quy định miễn học phí, bỏ bằng tốt nghiệp THCS; TP.HCM tri ân những người "âm thầm" phục vụ sức khỏe người dân...
+- Tối 11-5, bốn công trình xuất sắc thuộc các lĩnh vực bảo vệ vật nuôi và môi trường, khoa học sức khỏe, công nghệ - kỹ thuật, khoa học xã hội và nhân văn đã được trao giải thưởng Bảo Sơn trị giá 120.000 USD (hơn 3 tỉ đồng/công trình).
+- Liên quan vụ “Lộ đề thi môn toán, hơn 600 học sinh lớp 8 phải kiểm tra lại”, nhà trường đã có báo cáo và đang tiếp tục rà soát nguyên nhân vụ việc.
+- Sáng 11-5, khoảng 10.000 học sinh, sinh viên ở Hà Nội đã tham dự ngày hội gắn kết giáo dục nghề nghiệp thủ đô với thị trường lao động.
+- 680 học sinh THCS vào vòng chung kết giải Lê Quý Đôn tranh tài trong vai trò của những người lính trong Chiến dịch Hồ Chí Minh.
+- Trong công điện của Thủ tướng Chính phủ vừa ban hành có nội dung chỉ đạo về việc nghỉ hè, hoạt động hè năm 2025 của trẻ em, học sinh.
+- Trong báo cáo gửi Quốc hội, Bộ trưởng Nguyễn Kim Sơn thông tin  nội dung liên quan quản lý dạy thêm, học thêm, sách giáo khoa.
+- Đội tuyển học sinh Việt Nam dự Olympic vật lý châu Á năm 2025 giành 3 huy chương vàng, 3 huy chương bạc và 2 huy chương đồng.
+- Việc thực hiện dạy học 2 buổi/ngày không thu phí của người học như tinh thần chỉ đạo của Tổng Bí thư Tô Lâm sẽ phải bắt đầu lộ trình thế nào và thay đổi gì so với cách làm hiện thời?
+- Hơn 600 học sinh khối lớp 8 ở Bình Phước phải làm lại bài kiểm tra học kỳ 2 môn toán sau phi phát hiện lộ đề thi.
+- Chiều 10-5, diễn đàn 'Giáo dục vượt trội - Nâng niu bản sắc' do Embassy Education tổ chức đã mang đến những góc nhìn về gìn giữ, lan tỏa giá trị văn hóa Việt Nam trong môi trường quốc tế.
+- Ngày 10-5, Bộ Giáo dục và Đào tạo cho biết đã nhận kết quả bước đầu tham gia chương trình đánh giá kết quả học tập của học sinh tiểu học khu vực Đông Nam Á (SEA-PLM) chu kỳ 2024.
+- Không kể mưa nắng, Hiếu từng có 10 năm cõng Minh đến trường. Hôm nay, nam sinh lại cõng người bạn thân lên bục nhận bằng tốt nghiệp của Đại học Bách khoa Hà Nội.
+- Các trường tiểu học và THCS tại quận Gò Vấp có tuyển sinh lớp 1 và lớp 6 theo diện trái tuyến hay không? Tuyển vào thời gian nào?
+- Ngày 11-5, một hội thảo cùng nhìn lại những mong ước của Hồ Chủ tịch về một nền giáo dục nhân văn nhân 80 năm Người gửi thư cho học sinh nhân dịp khai trường.
+- Ngày 10-5, Viện Đào tạo sau đại học - Trường đại học Hàng hải Việt Nam tổ chức lễ kỷ niệm 30 năm ngày thành lập và đón nhận bằng khen của bộ trưởng Bộ Xây dựng.
+- Kết quả của một chương trình đào tạo chất lượng là năng lực sinh viên được ghi dấu ấn qua kết quả học tập cùng khả năng chinh phục ngôi vị quán quân ở các 'đấu trường' lớn trong nước và quốc tế. Sự kết hợp đầy hiệu quả cùng Samsung, Fore, Alibaba,…
+- Chính phủ Hàn Quốc đang nỗ lực cứu giáo dục y khoa, khi 65% sinh viên y khoa từ chối học tập, dẫn đến hơn 8.300 sinh viên đối mặt nguy cơ lưu ban hoặc bị đuổi học.
+- Ngày 10-5, cuộc thi 'Tinh hoa nhí Việt Nam 2025' chính thức khởi động, mở ra một hành trình nghệ thuật chuyên nghiệp dành cho các tài năng nhí từ 4 đến 15 tuổi trên khắp mọi miền đất nước.
+- Bên cạnh ủng hộ, không ít ý kiến lo ngại, băn khoăn về dự thảo thông tư về khen thưởng và kỷ luật học sinh mà Bộ Giáo dục và Đào tạo đang lấy ý kiến từ ngày 6-5 đến ngày 6-7-2025.
+- Bộ GD-ĐT đã ban hành hướng dẫn tuyển sinh trình độ cao đẳng năm 2025, trong bối cảnh công tác quản lý nhà nước về giáo dục nghề nghiệp đã được chuyển từ Bộ LĐ-TB&amp;XH về Bộ GD-ĐT từ ngày 1-3-2025.
+- Bộ Giáo dục và Đào tạo đang lấy ý kiến dự thảo thông tư quy định về khen thưởng và kỷ luật học sinh. Dự thảo đã thu hút nhiều ý kiến đa chiều của giáo viên, học sinh và những người đang công tác trong ngành giáo dục.
+- Chính phủ Indonesia triển khai chương trình thí điểm, đưa học sinh cá biệt vào trại huấn luyện quân sự để rèn luyện kỷ luật.
+- Trường THPT Cao Bá Quát (Đắk Lắk) đã có báo cáo gửi Sở Giáo dục và Đào tạo tỉnh này liên quan việc nhiều học sinh lớp 12 'tự nguyện' xin nghỉ học trước kỳ thi tốt nghiệp.
+- Vậy là tôi chính thức xong năm nhất đại học dù đã đi học hai năm nếu tính luôn hai học kỳ tiếng Anh của mình.
+- Đảng ủy Trường đại học Y khoa Phạm Ngọc Thạch thống nhất thu hồi quyết định của hiệu trưởng nhà trường về thành lập tổ kiểm tra hoạt động của hội đồng khoa học và đào tạo, liên quan đề xuất thành lập hội đồng giáo sư cơ sở năm 2025.
+- Tối 9-5, UBND quận Tân Bình, TP.HCM đã công bố kế hoạch tuyển sinh đầu cấp năm học 2025-2026.
+- Trong hai đợt tốt nghiệp sớm, Đại học Kinh tế quốc dân (Hà Nội) có ba sinh viên đạt điểm tuyệt đối 4.0.
+- Trước khi được bổ nhiệm làm hiệu trưởng Trường đại học Khoa học tự nhiên - Đại học Quốc gia Hà Nội, GS.TS Lê Thanh Sơn giữ chức phó hiệu trưởng và phó chủ tịch hội đồng trường.
+- 541 học sinh từ mầm non đến THCS ở Phú Nhuận, TP.HCM đã có buổi trải nghiệm thú vị với những hoạt động có liên quan đến lịch sử. Đây là một trong những phần thưởng của Phòng Giáo dục và Đào tạo quận Phú Nhuận dành cho các em.
+- Sở Giáo dục và Đào tạo tỉnh Đắk Lắk lập đoàn kiểm tra việc trường có nhiều học sinh lớp 12 'tự nguyện' nghỉ học trước kỳ thi tốt nghiệp.
+- Ngoài Bắc Ninh, "Chuyến xe hướng nghiệp Đức", thực chất là xe container 40 feet vừa là phòng tư vấn, cung cấp thông tin, vừa là phòng trải nghiệm công nghệ thực tế ảo VR sẽ ghé thăm gần 20 tỉnh, thành khác.
+- Nhiều giáo viên nhận được thông báo về khóa học bồi dưỡng tiếng Anh cùng với mức học phí, lệ phí thi lấy chứng chỉ, Sở Giáo dục và Đào tạo TP.HCM nói gì?
+- Học tiếng Pháp từ lớp 1 sẽ có những ưu thế riêng. Nhưng muốn vào những trường này, học sinh cần những điều kiện gì?
+- Vụ việc ông Hà Văn Thúy ở Nghệ An xông vào trường, hành hung cô giáo trước mặt hàng chục học sinh và phụ huynh đã gây ra sự phẫn nộ từ dư luận.
+- Hai nhóm sinh viên tại Bình Định hiện thực hóa ý tưởng khởi nghiệp đã thắng giải bằng chiếc xe bán bánh mì.
+- Nhà trường chi sai tiền phụ cấp ưu đãi nhà giáo suốt 4 năm, nhưng yêu cầu giáo viên nộp lại 1 lần khiến nhiều người bức xúc, không xoay kịp tiền nộp.
+- Không kỷ luật bằng hình thức đình chỉ học, nhưng chỉ viết bản kiểm điểm thì liệu học sinh có thực sự chuyển biến tốt về nhận thức, hành vi?
+- Kỳ thi tốt nghiệp THPT năm 2025 có hơn 1,16 triệu thí sinh đăng ký dự thi, tăng hơn 90.000 thí sinh so với năm 2024.
+- Việc giáo viên tăng thu nhập bằng hoạt động dạy thêm không sai, nhưng có người vịn vào đó, dạy không hết chương trình chính thức, học sinh buộc phải học thêm.
+- Trường đại học Ngoại thương, Học viện Ngân hàng và Trường đại học Thương mại đã công bố công thức quy đổi điểm bài thi đánh giá năng lực, đánh giá tư duy về thang điểm 30.
+- Năm nay Trường đại học Sư phạm kỹ thuật TP.HCM chỉ xét tuyển thí sinh có điểm thi THPT năm 2025 theo tổ hợp xét tuyển hoặc điểm đánh giá năng lực Đại học Quốc gia TP.HCM năm 2025.
+- Việc 6 sinh viên được trường trao bằng khen vì đã nhường chỗ cho cựu chiến binh trong dịp lễ 30-4 khơi lên một câu hỏi: Có nên khen thưởng điều tử tế bình thường?
+- Thủ tướng yêu cầu Bộ Giáo dục và Đào tạo rà soát kỹ các khâu ra đề thi tốt nghiệp THPT; hướng dẫn địa phương kiểm tra công tác chuẩn bị.
+- Trong kỳ thi tốt nghiệp THPT năm nay, môn ngoại ngữ và vật lý là hai môn thi được nhiều thí sinh tại TP.HCM lựa chọn.
+- Theo chuyên gia, việc các sinh viên nhường chỗ ngồi cho các cựu chiến binh trong đại lễ 30-4 rất xứng đáng được tuyên dương với nhiều hình thức khác, thay vì tặng bằng khen của giám đốc Đại học Quốc gia TP.HCM.
+- Trước bức xúc của nhiều giáo viên mầm non về hưu liên quan phụ cấp thâm niên, đại diện chính quyền nói chờ cấp có thẩm quyền hướng dẫn.
+- Năm học 2025 - 2026, Trường đại học Ngoại thương dự kiến mức học phí chương trình đào tạo chuẩn vào khoảng 25,5 - 27,5 triệu đồng/năm.
+- Nhiều quốc gia, trong đó có Việt Nam, đang chứng kiến mức độ siết chặt gắt gao trong quy trình xét duyệt hồ sơ du học từ Úc.
+- Hình thức kỷ luật nặng nhất đối với học sinh chỉ là bị nhắc nhở, viết bản kiểm điểm thay cho mức đình chỉ học như trước đây.
+- Nhiều người ví von mùa thi là mùa rối của nhiều gia đình. Nguyên nhân gây rối nhiều nhất được chỉ mặt đặt tên: văn mẫu và đề cương ôn tập.
+- Bộ Giáo dục và Đào tạo công bố danh sách 133 học sinh lớp 12 tham dự kỳ thi chọn đội tuyển quốc gia dự Olympic quốc tế và khu vực năm 2025.
+- Với tốc độ phát triển vượt bậc trong những năm gần đây, Quản trị khách sạn (Hospitality Management) là một lĩnh vực đầy tiềm năng.
+- Thời điểm trẻ bắt đầu biết đi không chỉ là cột mốc phát triển bình thường, mà còn phản ánh những yếu tố di truyền có liên quan đến khả năng học tập và nguy cơ mắc rối loạn tăng động giảm chú ý (ADHD).
+- Sở Giáo dục và Đào tạo TP.HCM vừa công bố kết quả khảo sát năng lực tiếng Anh của giáo viên từ tiểu học đến THPT trên địa bàn.
+- Giáo sư - tiến sĩ Đặng Lương Mô đã ra đi, để lại một khoảng trống khó lấp trong lòng những người từng yêu quý và kính trọng ông.
+- Tổng Bí thư Tô Lâm đã thống nhất chủ trương các trường tiểu học, THCS tổ chức dạy học 2 buổi/ngày tùy theo điều kiện của từng địa phương về cơ sở vật chất, tài chính và giáo viên.
+- Ngoài công bố 42 tổ hợp xét tuyển đại học, Trường đại học Ngoại ngữ yêu cầu thí sinh sử dụng kết quả thi đánh giá năng lực xét tuyển vào trường phải có điểm hợp phần tiếng Anh đạt tối thiểu 30/50 điểm.
+- Liên minh Nhân lực chiến lược thực thi nghị quyết 57 nhằm góp phần nâng cao năng lực nghiên cứu, đổi mới sáng tạo và ứng dụng trí tuệ nhân tạo trong công tác đào tạo, quản trị và hoạch định chính sách.
+- Phụ huynh muốn cho con học chương trình tăng cường tiếng Anh bắt đầu từ lớp 1 tại TP.HCM cần những điều kiện gì khi đăng ký tuyển sinh?
+- Hiện số thí sinh đăng ký dự thi đánh giá năng lực Đại học Quốc gia TP.HCM đợt 2 năm 2025 đã hơn 92.000, gấp đôi so với năm 2024.
+- Các trường phổ thông ngoài công lập ở TP.HCM phải treo biển tên đúng với quyết định thành lập, không được thu gộp học phí nhiều năm học.
+- Lễ trao giải Hội thi sáng tác ảnh Tuổi Xanh lần thứ 18 đã diễn ra tại hội trường Sở Giáo dục và Đào tạo TP.HCM chiều 7-5.
+- Sở Giáo dục và Đào tạo TP.HCM vừa có thông báo tuyển bổ sung 474 học sinh vào lớp 11 chuyên năm học 2025-2026.
+- Lần đầu tiên, 18 trường từ New Zealand sẽ trực tiếp sang Việt Nam dạy miễn phí các lớp học STEM theo phong cách Kiwi cho học sinh phổ thông.
+- Bộ Giáo dục và Đào tạo yêu cầu học sinh, sinh viên, cán bộ quản lý giáo dục, nhà giáo cảnh giác với thủ đoạn lợi dụng lôi kéo, dụ dỗ mở tài khoản ngân hàng, thuê bao di động để chiếm đoạt tài sản.
+- Nhiều ý kiến cho rằng chỉ cần tuyên dương cộng điểm rèn luyện cho sinh viên nhường chỗ ngồi cho các cựu chiến binh trong đại lễ 30-4 thay vì tặng bằng khen của giám đốc Đại học Quốc gia TP.HCM.
+- Theo doanh nhân Johnathan Hạnh Nguyễn, các bạn sinh viên sau này ra trường, có sự nghiệp hãy nhớ làm mọi việc phải đúng quy trình, quy định của nhà nước, như vậy mới có thể 'ăn no, ngủ yên'.
+- Cùng học Trường phổ thông dân tộc nội trú tỉnh Cà Mau, một số học sinh được hưởng chế độ hỗ trợ tiền ăn, trong khi các em khác phải tự đóng tiền khiến thầy cô khó xử, học sinh chạnh lòng.
+- Từ hôm nay 7-5, sinh viên Trường đại học Quản lý và Công nghệ TP.HCM bắt đầu học thực hành tại tòa soạn báo Tuổi Trẻ. Đây là trường thứ 10 báo Tuổi Trẻ hợp tác đào tạo.
+- Lĩnh vực công nghệ giáo dục (edtech) tại Việt Nam đã phát triển qua hơn hai thập niên với gần 900 sản phẩm đang có trên thị trường.
+- Phòng thí nghiệm ở Trường THPT chuyên Phan Bội Châu, Nghệ An bốc cháy sáng 7-5. Học sinh được yêu cầu sơ tán tạm thời để đảm bảo an toàn.
+- Đây là thông tin được Sở Giáo dục và Đào tạo Hà Nội chia sẻ nhân việc chuẩn bị ngày hội gắn kết giáo dục nghề nghiệp thủ đô với thị trường lao động diễn ra ngày 11-5.
+- Ngày 7-5, Trường THPT Hiệp Bình, TP Thủ Đức, TP.HCM đã gửi thông báo khẩn đến phụ huynh về chiêu lừa đảo liên quan đến kỳ thi tốt nghiệp THPT 2025.
+- Giám đốc Đại học Quốc gia TP.HCM vừa tặng bằng khen cho 6 sinh viên năm nhất Trường đại học Khoa học xã hội và Nhân văn vì đã có hành động đẹp, nhường chỗ ngồi cho các cựu chiến binh nơi diễn ra các hoạt động chào mừng đại lễ 30-4.
+- Nhiều thí sinh đã đăng ký dự thi tốt nghiệp THPT 2025 môn ngoại ngữ nhưng nay vẫn còn lưỡng lự việc có nên thi môn này hay không và thắc mắc việc đổi môn thi.
+- Hội đồng Anh với hơn 30 năm đồng hành cùng Việt Nam trong lĩnh vực tiếng Anh thông qua khảo thí, giảng dạy, phát triển giáo viên và hỗ trợ đổi mới chính sách.
+- Vừa ra khỏi phòng xử, ông Dương Thế Hảo nói 'nhà trường không chỉ giữ bằng tốt nghiệp của tôi mà đã giữ cả thanh xuân, cuộc đời một con người'.
+- Tổng Bí thư Tô Lâm yêu cầu ngành giáo dục, các địa phương chuẩn bị điều kiện để dạy 2 buổi mỗi ngày miễn phí ở bậc tiểu học, THCS, từ năm học 2025-2026.
+- Tại phiên tòa, đại diện Trường ĐH Kinh tế quốc dân khẳng định không giữ bằng tốt nghiệp của cựu sinh viên Dương Thế Hảo như tố cáo. Phía nhà trường cũng cho rằng không có căn cứ chấp nhận yêu cầu đòi bồi thường 44 tỉ.
+- Nhiều trường quốc tế đã công bố mức học phí cho năm học mới 2025 - 2026, trong đó phần lớn được điều chỉnh theo hướng tăng.
+- TP.HCM tuyển sinh lớp 1, lớp 6 thành 2 đợt, phụ huynh có thể chờ đợt 2 mới đăng ký tuyển sinh theo nguyện vọng được hay không?
+- GS.TS Đặng Lương Mô, giáo sư danh dự Đại học Hosei (Nhật Bản), cố vấn cao cấp tại Đại học Quốc gia TP.HCM, qua đời chiều nay 6-5.
+- Phòng Giáo dục và Đào tạo quận Tân Phú, TP.HCM vừa công bố kế hoạch tuyển sinh lớp mẫu giáo 5 tuổi, lớp 1, lớp 6 năm học 2025-2026.
+- Ngoài 5 trường THCS như đã công bố, TP.HCM có thêm một trường THCS khảo sát để tuyển sinh lớp 6 năm học 2025-2026.
+- Nhiều sinh viên khóa mới năm học 2025 của Trường đại học Y Dược Cần Thơ phản ánh về việc tăng học phí của trường trong năm học mới không đúng quy định.
+- Hiệu trưởng Trường đại học Y khoa Phạm Ngọc Thạch đã 2 lần gửi công văn khẩn đến Hội đồng giáo sư Nhà nước cùng Bộ Giáo dục và Đào tạo xin ý kiến về cách thức triển khai và kết quả xét chọn, thành lập hội đồng giáo sư cơ sở năm 2025.
+- Bộ trưởng Nguyễn Kim Sơn nêu rõ quan điểm với một số địa phương có điều kiện rất nên khuyến khích dành thêm nguồn lực để hỗ trợ nhà giáo.
+- Đại học Quốc gia TP.HCM công bố đã mời được 16 giáo sư và chuyên gia quốc tế đến từ nhiều trường đại học trên thế giới làm giáo sư thỉnh giảng, hứa hẹn mang đến những chia sẻ giá trị về học thuật.
+- Tại tòa, ông Dương Thế Hảo khẳng định cuộc sống của ông và người thân trong gia đình bị đảo lộn mọi mặt, mất cơ hội việc làm, mất quyền khai sinh cho các con... vì bị Đại học Kinh tế quốc dân giữ bằng tốt nghiệp 25 năm.
+- Trường đại học Y Dược Cần Thơ có thêm phương thức tuyển sinh V-SAT, học phí tăng 14 triệu đồng/năm.
+- Số học sinh dự thi vào lớp 10 THPT công lập năm học 2025-2026 tại Hà Nội giảm so với năm trước, trong khi chỉ tiêu tuyển sinh tăng khiến nhiều người hy vọng sẽ giảm nhiệt.
+- Đại biểu Trần Khánh Thu cho rằng cần nhìn nhận vấn đề học thêm xuất phát từ nhu cầu học tập của xã hội, học sinh và phụ huynh, chứ không hẳn tất cả quy cho giáo viên ép buộc trong vấn đề dạy thêm.
+- Ở tuổi 13, Sunny Nguyen, cậu bé gốc Việt sống tại California, được hàng loạt đại học danh tiếng ở Mỹ chấp nhận. Cậu còn giành được hơn 3 triệu USD học bổng nhờ niềm đam mê toán học, công nghệ và trí tuệ nhân tạo.
+- Việc chính quyền ông Trump gây sức ép buộc Đại học Harvard thay đổi chính sách nội bộ đang thổi bùng tranh cãi về sự can thiệp của chính phủ vào lĩnh vực giáo dục.
+- Đại học Bách khoa Hà Nội vừa công bố phổ điểm thi đánh giá tư duy năm 2025 và minh họa cách tính điểm xét tuyển đại học theo điểm thi đánh giá tư duy.
+- Trường Đại học Cần Thơ phân hiệu tại Sóc Trăng nằm mặt tiền đường Lê Hồng Phong, thành phố Sóc Trăng, gần cổng Chùa Dơi, rộng 20.000m2 với tổng giá trị trên 121 tỉ đồng.
+- Các tiểu vương quốc Ả Rập thống nhất (UAE) sẽ đưa các bài giảng về trí tuệ nhân tạo (AI) vào chương trình học cho học sinh ở mọi lứa tuổi, là sáng kiến mới nhằm giữ vị thế đi đầu trong công nghệ này.
+- Bức xúc trước vụ việc một phụ huynh đánh, túm tóc cô giáo, bắt đứng giữa mưa ở Nghệ An, nhiều người đề nghị xử lý nghiêm để làm gương.
+- Năm nay lần đầu tiên Học viện Công nghệ bưu chính viễn thông và Trường đại học Xây dựng Hà Nội xét đại học bằng kết quả thi đánh giá năng lực, do Trường đại học Sư phạm Hà Nội tổ chức.
+- Đó là khẳng định của ông Đặng Huy Hồng - giám đốc Trung tâm Lao động ngoài nước (Bộ Nội vụ) - trong kỳ thi tiếng Hàn thuộc chương trình EPS lớn nhất trong năm 2025.
+- Sau khi có những ý kiến trái chiều, Trường đại học Văn hóa Hà Nội đã bỏ cộng 3 điểm xét tuyển cho thí sinh có IELTS từ 4.0 mà trường dự kiến thực hiện.
+- Chương trình Tiếp sức mùa thi 2025 sẽ đưa trí tuệ nhân tạo vào hỗ trợ thí sinh ôn luyện, định hướng nghề nghiệp.
+- Nhiều trường đại học tuyển sinh y khoa, sư phạm điều chỉnh tổ hợp xét tuyển sau khi báo chí phản ánh.
+- Phong trào khởi nghiệp ở Việt Nam đang phát triển sôi động. Khẩu hiệu 'Quốc gia khởi nghiệp' lan tỏa từ chính sách đến truyền thông, trường học và cộng đồng doanh nhân trẻ.
+- Bộ Giáo dục và Đào tạo vừa ban hành kế hoạch triển khai Chiến lược phát triển giáo dục đến năm 2030, tầm nhìn đến năm 2045 theo quyết định số 1705/QĐ-TTg của Thủ tướng Chính phủ.
+- Theo Bộ GD-ĐT, đến hết năm học 2024-2025, cả nước còn khoảng 60.000 biên chế giáo viên được giao nhưng chưa tuyển dụng được.
+- Dự kiến cách phân tuyến tuyển sinh đầu cấp tại Hà Nội từ năm học 2026-2027 sẽ được điều chỉnh theo hướng sắp xếp để học sinh được học gần nhà nhất.
+- Mô hình lớp học thực hành - nơi mô phỏng môi trường làm việc thực tế đã trở thành phương pháp đào tạo đặc trưng của HUFLIT.
+- Thành thạo toán không chỉ đơn thuần là khả năng nhớ và tính toán nhanh, mà còn bao gồm khả năng nhận biết và vận dụng các mối quan hệ số học khi giải toán.
+- UBND tỉnh Đắk Lắk yêu cầu truy thu hơn 125 tỉ đồng chi sai phụ cấp ưu đãi cho giáo viên và xử lý trách nhiệm các tập thể, cá nhân liên quan.
+- Theo báo cáo ban đầu, khi thấy con rắn chết trong nồi thức ăn, đầu bếp nhà trường đã gắp nó ra và vẫn múc thức ăn cho học sinh. Sau bữa ăn, hơn 100 em bị bệnh.
+- Trong bối cảnh chỉ tiêu lớp 10 vào các trường THPT công lập tại TP.HCM tăng lên tới khoảng 80% trong năm nay, 'miếng bánh' dành cho các trường nghề tuyển 9+ thu hẹp đáng kể.
+- Sở Tài chính tỉnh Khánh Hòa vừa trình UBND tỉnh chỉ đạo chi trả tiền hỗ trợ tất cả sinh viên sư phạm đào tạo theo nhu cầu xã hội 2 khóa của Trường đại học Khánh Hòa từ các năm 2022, 2023 đến nay.
+- Huyện Tuy Đức (Đắk Nông) tổ chức đưa nghệ nhân vào trường học, trực tiếp truyền dạy cho học sinh cách đánh cồng chiêng.
+- Dù đã có bản án từ năm 2022, 6 giáo viên thắng kiện ở huyện Krông Pắk (Đắk Lắk) vẫn chưa nhận được tiền bồi thường.
+- Một giáo viên tố cáo hiệu trưởng 'sờ soạng', quấy rối tình dục nhiều cô giáo khác; đồng thời đã vận động xã hội hóa bất minh nhiều nguồn.
+- Có trường hợp sinh viên chương trình liên kết đào tạo Trường đại học Mở TP.HCM nhập học 10 năm sau mới có quyết định công nhận sinh viên.
+- Sở Giáo dục và Đào tạo TP.HCM chính thức mở cổng tuyển sinh lớp 10 tại địa chỉ ts10.hcm.edu.vn từ 15h chiều nay, 2-5.
+- 50 năm trước, tháng 4-1975 tôi ở châu Âu nhìn về Tổ quốc, nhìn về cuộc tiến quân vĩ đại với niềm tự hào và cả nước mắt của quân dân Việt Nam để giành lại hòa bình, thống nhất.
+- Cơ quan cảnh sát điều tra Công an TP.HCM đã ra quyết định khởi tố bị can, lệnh bắt tạm giam đối với bà Nguyễn Thị Út Em, chủ tịch hội đồng Trường quốc tế AISVN (huyện Nhà Bè, TP.HCM).
+- Cô giáo trong vụ việc bị phụ huynh đánh, túm tóc, bắt đứng giữa mưa ở Nghệ An cho hay cô đã nhận được lời xin lỗi từ gia đình phụ huynh.
+- Tới trường đón con nghi sau khi đã có uống rượu, phụ huynh hành hung, túm tóc cô giáo ở Nghệ An và bắt cô đứng giữa mưa.
+- Một nhóm học sinh khởi nghiệp khiến nhiều người bất ngờ khi đưa hạt K'nia, loại hạt đặc trưng của núi rừng Đắk Lắk, Tây Nguyên ra thị trường nhằm lan tỏa thông điệp bảo vệ rừng, phát triển cộng đồng.
+- Sau quá trình kiểm tra, Bộ Giáo dục và Đào tạo quyết định hủy kết quả đạt giải nhất và thu hồi giải thưởng, giấy chứng nhận đạt giải của dự án "Hệ thống phân loại rác thông minh tích hợp trí tuệ nhân tạo và cảm biến âm thanh".
+- Lãnh đạo tỉnh Quảng Nam đề nghị bổ sung vào đề án sắp xếp đơn vị hành chính cấp tỉnh, trong đó điều chỉnh địa điểm quy hoạch xây dựng Làng đại học Đà Nẵng vào TP Tam Kỳ.
+- Sáng 29-4, TP.HCM đã làm lễ ra quân cho các học sinh ưu tú tham dự hai cuộc thi quốc tế Olympic toán học và khoa học kỹ thuật.
+- 345 trẻ mầm non là con của công nhân Công ty PouYuen nô nức cùng nhau xếp thành hình bản đồ Việt Nam chào mừng lễ 30-4.
+- Một nam phụ huynh xông vào trường túm tóc, đánh rồi bắt cô giáo đứng giữa trời mưa trước sự chứng kiến của các học sinh, phụ huynh.
+- Nhóm sinh viên Trường ĐH Lạc Hồng (Đồng Nai) đã phát triển Adley - ứng dụng hỗ trợ dịch thuật ngôn ngữ ký hiệu.
+- Học sinh lớp 12 tại TP.HCM sẽ thi thử tốt nghiệp THPT trong ba ngày 26, 27 và 28-5 sắp tới, đề thi do trường ra.
+- Tỉnh Quảng Nam đã tuyên dương, tặng bằng khen cho anh em song sinh giành huy chương vàng tại kỳ thi Olympic giao lưu toán học Turkmenistan.
+- Trường đại học Công nghiệp Hà Nội công bố thông tin tuyển sinh đại học năm 2025 với tổng 7.990 chỉ tiêu cho 62 chương trình đào tạo.
+- Các môn khối xã hội như lịch sử, địa lý, giáo dục kinh tế và pháp luật có lượng thí sinh chọn dự thi áp đảo các môn khoa học tự nhiên.
+- Theo Sở Giáo dục và Đào tạo TP.HCM, các trường THCS có hai phương thức tuyển sinh lớp 6 cho năm học 2025-2026.
+- Thủ tướng Nhật Bản Ishiba Shigeru mong các sinh viên, học viên Trường đại học Việt Nhật sẽ giữ vai trò là cầu nối cho sự phát triển hợp tác hữu nghị chặt chẽ giữa Nhật Bản và Việt Nam.
+- Cả sân trường với hàng ngàn học sinh say sưa, háo hức nghe những người lính giải phóng quân năm xưa của kíp xe tăng 390 húc đổ cổng dinh Độc Lập ngày 30-4-1975 kể về khoảnh khắc lịch sử huyền thoại ấy.
+- Sinh viên ngành báo chí có cơ hội chia sẻ những câu chuyện, tâm tư nghề nghiệp với các cựu phóng viên chiến trường quốc tế từng đưa tin ở Việt Nam.
+- Theo Bộ Giáo dục và Đào tạo, tính đến 17h ngày 28-4, trên hệ thống có 1.165.289 thí sinh đăng ký dự thi tốt nghiệp THPT năm 2025.
+- Anh em song sinh Nguyễn Trí Hiền và Nguyễn Trí Hậu (ở Quảng Nam) đã xuất sắc giành huy chương vàng tại kỳ thi Olympic giao lưu toán học Turkmenistan.
+- Quảng Ngãi sẵn sàng trường lớp, nơi học tập tốt và phù hợp nhất cho học sinh là con em cán bộ tỉnh Kon Tum xuống Quảng Ngãi làm việc, sau khi hai tỉnh hợp nhất thành một.
+- Đặt mục tiêu cụ thể và lên kế hoạch kỹ càng, Lý Thành Tiến là sinh viên đầu tiên tốt nghiệp song ngành trước hạn 3 học kỳ của Trường đại học Bách khoa (Đại học Quốc gia TP.HCM).
+- Sở Giáo dục và Đào tạo TP.HCM vừa có kế hoạch khảo sát năng lực tiếng Anh của học sinh lớp 9 và lớp 11, năm học 2024-2025.
+- UBND tỉnh Thanh Hóa vừa ban hành quy định về dạy thêm, học thêm trên địa bàn, có hiệu lực thi hành từ ngày 6-5, thay thế quyết định số 2381 ngày 27-7-2012 của UBND tỉnh quy định về dạy thêm, học thêm.
+- Những trang sách trong Bước chân gọi trái tim người mẹ đem lại cho độc giả bao điều thú vị, mở rộng nhiều hiểu biết cho con trẻ: từ kiến thức xã hội đến lịch sử, địa lý, môi trường và cả cách đối nhân, xử thế.
+- Bộ Nội vụ đề nghị không chuyển các trường đại học phục vụ nhiệm vụ quản lý nhà nước của bộ, ngành, địa phương và các trường đại học trọng điểm, chuyên sâu của các ngành, lĩnh vực về Bộ Giáo dục và Đào tạo.
+- Ngày 28-4, UBND TP.HCM đã có quyết định công nhận 100 trường học số đầu tiên. Đây là công trình chào mừng kỷ niệm 50 năm Ngày Giải phóng miền Nam, thống nhất đất nước.
+- Không nắm luật cơ bản, nhiều sinh viên mới tốt nghiệp rơi vào cảnh bị mất quyền lợi mà không biết kêu ai khi chân ướt chân ráo bước vào thị trường lao động.
+- Nguyễn Trí Hiền và Nguyễn Trí Hậu, hai anh em song sinh ở Quảng Nam đã xuất sắc cùng với 4 học sinh khác giành huy chương vàng tại kỳ thi Olympic giao lưu toán học Turkmenistan.
+- Cả nước hiện có nhiều trường phổ thông được tự chủ tuyển sinh, chủ yếu là các trường tư thục và công lập tự chủ tài chính.
+- Ngày 24-4, trường đại học FPT ký thỏa thuận hợp tác với trung tâm Đổi mới sáng tạo Quốc gia (NIC), mở ra bước tiến trong hành trình xây dựng hệ sinh thái khởi nghiệp cho sinh viên.
+- Chiều 27-4, nhà học thể dục thể thao Trường đại học Bách khoa, Đại học Quốc gia TP.HCM như "nổ tung" trong không khí cuồng nhiệt của vòng chung kết Giải Bóng rổ học sinh, sinh viên Đại học Quốc gia TP.HCM mở rộng năm 2025.
+- Ngày 27-4, vòng chung kết cuộc thi “Thiết kế - Dựng mô hình nhà chống thiên tai, bão lũ” đã nhận được nhiều sản phẩm độc đáo, có tính ứng dụng cao của học sinh THPT trên địa bàn TP Đà Nẵng.
+- Sở GD-ĐT TP.HCM vừa xây dựng kế hoạch sắp xếp bộ máy khi không còn phòng GD-ĐT.
+- Công an tỉnh Bắc Giang vừa phát hiện 15 giáo viên mua bằng giả cao đẳng, đại học và chứng chỉ tin học, ngoại ngữ để thi tuyển hoặc xếp lương giáo viên.
+- Chuyên gia Ngân hàng Thế giới đã chỉ ra hàng loạt điểm yếu trong đào tạo nhân lực bán dẫn ở Việt Nam, và khuyến nghị doanh nghiệp cùng tham gia vào quá trình đào tạo để đảm bảo chất lượng đầu ra đáp ứng yêu cầu thực tiễn.
+- Trước khi nam sinh diễn văn nghệ bị điện giật tử vong, nhiều học sinh khác cũng nghe "tê tê" dưới chân khi đứng trên sân khấu, nghi rò rỉ điện.
+- Nhiều quốc gia đã triển khai các chương trình quy mô lớn nhằm nâng cao năng lực tiếng Anh cho đội ngũ giáo viên, không chỉ giới hạn ở giáo viên tiếng Anh.
+- Số trẻ em Hàn Quốc mắc trầm cảm, rối loạn lo âu tăng vọt, dấy lên lo ngại về áp lực học tập quá mức tại các khu vực nóng về giáo dục tư nhân như Gangnam.
+- Sáng 26-4, tại Trung tâm Đào tạo Nhân lực chất lượng cao (TP.HCM), trường Đại học Công nghệ TP.HCM (HUTECH) đã tổ chức lễ kỷ niệm 30 năm thành lập (26-4-1995 đến 26-04-2025).
+- Việc tuyển sinh trình độ cao đẳng năm 2025 vẫn được giữ ổn định như các năm gần đây.
+- Cần làm gì để việc khảo sát năng lực tiếng Anh cho giáo viên của Sở Giáo dục và đào tạo TP.HCM được thực chất hơn?
+- Sở Giáo dục và Đào tạo TP.HCM vừa xây dựng kế hoạch sắp xếp bộ máy khi không còn phòng giáo dục và đào tạo.
+- Nguyễn Thị Mỹ Ngọc, sinh viên khóa 2021 ngành vật lý kỹ thuật Trường đại học Bách khoa (Đại học Quốc gia TP.HCM), vừa tốt nghiệp trước hạn, xếp loại xuất sắc.
+- Tại Kỳ thi Olympic giao lưu toán học Turkmenistan vừa diễn ra, cả 6 học sinh Việt Nam dự giải đều đoạt huy chương vàng.
+- Nam sinh lớp 9 ở huyện Ba Tơ, Quảng Ngãi đang biểu diễn văn nghệ tại trường vô tình đụng vào trụ sắt trên sân khấu và bị điện giật tử vong.
+- GS.TS Đặng Lương Mô, GS danh dự Đại học Hosei (Nhật Bản), cố vấn cao cấp tại Đại học Quốc gia TP.HCM, là người tiên phong trong việc phát triển ngành công nghệ vi mạch tại Việt Nam.
+- Việc Sở Giáo dục và Đào tạo TP.HCM khảo sát năng lực tiếng Anh của giáo viên là chủ trương đúng, cần thiết. Nhưng cách thực hiện đang bộc lộ nhiều bất cập.
+- Trong năm 2024, có tổng cộng 29.187 du học sinh nước ngoài theo học tại Hàn Quốc, trong đó Việt Việt Nam dẫn đầu về số lượng du học sinh ngành kỹ thuật, chiếm 25,1% tổng số du học sinh.
+- Ngày 25-4 tại Trường đại học Điện lực, Ngày hội việc làm (EPU’s Job Fair 2025) thu hút gần 30 doanh nghiệp, trong đó có nhiều doanh nghiệp lớn như Samsung, Foxconn, BYD, FPT, mang lại hơn 3.000 cơ hội việc làm cho sinh viên.
+- Năm học 2025-2026, TP.HCM chỉ có 10 trường THPT tuyển sinh lớp 10 tích hợp. Các trường sẽ tuyển sinh theo 2 nhóm.
+- Ủy ban Thường vụ Quốc hội thống nhất trình Quốc hội miễn học phí với học sinh các trường công lập và hỗ trợ học phí với học sinh các trường dân lập, tư thục.
+- Việc khảo sát năng lực tiếng Anh giáo viên tại TP.HCM đang gây ra nhiều lo lắng trong cộng đồng nhà giáo. Đề khảo sát quá khó khiến nhiều người lo không đạt sẽ bị buộc phải đi học bồi dưỡng.
+- Sở Giáo dục và Đào tạo TP.HCM vừa có văn bản hướng dẫn cách đăng ký nguyện vọng vào lớp 10 chuyên năm học 2025-2026.
+- Trong thời điểm tập trung ôn thi cho kỳ thi tốt nghiệp THPT, nhiều thí sinh đã đăng ký học bổng sớm ở một số trường đại học.
+- Sở Giáo dục và Đào tạo TP.HCM chính thức công bố kết quả hội thi sáng tác ảnh Tuổi Xanh lần thứ XVIII năm học 2024 - 2025.
+- Học sinh quận 1 và quận 3 TP.HCM được nghỉ học sớm để tạo điều kiện tốt nhất cho người dân xem hợp luyện diễu binh, diễu hành tối nay.
+- Công an tỉnh Bắc Giang khuyến cáo không chia sẻ hình ảnh nhạy cảm liên quan đến cá nhân, bạo lực trên mạng xã hội.
+- Sở Giáo dục và Đào tạo TP.HCM vừa công bố lịch thi lớp 10 năm học 2025-2026.
+- Đợt tốt nghiệp tháng 4-2025 của Trường đại học Bách khoa (Đại học Quốc gia TP.HCM), có một nam sinh viên học vượt, tốt nghiệp xuất sắc với GPA 4.0/4.0, được khen tặng huy chương vàng.
+- Một nhóm người móc nối với nhau nhắm đến loại sách giáo khoa (SGK) đang bán chạy để làm hàng triệu cuốn sách giả rồi chào bán trên mạng và đưa vào các nhà sách.
+- Cách đây đúng 30 năm, Trường Đại học Công nghệ TP.HCM (HUTECH) là một trong những trường đại học ngoài công lập đầu tiên được thành lập từ chủ trương xã hội hóa giáo dục của Chính phủ.
+- Sở Giáo dục và Đào tạo TP.HCM đang tiến hành khảo sát năng lực tiếng Anh tất cả giáo viên phổ thông trên địa bàn TP với ước tính khoảng 73.000 người tham gia từ ngày 23 đến 29-4.
+- Ngày 24-4, đoạn clip về việc một học sinh ở Trường THCS thị trấn Đồi Ngô số 1 (Lục Nam, Bắc Giang) bị hai bạn học đánh đấm liên tiếp vào người gây phẫn nộ, bức xúc trên mạng xã hội.
+- UBND TP.HCM vừa có văn bản truyền đạt chỉ đạo của chủ tịch UBND TP.HCM về giao nhiệm vụ cụ thể công tác sắp xếp bộ máy đơn vị sự nghiệp công lập trực thuộc UBND các quận, huyện và TP Thủ Đức.
+- Theo bảng xếp hạng đại học châu Á năm 2025 của THE, lần đầu có đến 9 trường Việt Nam góp mặt, trong đó có trường xếp hạng ở vị trí 136.
+- Ông Trump ký các sắc lệnh liên quan đến giáo dục, trong đó có cải thiện đào tạo nghề, thắt chặt các tiêu chuẩn công nhận trường đại học.
+- Ngày 24-4, UBND huyện Quan Hóa (Thanh Hóa) đã có công văn gửi báo Tuổi Trẻ, thông báo kết quả kiểm tra, chỉ đạo xử lý theo nội dung phản ánh.
+- Bộ Giáo dục và Đào tạo vừa có công văn yêu cầu Đại học Kinh tế TP.HCM xử lý trường hợp luận án tiến sĩ của bà Trần Quỳnh Hoa có dấu hiệu đạo văn.
+- Tổng thống Mỹ Donald Trump ký sắc lệnh hành pháp đưa trí tuệ nhân tạo (AI) vào chương trình giảng dạy từ mẫu giáo tới lớp 12.
+- Đầu giờ học buổi chiều, 27 học sinh tại Trường tiểu học Nước Hai (Cao Bằng) đau bụng, buồn nôn và nổi mề đay trên cơ thể, phải nhập viện.
+- Hà Nội yêu cầu trung tâm dạy thêm ở phố Chùa Láng dừng hoạt động do không công khai môn học, học phí, danh sách người dạy thêm.
+- Trước yêu cầu tất cả giáo viên tiểu học, THCS và THPT ở TP.HCM phải làm bài khảo sát năng lực tiếng Anh, rất nhiều giáo viên lo lắng.
+- Trong thời gian học tập, thực hành không được mặc quần áo có khả năng nhìn xuyên thấu, quần/váy lộ đầu gối, cạp trễ, jean rách đầu gối, áo trễ cổ.
+- TP.HCM đang lấy ý kiến góp ý dự thảo kế hoạch thực hiện Đề án Hội nhập quốc tế trong giáo dục và đào tạo của thành phố đến năm 2030.
+- 356 trẻ là con của công nhân Công ty TNHH PouYuen Việt Nam và 46 cô giáo Trường mầm non Mặt Trời Nhỏ (quận Bình Tân, TP.HCM) đồng diễn chào mừng lễ kỷ niệm 50 năm Ngày Giải phóng miền Nam, thống nhất đất nước (30-4-1975 - 30-4-2025).
+- UBND tỉnh Khánh Hòa vừa giao Sở Tài chính chủ trì, phối hợp rà soát, tham mưu đề xuất cấp kinh phí hỗ trợ cho sinh viên sư phạm.
+- Hơn 220 lãnh đạo của các trường đại học và cao đẳng tại Mỹ đã đồng lòng ký vào một tuyên bố phản đối sự 'lạm quyền' của ông Trump vào lĩnh vực giáo dục đại học.
+- TP Thủ Đức, TP.HCM vừa công bố kế hoạch tuyển sinh đầu cấp năm học 2025-2026. Theo đó, kỳ khảo sát để tuyển sinh lớp 6 diễn ra vào ngày 24-5-2025.
+- Nhiều trường trung cấp tại TP.HCM đang khó tuyển học sinh sau tốt nghiệp THPT mà gần như chỉ có thể tuyển học sinh hệ 9+, sau tốt nghiệp THCS.
+- Thời gian nghỉ hè của hiệu trưởng, hiệu phó trường phổ thông được quy định rõ hơn tại thông tư có hiệu lực vào ngày 22-4.
+- Sẽ ra sao nếu mỗi gia đình đều khởi nghiệp bằng con đường giáo dục? Khi giáo dục trở thành sứ mệnh của mỗi gia đình, chúng ta đang đặt nền móng cho một xã hội phát triển bền vững.
+- Sau hơn chục năm triển khai theo Luật Giáo dục đại học, hội đồng trường vẫn chưa thoát khỏi tình trạng mờ nhạt, thụ động và đôi khi là một tổ chức 'đồng thuận hình thức'.
+- Liên quan đến vụ việc nghi dùng bằng giả quảng cáo dịch vụ làm đẹp trái phép trên mạng xã hội, Sở Y tế TP.HCM đã đề nghị Trường đại học Y Dược TP.HCM hỗ trợ xác minh và sẽ chuyển Công an TP phối hợp điều tra, xử lý.
+- Ngày hội văn hóa đọc Đà Nẵng 2025 diễn ra với các hoạt động sôi nổi, thu hút đông đảo người dân, du khách và những người yêu sách tham gia.
+- Gần 63.000 học sinh ở Myanmar sẽ phải thi lại kỳ thi tuyển sinh đại học, sau khi bài làm của các em bị thiêu rụi trong vụ hỏa hoạn xảy ra sau trận động đất rung chuyển nước này hồi tháng trước.
+- ĐH Quốc gia Chungbuk, Hàn Quốc ngày 19-4-2025 ký kết và khai trương Trung tâm Toàn cầu CBNU tại ĐH Duy Tân, theo Chương trình 30 Dự án Glocal University của Hàn Quốc.
+- TP.HCM đang lấy ý kiến phụ huynh học sinh về sự hài lòng đối với chất lượng dịch vụ giáo dục trong các trường công lập.
+- Chính phủ New Zealand công bố chương trình học bổng bậc đại học New Zealand Universities Awards (NZUA) dành riêng cho học sinh Việt Nam.
+- Trường đại học Ngoại ngữ, Đại học Huế vừa mở thêm một ngành học mới mang tên Hoa Kỳ học.
+- Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) xét tuyển kết quả kỳ thi tốt nghiệp THPT năm 2025 với số lượng tổ hợp môn tăng đột biến, trong đó nhiều ngành xét các môn văn, sử, địa.
+- Sau khi mạng xã hội lan truyền hình ảnh cho rằng suất ăn bán trú tại Trường tiểu học Phù Đổng (Đà Nẵng) sơ sài, thiếu thịt, nhiều phụ huynh đã lên tiếng bảo vệ nhà trường.
+- Sáng 22-4, UBND quận Tân Bình, TP.HCM khánh thành cụm 3 trường: mầm non Sơn Ca, tiểu học Hùng Vương, THCS Mạc Đĩnh Chi. Đây được xem là cụm trường đầu tiên ở TP.HCM xây dựng theo chuẩn quốc gia.
+- Với mục tiêu phổ cập giáo dục mầm non từ 3-5 tuổi vào năm 2030, dự thảo nghị quyết Quốc hội về phổ cập giáo dục mầm non cho trẻ em mẫu giáo từ 3-5 tuổi đã đề xuất đầu tư 116.000 tỉ đồng cho giai đoạn 2026 - 2030.
+- Trước áp lực từ ông Trump, Đại học Harvard quyết đưa cuộc chiến giành nguồn tài trợ liên bang và quyền tự do học thuật ra tòa.
+- 116.300 tỉ đồng (khoảng 4,5 tỉ USD) là đề xuất trong dự thảo nghị quyết Quốc hội nhằm phổ cập giáo dục mầm non từ 3-5 tuổi do Bộ GD-ĐT chấp bút và trình bày tại kỳ họp Ủy ban Thường vụ Quốc hội ngày 17-4.
+- Kiểm toán là lĩnh vực nghề nghiệp đòi hỏi kiến thức vững về những con số, tính toán và khả năng ngoại ngữ tốt để nghiên cứu cập nhật kiến thức kinh tế, tài chính, công cụ triển khai.
+- Sáng nay 22-4, UBND quận Tân Bình, TP.HCM sẽ khánh thành cụm trường học công lập được xây dựng theo chuẩn quốc gia.
+- Đại học Quốc gia TP.HCM đã mời được 16 giáo sư và chuyên gia quốc tế đến từ nhiều trường đại học uy tín hàng đầu thế giới, làm giáo sư thỉnh giảng tại đại học này.
+- Đại học Quốc gia Hà Nội vừa ban hành quy chế tuyển sinh đại học chính quy năm 2025, trong đó 12 trường thành viên sẽ quy đổi chứng chỉ IELTS tối thiểu từ 5.5 thành 8,5 điểm.
+- Bộ Tài chính vừa công bố dự thảo về tín dụng đối với học sinh, sinh viên, học viên, nghiên cứu sinh các ngành khoa học, công nghệ, kỹ thuật và toán (STEM).
+- Khoảng 4.000 học sinh tiểu học và THCS tại tỉnh Trà Vinh được khám mắt miễn phí trong khuôn khổ chương trình Khám mắt học đường 2025.
+- Bộ Giáo dục và Đào tạo đã tổng kết bảy năm triển khai đề án "Hỗ trợ học sinh, sinh viên khởi nghiệp đến năm 2025".
+- Từ hôm nay 21-4, thí sinh trên cả nước chính thức đăng ký dự thi tốt nghiệp THPT năm 2025 bằng cả hình thức trực tuyến và trực tiếp.
+- Trong gần một triệu bức thư dự thi trên cả nước, bức thư gửi đạo diễn James Cameron giúp nữ sinh lớp 10 giành giải nhất UPU lần thứ 53.
+- Phạm Gia Nguyên, học sinh lớp 12 lý 2, Trường THPT chuyên Hà Nội - Amsterdam, vừa trúng tuyển Đại học Columbia, thuộc khối Ivy League - nhóm 8 trường đại học hàng đầu tại Mỹ.
+- Thủ tướng Phạm Minh Chính cho rằng cần nhìn thẳng vào sự thật, khởi nghiệp của sinh viên - học sinh chưa tương xứng với tiềm năng khác biệt, cơ hội nổi trội, lợi thế cạnh tranh của thanh niên Việt Nam.
+- Trường tiểu học số 1 Đồng Lê (huyện Tuyên Hóa, Quảng Bình) thu tiền mô hình “Nuôi heo đất, góp yêu thương, xây dựng lớp học, trường học hạnh phúc” nhưng không thông qua hội phụ huynh khiến nhiều phụ huynh phản ứng.
+- Mùa tuyển sinh năm nay, Học viện Báo chí và Tuyên truyền chính thức bỏ xét tuyển tổ hợp C00 (văn, sử, địa) ở phương thức xét học bạ và xét điểm thi tốt nghiệp THPT.
+- Sáng 20-4, Trường đại học Y Dược TP.HCM công bố phương án tuyển sinh đại học hệ chính quy năm 2025 với điểm mới là sử dụng chứng chỉ quốc tế làm điểm cộng trong xét tuyển.
+- Từ 18 đến 20-4, Ngày hội khởi nghiệp quốc gia của học sinh, sinh viên lần thứ VII do Bộ GD-ĐT, Trung ương Đoàn và UBND TP.HCM chủ trì, phối hợp với Bộ Khoa học và Công nghệ, Bộ Tài chính và Liên đoàn Thương mại và Công nghiệp Việt Nam tổ chức.
+- Theo báo cáo của Trường THCS xã An Mỹ, việc nữ sinh bị đánh hội đồng xuất phát từ mâu thuẫn tình cảm.
+- Nhà hát TP.HCM tối 19-4 không còn một ghế trống khi khán giả được thưởng thức truyền thuyết Trọng Thủy - Mỵ Châu bằng một hình thức độc đáo: nhạc kịch.
+- Ngày 18-4, Trường đại học Kinh tế - Tài chính TP.HCM (UEF) đã phối hợp với các đơn vị tổ chức hội nghị khoa học quốc tế "Kinh tế và Kinh doanh trong thời đại số" lần thứ 2 - iCEBD 2025.
+- Các doanh nhân lưu ý với sinh viên, con đường khởi nghiệp không phải là giấc mơ viển vông, mà là hành trình đòi hỏi sự chuẩn bị kỹ lưỡng và thái độ đúng đắn.
+- Nuôi dưỡng tài năng giống như việc bỏ ống heo. Mỗi ngày bỏ vô một chút, đến một ngày nhìn lại sẽ thấy mình đã tích lũy được một tài sản rất lớn.
+- Việc đào tạo công nghệ thông tin, lập trình viên có còn thực sự cần thiết trong thời đại trí tuệ nhân tạo (AI) hay không?
+- Áp dụng chính sách học bổng toàn diện trong kỳ tuyển sinh 2025, Trường đại học Kinh tế - Tài chính TP.HCM (UEF) tiếp tục triển khai nhiều loại học bổng dành cho đa dạng thí sinh.
+- Bình Dương với đặc thù là tỉnh thu hút vốn đầu tư nước ngoài (FDI) dẫn đầu cả nước, nhân sự cho các nhà máy được doanh nghiệp và trường đại học phối hợp để đào tạo sinh viên đáp ứng nhu cầu sản xuất.
+- Đây là chia sẻ của các diễn giả trong chuỗi talkshow 'Học suốt đời' tại Trường đại học Hoa Sen vào ngày 19-4, với chủ đề 'Nghĩ khác, làm khác'.
+- Đại học Quốc gia TP.HCM sẽ phối hợp cùng tỉnh Đồng Tháp xây dựng chương trình phát triển nguồn nhân lực chất lượng cao, trong đó có mục tiêu đào tạo ít nhất 100 thạc sĩ và tiến sĩ.
+- 50 năm hòa bình, một thế hệ học sinh TP.HCM trải nghiệm lịch sử hào hùng ra sao? Từ những dòng nhật ký xúc động đến ngày hội 'Công dân nhí', câu chuyện về lòng yêu nước và trách nhiệm công dân được học sinh kể theo cách đầy bất ngờ.
+- Rất nhiều học sinh đã được Trường cao đẳng Lý Tự Trọng (TP.HCM) 'bật đèn xanh' cho phép học cao đẳng dù vẫn chưa hoàn thành hệ trung cấp.
+- Nhiều hoạt động sôi nổi của hàng ngàn giáo viên và trẻ mầm non khắp TP.HCM chào mừng 50 năm thống nhất đất nước tại 10 điểm cầu khiến người xem không muốn rời mắt.
+- Tỉnh Khánh Hòa vừa quyết định thu hồi đất đã giao hơn 10 năm trước thuộc dự án xây dựng Trường đại học Khánh Hòa tại xã Vĩnh Lương, TP Nha Trang theo chủ trương trước đây.
+- Công an Thái Bình đang xác minh việc một nữ sinh Trường THCS An Mỹ, huyện Quỳnh Phụ bị đánh hội đồng gây xôn xao dư luận.
+- Mùa tuyển sinh đại học năm nay, Trường đại học Hà Nội chính thức bỏ phương thức xét tuyển kết hợp bài thi đánh giá năng lực, đánh giá tư duy do các đại học tổ chức.
+- Nhiều phụ huynh Trường tiểu học Võ Thị Sáu, quận 7, TP.HCM yêu cầu đổi nhà cung cấp suất ăn bán trú cho học sinh trường này, sau vụ nhiều học sinh nghi ngờ bị ngộ độc thực phẩm hôm 9-4.
+- Tác giả trẻ Đinh Ngọc Bảo Trân, cựu sinh viên báo chí, đã đoạt giải nhất duy nhất của Giải thưởng Văn học trẻ Đại học Quốc gia TP.HCM lần thứ ba năm 2024 ở thể loại tản văn.
+- Sở Giáo dục và Đào tạo TP.HCM vừa giải thích về kỳ khảo sát năng lực tiếng Anh toàn bộ giáo viên trên toàn thành phố sắp tới.
+- Hơn 775 dự án khởi nghiệp của học sinh, sinh viên tham dự cuộc thi ý tưởng khởi nghiệp năm 2025, lần đầu tiên có sự tham gia của cơ sở giáo dục nghề nghiệp.
+- Phụ huynh ở TP Buôn Ma Thuột (tỉnh Đắk Lắk) thắc mắc tại sao chương trình 'Toán bằng tiếng Anh' (iSmart, do Công ty cổ phần giáo dục iSmart triển khai) được đưa vào chính khóa và thu tiền?
+- Ngày 18-4, nhiều trường tiểu học, THCS ở TP.HCM đã cảnh báo về chiêu lừa đảo phụ huynh liên quan đến tuyển sinh đầu cấp.
+- Ba học sinh lớp 5 Trường tiểu học Trần Hưng Đạo (quận 1, TP.HCM) vừa đoạt giải nhất quốc gia cuộc thi Condeavour 6.0 với sản phẩm ứng dụng AI phát hiện tài xế buồn ngủ khi lái xe.
+- Trường đại học Anh Quốc Việt Nam (BUV) là trường đại học tư thục đầu tiên của Việt Nam với vốn đầu tư nước ngoài, vừa khánh thành giai đoạn 2 của khuôn viên học tập trị giá 165 triệu đô la, đáp ứng nhu cầu học tập của 5.500 sinh viên.
+- Dù nhà trường nói đây là hình thức tự nguyện, nhiều học sinh cho biết nếu không có “giấy vào cổng”, các em sẽ không được xem chương trình văn nghệ do bạn bè và chính học sinh trong trường biểu diễn.
+- "Mỗi lần muốn tổ chức một hội thảo quốc tế, việc xin phép rất phức tạp, mất 5 - 6 tháng", GS.TS Trần Xuân Tú cho rằng đây là điều cần thay đổi ngay.
+- Sở Giáo dục và Đào tạo TP.HCM vừa công bố kế hoạch chi tiết tuyển sinh lớp 1, lớp 6 năm học 2025-2026.
+- Tỉnh Khánh Hòa yêu cầu các cơ sở giáo dục tăng cường giáo dục đạo đức, văn hóa và cách sử dụng mạng xã hội cho học sinh, sau khi xảy ra vụ nhiều nữ sinh bị ghép hình ảnh nhạy cảm.
+- Chính sự cần cù, kiên trì cùng tinh thần cầu tiến và luôn sẵn sàng học hỏi đã giúp Ái Thi vững bước trong hành trình học tập, đạt được thành tích xuất sắc.
+- Đại học Quốc gia TP.HCM vừa chính thức mở cổng đăng ký dự thi đánh giá năng lực đợt 2 năm 2025.
+- Sở Giáo dục và Đào tạo TP.HCM vừa công bố các mốc thời gian tuyển sinh lớp 10 năm học 2025-2026.
+- Phu nhân Lê Thị Bích Trân và Phu nhân Zinash Tayachew đã tham quan cơ sở vật chất Trường phổ thông cơ sở Nguyễn Đình Chiểu, xem các em học sinh khiếm thị vẽ tranh và trò chuyện với các em.
+- Sáng 17-4, hơn 200 học sinh THCS ở TP.HCM tham gia vòng chung kết cấp thành phố hội thi 'Lớn lên cùng sách' lần thứ 10 năm học 2024-2025.
+- Thi thể của học sinh lớp 7 bị đuối nước khi đang tắm biển ở Huế đã được lực lượng cứu hộ tìm thấy.
+- Những ngày qua, TikTok bỗng rộ lên loạt clip sinh viên hướng dẫn lắp mạch IC 555 - một loại vi mạch tích hợp nổi tiếng trong ngành điện - điện tử.
+- Thủ khoa kỳ thi đánh giá năng lực Đại học Quốc gia TP.HCM đợt 1 năm 2025 là Phan Lê Thúc Bảo với 1.060 điểm.
+- Sáng 17-4, Bộ Giáo dục và Đào tạo tổ chức công bố quyết định tiếp nhận, bổ nhiệm vụ trưởng Vụ Giáo dục đại học với ông Nguyễn Tiến Thảo.
+- Đội Dongry Corporation của Đại học (ĐH) Duy Tân đã giành ngôi vô địch tại cuộc thi SAP ERPsim Student Competition 2025 - APJ Cup khu vực châu Á - Thái Bình Dương diễn ra vào ngày 11-4.
+- Bộ trưởng Nguyễn Kim Sơn cho biết theo chỉ đạo của Bộ Chính trị đã đề xuất xem xét mở rộng hỗ trợ học phí cho học sinh trường tư thục, dân lập.
+- Tổng Bí thư Tô Lâm nói như vậy trong buổi tiếp xúc cử tri 3 quận Hai Bà Trưng, Ba Đình, Đống Đa, trước thềm kỳ họp thứ 9 Quốc hội khóa XV, sáng 17-4.
+- Sáng 17-4, báo Tuổi Trẻ và Trường đại học Ngoại ngữ - Tin học TP.HCM (HUFLIT) ký thỏa thuận hợp tác. Hai bên hợp tác trên nhiều phương diện, trong đó có đào tạo thực hành cho sinh viên HUFLIT.
+- Nvidia cam kết tài trợ hằng năm cho các hoạt động giáo dục, đồng thời sẽ cử cán bộ kỹ thuật tham gia ban cố vấn doanh nghiệp của nhà trường.
+- Ông Nguyễn Xuân Ký - cựu bí thư Tỉnh ủy Quảng Ninh, vừa được Trường Quản trị và Kinh doanh HSB, Đại học Quốc gia Hà Nội tiếp nhận làm giảng viên.
+- Tổng thống Trump nói Trường đại học Harvard 'chỉ giảng dạy sự căm thù' nên không xứng đáng nhận tài trợ từ ngân sách liên bang.
+- Bảo mẫu ở Tiền Giang liên tục dùng tay đánh vào đầu, vào mặt bé gái trong giờ ngủ, sau đó nắm tay xách ngược bé ném qua một bên.
+- Trong đợt thi vào cuối tháng 3-2025, một học sinh lớp 9 tại TP.HCM đã đạt IELTS 8.5 ngay lần thi đầu tiên.
+- Năm 2025, Trường đại học Nha Trang chỉ dùng điểm học bạ THPT để sơ tuyển, không dùng trong xét tuyển chính thức.
+- Mỗi khi xảy ra vụ việc học sinh đánh nhau hay bạo lực học đường, người ta thường hỏi 'Nhà trường đâu?', 'Ở trường dạy những gì?'...
+- Tổng thống Mỹ Donald Trump đe dọa tước quyền miễn thuế của Đại học Harvard, đồng thời đóng băng 2,3 tỉ USD tài trợ liên bang, làm leo thang căng thẳng giữa chính quyền và học giới.
+- Lần đầu tiên, thiết chế hội đồng trường ở các cơ sở giáo dục đại học được đánh giá một cách toàn diện sau 5 năm thực hiện Luật GDĐH 2018.
+- So với khóa tuyển sinh năm ngoái, năm nay Trường đại học Hà Nội dự kiến tăng học phí từ 60.000 - 120.000 đồng/tín chỉ, tùy theo từng học phần, nhóm chuyên ngành.
+- Gần 300 trẻ mầm non lớp chồi, lớp lá từ hàng trăm trường mầm non tại TP.HCM đã xuất sắc tranh tài trong vòng chung kết cuộc thi 'Bé vẽ sáng tạo cùng BITEX'.
+- Một giáo viên trường mầm non ở Bắc Ninh bị camera ghi lại hành vi đánh trẻ ngay tại lớp học, khiến phụ huynh bức xúc và đăng clip lên mạng xã hội. Chính quyền và công an đã vào cuộc xác minh.
+- Đây là một trong những hoạt động của ngày hội 'Từ Mậu Thân đến mùa xuân đại thắng', do Trường tiểu học Trần Hưng Đạo, quận 1, TP.HCM tổ chức.
+- Sau hơn 6 năm tái cấu trúc với tên gọi mới từ tháng 11-2018, Trường đại học Phenikaa đã có sự chuyển biến nhanh chóng, trở thành trường trẻ nhất chuyển đổi thành công sang mô hình đại học.
+- Một số dự án xây dựng cơ sở vật chất tại các trường đại học gặp nhiều khó khăn trong việc triển khai do vướng nhiều thủ tục.
+- Tại tỉnh Ninh Thuận có huyện tiếp tục tuyển giáo viên để đảm bảo việc dạy học, nhưng có nơi lại tạm dừng vì lý do sắp xếp, sáp nhập đơn vị hành chính.
+- Bí thư Tỉnh ủy Quảng Ngãi giao Sở Giáo dục tính toán điều kiện học hành cho con em của cán bộ theo cha mẹ từ Kon Tum xuống Quảng Ngãi sau sáp nhập.
+- Sáng 16-4, vòng chung kết hội thi 'Đầu bếp trẻ' lần thứ 10 do Sở Giáo dục và Đào tạo TP.HCM tổ chức diễn ra sôi nổi, quy tụ 125 đội thi.
+- Năm 2025, Đại học Quốc gia TP.HCM vẫn tiếp tục ưu tiên xét tuyển theo quy định của đại học này. Với quy chế tuyển sinh mới việc xét tuyển sẽ thay đổi ra sao, thí sinh cần lưu ý gì?
+- Theo ban tuyển sinh quân sự (Bộ Quốc phòng), năm nay các trường quân đội sẽ tuyển sinh theo ba phương thức, bỏ phương thức xét học bạ so với năm ngoái.
+- Giữa bối cảnh chính quyền Mỹ cắt giảm ngân sách cho các trường đại học Mỹ và thu hồi visa sinh viên quốc tế, nhiều sinh viên Mỹ đã chuyển hướng quan tâm sang các trường đại học Canada.
+- Trường THPT chuyên Lê Quý Đôn (TP Nha Trang, tỉnh Khánh Hòa) cho biết căn cứ vào các quy định hiện hành để áp dụng hình thức xử lý kỷ luật phù hợp đối với nam sinh cắt ghép hình ảnh nhạy cảm của nhiều nữ sinh cùng trường.
+- Đợt lễ 30-4 và 1-5 năm nay, sinh viên nhiều trường đại học ở TP.HCM phải học bù để được nghỉ 5 ngày liên tục.
+- Thông tin Sở Giáo dục và Đào tạo thành phố Đà Nẵng đưa môn pickleball vào trường học đã nhận về nhiều ý kiến trái chiều, khiến lãnh đạo sở phải lên tiếng giải thích thêm.
+- Liên tục xuất hiện nhiều tài khoản ẩn danh phản ánh suất ăn bán trú không đúng bản chất, lãnh đạo quận Hải Châu (TP Đà Nẵng) đã đề nghị công an vào cuộc xác minh.
+- Hội đồng Anh vừa phát động Giải thưởng IELTS Prize 2025 với tổng giá trị lên đến 350 triệu đồng.
+- Tất cả giáo viên từ tiểu học đến THPT ở TP.HCM phải làm bài khảo sát năng lực tiếng Anh từ ngày 23 đến 29-4.
+- Liên đoàn Taekwondo Việt Nam đã cho phép Trung tâm taekwondo Seung Ri ở Đà Nẵng hoạt động trở lại sau thời gian đóng cửa vì để xảy ra vụ đánh học viên nhí.
+- Cô Nguyễn Thị Minh Tâm - người sáng lập quỹ học bổng "Nhất Tâm" - vừa được Bộ Giáo dục và Đào tạo tặng bằng khen vì những đóng góp của cô cho hoạt động thiện nguyện, vì học sinh bền bỉ suốt 16 năm qua.
+- Không sở hữu bảng điểm toàn A hay thành tích thi đấu quốc tế, Nguyễn Trần Thùy Lam giành học bổng toàn phần trị giá 2,6 tỉ đồng từ UWC (United World Colleges) nhờ bài luận đầy chân thật, kể lại hành trình kiên trì bền bỉ của mình.
+- Trường đại học Vinh, Nghệ An đã cử cán bộ tới sửa chữa, gia cố lại hệ thống lan can sau vụ lan can rơi từ tầng 4 xuống sân trường làm ba nữ sinh lớp 9 nhập viện.
+- Công an tỉnh Khánh Hòa đang phối hợp cùng các đơn vị liên quan xác minh vụ nhiều nữ sinh một trường THPT chuyên trên địa bàn bị cắt ghép hình ảnh nhạy cảm.
+- Các cơ sở giáo dục nghề nghiệp trong đó có các trường cao đẳng, trung cấp, trung tâm giáo dục nghề nghiệp… sẽ phải sử dụng tên miền .edu.vn cho website của mình.
+- Dịp lễ 30-4, 1-5 tới, học sinh cả nước sẽ được nghỉ 5 ngày liên tục. Tại TP.HCM, tùy trường mà thời gian nghỉ có thể nhiều hơn.
+- Số lượng và tỉ lệ thí sinh dự thi đánh giá năng lực Đại học Quốc gia TP.HCM đợt 1 năm 2025 cao nhất từ trước đến nay, trong khi kết quả thi không cao nên điểm chuẩn có thể giảm.
+- Harvard nói các yêu cầu từ chính quyền Trump là bất hợp pháp, khẳng định sẽ không từ bỏ quyền độc lập và các quyền tự do theo hiến pháp của mình.
+- UBND quận Bình Tân, TP.HCM đề xuất tăng thêm gần 700 chỉ tiêu lớp 10 công lập cho Trường THPT Bình Trị Đông B.
+- Từ ngày 15-4, Bộ Giáo dục và Đào tạo mở hệ thống để thí sinh tập dượt đăng ký thi tốt nghiệp THPT năm 2025.
+- Đại học Quốc gia TP.HCM vừa công bố thông tin kết quả kỳ thi đánh giá năng lực đợt 1 năm 2025, thí sinh có điểm thi cao nhất là 1.060 và điểm thấp nhất chỉ có 40.
+- Với vụ việc cô giáo đánh nhiều trẻ Trường mầm non Dương Đông ở TP Phú Quốc, đơn vị chức năng đang trình xem xét kỷ luật các giáo viên có liên quan.
+- Sau khi lan can rơi làm 3 nữ sinh bị thương, thầy cô Trường phổ thông Thực hành sư phạm, Đại học Vinh đã nhanh chóng đưa các em đi cấp cứu.
+- Trong số ba nữ sinh nhập viện sau vụ lan can tầng 4 rơi xuống sân trường ở Nghệ An, có một em bị chấn thương sọ não, đã được phẫu thuật.
+- Những học sinh không có được sự bình an trong gia đình rất dễ tham gia vào những vụ bạo lực học đường.
+- Sáng 14-4, sân trường Trường Thực hành Sư phạm Đồng Nai sôi động với buổi tư vấn 'Sống an toàn trên mạng xã hội' do khoa truyền thông sáng tạo, Trường đại học Nguyễn Tất Thành tổ chức dành cho học sinh.
+- Tại tọa đàm 'Cùng con chinh phục trường chuyên' do Trường THCS Cầu Giấy Hà Nội tổ chức, đại diện các trường chuyên chia sẻ sâu những điều phụ huynh đang quan tâm.
+- Ngày 14-4, dư luận xôn xao trước bài đăng về suất ăn bán trú được cho là tại một trường tiểu học ở quận Hải Châu, TP Đà Nẵng khiến các phụ huynh phải thốt lên 'thịt ở đâu?'.
+- Với sự phát triển mạnh mẽ của mạng xã hội, hàng loạt các kênh nội dung học tập xuất hiện tràn lan, không được kiểm chứng về độ chính xác và chất lượng.
+- Một nhóm học sinh Nghệ An chơi đùa làm lan can bằng inox rơi từ tầng 4 xuống sân trường khiến ba nữ sinh phía dưới bị thương, trong đó một em bị thương rất nặng.
+- Nguyễn Nhựt Lam, lớp 11A1 Trường THPT Cái Bè (Tiền Giang), giành vòng nguyệt quế quý 2 Đường lên đỉnh Olympia 2025, qua đó trở thành thí sinh thứ hai góp mặt trong trận chung kết.
+- Đại học Huế cho biết hội đồng đánh giá lại luận án tiến sĩ bị kết luận đạo văn là độc lập, các thành viên đều ẩn danh, không biết mặt nhau để đảm bảo yếu tố khách quan nhất.
+- Cuộc thi DECA giúp học sinh rèn kỹ năng lãnh đạo, kinh doanh. Hơn 20.000 thí sinh tham gia, mang đến cơ hội học hỏi và phát triển.
+- "Một học sinh có hồ sơ học tập xuất sắc nhưng quá kiêu ngạo, cực đoan cũng không được nhận. Hồ sơ 10 điểm học thuật nhưng khi đọc không có cảm xúc cũng có thể bị trường đại học top đầu của Mỹ đánh trượt", bà Trần Phương Hoa nói.
+- Quỹ học bổng Vừ A Dính đã trao tặng 60 suất học bổng (mỗi suất trị giá 1 triệu đồng) cho các học sinh vượt khó học giỏi thuộc vùng biển của Trường Tân Thới, học sinh của huyện Tân Phú Đông và Gò Công Đông.
+- Sáng 13-4, tại Hải Phòng diễn ra lễ khai mạc kỳ thi Olympic cơ học toàn quốc lần thứ 35 - năm 2025 khu vực phía Bắc.
+- Theo báo cáo, vụ nhóm học sinh đánh bạn dã man ở Thủ Đức bắt nguồn từ việc nữ sinh trêu chọc hình thể nhau, sau đó là đòi tiền 'dàn xếp'.
+- Trường đại học Luật TP.HCM phối hợp doanh nghiệp vừa khởi công xây dựng ký túc xá cho sinh viên theo phương thức xã hội hóa tại phường Long Phước, thành phố Thủ Đức.
+- Các giáo sư tại Đại học Harvard đã đệ đơn kiện chính quyền ông Trump nhằm ngăn chặn việc cắt gần 9 tỉ USD trong các hợp đồng và khoản tài trợ liên bang dành cho ngôi trường danh giá này.
+- Trần Thiên Hương (22 tuổi, ngụ ở Hà Nội) vừa hoàn thành chương trình học trong 3,5 năm với điểm trung bình các môn học (GPA) 3.98/4.0.
+- Cơ quan cảnh sát điều tra Công an tỉnh Quảng Nam đã tạm giữ hình sự chủ nhóm trẻ tư thục có hành vi bạo hành trẻ em.
+- Bộ khẳng định không triển khai quỹ học bổng tiếng Anh, hỗ trợ lên tới 80% học phí cho các khóa học IELTS, giao tiếp, TOEIC.
+- Khoảng 800 giáo viên tiếng Anh bậc tiểu học, THCS tại TP.HCM được tập huấn phương pháp  Linearthinking trong dạy và học tiếng Anh.
+- 'Và khi con đạt điểm số cao nhưng ba mẹ vẫn chưa hài lòng, con nên làm gì?'.
+- Mới đây, ĐH Duy Tân ký kết biên bản ghi nhớ (MOU) với ĐH Cincinnati (University of Cincinnati - UC, Mỹ) để triển khai Chương trình liên kết đào tạo thạc sĩ.
+- Ngày 12-4, Hội nghị Mạng lưới đổi mới sáng tạo và khởi nghiệp đại học, cao đẳng Việt Nam - VNEI Innovation Summit 2025 diễn ra tại TP.HCM.
+- Chương trình diễn ra vào sáng 14-4 tại Trường THCS Nguyễn Du (quận 1, TP.HCM) với sự tham gia của các thầy cô giáo, phụ huynh và học sinh.
+- Sở Giáo dục và Đào tạo thành phố Đà Nẵng vừa có công văn gửi các phòng giáo dục và trường học trên địa bàn về việc triển khai tập luyện môn pickleball.
+- Hội nghị Khoa học quốc tế về ‘Các giải pháp xanh và công nghệ mới nổi cho sự phát triển bền vững’ lần 2 (GSETS 2025) vừa diễn ra trong hai ngày 10 đến 11-4, thu hút gần 300 nhà khoa học.
+- Điểm xét tuyển năm 2025 của Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) gồm điểm học lực cộng điểm ưu tiên, theo thang điểm 100 và được quy đổi theo công thức khác biệt.
+- Công an Quảng Nam đã đến làm việc, khám nghiệm, chụp ảnh tại nhóm trẻ tư thục ở huyện Quế Sơn liên quan đến vụ việc chủ cơ sở bạo hành trẻ.
+- Nguyễn Huỳnh Đức Trí, học sinh lớp 11 chuyên hóa Trường Phổ thông Năng khiếu (Đại học Quốc gia TP.HCM), chia sẻ bí quyết đạt 1.600 điểm, điểm tuyệt đối của bài thi SAT trong đợt thi hôm 22-3.
+- Một nữ sinh lớp 7 ở Nghệ An phải nhập viện sau khi uống khoảng 30 viên thuốc Paracetamol. Nhà trường khẳng định không có chuyện nữ sinh bị cô lập, bắt nạt tập thể như mạng xã hội đăng.
+- Công an xã Quế Mỹ, huyện Quế Sơn, Quảng Nam đã mời chủ nhóm trẻ tư thục và cũng là người bạo hành trẻ làm việc.
+- Nhóm học sinh khai trong quá trình học tập đã xảy ra xích mích, mâu thuẫn với bạn nữ vì 'nói xấu nhau' nên đánh dằn mặt.
+- Bộ Giáo dục và Đào tạo vừa có văn bản đề nghị UBND các tỉnh, thành phố chuyển giao cho chính quyền cấp xã quản lý trường mầm non, tiểu học, THCS trong thời gian tới.
+- Sở Giáo dục và Đào tạo TP.HCM công bố sẽ tuyển 70.070 học sinh vào học lớp 10 công lập năm học 2025-2026.
+- Mẹ của cháu bé bị nhét cây gỗ vào miệng cho biết chủ nhà trẻ Con Cưng đã xin gia đình tha thứ, sau khi gia đình phát hiện sự việc bạo hành trẻ.
+- Chỉ trong vòng chưa đầy một tháng, TP.HCM liên tiếp xảy ra ba vụ nghi ngộ độc thực phẩm tập thể tại các trường học khiến nhiều học sinh nhập viện.
+- Tin tức đáng chú ý: Thủ tướng chúc mừng bà con Khmer đón tết; Hà Nội 6 điểm thi THPT chương trình giáo dục phổ thông 2006; Hà Nội tặng cán bộ lão thành cách mạng 2 triệu đồng/người nhân 50 năm thống nhất đất nước...
+- Mạng xã hội xôn xao clip tại một nhà trẻ được cho là ở huyện Quế Sơn, Quảng Nam, các cháu bé đã bị cô túm chân lên đánh, nhét cây gỗ vào miệng.
+- Không chỉ những học sinh học văn hóa giỏi, mà cả những em chơi thể thao tốt, biết giúp đỡ bạn bè…cũng nhận được thư khen của cô trưởng phòng giáo dục.
+- Tại các trường đại học, việc thương mại hóa sản phẩm từ nghiên cứu khoa học của sinh viên, giảng viên đến chuyển giao cho doanh nghiệp vẫn còn nhiều khó khăn, cần lộ trình cụ thể.
+- Sở Giáo dục và Đào tạo TP.HCM đang lấy ý kiến về việc cấm dạy thêm sau 20h.
+- Năm học 2025-2026, 122 trường THPT công lập và công lập tự chủ ở Hà Nội được giao 79.740 chỉ tiêu tuyển sinh lớp 10.
+- Theo kế hoạch của bộ, sẽ có các đoàn kiểm tra đến các địa phương để đảm bảo thực hiện tốt các khâu của kỳ thi tốt nghiệp THPT năm 2025.
+- Một hệ thống quản lý toàn diện về dạy thêm học thêm tại TP.HCM vừa được ra mắt, chỉ vài tuần sau khi thông tư 29 có hiệu lực. Cổng thông tin này hứa hẹn mang đến sự minh bạch trong quản lý dạy thêm học thêm.
+- Kỳ thi tuyển sinh vào lớp 10 năm học 2025-2026 ở Nghệ An, thí sinh có thể thay đổi các nguyện vọng sau khi thi xong nếu học sinh muốn thay đổi.
+- Mặc dù Sở Giáo dục và Đào tạo TP.HCM công bố tuyển 79% học sinh tốt nghiệp THCS vào học lớp 10 công lập năm học 2025-2026, sở này vừa cho biết sẽ đề xuất để tăng chỉ tiêu lên hơn 80%.
+- Ngày 11-4, tại buổi họp báo quý 1-2025 của UBND TP Đà Nẵng, bà Nguyễn Thị Anh Thi - phó chủ tịch UBND TP Đà Nẵng - đề cập đến việc cần thiết cho phép phụ huynh chủ động đến trường xem suất ăn bán trú của con khi họ muốn.
+- Thiết bị vừa có thể hỗ trợ học sinh khiếm thị nhận biết và tránh được vật cản khi di chuyển, vừa giúp các em tự tin khi sử dụng.
+- Sân chơi 'Tài chính thông minh' - sân chơi giáo dục tài chính trực tuyến đầu tiên tại Việt Nam - dự kiến triển khai từ tháng 5-2025 dành cho học sinh tiểu học, THCS, THPT  trên cả nước.
+- Trưa 11-4, Sở Giáo dục và Đào tạo TP.HCM công bố chỉ tiêu tuyển sinh lớp 10 năm học 2025-2026 ở các trường THPT công lập.
+- Mỗi thí sinh ngồi một máy vi tính, có ngăn ô, ghi số báo danh. Đến giờ mở đề, thí sinh đăng nhập và làm bài trên máy tính. Làm xong thì bấm nộp bài, màn hình sẽ hiện ngay điểm thi.
+- Đề xuất dạy học 2 buổi/ngày cho học sinh THCS và THPT nhưng không thu phí tiếp tục gây tranh luận trong bạn đọc.
+- Các cơ quan, ban ngành, quận, huyện, TP Thủ Đức phân tích khó khăn của 10 dự án nhằm mục đích đẩy nhanh tiến độ của đề án xây dựng 4.500 phòng học.
+- Phụ huynh bất ngờ khi mới đây nhà trường thông báo thu tiền học gồm học phí 5 tháng của kỳ 2 (155.000 đồng/tháng/học sinh) và phí dịch vụ học 2 buổi/ngày của tháng 3 (235.000 đồng/tháng/học sinh).
+- Mặc dù Bộ Nội vụ đã trả lời cụ thể về việc chi trả trợ cấp cho cán bộ, công chức, viên chức (trong đó có giáo viên) theo nghị định 76, nhưng UBND huyện Đam Rông (Lâm Đồng) lại không thực hiện.
+- Hơn 300 du học sinh tại Mỹ đã bị chính quyền Tổng thống Trump hủy thị thực (visa), vì bị cho là hoạt động 'đi ngược lại lợi ích quốc gia'.
+- Tối 9 và sáng 10-4, nhiều học sinh Trường tiểu học Võ Thị Sáu, TP.HCM đau bụng, nôn ói nghi do ngộ độc thực phẩm sau ăn trưa 9-4 ở trường.
+- Bài thi lớp 10 ngoài môn toán, ngữ văn, cần thêm bài thi tổng hợp có phần nội dung của tất cả môn học đánh giá bằng điểm số ở THCS.
+- Chơi giỏi game không đồng nghĩa với một suất trong thế giới chuyên nghiệp khắc nghiệt của Esports.
+- Sau khi thu hồi quyết định công nhận tuyển dụng 61 viên chức giáo viên, UBND huyện Ia Grai kiến nghị UBND tỉnh Gia Lai công nhận những viên chức này.
+- Thi học kỳ sớm hay muộn không quan trọng bằng việc dạy và học trong suốt năm học, qua các giai đoạn trước và sau thi cử.
+- Mô hình đào tạo được Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) và Đại học Công nghệ Sydney (Úc) triển khai tại Việt Nam.
+- Đi trao học bổng Tiếp sức đến trường của báo Tuổi Trẻ, GS.TS Phan Lương Cầm luôn mặc áo dài và nụ cười nở trên môi.
+- Mở rộng đào tạo là cần thiết nhưng không thể bỏ qua yếu tố chất lượng, gắn kết thực tiễn và có sự đối thoại thường xuyên với doanh nghiệp. Chỉ có như vậy thì việc đào tạo mới bền vững và không rơi vào tình trạng thừa nhân lực.
+- Bộ Giáo dục và Đào tạo yêu cầu các trường phải chịu trách nhiệm giải trình về căn cứ khoa học và thực tiễn khi lựa chọn tổ hợp xét tuyển.
+- Sáng 9-4, Trường mầm non 12 (quận 4, TP.HCM), khởi công xây dựng hơn 1 năm trước, đã khánh thành và đưa vào sử dụng.
+- Lãnh đạo Sở Giáo dục và Đào tạo Hà Nội khẳng định sẽ không tái diễn tình trạng xếp hàng xin học trong mùa tuyển sinh đầu cấp năm nay.
+- Dạy học 2 buổi/ngày chương trình chính khóa, trường không được thu phí, mỗi thầy cô chỉ có thể phát huy tinh thần tự nguyện dạy tăng cường.
+- Giám đốc Sở Giáo dục và Đào tạo TP.HCM vừa ký văn bản chỉ đạo về tuyển sinh đầu cấp năm học 2025-2026.
+- UBND huyện Ia Grai (Gia Lai) vừa thu hồi quyết định công nhận trúng tuyển 61 viên chức giáo viên sau khi UBND tỉnh này cho rằng vi phạm các chỉ đạo của trung ương.
+- Theo PGS.TS Nguyễn Chí Thành, việc bồi dưỡng giáo viên, xây dựng các khung năng lực AI cho học sinh là nội dung rất quan trọng. Bởi nếu sử dụng AI không đúng cách, người dùng có thể trở thành 'nô lệ số'.
+- Chủ tịch UBND xã Bình Tân (huyện Gò Công Tây, tỉnh Tiền Giang) cho biết đã nắm được vụ việc học sinh Trường tiểu học Nguyễn Văn Trừ (xã Bình Tân) tố cáo thầy chủ nhiệm sàm sỡ học sinh ngay trên bục giảng.
+- Ông Dương Thế Hảo khởi kiện dân sự đòi bồi thường 36 tỉ đồng, với lý do tốt nghiệp năm 1989 nhưng 30 năm sau Đại học Kinh tế quốc dân mới giao bằng.
+- Hình ảnh suất cơm bán trú chỉ có vài lát chả lụa và rau củ xào được cho là của học sinh bán trú Trường tiểu học Núi Thành (Đà Nẵng), gây tranh cãi trên mạng xã hội. Nhà trường nói gì về hình ảnh này?
+- Ông Thái Văn Tài, vụ trưởng Vụ Giáo dục phổ thông (Bộ GD-ĐT), khẳng định như vậy khi trao đổi với Tuổi Trẻ về vấn đề tổ chức dạy 2 buổi/ngày ở cấp trung học.
+- Mục tiêu đến năm 2035, mỗi cơ sở đào tạo của Trường đại học Y Hà Nội có ít nhất 1 cơ sở thực hành chính; xây dựng tối thiểu 5 bệnh viện trực thuộc Trường đại học Y Hà Nội đạt tiêu chuẩn chất lượng quốc tế.
+- Ngày 8-4, Sở Giáo dục và Đào tạo Hà Nội công bố kết quả bài thi khảo sát chất lượng với học sinh lớp 12, trong đó có gần 150.000 bài có điểm dưới trung bình.
+- Ngày 8-4, Thái Lan bắt một học giả người Mỹ với cáo buộc xúc phạm hoàng gia. Đây là vụ truy tố hiếm hoi đối với người nước ngoài theo luật khi quân thuộc hàng nghiêm khắc nhất thế giới.
+- Lần đầu tiên sinh viên Cần Thơ có cơ hội học hỏi ở môi trường học tập gắn với thực tiễn công nghệ, khơi dậy tư duy sáng tạo về thiết kế vi mạch bán dẫn. Từ đó, nâng cao chuyên môn và sẵn sàng tham gia vào thị trường lao động sau tốt nghiệp.
+- Ông Trần Thế Cương, giám đốc Sở Giáo dục và Đào tạo Hà Nội, cho biết đang cân nhắc việc tăng tỉ lệ học sinh được tuyển vào lớp 10 công lập lên khoảng 64%, cao hơn năm trước 3%.
+- Khi tính điểm hồ sơ năng lực, Đại học Bách khoa Hà Nội sẽ ưu tiên nhân hệ số 3 cho môn toán, các môn lý - hóa - sinh - tin nhân hệ số 2, môn ngữ văn hệ số 1.
+- Ngày 8-4, tại TP Cam Ranh (tỉnh Khánh Hòa), Lữ đoàn 146 thuộc Vùng 4 Hải quân tổ chức hội nghị tuyên truyền biển đảo và thu hút nguồn lực xây dựng Quân chủng Hải quân hiện đại năm 2025.
+- Trên mạng xã hội xuất hiện đoạn clip khoảng 20 giây ghi lại hình ảnh học sinh bị đánh vào mông. Điều lạ là cộng đồng mạng ùa vào bênh vực cô giáo.
+- HUTECH IT Open Day 2025 là một trong những ngày hội việc làm lớn dành cho hàng nghìn sinh viên khối ngành công nghệ thông tin (CNTT).
+- Bộ Giáo dục và Đào tạo lấy ý kiến các bộ, ngành, địa phương về dự thảo hồ sơ nghị quyết miễn học phí cho học sinh công lập.
+- Bộ Giáo dục và Đào tạo đã gửi Bộ Tư pháp thẩm định dự thảo nghị quyết của Quốc hội về miễn học phí giáo dục mầm non đến giáo dục phổ thông.
+- Trường tiểu học Hoàng Hoa Thám (TP Buôn Ma Thuột, Đắk Lắk) đã dừng tổ chức lớp "câu lạc bộ" dạy thêm và thông báo hoàn tiền cho phụ huynh sau phản ánh của Tuổi Trẻ Online.
+- Từ tháng 5-2025, sinh viên Trường đại học Quản lý và Công nghệ TP.HCM học thực hành môn tổ chức và quản trị sự kiện truyền thông tại báo Tuổi Trẻ.
+- AHS Challenge là sân chơi học thuật uy tín, thu hút đông đảo học sinh Trường Quốc tế Á Châu (Asian School) tham gia thể hiện khả năng, bản lĩnh và chinh phục những suất học bổng giá trị.
+- Trường tiểu học Nguyễn Trực (quận 8, TP.HCM) là dự án xây mới trường học đầu tiên thuộc đề án 4.500 phòng học đã được nghiệm thu hoàn thành từ tháng 12-2023 và đưa vào sử dụng từ đầu năm 2024.
+- "Con tôi đã đóng học phí theo quy định nhưng vẫn phải đóng tiền học buổi hai. Cùng một chương trình học, như thế là phải đóng tiền hai lần không?".
+- Việc các trường học ở TP.HCM tổ chức thi học kỳ 2 sớm, từ ngày 8-4, đã dấy lên tranh luận của nhiều phụ huynh.
+- Ngành y ở Nhật Bản nổi bật với độ khó vào cao, chi phí học tập không nhỏ. Hãy tìm hiểu cách các sinh viên vượt qua thử thách này và những tài liệu không thể thiếu cho tân sinh viên ngành y.
+- Trương Thanh Xuân, nữ sinh duy nhất được chọn vào đội tuyển quốc gia dự thi Olympic Toán học quốc tế (IMO), chia sẻ không thức khuya, không "cày đề" mà tìm kiếm "linh hồn", ý tưởng trong từng đề bài.
+- Từ tối ưu hóa bán dẫn, xử lý khí thải đến bao bì tan trong nước và nuôi cua bằng robot, nhiều công trình được giới chuyên môn đánh giá rất cao về tính thực tiễn trong Giải thưởng Sáng tạo TP.HCM năm 2025.
+- Thi vào khoa y tại Nhật không chỉ yêu cầu điểm cao mà còn đòi hỏi sự chuẩn bị kỹ lưỡng môn tiếng Nhật, toán và các môn tự nhiên.
+- Chiều 6-4, tại buổi họp báo Chính phủ thường kỳ, Thứ trưởng thường trực Bộ Giáo dục và Đào tạo Phạm Ngọc Thưởng đã thông tin chính thức về việc "học sinh cấp THCS, THPT sẽ phải học 2 buổi/ngày" được dư luận quan tâm nhiều trong thời gian qua.
+- Nhiều trường tiểu học, THCS, THPT tổ chức kiểm tra học kỳ 2 sớm trong bối cảnh TP.HCM sẽ hoàn thành tuyển sinh đầu cấp năm học 2025 - 2026 trước tháng 7-2025.
+- Hiệu trưởng Trường đại học Ngoại thương nhắn nhủ các tân cử nhân, thành công không đến từ những con đường bằng phẳng, mà là kết quả của nhiều phép thử.
+- Một học sinh lớp 4 của Trường tiểu học Tén Tằn, huyện Mường Lát bị thương tích ở trường nhưng hiệu trưởng không báo cáo lãnh đạo huyện, phòng giáo dục.
+- Trước tình trạng thiếu hụt lao động, nhiều doanh nghiệp Đức lên kế hoạch mở rộng tuyển sinh sinh viên từ các trường cao đẳng Việt Nam.
+- Nhiều quảng cáo về chuyện thi hộ các chứng chỉ tiếng Anh, trong đó có nhiều chứng chỉ quốc tế uy tín đang công khai trên mạng.
+- Sự phát triển mạnh mẽ của ngành du lịch tạo ra triển vọng tích cực về tăng trưởng kinh tế, và mở ra cánh cửa hấp dẫn cho những ai đam mê lĩnh vực Hospitality.
+- TP.HCM đang mở cổng kiểm tra thông tin tuyển sinh đầu cấp năm học 2025 - 2026, để phụ huynh kiểm tra đến hết ngày 13-4.
+- Kỹ năng nói, đặc biệt là nói trước đám đông, đang được sinh viên đầu tư học nghiêm túc như một môn học nền tảng.
+- Kỳ thi đánh giá năng lực Đại học Quốc gia TP.HCM đợt 1 khép lại, nhưng đến hôm nay cộng đồng mạng bàn luận sôi nổi chuyện đi thi trễ, quên mang giấy tờ, cho rằng nhiều bạn trẻ thiếu trách nhiệm với bản thân…
+- Trước tình trạng dân số già và 'khan' người học, nhiều đại học Mỹ đang tìm đến Việt Nam để mở rộng tuyển sinh các chương trình đại học, sau đại học.
+- Trường tiểu học tổ chức "câu lạc bộ" môn học nói đã ngưng thu tiền từ tháng 2-2025.
+- Bảo mẫu ở Tiền Giang liên tục dùng tay đánh vào đầu, vào mặt bé gái trong giờ ngủ, sau đó nắm tay xách ngược bé ném qua một bên.
+- Sáng nay 4-4, Hội Hữu nghị Việt Nam - Nhật Bản tại TP.HCM đã trao tặng sách tham khảo cho 11 trường học ở TP.HCM với rất nhiều đầu sách.
+- Các trường đại học phải rà soát phương thức, tổ hợp môn, có trách nhiệm giải trình khi quyết định sử dụng nhiều phương thức, tổ hợp xét tuyển vào một chương trình, ngành hay nhóm ngành.
+- Từ hỗ trợ làm bài tập, tìm kiếm thông tin đến giải trí, tìm việc làm thêm, AI đang là 'bạn tốt' không thể thiếu của các bạn trẻ.
+- Nhiều tỉnh thành lo xảy ra sai sót, chậm trễ khi in sao đề thi tốt nghiệp THPT cho hai nhóm thí sinh khác nhau, nhiều đề thi trong một phòng.
+- Thông tin Đại học Quốc gia TP.HCM đề xuất miễn học phí, cấp học bổng cho sinh viên, học viên sau đại học theo học các ngành khoa học cơ bản đã thu hút sự quan tâm và ủng hộ.
+- Năm 2025, nhiều trường đại học ở Đà Nẵng mở các ngành mới nhằm chuẩn bị nguồn nhân lực chất lượng cao cho các lĩnh vực đang chuyển mình mạnh mẽ ngay tại thành phố này.
+- Ngày 3-4, ba đại học hàng đầu gồm Đại học Quốc gia Hà Nội, Đại học Quốc gia TP.HCM và Đại học Bách khoa Hà Nội đã ký kết văn bản thỏa thuận hợp tác nghiên cứu, phát triển công nghệ chiến lược gắn với hợp tác của doanh nghiệp.
+- PGS.TS Vũ Hải Quân cho rằng không phải cuộc thi nào học sinh cũng nên 'tập trung tham gia', mà nên 'ưu tiên sự phát triển toàn diện và sinh hoạt lành mạnh' của các em.
+- Thứ trưởng Hoàng Minh Sơn cho biết sẽ yêu cầu các trường đại học rà soát lại các tổ hợp xét tuyển 'lạ', thiếu môn chính trong tổ hợp xét tuyển.
+- Pearson PTE tiếp tục mở rộng mạng lưới trung tâm thi tại Việt Nam, mang đến cơ hội tiếp cận kỳ thi tiếng Anh đạt chuẩn quốc tế cho nhiều người học.
+- Theo Thứ trưởng Hoàng Minh Sơn, các cơ sở đào tạo nếu sử dụng nhiều phương thức tuyển sinh cho một ngành thì phải quy đổi điểm được, nếu không quy đổi được thì không sử dụng nhiều phương thức.
+- Hai bên thực hiện các hoạt động truyền thông về khoa học công nghệ, hợp tác thực hiện các khóa đào tạo ngắn hạn trong lĩnh vực báo chí, truyền thông, quan hệ công chúng.
+- Một trường tiểu học ở Buôn Ma Thuột tổ chức "câu lạc bộ" các môn học có thu tiền.
+- Hiện vẫn còn khoảng 30% giáo viên đăng ký dạy thêm ngoài trường, và khoảng 40% học sinh vẫn tham gia học thêm.
+- Đây là những điểm mới trong tổ chức thi tốt nghiệp THPT năm 2025. Toàn bộ thí sinh đăng ký dự thi trực tuyến.
+- Trường đại học Luật - Đại học Huế vừa có quyết định tặng 200.000 đồng mỗi sinh viên chính quy của trường nhân ngày kỷ niệm 10 năm thành lập trường.
+- Năm nay, thí sinh được đăng ký tối đa 8 nguyện vọng vào lớp 10. Về đề thi, câu hỏi dạng nhận biết, thông hiểu sẽ giảm xuống còn 60%, câu hỏi yêu cầu vận dụng tăng lên 40%.
+- Nguyễn Duy Phong cho biết không luyện thi đánh giá năng lực ở trung tâm nào, chỉ học nhóm và lớp dạy thêm miễn phí của thầy cô ở trường.
+- Bộ GD-ĐT đã có tờ trình Chính phủ báo cáo đánh giá sơ kết thực hiện Luật Giáo dục đại học giai đoạn 2019-2024.
+- Để xảy ra chuyện nữ sinh tiểu học hút thuốc lá trong sân trường, trách nhiệm quản lý, giáo dục trẻ là của nhà trường hay gia đình?
+- Nhiều bạn đọc cho biết thực tế vẫn phải 'xác nhận cư trú' trong tuyển sinh đầu cấp tại TP.HCM.
+- Ngày 4-4, Trường đại học Quốc tế Sài Gòn (SIU) tổ chức tọa đàm IAPP Vietnam Partnership Roundtable in HCMC.
+- Ngày 2-4, ông Tạ Hồng Lựu - phó giám đốc Sở Giáo dục và Đào tạo Thanh Hóa - vừa ký công văn gửi UBND huyện Quan Hóa, để chỉ đạo phòng chức năng xử lý vụ việc hiệu trưởng nói giáo viên là 'gái bao'.
+- "Cô mất Giang rồi, từ nay con mãi dừng lại tuổi 18, thương con vô cùng" - là dòng chia sẻ của cô Nguyễn Thị Bích Thảo, giáo viên Trường phổ thông dân tộc bán trú THCS Trà Sơn, khi cô học trò nhỏ bệnh tật qua đời.
+- Nhiều phụ huynh có con học lớp 5 tại Huế bày tỏ sự không đồng tình với tiêu chí tuyển sinh của một trường THCS hàng đầu trên địa bàn.
+- Nhiều năm liên tiếp, khối ngành kinh doanh, quản lý tuyển sinh áp đảo khối ngành kỹ thuật công nghệ. Phải chăng vì có quá nhiều trường đại học chuyên đào tạo kinh tế?
+- Hội đồng thi đánh giá năng lực Đại học Quốc gia TP.HCM đợt 1 năm 2025 tại cụm thi An Giang đã xin lỗi các thí sinh thi bị gần 20 phút làm bài do giám thị phát nhầm mã đề thi và sẽ miễn phí thi đợt 2 cho các em.
+- Một công thức quy đổi điểm tương đương không được xây dựng dựa trên cơ sở khoa học thì không thể giúp công tác tuyển sinh được công bằng hơn, mà có thể tạo thêm sự mất công bằng.
+- Năm nay, các trường Công an nhân dân sẽ không tuyển thẳng thí sinh có chứng chỉ IELTS từ 7.5, mà mở rộng xét tuyển thí sinh có chứng chỉ IELTS từ 5.5.
+- Điểm trung bình của hai đợt thi đánh giá năng lực tháng 3 tăng từ 3-5 điểm so với cùng thời điểm năm ngoái, GS.TS Nguyễn Tiến Thảo lý giải năm nay các thí sinh được lựa chọn phần thi khoa học hoặc tiếng Anh theo năng lực và sở trường.
+- Để phát triển nhân tài khoa học lĩnh vực khoa học cơ bản và khoa học liên ngành, Đại học Quốc gia TP.HCM đề xuất miễn học phí, cấp học bổng cho sinh viên, học viên sau đại học theo học các ngành khoa học cơ bản.
+- Bộ Giáo dục và Đào tạo vừa công bố danh mục các phương thức xét tuyển năm 2025 do bộ quy định, ít hơn 3 phương thức so với năm ngoái.
+- Ngày 1-4, Trường đại học Sư phạm Hà Nội công bố dự kiến cách quy đổi điểm thi đánh giá năng lực của trường (kỳ thi SPT) sang điểm xét tuyển đại học năm 2025.
+- Dự kiến đến cuối năm 2025, TP.HCM đưa vào sử dụng 2.000 phòng học, chỉ gần 50% so với đề án xây dựng 4.500 phòng học.
+- Hiệu trưởng Trường mầm non Trung Sơn bị tố cáo lập khống hồ sơ để rút tiền nhà nước, nói giáo viên của trường là 'gái bao'... Hiện huyện đang vào cuộc xử lý.
+- Sở Giáo dục và Đào tạo TP.HCM cho biết các trường THPT sẽ tuyển hơn 71.000 học sinh vào lớp 10 công lập năm học 2025-2026.
+- Lần gần nhất kỳ thi Olympic toán học sinh viên - học sinh toàn quốc được tổ chức tại miền Nam là năm 2003.
+- Từ ngày 4-4, phụ huynh rà soát dữ liệu và xác nhận thông tin trẻ chuẩn bị vào lớp 1, lớp 6. Sau ngày 13-4, mọi yêu cầu thay đổi về dữ liệu tuyển sinh đầu cấp đều không được giải quyết.
+- Ngày 31-3, báo Tuổi Trẻ phối hợp với Công ty cổ phần Đầu tư và Phát triển giáo dục Phương Nam tổ chức chương trình kỹ năng ứng phó bạo lực học đường.
 ![Edu](Edu.png)
 ## Thời Sự 
+- UBND TP Hà Nội vừa ban hành quyết định số 3091 về việc giao 383.198,5m² đất tại xã Vật Lại, huyện Ba Vì cho Công ty cổ phần Ao Vua để thực hiện dự án đầu tư công viên nghĩa trang Vĩnh Hằng mở rộng (giai đoạn 2).
+- Viện kiểm sát nhân dân được quyền khởi kiện vụ án dân sự để bảo vệ quyền dân sự của các chủ thể là nhóm dễ bị tổn thương hoặc bảo vệ lợi ích công.
+- Sau sáp nhập, TP.HCM tích hợp thêm ngành du lịch của Bình Dương và Bà Rịa - Vũng Tàu, mở ra cơ hội phát triển đột phá, tạo ra siêu đô thị du lịch đầy tiềm năng.
+- 855 cán bộ, công chức, viên chức cấp huyện và cấp xã tại tỉnh Bình Định xin nghỉ hưu, nghỉ trước tuổi khi thực hiện sắp xếp đơn vị hành chính các cấp.
+- Vùng áp thấp vừa hình thành sáng nay 24-6 trên Biển Đông có khả năng mạnh lên thành áp thấp nhiệt đới trong 24 giờ tới.
+- Ngoài lò sản xuất thuốc chụp PET/CT ở Bệnh viện Chợ Rẫy, phía Nam từng có một đơn vị sản xuất thuốc phóng xạ của Công ty cổ phần y học Rạng Đông và rất đáng tiếc cũng chung cảnh 'ngừng hoạt động'.
+- Luật Cán bộ, Công chức mới được Quốc hội thông qua quy định ký hợp đồng với doanh nhân tiêu biểu, chuyên gia thực hiện một số nhiệm vụ của vị trí việc làm lãnh đạo, quản lý.
+- Công chức, viên chức không thuộc quy định trên phải là người chỉ có một quốc tịch là quốc tịch Việt Nam, trừ trường hợp có lợi cho Nhà nước Việt Nam.
+- TS Phạm Viết Thuận, viện trưởng Viện Kinh tế tài nguyên và môi trường TP.HCM, cho biết thời gian qua có nhiều kiến nghị và đề xuất đến Chính phủ, các bộ ngành, TP.HCM liên quan cấp sổ hồng điện tử, bỏ cấp giấy phép xây dựng, hạ tầng giao thông...
+- Theo hướng dẫn mới nhất, Bộ Nội vụ đề nghị tập trung giải quyết chính sách với 4 nhóm đối tượng.
+- Sáng 24-6, với đa số tán thành, Quốc hội thông qua điều chỉnh chương trình kỳ họp thứ 9, trong đó bổ sung một số nội dung, chưa thông qua sửa Luật Quy hoạch.
+- Dự thảo Luật Cán bộ, công chức sửa đổi mới nhất đã bổ sung nội dung cán bộ, công chức được hưởng các khoản thu nhập khác theo kết quả, sản phẩm làm việc.
+- Một số tin tức đáng chú ý: Người nhà chủ tịch City Auto dồn dập bán ra cổ phiếu; TP.HCM sẽ có đường dây nóng về thủ tục hành chính khi sắp xếp bộ máy; Ứng dụng trí tuệ nhân tạo sàng lọc ung thư cổ tử cung...
+- Hôm nay 24-6, thời tiết miền Bắc và miền Nam ban ngày giảm mưa, chiều tối có mưa to, Trung Bộ ngày nắng nóng.
+- Thường trực UBND tỉnh An Giang và Kiên Giang đã họp bàn bạc việc bố trí trụ sở làm việc, nhà ở và việc đi lại cho hàng ngàn cán bộ về Rạch Giá làm việc sau hợp nhất tỉnh An Giang từ ngày 1-7.
+- Xây dựng, triển khai Trung tâm điều hành thông minh (IOC) bảo đảm kết nối liên thông, khai thác hiệu quả thông tin, dữ liệu, phối hợp với các địa phương.
+- Ngày 23-6, UBND TP Hà Nội ban hành kế hoạch triển khai các giải pháp cấp bách kiểm soát và xử lý ô nhiễm môi trường nước tại sông Nhuệ, Đáy, Ngũ Huyện Khê, Cầu Bây và hệ thống thủy lợi Bắc Hưng Hải.
+- Trong 86 cán bộ dự kiến bố trí làm bí thư, chủ tịch xã, phường của tỉnh Sóc Trăng sau khi sắp xếp, có nhiều người là lãnh đạo các sở ngành.
+- Ông Y Thanh Hà Niê Kđăm, bí thư Tỉnh ủy Lâm Đồng, nhìn nhận Lâm Đồng cần đồng bộ hạ tầng công nghệ để vận hành suôn sẻ chính quyền hai cấp.
+- Câu chuyện thiếu cát, đất đắp xây dựng ảnh hưởng đến các công trình trọng điểm tại Đà Nẵng được mang ra mổ xẻ.
+- Nữ giám đốc công ty dù không được cấp phép sản xuất mỹ phẩm nhưng vẫn đặt in bao bì, mua kem nền không rõ nguồn gốc về sang chiết, đóng gói đặt thương hiệu riêng.
+- UBND TP.HCM quyết định thành lập tổ công tác gồm 10 thành viên để tham mưu chiến lược và xây dựng lộ trình chuyển đổi xanh, hướng tới mục tiêu giảm phát thải khí nhà kính, phát triển bền vững đến năm 2050.
+- Biên chế năm 2025 khi thực hiện mô hình chính quyền địa phương 2 cấp, UBND tỉnh Đồng Tháp đề xuất điều chỉnh giảm từ 5.502 biên chế còn 4.515 biên chế công chức hành chính cấp tỉnh, cấp xã (giảm 987 biên chế).
+- Bí thư Trung ương Đảng, trưởng Ban Chính sách, Chiến lược Trung ương đồng tình với phương án đưa cán bộ từ tỉnh về công tác tại xã, phường mới.
+- Một số thủ tục hành chính thiết yếu với người dân trong lĩnh vực đất đai, hộ tịch sẽ được chọn vận hành thử nghiệm tại các xã, phường của tỉnh Gia Lai mới.
+- Văn bản do Bộ trưởng Phạm Thị Thanh Trà ký hướng dẫn cụ thể về số lượng phó chủ tịch UBND cấp tỉnh với 23 tỉnh, thành phố mới sau sáp nhập.
+- Ông Lê Trung Chinh - chủ tịch UBND TP Đà Nẵng, xin nghỉ hưu trước tuổi. Thông tin này vừa được công bố tại kỳ họp HĐND TP Đà Nẵng chiều 23-6.
+- Tất cả 30 xã, phường, đặc khu của tỉnh Bà Rịa - Vũng Tàu vừa tổ chức vận hành thử nghiệm cả bộ máy và trung tâm phục vụ hành chính công. Kết quả chạy thử đạt yêu cầu, đúng theo kế hoạch, chương trình đề ra.
+- Thường trực Ban Bí thư nhấn mạnh việc kiên quyết không để lọt vào cấp ủy khóa mới những cán bộ suy thoái tư tưởng chính trị, đạo đức,  tham nhũng.
+- Ngày 23-6, Thủ tướng Chính phủ Phạm Minh Chính chủ trì họp Thường trực Chính phủ với các ban, bộ, ngành, cơ quan Trung ương về công tác chuẩn bị tổ chức triển lãm thành tựu kinh tế - xã hội nhân dịp kỷ niệm 80 năm Ngày Quốc khánh.
+- Tỉnh Quảng Trị vừa tạo nên một dấu ấn ấn tượng khi hoàn thành chương trình xóa nhà tạm, nhà dột nát, về đích trước 2 tháng.
+- Hàng trăm hộ dân bị cô lập ở Lạng Sơn, trong đó có nhiều người cao tuổi và trẻ em đã được lực lượng chức năng đưa đến nơi an toàn.
+- TP Phú Quốc ra quân cưỡng chế thu hồi đất của 3 hộ dân bao chiếm với diện tích khoảng 15.000m² đất ở phường An Thới.
+- "Chúng ta chưa bao giờ có được một hệ thống chính trị của đất nước đồng bộ như hiện nay" - Tổng Bí thư Tô Lâm nhấn mạnh.
+- Liên quan đến vụ ngàn chai nước mắm bị vứt ven đường (Quảng Nam), đã xác định được người đem đổ số nước mắm hết hạn này.
+- Từ 1-7, người dân và doanh nghiệp được chọn nơi nộp hồ sơ đăng ký đất đai trong phạm vi cấp tỉnh, thay vì nộp tại nơi có đất như trước.
+- Bộ Văn hóa, Thể thao và Du lịch cho phép UBND tỉnh Cà Mau tổ chức bắn pháo hoa tầm cao tại thành phố Bạc Liêu và thành phố Cà Mau để chào mừng sự kiện hợp nhất tỉnh.
+- Clip trên mạng xã hội về việc người đàn ông kéo sập cửa nhà hàng xóm do xuất phát từ việc hát karaoke gây ồn ào đang được làm rõ.
+- Vụ tai nạn giao thông đặc biệt nghiêm trọng xảy ra trên đường Trường Sơn Đông, đoạn qua xã Krông Jing, huyện M'Đrắk, tỉnh Đắk Lắk.
+- Công an tỉnh Lâm Đồng đã hoàn thành dự kiến sắp xếp vị trí trưởng phòng thuộc Công an tỉnh Lâm Đồng sau sáp nhập.
+- Phải lấy người dân, doanh nghiệp làm trung tâm và mục tiêu cao nhất là đơn giản hóa thủ tục hành chính, rút ngắn thời gian, giảm chi phí.
+- Từ ngày 1-7 tới, 20 chi cục hải quan khu vực theo quyết định số 2019 của Bộ Tài chính sẽ chính thức đi vào hoạt động.
+- Trưởng Ban Chính sách, chiến lược Trung ương đánh giá cao sự chủ động của phường Phan Rang (Ninh Thuận) và xã Cam Lâm (Khánh Hòa).
+- Khi người dân nghi ngờ máy kiểm tra nồng độ cồn, một cán bộ cảnh sát giao thông đã chửi người này 'mồm thối'.
+- Bộ trưởng Bộ Tư pháp đã có giải trình về dự thảo nghị quyết của Quốc hội về cơ chế xử lý khó khăn, vướng mắc do quy định của pháp luật.
+- Phương án phân làn bằng dải phân cách cứng trên đường Võ Chí Công (vành đai 2) và Phạm Văn Đồng (vành đai 3) đang gây ùn tắc nghiêm trọng.
+- Kinh tế Đà Nẵng trong 6 tháng đầu năm ước tăng hơn 11%. Thu ngân sách cũng vượt cùng kỳ năm 2024 theo chiều hướng tích cực.
+- Bí thư Bà Rịa - Vũng Tàu Phạm Viết Thanh đã có những lời khuyên, gửi gắm đến cán bộ tỉnh này khi hợp nhất vào TP.HCM.
+- Chủ tịch cấp xã được giao cấp sổ đỏ lần đầu cho người dân, xác định lại diện tích đất ở, quyết định giao, cho thuê đất đai...
+- Sau khi thử nghiệm, tỉnh Đồng Nai cho hay một số thủ tục hành chính chưa thể liên thông được dữ liệu với các bộ ngành.
+- Sau sắp xếp, tỉnh Đồng Nai có tất cả 95 đơn vị hành chính cấp xã gồm 72 xã và 23 phường. Hiện giữa Bình Phước và Đồng Nai cũng đã hợp nhất các phường xã, công bố trụ sở hành chính.
+- Bị truy đuổi, nhóm 'quái xế' dùng vỏ chai bia ném về hướng lực lượng cảnh sát 113 buộc tổ công tác phải bắn nhiều phát súng chỉ thiên cảnh cáo.
+- Chủ tịch UBND TP Thủ Đức công bố 9 đồ án phân khu 1/2000, tiến tới thí điểm miễn giấy phép xây dựng nhà ở riêng lẻ từ ngày 1-1-2026.
+- Ngày 23-6, Tỉnh ủy Phú Yên tổ chức hội nghị công bố quyết định hợp nhất báo Phú Yên với Đài phát thanh và truyền hình Phú Yên thành báo Phú Yên.
+- Sáng 23-6, Chủ tịch UBND TP Hà Nội Trần Sỹ Thanh chủ trì hội nghị công bố các quyết định về công tác cán bộ.
 - Đại biểu Nguyễn Văn Cảnh cho hay quy tắc nhập làn mang lại hiệu quả rất lớn, giúp nâng cao hiệu quả sử dụng hạ tầng cả nước.
 - UBND TP Gia Nghĩa, tỉnh Đắk Nông, đã ra quyết định chấm dứt dự án 'treo' 15 năm và đang thực hiện các thủ tục trả lại quyền lợi cho dân.
 - Sáng 23-6, Tổng Bí thư Tô Lâm trao quyết định của Bộ Chính trị về việc thành lập Cơ quan Ủy ban Trung ương MTTQ Việt Nam.
@@ -948,61 +2003,6 @@
 - Bên cạnh nhiều người tuân thủ quy định không chạy xe lên vỉa hè, tại TP.HCM vẫn có nhiều trường hợp vô tư, phớt lờ quy định.
 - Theo hợp đồng Cục Đường bộ Việt Nam ký kết với liên danh nhà đầu tư, dự án đường cao tốc Dầu Giây - Tân Phú có tổng mức đầu tư 8.408 tỉ đồng sẽ được hoàn thành trong 24 tháng.
 - Công an tỉnh Khánh Hòa vừa hướng dẫn một tài xế xe công nghệ chuyển trả lại số tiền hơn 1,7 tỉ đồng cho một công ty chứng khoán đã chuyển nhầm vào số tài khoản của người này.
-- Sáng 5-6, Tổng Bí thư Tô Lâm - trưởng Ban Chỉ đạo Trung ương về hoàn thiện thể chế, pháp luật - đã chủ trì phiên họp thứ nhất của Ban Chỉ đạo.
-- Sáng 5-6, một con cá heo nặng khoảng 200kg, có dấu hiệu kiệt sức và mắc cạn tại khu vực cầu 5 cảng Tiên Sa (TP Đà Nẵng) đã được lực lượng biên phòng cùng ngư dân hỗ trợ đưa trở lại biển.
-- Chủ tịch nước Lương Cường yêu cầu với Quảng Ninh khi lựa chọn cán bộ phải thực sự là những người có bản lĩnh, có tư duy đổi mới, dám nghĩ, dám làm.
-- Theo hướng dẫn của Ban Chỉ đạo, cán bộ, công chức cấp tỉnh, huyện, cấp xã được bố trí về cấp xã mới sẽ được giữ lương, phụ cấp hiện hưởng trong 6 tháng.
-- Nhiều tiểu thương tại chợ Buôn Ma Thuột (Đắk Lắk) cho biết tạm dừng buôn bán để hoàn tất thủ tục nộp thuế.
-- Hôm nay 5-6, thời tiết Nam Bộ dự báo có mưa diện rộng, mưa duy trì và sẽ gia tăng trong những ngày tới, nhiều nơi mưa to tới rất to.
-- Giám đốc 14 sở, ngành tỉnh Gia Lai mới đều được bố trí tỉnh ủy viên, có 8 tỉnh ủy viên sẽ ở lại cấp xã sau khi nhập tỉnh Gia Lai và Bình Định.
-- Nghị quyết số 201/2025/QH15 cắt giảm, cải cách nhiều thủ tục hành chính trong xây dựng nhà ở xã hội.
-- Trong kho lạnh của một doanh nghiệp, gần 4 tấn thực phẩm bẩn gồm heo, gà, trâu nhập lậu từ nước ngoài về được cất giữ chờ tuồn ra thị trường.
-- Đó là chỉ đạo của ông Lê Quốc Phong - bí thư Tỉnh ủy Đồng Tháp, trưởng Ban chỉ đạo cao tốc Cao Lãnh - An Hữu - trong cuộc họp bàn các giải pháp rút ngắn thời gian hoàn thành dự án theo tinh thần chỉ đạo của Thủ tướng.
-- Thường trực Ban Bí thư Trần Cẩm Tú đã nhấn mạnh vấn đề công tác cán bộ và cho rằng nghị quyết 18 thành hay bại là ở công tác then chốt này.
-- UBND TP.HCM vừa ban hành chương trình hành động "Vì một Cần Giờ xanh" nhằm đưa Cần Giờ thành hình mẫu phát triển kinh tế biển xanh, trọng điểm phát triển du lịch sinh thái, nghỉ dưỡng.
-- Trước lo ngại về tiến độ và việc thiếu hụt vật liệu xây dựng vành đai 3 TP.HCM, Chủ tịch UBND TP.HCM đã có chỉ đạo khẩn, yêu cầu các đơn vị liên quan tập trung tháo gỡ khó khăn, đảm bảo tiến độ hoàn thành theo cam kết.
-- Người mẹ của nữ sinh chết trong vụ tai nạn giao thông ở Vĩnh Long đã thay chồng mình (đã chết) tiếp tục viết đơn tay tố cáo những người tham gia xử lý vụ tai nạn.
-- Tổng Bí thư Tô Lâm vừa ký ban hành quyết định 197 của Bộ Chính trị, quy định về chức năng, nhiệm vụ, quyền hạn, chế độ làm việc, quan hệ công tác của Ban Chỉ đạo Trung ương về hoàn thiện thể chế, pháp luật.
-- Sáng 5-6, thượng tướng Hoàng Xuân Chiến, thứ trưởng Bộ Quốc phòng đã trao quyết định của Chủ tịch nước cho sĩ quan đi thực hiện nhiệm vụ gìn giữ hòa bình Liên hợp quốc tại phái bộ Cộng hòa Nam Sudan.
-- Bệnh viện Tâm thần Trung ương 2 (tiền thân là Nhà thương điên Biên Hòa) có ‘tuổi đời’ 110 năm tuổi sẽ được di dời ra khỏi trung tâm thành phố Biên Hòa, tỉnh Đồng Nai.
-- Tại dự thảo nghị định mới, Bộ Nội vụ đã đề xuất các quy định mới về xác định các trường hợp phải thi tuyển, xét tuyển vào công chức.
-- Sáng 5-6, UBND xã Cuôr Đăng (huyện Cư M’gar, Đắk Lắk) xác nhận ông Y Lý Niê - chủ tịch Ủy ban Mặt trận Tổ quốc Việt Nam xã Cuôr Đăng - đột ngột qua đời khi đang đi công tác.
-- Dù được mệnh danh là 'phố nhà giàu', nhưng khu Thảo Điền (TP Thủ Đức, TP.HCM) bị ngập thường xuyên mỗi khi có mưa lớn hoặc triều cường. Việc này ảnh hưởng đến cuộc sống, đi lại của người dân nhiều năm qua.
-- Ông Philipp Rösler - cựu phó thủ tướng kiêm bộ trưởng kinh tế và công nghệ Đức, vừa được bổ nhiệm làm thành viên hội đồng quản trị Công ty CP Hàng không Vietjet.
-- Tại dự luật sửa Luật Sĩ quan Quân đội nhân dân Việt Nam đề xuất bỏ các chức danh chỉ huy trưởng, chính ủy bộ chỉ huy bộ đội biên phòng cấp tỉnh, chỉ huy trưởng ban chỉ huy quân sự cấp huyện.
-- Thứ trưởng Bộ Công an Lê Quốc Hùng cho hay nếu phạt quá nhẹ, các doanh nghiệp lớn, doanh nghiệp xuyên biên giới sẵn sàng nộp phạt, sẵn sàng vi phạm về dữ liệu cá nhân.
-- Từ sáng nay 5-6, người dân TP.HCM bắt đầu có thể tham quan tự do các hoạt động trải nghiệm tại sự kiện 'Vinh quang Công an nhân dân Việt Nam' tại đại lộ Lê Lợi và phố đi bộ Nguyễn Huệ.
-- Những ngày qua, nhiều người dân vẫn còn thắc mắc những ai được miễn phí vé xe buýt ở TP.HCM, thủ tục cụ thể ra sao?
-- Tin tức đáng chú ý: Hôm nay Ủy ban Thường vụ Quốc hội xem xét đề án sáp nhập tỉnh; Dự kiến hoàn thành đường vành đai 4 TP.HCM cuối năm 2028; TP.HCM tăng cường giám sát dự án nhà ở...
-- Thực tế Tuổi Trẻ ghi nhận sau thời điểm quy định bắt buộc hộ kinh doanh có doanh thu từ 1 tỉ đồng/năm phải sử dụng hóa đơn điện tử.
-- GS Nguyễn Anh Trí đã bày tỏ mong muốn hiến tặng Công viên Di sản các nhà khoa học rộng hàng chục héc ta, với cả triệu tư liệu được thu thập cho đất nước.
-- Hôm nay 5-6, gió mùa tây nam ở Nam Bộ mạnh lên làm mưa gia tăng. Bắc Bộ mưa rào, Trung Bộ nắng nóng.
-- Rạng sáng 5-6, Thủ tướng Phạm Minh Chính và Phu nhân dẫn đầu đoàn đại biểu cấp cao Việt Nam rời Hà Nội, hướng đến điểm dừng chân đầu tiên là Estonia trong chuyến công tác tới ba nước châu Âu.
-- Tối 4-6, tại ga Sài Gòn (TP.HCM), gần 800 cán bộ, chiến sĩ của Quân khu 7, 250 chiến sĩ thuộc Quân đoàn 34 đã lên tàu ra Hà Nội tập luyện diễu binh, diễu hành kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9.
-- Làm việc với Ban Thường vụ Tỉnh ủy Kiên Giang và Thường trực Tỉnh ủy An Giang, Tổng Bí thư Tô Lâm nhấn mạnh hai tỉnh cần phối hợp chặt chẽ trong lãnh đạo, điều hành với tinh thần "một tỉnh - một tầm nhìn - một hành động - một niềm tin".
-- Chủ tịch UBND tỉnh Khánh Hòa nói lãnh đạo, cán bộ cấp xã mới sẽ là người đi vào lịch sử xây dựng, hình thành phát triển tỉnh Khánh Hòa mới.
-- Hiểu rõ những nguyên nhân dẫn tới già hóa dân số là yếu tố đầu tiên để xây dựng chính sách phù hợp.
-- Chủ tịch Trần Bá Dương khẳng định minh bạch tài chính, cam kết phát triển dài hạn, giữ nguyên chủ trương chưa niêm yết cổ phiếu và chính thức xác nhận đề xuất đầu tư dự án đường sắt tốc độ cao Bắc - Nam.
-- Đại tá Nguyễn Hồng Nhật, giám đốc Công an tỉnh Kon Tum, nghỉ công tác hưởng chế độ hưu trí. Đại tá Trần Thị Thu Phước, phó giám đốc, được giao phụ trách Công an tỉnh.
-- Theo Cục Hải quan, từ giữa tháng 12-2024 đến giữa tháng 5 năm nay, lực lượng hải quan đã chủ trì, phối hợp với các lực lượng chuyên trách phòng, chống tội phạm về ma túy thu giữ khoảng 1,9 tấn ma túy các loại.
-- Dự án trục Đông Tây (đường Võ Văn Kiệt) nối từ quốc lộ 1 đến tỉnh Long An có tổng chiều dài 14,6km.
-- Thường trực Ban Bí thư Trần Cẩm Tú yêu cầu trong phương án nhân sự thành phố Đà Nẵng mới sau hợp nhất Đà Nẵng và Quảng Nam.
-- Cổng dịch vụ công quốc gia sẽ chuyển hồ sơ đến trung tâm phục vụ hành chính công các cấp để tiếp nhận giải quyết thủ tục hành chính cho người dân, doanh nghiệp.
-- Người 'tố' Công ty C.P. nói mình chỉ nói lên sự thật, không phải mong được hỗ trợ và càng không phải vì cho thôi việc nên 'trả đũa'.
-- Mấy hôm nay một số người chia sẻ có những hàng quán trước giờ nhận chuyển khoản nay không cho chuyển khoản, buộc phải trả tiền mặt.
-- Sở Xây dựng TP.HCM vừa có tờ trình kiến nghị UBND TP.HCM chỉ đạo UBND TP Thủ Đức khẩn trương tổ chức cưỡng chế bàn giao quỹ bảo trì chung cư Saigon Gateway.
-- Các bác sĩ Bệnh viện Nhân dân 115 (TP.HCM) vừa điều trị thành công cho nam bệnh nhân bị tràn mủ màng ngoài tim, đây là ca bệnh hiếm gặp với tỉ lệ 1/18.000 ca.
-- UBND TP.HCM vừa có văn bản yêu cầu thủ trưởng sở ngành, quận huyện và TP Thủ Đức thực hiện phòng chống lãng phí trong đầu tư xây dựng, quản lý nhà nước thuộc tài sản công.
-- Ban Thường vụ Tỉnh ủy Quảng Nam quyết định tăng cường 34 cán bộ, công chức, viên chức cấp tỉnh về cấp xã (mới) giữ các chức vụ bí thư, phó bí thư, chủ tịch UBND. Trong đó có 5 tỉnh ủy viên.
-- Các thông tin kết hôn, ly hôn, tình trạng độc thân sẽ được cập nhật chính xác, kịp thời, đồng bộ trên hệ thống thông tin quốc gia.
-- Theo Ủy ban An toàn giao thông quốc gia, hành vi ném đất, đá, chất bẩn lên các đoàn tàu hỏa có chiều hướng tăng và diễn biến phức tạp.
-- Một tài xế đã bị nhân viên trạm thu phí mắng chửi và tát vào mặt, vì tài khoản thu phí tự động không đủ để qua trạm.
-- Nhân Ngày truyền thống Người cao tuổi Việt Nam, Thiếu tướng, Anh hùng Lực lượng vũ trang Mai Hoàng, phó giám đốc Công an TP.HCM, dẫn đầu đoàn công tác thăm và chúc thọ các cụ cao tuổi tiêu biểu tròn 90 tuổi tại TP Thủ Đức.
-- Những người nhập viện có triệu chứng ói, mửa, đau quặn bụng, sau khi ăn buffet ốc tại một quán ăn ở phường 7, TP Tuy Hòa.
-- Tới lịch hẹn trả kết quả làm thủ tục hành chính, người dân đến nơi thì lại 'chưa có kết quả', mệt mỏi và bức xúc vì tốn thời gian, công sức.
-- Dự án cải tạo, nâng cấp quốc lộ 28B nối Bình Thuận với Lâm Đồng nguy cơ lỗi hẹn trong năm 2025 khi chậm giao mặt bằng, mưa gió bất lợi, nhà thầu làm cầm chừng...
-- Hàng ngàn người dân tại TP.HCM tập trung ở trục đường Lê Lợi, quận 1 đã mãn nhãn với màn trình diễn của lực lượng cảnh vệ.
-- Theo thống kê thực hiện cao điểm truy quét hàng giả từ 15-5, cơ quan chức năng đã khởi tố 36 vụ, khởi tố 119 bị can liên quan hàng giả, buôn lậu và các tội danh khác tại 24 địa phương.
 ![New](News.png)
 ## Nhịp sống số 
 - Search Live cho phép người dùng đặt câu hỏi bằng giọng nói và nhận ngay phản hồi âm thanh từ AI. Lịch sử trò chuyện được lưu trong AI Mode, giúp bạn dễ dàng tra cứu lại khi cần.
