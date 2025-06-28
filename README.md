@@ -1,6 +1,40 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Đề thi tốt nghiệp THPT năm 2025 cho thí sinh theo chương trình giáo dục phổ thông 2018 có nhiều thay đổi từ cấu trúc đến nội dung. Một số đề thi có thể góp phần lớn tạo nên các "biến số" về điểm thi.
+- Với 21 năm hình thành và phát triển, trường Quốc tế Việt Úc (VAS) là một trong những trường xây dựng nền móng cho giáo dục quốc tế song ngữ và đưa chương trình Cambridge vào giảng dạy tại Việt Nam.
+- Giữa muôn vàn ngã rẽ ngành nghề, Truyền thông đa phương tiện - ngành của rất nhiều trải nghiệm đa dạng và thú vị - là lựa chọn đáng cân nhắc.
+- Công an tỉnh Lâm Đồng khởi tố vụ án hình sự làm lộ bí mật nhà nước trong kỳ thi tốt nghiệp THPT 2025. Thí sinh dùng camera giấu kín quay đề thi, nhờ người giải bằng ChatGPT.
+- Thiếu tướng Trần Đình Chung, phó cục trưởng Cục An ninh chính trị nội bộ, Bộ Công an, cho hay đã phát hiện ba thí sinh dùng AI để giải đề trong thời gian thi môn toán kỳ thi tốt nghiệp THPT 2025.
+- Hai giáo viên tiểu học Nhật Bản bị bắt vì chụp và chia sẻ ảnh đồi trụy nhiều học sinh nữ, cảnh sát tiến hành cuộc truy quét quy mô toàn quốc.
+- Chiều 27-6, sau khi kết thúc môn thi cuối cùng của kỳ thi tốt nghiệp THPT 2025, Bộ Giáo dục và Đào tạo tổ chức họp báo thông tin về kỳ thi.
+- Đề thi tiếng Anh tốt nghiệp THPT 2025 được đánh giá nặng về từ vựng, trong đó có nhiều bài đọc, câu hỏi có từ vựng khó từ trình độ tiếng Anh B2 trở lên.
+- Chiều nay 27-6, các thí sinh học chương trình giáo dục phổ thông 2006 thi xong môn cuối cùng, khép lại kỳ thi tốt nghiệp THPT 2025 đầy cảm xúc.
+- Trong những ngày diễn ra kỳ thi tốt nghiệp THPT 2025, hình ảnh một nam sinh đẩy bạn mình đến điểm thi trên chiếc xe lăn đã khiến nhiều người vừa ngưỡng mộ, xúc động trước tình bạn đẹp như phim.
+- Mời bạn đọc tham khảo bài giải 48 mã đề môn hóa thi tốt nghiệp THPT 2025. Năm nay, đề hóa được đánh giá là vừa sức thí sinh.
+- Trước kỳ thi tốt nghiệp THPT, Trường đại học Văn Hiến đem lại những chính sách hỗ trợ toàn diện nhằm đồng hành cùng thí sinh và phụ huynh chinh phục giấc mơ đại học.
+- Bên cạnh tập trung hoàn thành tốt kỳ thi tốt nghiệp THPT 2025, nhiều thí sinh còn tìm kiếm môi trường đại học phù hợp với chi phí hợp lý để hiện thực hóa ước mơ nghề nghiệp.
+- Phòng Giáo dục và Đào tạo TP Thủ Đức, TP.HCM vừa có thông báo tuyển bổ sung học sinh lớp 6 cho 3 trường THCS Trần Quốc Toản 1, Hoa Lư và Bình Thọ.
+- Đề toán kỳ thi tốt nghiệp THPT năm nay vẫn đang nhận được nhiều ý kiến tranh luận, đặc biệt từ thí sinh.
+- Theo lịch chung của Bộ Giáo dục và Đào tạo, đúng 8h ngày 16-7, các hội đồng thi công bố điểm thi tốt nghiệp THPT 2025.
+- Dù bị tai nạn giao thông ngay trước giờ thi, hai thí sinh đã nén đau hoàn thành kỳ thi tốt nghiệp THPT 2025, trong nước mắt và quyết tâm.
+- Sáng 27-6, một thí sinh thuộc điểm thi Trường THPT Phú Nhuận, TP.HCM đã được giải quyết thi ở điểm thi Trường THPT Vĩnh Lộc khi em bị hư xe giữa đường đi thi tốt nghiệp THPT.
+- Lần đầu tiên thí sinh học chương trình 2018 thi môn tự chọn, giáo viên nhận xét gì về đề thi?
+- Với nhiều đứa trẻ, bữa cơm gia đình là điều quen thuộc. Nhưng chỉ khi tự tay vào bếp, chuẩn bị nguyên liệu để hoàn thành một món ăn, các em mới thật sự biết trân trọng từng bữa cơm và học cách chăm sóc bản thân một cách khoa học.
+- Mời bạn đọc tham khảo bài giải môn địa lý thi tốt nghiệp THPT 2025 chương trình giáo dục phổ thông 2018.
+- Tuổi Trẻ Online giới thiệu đề tổ hợp môn khoa học tự nhiên kỳ thi tốt nghiệp THPT 2025, đề dành cho thí sinh học và thi theo chương trình giáo dục phổ thông 2006.
+- Tuổi Trẻ Online giới thiệu đề tổ hợp môn khoa học xã hội kỳ thi tốt nghiệp THPT 2025, đề dành cho thí sinh học và thi theo chương trình giáo dục phổ thông 2006.
+- Mời bạn đọc tham khảo bài giải môn tiếng Anh thi tốt nghiệp THPT 2025. Nhiều thí sinh than đề năm nay dài và khó, thời gian ngắn không đủ để làm bài.
+- Mời bạn đọc tham khảo bài giải môn vật lý thi tốt nghiệp THPT 2025, chương trình giáo dục phổ thông 2018.
+- Ghi nhận tại các điểm thi, đa số thí sinh thở phào sau khi hoàn thành bài thi môn tự chọn và tổ hợp môn sáng 27-6.
+- Tuổi Trẻ Online giới thiệu đề môn công nghệ nông nghiệp kỳ thi tốt nghiệp THPT 2025, đề dành cho thí sinh học và thi theo chương trình giáo dục phổ thông 2018.
+- Kiên bị tai nạn giao thông vào chiều 26-6 sau khi kết thúc môn thi thứ 2. Được bệnh viện đồng ý, sáng 27-6, gia đình đã đưa em đến điểm thi bằng cáng, có sự hỗ trợ đi kèm của nhân viên y tế.
+- Mời bạn đọc tham khảo bài giải môn vật lý thi tốt nghiệp THPT 2025, chương trình giáo dục phổ thông 2018.
+- Tuổi Trẻ Online giới thiệu đề môn tin học kỳ thi tốt nghiệp THPT 2025, đề dành cho thí sinh học và thi theo chương trình giáo dục phổ thông 2018.
+- Sáng 27-6, thí sinh học chương trình giáo dục phổ thông 2018 thi hai môn lựa chọn. Dưới đây là đề thi môn hóa.
+- Sáng 27-6, có hai trường hợp đi thi tốt nghiệp THPT ở TP.HCM để quên căn cước ở nhà, may mắn có cán bộ cảnh sát giao thông hỗ trợ đưa về nhà lấy kịp vào giờ thi.
+- Sáng 27-6, thí sinh học chương trình giáo dục phổ thông 2018 thi hai môn lựa chọn. Dưới đây là đề thi môn sinh học.
+- Đã có đề môn giáo dục kinh tế và pháp luật kỳ thi tốt nghiệp THPT 2025. Bài giải gợi ý sẽ được cập nhật nhanh trên Tuổi Trẻ Online, mời bạn đọc đón xem.
 - Sáng 27-6, thí sinh học chương trình giáo dục phổ thông 2018 thi hai môn lựa chọn. Dưới đây là đề thi môn vật lý.
 - Tuổi Trẻ Online giới thiệu đề tiếng Anh kỳ thi tốt nghiệp THPT 2025, đề dành cho thí sinh học và thi theo chương trình giáo dục phổ thông 2018.
 - Đã có đề môn địa lý kỳ thi tốt nghiệp THPT 2025. Bài giải gợi ý sẽ được cập nhật nhanh trên Tuổi Trẻ Online, mời bạn đọc đón xem.
@@ -42,7 +76,7 @@
 - Cô Đào Thị Thùy Trang - hiệu trưởng Trường THPT Nguyễn Thiện Thuật (TP Nha Trang, Khánh Hòa) - đã có bức thư đầy xúc động gửi các học trò lớp 12 trong kỳ thi tốt nghiệp THPT năm 2025.
 - Sở Nông nghiệp và Môi trường thành phố Cần Thơ đề nghị các cơ quan liên quan chủ động ứng phó ngập, thiên tai.
 - Tuổi Trẻ Online cập nhật bài giải môn văn thi tốt nghiệp THPT 2025. Mời bạn đọc theo dõi.
-- Cả thí sinh dự thi theo chương trình giáo dục phổ thông 2918 và 2006 chia sẻ đề thi văn tốt nghiệp THPT năm nay nhẹ nhàng.
+- Cả thí sinh dự thi theo chương trình giáo dục phổ thông 2018 và 2006 chia sẻ đề thi văn tốt nghiệp THPT năm nay nhẹ nhàng.
 - Thí sinh có hoàn cảnh khó khăn, dân tộc thiểu số ở thôn ấp đặc biệt khó khăn tại Bình Phước được hỗ trợ 300.000 đồng.
 - Theo chương trình, chiều nay 26-6 Quốc hội sẽ xem xét thông qua hai nghị quyết quan trọng liên quan đến lĩnh vực giáo dục.
 - Trong số các môn thi của kỳ thi tốt nghiệp THPT năm nay, đề thi môn văn được mong chờ nhất vì là năm đầu tiên không dùng ngữ liệu từ sách giáo khoa.
@@ -967,47 +1001,85 @@
 - Sở Giáo dục và Đào tạo thành phố Đà Nẵng vừa có công văn gửi các phòng giáo dục và trường học trên địa bàn về việc triển khai tập luyện môn pickleball.
 - Hội nghị Khoa học quốc tế về ‘Các giải pháp xanh và công nghệ mới nổi cho sự phát triển bền vững’ lần 2 (GSETS 2025) vừa diễn ra trong hai ngày 10 đến 11-4, thu hút gần 300 nhà khoa học.
 - Điểm xét tuyển năm 2025 của Trường đại học Bách khoa (Đại học Quốc gia TP.HCM) gồm điểm học lực cộng điểm ưu tiên, theo thang điểm 100 và được quy đổi theo công thức khác biệt.
-- Công an Quảng Nam đã đến làm việc, khám nghiệm, chụp ảnh tại nhóm trẻ tư thục ở huyện Quế Sơn liên quan đến vụ việc chủ cơ sở bạo hành trẻ.
-- Nguyễn Huỳnh Đức Trí, học sinh lớp 11 chuyên hóa Trường Phổ thông Năng khiếu (Đại học Quốc gia TP.HCM), chia sẻ bí quyết đạt 1.600 điểm, điểm tuyệt đối của bài thi SAT trong đợt thi hôm 22-3.
-- Một nữ sinh lớp 7 ở Nghệ An phải nhập viện sau khi uống khoảng 30 viên thuốc Paracetamol. Nhà trường khẳng định không có chuyện nữ sinh bị cô lập, bắt nạt tập thể như mạng xã hội đăng.
-- Công an xã Quế Mỹ, huyện Quế Sơn, Quảng Nam đã mời chủ nhóm trẻ tư thục và cũng là người bạo hành trẻ làm việc.
-- Nhóm học sinh khai trong quá trình học tập đã xảy ra xích mích, mâu thuẫn với bạn nữ vì 'nói xấu nhau' nên đánh dằn mặt.
-- Bộ Giáo dục và Đào tạo vừa có văn bản đề nghị UBND các tỉnh, thành phố chuyển giao cho chính quyền cấp xã quản lý trường mầm non, tiểu học, THCS trong thời gian tới.
-- Sở Giáo dục và Đào tạo TP.HCM công bố sẽ tuyển 70.070 học sinh vào học lớp 10 công lập năm học 2025-2026.
-- Mẹ của cháu bé bị nhét cây gỗ vào miệng cho biết chủ nhà trẻ Con Cưng đã xin gia đình tha thứ, sau khi gia đình phát hiện sự việc bạo hành trẻ.
-- Chỉ trong vòng chưa đầy một tháng, TP.HCM liên tiếp xảy ra ba vụ nghi ngộ độc thực phẩm tập thể tại các trường học khiến nhiều học sinh nhập viện.
-- Tin tức đáng chú ý: Thủ tướng chúc mừng bà con Khmer đón tết; Hà Nội 6 điểm thi THPT chương trình giáo dục phổ thông 2006; Hà Nội tặng cán bộ lão thành cách mạng 2 triệu đồng/người nhân 50 năm thống nhất đất nước...
-- Mạng xã hội xôn xao clip tại một nhà trẻ được cho là ở huyện Quế Sơn, Quảng Nam, các cháu bé đã bị cô túm chân lên đánh, nhét cây gỗ vào miệng.
-- Không chỉ những học sinh học văn hóa giỏi, mà cả những em chơi thể thao tốt, biết giúp đỡ bạn bè…cũng nhận được thư khen của cô trưởng phòng giáo dục.
-- Tại các trường đại học, việc thương mại hóa sản phẩm từ nghiên cứu khoa học của sinh viên, giảng viên đến chuyển giao cho doanh nghiệp vẫn còn nhiều khó khăn, cần lộ trình cụ thể.
-- Sở Giáo dục và Đào tạo TP.HCM đang lấy ý kiến về việc cấm dạy thêm sau 20h.
-- Năm học 2025-2026, 122 trường THPT công lập và công lập tự chủ ở Hà Nội được giao 79.740 chỉ tiêu tuyển sinh lớp 10.
-- Theo kế hoạch của bộ, sẽ có các đoàn kiểm tra đến các địa phương để đảm bảo thực hiện tốt các khâu của kỳ thi tốt nghiệp THPT năm 2025.
-- Một hệ thống quản lý toàn diện về dạy thêm học thêm tại TP.HCM vừa được ra mắt, chỉ vài tuần sau khi thông tư 29 có hiệu lực. Cổng thông tin này hứa hẹn mang đến sự minh bạch trong quản lý dạy thêm học thêm.
-- Kỳ thi tuyển sinh vào lớp 10 năm học 2025-2026 ở Nghệ An, thí sinh có thể thay đổi các nguyện vọng sau khi thi xong nếu học sinh muốn thay đổi.
-- Mặc dù Sở Giáo dục và Đào tạo TP.HCM công bố tuyển 79% học sinh tốt nghiệp THCS vào học lớp 10 công lập năm học 2025-2026, sở này vừa cho biết sẽ đề xuất để tăng chỉ tiêu lên hơn 80%.
-- Ngày 11-4, tại buổi họp báo quý 1-2025 của UBND TP Đà Nẵng, bà Nguyễn Thị Anh Thi - phó chủ tịch UBND TP Đà Nẵng - đề cập đến việc cần thiết cho phép phụ huynh chủ động đến trường xem suất ăn bán trú của con khi họ muốn.
-- Thiết bị vừa có thể hỗ trợ học sinh khiếm thị nhận biết và tránh được vật cản khi di chuyển, vừa giúp các em tự tin khi sử dụng.
-- Sân chơi 'Tài chính thông minh' - sân chơi giáo dục tài chính trực tuyến đầu tiên tại Việt Nam - dự kiến triển khai từ tháng 5-2025 dành cho học sinh tiểu học, THCS, THPT  trên cả nước.
-- Trưa 11-4, Sở Giáo dục và Đào tạo TP.HCM công bố chỉ tiêu tuyển sinh lớp 10 năm học 2025-2026 ở các trường THPT công lập.
-- Mỗi thí sinh ngồi một máy vi tính, có ngăn ô, ghi số báo danh. Đến giờ mở đề, thí sinh đăng nhập và làm bài trên máy tính. Làm xong thì bấm nộp bài, màn hình sẽ hiện ngay điểm thi.
-- Đề xuất dạy học 2 buổi/ngày cho học sinh THCS và THPT nhưng không thu phí tiếp tục gây tranh luận trong bạn đọc.
-- Các cơ quan, ban ngành, quận, huyện, TP Thủ Đức phân tích khó khăn của 10 dự án nhằm mục đích đẩy nhanh tiến độ của đề án xây dựng 4.500 phòng học.
-- Phụ huynh bất ngờ khi mới đây nhà trường thông báo thu tiền học gồm học phí 5 tháng của kỳ 2 (155.000 đồng/tháng/học sinh) và phí dịch vụ học 2 buổi/ngày của tháng 3 (235.000 đồng/tháng/học sinh).
-- Mặc dù Bộ Nội vụ đã trả lời cụ thể về việc chi trả trợ cấp cho cán bộ, công chức, viên chức (trong đó có giáo viên) theo nghị định 76, nhưng UBND huyện Đam Rông (Lâm Đồng) lại không thực hiện.
-- Hơn 300 du học sinh tại Mỹ đã bị chính quyền Tổng thống Trump hủy thị thực (visa), vì bị cho là hoạt động 'đi ngược lại lợi ích quốc gia'.
-- Tối 9 và sáng 10-4, nhiều học sinh Trường tiểu học Võ Thị Sáu, TP.HCM đau bụng, nôn ói nghi do ngộ độc thực phẩm sau ăn trưa 9-4 ở trường.
-- Bài thi lớp 10 ngoài môn toán, ngữ văn, cần thêm bài thi tổng hợp có phần nội dung của tất cả môn học đánh giá bằng điểm số ở THCS.
-- Chơi giỏi game không đồng nghĩa với một suất trong thế giới chuyên nghiệp khắc nghiệt của Esports.
-- Sau khi thu hồi quyết định công nhận tuyển dụng 61 viên chức giáo viên, UBND huyện Ia Grai kiến nghị UBND tỉnh Gia Lai công nhận những viên chức này.
-- Thi học kỳ sớm hay muộn không quan trọng bằng việc dạy và học trong suốt năm học, qua các giai đoạn trước và sau thi cử.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Bộ Công an đề xuất mức phạt với hành vi sa thải người lao động, buộc công chức, viên chức thôi việc trái pháp luật lên tới 400 triệu hoặc phạt tù 3 năm.
+- Ngày 1-7, cả nước sẽ tổ chức chính quyền 2 cấp, với nhiều niềm tin và hy vọng để chính quyền sát dân và phục vụ dân ngày càng tốt hơn.
+- Đồng Nai đã dự trù kinh phí thuê 32 xe khách đưa đón cán bộ, công chức ở tỉnh Bình Phước di chuyển 90km qua Đồng Nai làm việc sau sáp nhập.
+- Tại kỳ họp thứ 23 của HĐND TP.HCM khóa X, UBND TP.HCM đã trình chủ trương đầu tư dự án cải tạo môi trường, xây dựng hạ tầng rạch Văn Thánh.
+- Dự kiến đến năm 2050 TP.HCM cần đầu tư 950.000 tỉ vào hạ tầng giao thông, tạo ra quỹ đất TOD và các vị trí tiềm năng khoảng 12.800ha.
+- Lực lượng chức năng vừa phá đường dây vận chuyển thuê 14.000 viên ma túy tổng hợp, 2kg ma túy dạng đá, 100 gam ketamin từ Lào về Việt Nam.
+- Ủy ban Thường vụ Quốc hội đã có hướng dẫn chỉ định nhân sự với đơn vị hành chính cấp xã ở những nơi không thực hiện hợp nhất, sáp nhập.
+- Tuyến Ngô Quyền - Ngũ Hành Sơn (Đà Nẵng) là đường huyết mạch của Đà Nẵng, vậy nhưng nhiều đoạn đang bị hư hỏng nặng với nhiều vệt 'sống trâu'.
+- Từ ngày 1-7, tỉnh Phú Thọ mới (sáp nhập 3 tỉnh Vĩnh Phúc, Hòa Bình, Phú Thọ) có 148 đơn vị hành chính cấp xã, gồm 133 xã và 15 phường.
+- Bí thư Thành ủy TP.HCM Nguyễn Văn Nên khẳng định TP.HCM đang bước vào giai đoạn phát triển mới và sẽ trở thành một siêu đô thị của khu vực, tầm quốc tế.
+- Sáng 28-6, Hội đồng nhân dân TP.HCM khóa X tổ chức kỳ họp thứ 23 (kỳ họp chuyên đề) để xem xét, thông qua nhiều tờ trình UBND TP.HCM về sử dụng ngân sách và đầu tư công.
+- Tin tức sáng 28-6: Mức hỗ trợ cho người tham gia BHXH tự nguyện từ 1-7; Becamex IDC muốn huy động 2.500 tỉ đồng từ trái phiếu; Bộ Y tế khuyến cáo không dùng một thực phẩm chức năng...
+- Hôm nay 28-6, thời tiết Bắc Bộ có đợt mưa rất to, đề phòng lũ quét, sạt lở đất nguy hiểm. Nam Bộ mưa rào đến mưa to.
+- Chiều 27-6, Phó viện trưởng Viện KSND tối cao Nguyễn Đức Thái đã trao quyết định bổ nhiệm viện trưởng Viện KSND tỉnh Tây Ninh mới cho ông Mai Văn Linh.
+- Phó thủ tướng Chính phủ Mai Văn Chính đánh giá Trung tâm Triển lãm Việt Nam không chỉ là công trình có giá trị về mặt kỹ thuật, mà còn là công trình văn hóa có ý nghĩa đặc biệt quan trọng, biểu tượng cho khát vọng vươn lên.
+- Toàn bộ 40 xã, phường mới của tỉnh Khánh Hòa đều vừa được thành lập đảng bộ, chỉ định ban chấp hành cùng nhiều chức danh lãnh đạo, gồm bí thư, các chủ tịch HĐND, UBND xã, phường và các cấp phó.
+- Thông điệp được bà Audrey Azoulay, tổng giám đốc UNESCO, đưa ra trong cuộc gặp Tổng Bí thư Tô Lâm tại trụ sở Trung ương Đảng chiều 27-6.
+- Bộ Chính trị, Ban Bí thư yêu cầu từ 1-7, các tỉnh ủy, thành ủy, đảng ủy trực thuộc Trung ương thực hiện công tác cán bộ theo thẩm quyền, bảo đảm đúng quy định của Đảng, Nhà nước.
+- Qua một nhiệm kỳ gắn bó với tỉnh Long An, thiếu tướng Lâm Minh Hồng - giám đốc Công an tỉnh Long An - đã nhận quyết định chờ hưu.
+- Ông Nguyễn Thành Minh (viện trưởng Viện KSND tỉnh Lâm Đồng) làm viện trưởng Viện KSND tỉnh Lâm Đồng sau sáp nhập.
+- Cùng Tổng giám đốc UNESCO dự triển lãm tranh của các trẻ em gái dân tộc thiểu số tại vùng khó khăn, Phu nhân Ngô Phương Ly khẳng định Việt Nam luôn coi bình đẳng giới là ưu tiên chiến lược, không để trẻ em gái nào bị bỏ lại phía sau.
+- Phó thủ tướng đề nghị tổng diễn tập, kiểm tra cuối cùng trước ngày 30-6, đảm bảo hệ thống vận hành chính thức từ 1-7.
+- Tỉnh Bà Rịa - Vũng Tàu đã hoàn thành chương trình nông thôn mới cấp tỉnh trước ngày cùng với tỉnh Bình Dương hợp nhất vào TP.HCM. Trong 10 năm qua, tỉnh này đã huy động gần 40.000 tỉ đồng cho chương trình nông thôn mới.
+- Ban Bí thư quyết định thi hành kỷ luật khai trừ ra khỏi Đảng đối với ông Nguyễn Bá Hoan - thứ trưởng Bộ Nội vụ, nguyên thứ trưởng Bộ Lao động - Thương binh và Xã hội.
+- Bay đến Long Thành rồi quá cảnh tiếp chuyến tại Tân Sơn Nhất, nếu hành khách phải mất 5 tiếng di chuyển giữa hai sân bay để kịp chuyến bay tiếp theo sẽ không ai muốn đặt vé.
+- Công an tỉnh Lâm Đồng khởi tố vụ án hình sự làm lộ bí mật nhà nước trong kỳ thi tốt nghiệp THPT 2025. Thí sinh dùng camera giấu kín quay đề thi, nhờ người giải bằng ChatGPT.
+- Dự án đường vành đai 4 TP.HCM là tuyến giao thông liên vùng chiến lược của vùng Đông Nam Bộ, đã được Quốc hội thông qua chủ trương đầu tư sáng 27-6, với tổng vốn hơn 120.000 tỉ đồng cho giai đoạn 1.
+- Một số trụ sở HĐND, UBND cấp xã ở Nha Trang (tỉnh Khánh Hòa) đã gắn bảng tên phường mới, sẵn sàng cho việc đi vào hoạt động từ ngày 1-7.
+- Hơn 2.301 nhân sự dôi dư khi sắp xếp bộ máy muốn được hỗ trợ học nghề để chuyển đổi nghề. TP.HCM sẽ hỗ trợ tối đa 6 triệu đồng/người/khóa học, đồng thời hỗ trợ tiền ăn, tiền đi lại trong quá trình học tập.
+- 36 xã phường tại Bình Dương sau sáp nhập đã được chỉ định các chức danh lãnh đạo mới, sẵn sàng hoạt động chính thức từ ngày 1-7.
+- Để sân bay Long Thành là "thành phố sân bay" hiện đại, trung tâm logistics và thương mại tầm khu vực, theo các chuyên gia, cần chiến lược quy hoạch đồng bộ, hạ tầng và thể chế đủ mạnh để cạnh tranh với Changi, Suvarnabhumi.
+- Để ép người yêu quay lại với mình, người đàn ông ở Nghệ An đột nhập nhà riêng của người yêu, bắt cóc con riêng của người này làm con tin.
+- Thay mặt tân lãnh đạo 4 xã, phường sau sáp nhập của TP Hội An, ông Nguyễn Đức Bình - giám đốc Sở Khoa học và Công nghệ tỉnh Quảng Nam, người được phân công làm bí thư phường Hội An - nói sẽ tiếp nối cách ứng xử từ tốn để giữ gìn bản sắc di sản.
+- Sở Xây dựng TP.HCM cho biết đã đề xuất kéo giảm tai nạn giao thông xảy ra liên tiếp trên đường Quang Trung.
+- Tổng công ty Cấp nước Sài Gòn cho biết do dừng vận hành Nhà máy nước Thủ Đức 3 để thi công lắp đặt, thay thế đồng hồ và sửa chữa đường ống cấp nước bị rò rỉ nên cuối tuần nhiều nơi nước yếu.
+- Chủ tịch UBND TP.HCM Nguyễn Văn Được cho rằng để đảm bảo việc vận hành phường, xã mới hiệu quả, đúng quy định, hạn chế phát sinh tiêu cực thì phải cần tăng cường nắm tình hình và kiểm tra công vụ.
+- Lực lượng chức năng Kiên Giang đã phát hiện và thu giữ 510 hộp mỹ phẩm dùng ngoài da có dấu hiệu vi phạm, không rõ nguồn gốc, nghi là hàng giả, lừa dối khách hàng.
+- Sáng 27-6, các chuyên gia, nhà nghiên cứu đã khảo sát thực tế dự án sân bay Long Thành và các tuyến đường kết nối.
+- Chủ tịch Quốc hội Trần Thanh Mẫn trao các quyết định về công tác cán bộ với các ông Lâm Văn Mẫn, Hoàng Duy Chinh, Phùng Khánh Tài và Đặng Ngọc Huy.
+- Ông Chức bỏ hàng tỉ đồng mua vườn ở quê để dưỡng già nhưng bị hàng xóm rào đường, cắt dây điện, phá camera… khiến ông rất mệt mỏi.
+- Nhiều người tham gia giao thông ngao ngán khi liên tục gặp các loại xe ba gác, xe tự chế thô sơ chở theo những tấm tôn, sắt thép, hàng hóa cồng kềnh tung hoành trên khắp các tuyến đường ở Đà Nẵng.
+- Kiên Giang có lợi thế phát triển kinh tế biển. Địa phương mong muốn định hình cách tiếp cận đối với kinh tế biển như là không gian phát triển chiến lược, đảm bảo an ninh, quốc phòng, chủ quyền biển đảo và hội nhập quốc tế.
+- Vụ việc một người kéo sập cửa nhà hàng xóm vừa bị bắt khẩn cấp một lần nữa xới lên câu chuyện 'vấn nạn' karaoke trong khu dân cư.
+- Sau khi sáp nhập với TP.HCM và Bình Dương ngày 1-7-2025, khu vực Bà Rịa - Vũng Tàu mới có 30 phường, xã và đặc khu Côn Đảo.
+- Từ 18h ngày hôm nay (27-6), TP.HCM sẽ kết nối 100% dịch vụ công trực tuyến lên Cổng dịch vụ công quốc gia, người dân TP.HCM sẽ làm hồ sơ trên cổng này.
+- Sau khi sắp xếp, thành phố Huế còn 40 đơn vị hành chính cấp xã, bao gồm 21 phường và 19 xã, trong đó có phường Dưỡng Nổ (quận Thuận Hóa) hiện nay là giữ nguyên.
+- Viện Kinh tế tài nguyên và môi trường TP.HCM đề xuất nâng giá đất nông nghiệp quy hoạch đất ở tại TP.HCM lên bằng 70% giá đất ở để hài hòa lợi ích nhà nước và người dân.
+- Bào chữa cho Nguyễn Văn Hậu, luật sư thông tin đã có xác nhận ngân hàng việc Tập đoàn Phúc Sơn nộp 507 tỉ vào một tài khoản để xin gỡ phong tỏa một phần bất động sản. Tuy nhiên chủ tọa phân tích văn bản này hiện chưa có giá trị pháp lý.
+- Sau hai ngày bị lạc hai con bò và phát loa rao nhiều nơi tìm kiếm, anh Võ Thanh Liêm (ở huyện Bình Chánh, TP.HCM) nhận tin vui khi người dân phát hiện hai con bò bị lạc đang chờ chủ nhận về.
+- Hội thảo chuyên đề "Thúc đẩy kết nối Long Thành - TP.HCM" được báo Tuổi Trẻ tổ chức chiều 27-6, tại Trung tâm Hội nghị White Palace, TP.HCM.
+- Tại kỳ họp thứ 10 (tháng 10-2025), Chính phủ dự kiến trình sửa toàn diện Luật Thuế thu nhập cá nhân, trong đó đề cập nội dung điều chỉnh mức giảm trừ gia cảnh.
+- Do sai phạm nghiêm trọng trong việc xét duyệt và cấp giấy chứng nhận quyền sử dụng đất nên 3 cán bộ ở TP Phú Quốc lãnh tù.
+- Phó chủ nhiệm Ủy ban Pháp luật và Tư pháp của Quốc hội Nguyễn Phương Thủy giải đáp câu hỏi bà Trương Mỹ Lan có được chuyển từ án tử hình xuống chung thân.
+- Từ 1-7 tới, cấp xã sẽ thực hiện 14 thủ tục hành chính liên quan đến đất đai, trong đó có đăng ký và cấp sổ đỏ lần đầu.
+- Chủ tịch Quốc hội Trần Thanh Mẫn nhấn mạnh kỳ họp thứ 9 là dấu mốc quan trọng trong lịch sử lập hiến, lập pháp của Quốc hội khóa XV.
+- HĐND TP Hà Nội đã phê duyệt chủ trương đầu tư dự án thu hồi đất, bồi thường, hỗ trợ tái định cư, giải phóng mặt bằng của dự án đầu tư xây dựng tuyến đường kết nối sân bay Gia Bình về Hà Nội.
+- Quốc hội đồng ý miễn thị thực có thời hạn cho người nước ngoài thuộc diện đối tượng đặc biệt cần ưu đãi phục vụ phát triển kinh tế - xã hội.
+- Mùa mưa, nhiều lỗ cống lớn giữa trung tâm TP.HCM trở thành 'miệng hút rác', gây mất mỹ quan và nguy cơ tắc nghẽn thoát nước.
+- Nhiều ý kiến cho rằng kỹ năng mở cửa xe ô tô cần được kiểm soát nghiêm ngặt hơn trong đào tạo lái xe.
+- Hà Nội sẽ chuyển chủ đầu tư các dự án/chuyển nhiệm vụ từ cấp huyện về đơn vị cấp TP là 12 dự án/nhiệm vụ; chuyển về cấp xã mới là 27.764 dự án/nhiệm vụ sau khi bỏ cấp huyện.
+- Dự thảo Luật Cán bộ, công chức (sửa đổi) mới được Quốc hội thông qua có quy định cán bộ, công chức được hưởng thêm thu nhập khác ngoài tiền lương, căn cứ vào hiệu quả công việc, sản phẩm cụ thể. Làm sao để quy định này đi vào cuộc sống?
+- Quốc hội yêu cầu Chính phủ tăng cường đầu tư cơ sở vật chất, bảo đảm các điều kiện để thực hiện chủ trương tổ chức dạy học 2 buổi/ngày.
+- Chi nhánh ngân hàng nước ngoài được mở phòng giao dịch trong Khu thương mại tự do TP Hải Phòng ngoài trụ sở chi nhánh.
+- Từ 1-7-2025, sáp nhập toàn bộ Phú Yên và Đắk Lắk, lấy tên tỉnh là Đắk Lắk với 102 xã, phường.
+- Cần Thơ dự kiến hỗ trợ 4 triệu đồng/người/tháng cho cán bộ, công chức tỉnh Hậu Giang, Sóc Trăng về Cần Thơ công tác sau hợp nhất, đồng thời miễn phí đi xe buýt.
+- Luận tội trong vụ án xảy ra tại Tập đoàn Phúc Sơn, viện kiểm sát nhận định về các bị cáo: "Suy thoái về phẩm chất, vì động cơ vụ lợi đã câu kết doanh nghiệp, tạo nên nhóm lợi ích và lợi ích nhóm, bị doanh nghiệp thao túng".
+- Dự án đường bộ cao tốc Quy Nhơn - Pleiku dài khoảng 125km, dự kiến hoàn thành đưa vào khai thác trong năm 2029.
+- Cao tốc Vạn Ninh - Cam Lộ nối Quảng Bình - Quảng Trị dự kiến sẽ hoàn thành tuyến chính vào ngày 30-6 tới, hoàn thành 3 cầu vượt để thông xe kỹ thuật ngày 10-7, mở ra cơ hội lớn cho sự phát triển của tỉnh Quảng Trị mới.
+- Luật mới được thông qua quy định không lập tổ chức công đoàn trong các cơ quan hành chính, lực lượng vũ trang, đơn vị sự nghiệp hưởng 100% lương từ ngân sách nhà nước.
+- Luật mới quy định trưởng, phó công an cấp xã là điều tra viên trung cấp, cao cấp có thể khởi tố, điều tra một số vụ án về tội ít nghiêm trọng, nghiêm trọng.
+- Từ 15-10, thẩm quyền cho vay đặc biệt lãi 0%/năm mà không có tài sản đảm bảo sẽ được chuyển từ Thủ tướng cho Ngân hàng Nhà nước quyết định.
+- Luật mới đã bỏ một số chức danh chỉ huy trưởng, chính ủy bộ chỉ huy bộ đội biên phòng cấp tỉnh, chỉ huy trưởng ban chỉ huy quân sự cấp huyện.
 - Quốc hội đã thông qua nghị quyết về trung tâm tài chính quốc tế tại Việt Nam với nhiều cơ chế, chính sách có tính đột phá, cạnh tranh.
-- Gần 2km đường Tân Thới Hiệp 21 (quận 12, TP.HCM) vốn xuống cấp, đầy ổ gà và thường xuyên ngập khi mưa, sẽ được mở rộng, nâng cấp mặt đường và đầu tư hệ thống thoát nước đồng bộ.
-- Tòa án nhân dân tối cao vừa công bố quyết định của chánh án Tòa án nhân dân tối cao về công tác cán bộ, trong đó có tòa phúc thẩm Tòa án nhân dân tối cao tại Đà Nẵng.
+- Gần 2km đường Tân Thới Hiệp 21 (quận 12, TP.HCM) vốn xuống cấp, đầy ổ gà và thường xuyên ngập khi mưa... sẽ được mở rộng, nâng cấp mặt đường và đầu tư hệ thống thoát nước đồng bộ.
+- Tòa án nhân dân tối cao vừa công bố quyết định của chánh án Tòa này về công tác cán bộ, trong đó có tòa phúc thẩm Tòa án nhân dân tối cao tại Đà Nẵng.
 - Về nhà máy điện hạt nhân, luật mới đã được rà soát, chỉnh lý các nội dung liên quan đến đầu tư, xây dựng, vận hành, chấm dứt vận hành nhà máy điện hạt nhân.
-- Dự án vành đai 4 TP.HCM có tổng chiều dài 207,26km (đoạn qua Bình Dương 48km đang làm riêng), với tổng mức đầu tư cho giai đoạn 1 hơn 120.000 tỉ đồng.
+- Dự án vành đai 4 TP.HCM có tổng chiều dài 207,26km (đoạn qua Bình Dương 48km đang làm riêng), với tổng mức đầu tư cho giai đoạn 1 hơn 120.000 tỉ đồng. Cơ quan lập chủ trương đầu tư là TPHCM (Sở Xây Dựng TPHCM được giao làm chủ đầu tư).
 - Hôm qua (26-6), Quốc hội thông qua nghị quyết về miễn, hỗ trợ học phí đối với trẻ em mầm non, học sinh phổ thông, người học chương trình giáo dục phổ thông trong cơ sở giáo dục thuộc hệ thống giáo dục quốc dân.
 - Tổ chức, cá nhân tham gia hoạt động kinh doanh đường sắt được hưởng ưu đãi, hỗ trợ như miễn, giảm tiền sử dụng đất, tiền thuê đất đối với đất dành cho đường sắt.
 - Vào tối 24-6, người dân phản ánh việc xuất hiện một đám cháy tại gần trụ sở của UBND phường Cổ Nhuế 2 (quận Bắc Từ Liêm, Hà Nội). Điều đáng nói, thời điểm xảy ra vụ cháy, trụ sở của UBND phường trên vẫn sáng đèn.
@@ -1931,80 +2003,10 @@
 - Người dân phát hiện hàng ngàn phôi xà phòng bị đổ trộm, chất đống ven khu vực đê sông Dinh đoạn qua Phan Rang - Tháp Chàm.
 - Cầu Rạch Gia ở huyện Bình Chánh (TP.HCM) khởi công cuối năm 2017, dự kiến hoàn thành sau một năm nhưng đến nay vẫn dang dở.
 - Cơn bão số 1 có tên quốc tế là Wutip, do Macau (Trung Quốc) đặt tên và trong tiếng Trung có nghĩa là con bướm.
-- Trước đây thẩm quyền gọi nhập ngũ do ban chỉ huy quân sự cấp huyện quyết định, nhưng sửa Luật Nghĩa vụ quân sự sẽ giao cho chủ tịch xã.
-- Dự kiến mô hình tỉnh An Giang sau sáp nhập sẽ vận hành từ ngày 1-7 cùng với cấp xã.
-- Bộ trưởng Phạm Thị Thanh Trà nhấn mạnh từ ngày 1-7, cả hệ thống chính trị quyết tâm vận hành đơn vị hành chính mới với mô hình chính quyền 2 cấp.
-- Chủ hộ kinh doanh phải tham gia bảo hiểm xã hội bắt buộc từ 1-7.
-- Phát biểu tại tổ sáng 11-6, Phó thủ tướng thường trực Nguyễn Hòa Bình thông tin về việc vận hành chính quyền địa phương hai cấp sau sắp xếp.
-- Một vụ tai nạn giao thông xảy ra trên tuyến cao tốc Liên Khương - Prenn (Đà Lạt) làm năm người trong cùng một gia đình bị thương.
-- Chủ tịch UBND tỉnh Đồng Tháp đã có chỉ đạo hỏa tốc về việc đẩy nhanh tiến độ cao tốc Cao Lãnh - An Hữu, đến ngày 19-12 thông xe kỹ thuật.
-- Sáng 11-6, Phó thủ tướng thường trực Nguyễn Hòa Bình thông tin trước Quốc hội về vai trò và ý nghĩa của Trung tâm tài chính quốc tế.
-- Làm thế nào để các cơ quan, chính quyền các cấp có thể thoát khỏi 'thế kẹt' về khai thác, sử dụng dữ liệu để thực hiện thành công chuyển đổi số?
-- Các tỉnh Nam Trung Bộ từ Bình Định đến Khánh Hòa khẩn trương lên phương án sẵn sàng ứng phó với bão số 1 (bão Wutip).
-- Phường Tân Bình, Bảy Hiền, Tân Hòa, Tân Sơn Hòa, Tân Sơn, Tân Sơn Nhất (quận Tân Bình) đã thực hiện trơn tru buổi vận hành thử nghiệm.
-- Lữ đoàn Công binh 249, Binh chủng Công binh đã cắt khẩn cấp cầu phao Phong Châu (Phú Thọ) do mực nước sông Hồng dâng cao.
-- Mưa lớn kéo dài từ đêm tới sáng 11-6 khiến nước lũ dâng cao, chia cắt giao thông tại quốc lộ 25, xã Ayun Hạ, huyện Phú Thiện, tỉnh Gia Lai.
-- Trong hơi thở đứt quãng trên đường đến bệnh viện, Quốc Bảo được mẹ cầm tay, trăng trối: 'Con ráng thay mẹ lo hai em'.
-- Dù tâm bão Wutip (bão số 1) nằm ở quần đảo Hoàng Sa nhưng hoàn lưu lệch hẳn vào đất liền nước ta, vùng mưa to trải rộng, dự báo lũ nguy hiểm.
-- Sáng 11-6, Đại tướng Phan Văn Giang trình Quốc hội đề xuất bỏ một số chức danh chỉ huy trưởng, chính ủy trong quân đội.
-- Từ ngày 12 đến 30-6, TP.HCM sẽ vận hành thử nghiệm mô hình chính quyền địa phương 2 cấp trên toàn địa bàn.
-- Hai xe máy chạy trên đường Thống Nhất, quận Gò Vấp, TP.HCM bất ngờ tông vào nhà dân, hai người cầm lái đã thiệt mạng.
-- UBND TP Hà Nội cho biết sẽ tiến tới cắt giảm thủ tục hành chính cấp giấy xác nhận tình trạng hôn nhân trong tương lai gần.
-- Sáng 11-6, trong ngày đầu tiên của đợt 2 kỳ họp thứ 9, bộ trưởng Bộ Nội vụ trình bày tờ trình về việc sắp xếp đơn vị hành chính cấp tỉnh năm 2025.
-- Sáng 11-6, Quốc hội thông qua điều chỉnh bổ sung nội dung chương trình kỳ họp thứ 9, trong đó sẽ thông qua sáp nhập tỉnh vào sáng 12-6.
-- Do ảnh hưởng của bão Wutip (bão số 1), từ đêm 10-6 đến sáng 11-6 ở Huế có nơi mưa to khiến nhiều tuyến đường ngập cục bộ.
-- Người đổ bỏ thực phẩm chức năng tại bãi đất trống ven đường Nguyễn Văn Linh (Bình Chánh) là N.M.L. (33 tuổi, ngụ huyện Bình Chánh).
-- Tin tức đáng chú ý: Hôm nay, Quốc hội bắt đầu họp đợt 2, xem xét đề án sáp nhập tỉnh; Bệnh viện K có hệ thống xạ trị gia tốc và CT mô phỏng 4D, giảm bớt tình trạng thiếu máy xạ trị; Lần đầu tiên thay toàn bộ xương đùi in 3D cho bệnh nhi ung thư...
-- Việc ông Trịnh Văn Quyết và chủ tịch Tập đoàn Tân Hoàng Minh nộp ngàn tỉ khắc phục toàn bộ hậu quả vụ án không phải cá biệt.
-- Ngày 5-6 tại TP.HCM, Cục Môi trường (Bộ Nông nghiệp và Môi trường) tổ chức tham vấn dự thảo quy chuẩn khí thải ô tô, mô tô, xe máy và lộ trình áp dụng việc kiểm định khí thải các phương tiện này.
-- Hôm nay 11-6, thời tiết Bắc Bộ ngày nắng, chiều tối một số nơi mưa to. Nam Bộ, Trung Bộ mưa rào đến mưa rất to do ảnh hưởng bão số 1 sắp hình thành.
-- Văn phòng UBND TP Hà Nội vừa ban hành thông báo về kết luận chỉ đạo của Chủ tịch UBND TP Hà Nội Trần Sỹ Thanh tại cuộc họp nghe báo cáo về tiến độ triển khai các dự án cầu Trần Hưng Đạo và cầu Ngọc Hồi bắc qua sông Hồng.
-- Việc đề xuất tăng thêm nhân sự để làm nguồn quy hoạch giới thiệu bầu giữ chức vụ phó chủ tịch HĐND, 2 phó ban HĐND chuyên trách cho 78 phường mới khi tổ chức HĐND.
-- Đàm phán Việt - Mỹ có kết quả sớm sẽ góp phần thúc đẩy hợp tác kinh tế, thương mại và đầu tư phát triển ổn định, bền vững.
-- Trong 5 ngày làm việc kể từ khi nhận được quyết định cho chuyển mục đích sử dụng đất, cơ quan thuế phải tính thuế, tiền sử dụng đất, gửi đến người dân và các cơ quan liên quan.
-- Chiều 10-6, Đại tướng Phan Văn Giang, bộ trưởng Bộ Quốc phòng và Bí thư Thành ủy Hà Nội Bùi Thị Minh Hoài đã đồng chủ trì hội nghị bàn giao nhiệm vụ tư lệnh Bộ tư lệnh Thủ đô Hà Nội.
-- Trận mưa kéo dài hơn 2 giờ đồng hồ như trút nước khiến nhiều nơi ở TP.HCM nước ngập lênh láng, người dân bì bõm.
-- Hiện Ban Thường vụ Thành ủy TP.HCM đã thống nhất phương án nhân sự tại các phường, xã mới. Trong thời gian chờ pháp lý để có quyết định, TP.HCM sẽ thông báo phân công tạm thời nhân sự tại  phường, xã mới để vận hành thử.
-- Chủ tịch nước trao tặng 'Huân chương Dũng cảm' cho ông Cao Văn Cường, nguyên hội viên Hội Nông dân thôn Bắc Hóa (Quảng Bình), vì đã quên mình cứu người trong lũ dữ.
-- Trong lúc đoàn xe ưu tiên của lãnh đạo cấp cao di chuyển tại Đà Lạt (Lâm Đồng), một xe máy bất chấp hiệu lệnh của đội dẫn đường, chen vào đoàn.
-- Chiều 10-6, Tỉnh ủy Phú Yên tổ chức hội nghị xem xét, cho ý kiến về đề án thành lập Đảng bộ tỉnh Đắk Lắk trên cơ sở hợp nhất Đảng bộ tỉnh Đắk Lắk với Đảng bộ tỉnh Phú Yên.
-- Người đàn ông và phụ nữ vào nhà nghỉ, nửa tiếng sau người đàn ông đi ra. Cơ quan chức năng phát hiện người phụ nữ đã chết.
-- Phòng cảnh sát hình sự Công an tỉnh Khánh Hòa đã chuyển đơn của chủ khách sạn ở Nha Trang tố lực lượng cưỡng chế tự ý bán tài sản sau cưỡng chế đến Văn phòng Cơ quan cảnh sát điều tra Công an tỉnh thụ lý theo quy định.
-- Người dân phát hiện nhiều vỉ thuốc còn hạn sử dụng và vỏ chai nhựa bị bỏ tại một khu đất trống ở Đà Nẵng.
-- Thứ trưởng Bộ Công an Lê Quốc Hùng nêu Chính phủ nhận thấy việc bỏ phạt tử hình ở 8 tội danh như dự luật trình Quốc hội là phù hợp trong điều kiện Việt Nam hiện nay.
-- Nam thanh niên chạy xe máy trên quốc lộ 14 đoạn qua TP Buôn Ma Thuột (Đắk Lắk) va chạm với xe tải ngược chiều, tử vong.
-- Tại buổi làm việc, chủ tịch UBND TP.HCM yêu cầu quận Bình Tân triển khai nhanh chóng và quyết liệt các công tác chuẩn bị trước ngày vận hành thử phường, xã mới vào 12-6.
-- Chiều tối nay mây dông phát triển dữ dội, mưa trút xuống TP.HCM, dự báo mưa to đến rất to.
-- Không hợp đồng, không bảo hiểm, không ngày nghỉ là những từ mô tả về công việc của hàng ngàn người thu gom rác dân lập tại TP.HCM.
-- Nam bệnh nhân 19 tuổi có tiền sử thường xuyên chơi game, thức khuya, ăn uống thất thường phải nhập viện tại Bệnh viện Thống Nhất trong tình trạng sụt cân, nôn ói nhiều.
-- 3 tỉnh Lâm Đồng, Bình Thuận, Đắk Nông đã cùng tổ chức một hội thảo tại Đà Lạt để định hướng cho sự phát triển của tỉnh Lâm Đồng mới.
-- Lời khai của chủ doanh nghiệp thuê người 'phi tang' hơn 3.400 hộp thực phẩm chức năng tại huyện Bình Chánh, TP.HCM.
-- Liên minh Mekolor và Great USA vừa gây chú ý khi đề xuất đầu tư 100 tỉ USD cho dự án đường sắt tốc độ cao Bắc - Nam bằng vốn tự huy động.
-- Do thiếu trách nhiệm trong việc quản lý số xi măng được cấp trên cấp về xây dựng nông thôn mới, dẫn đến hàng trăm tấn xi măng bị hư hỏng.
-- Dự án hỗ trợ kỹ thuật nghiên cứu xây dựng, thành lập trung tâm đào tạo vận hành, bảo trì đường sắt đô thị sử dụng vốn ODA không hoàn lại.
-- Đại tá Nguyễn Đức Long - trưởng Phòng cảnh sát hình sự - vừa được bổ nhiệm giữ chức phó giám đốc Công an thành phố Hà Nội.
-- Bộ Công an đề xuất bỏ quy định thời gian lái xe không quá 48 giờ một tuần, giữ không lái xe quá 10 giờ một ngày, không lái liên tục quá 4 giờ.
-- Một bệnh nhân nam bị ngộ độc nặng sau ăn con so biển bắt được tại Cần Giờ (TP.HCM), được các bác sĩ cứu sống kịp thời.
-- Tổng Bí thư Tô Lâm nhấn mạnh việc hợp nhất ba tỉnh Phú Thọ, Vĩnh Phúc, Hòa Bình trong giai đoạn hiện nay là một bước ngoặt chiến lược.
-- Mỗi lần xe chạy qua cầu Suối Sâu tại km198 + 259 của cao tốc Vĩnh Hảo - Phan Thiết, tiếng kêu lớn từ khe co giãn dội lên.
-- Núi Chứa Chan là ngọn núi cao thứ hai ở vùng Đông Nam Bộ, được tỉnh Đồng Nai đưa vào dự án trọng điểm và quy hoạch để phát triển du lịch sinh thái, nghỉ dưỡng.
-- Quy định mới có hiệu lực từ 1-7 về chức năng, nhiệm vụ, tổ chức bộ máy cơ quan Ủy ban Mặt trận Tổ quốc Việt Nam cấp tỉnh, cấp xã.
-- Tại nhiều giao lộ ở TP.HCM, dù có dải phân cách nhưng có nhiều xe máy, xe đạp vẫn lấn làn, chạy ngược chiều.
-- Tỉnh Ninh Thuận kiến nghị Thủ tướng thống nhất ranh giới giải phóng mặt bằng để triển khai dự án điện hạt nhân.
-- Phó thủ tướng thường trực Nguyễn Hòa Bình yêu cầu Đắk Lắk giải quyết dứt điểm khiếu nại, tố cáo phức tạp trước 30-6.
-- Kiên Giang được giao làm chủ đầu tư dự án mở rộng sân bay Phú Quốc để có thể đón 10 triệu khách/năm và 25.000 tấn hàng/năm (2030).
-- 2 dự án cảng cạn ICD Mỹ Đình (Hoài Đức) và ICD Cổ Bi (Gia Lâm) từng được kỳ vọng sẽ giảm tải cho cảng biển, phát triển logistics cho khu vực.
-- Nam tài xế bị phạt tổng cộng 11 triệu đồng, tước bằng lái xe 3 tháng, bị buộc phải khôi phục lại tình trạng ban đầu với thiết bị barie bị hư hỏng.
-- Các bộ ngành, địa phương phải hoàn thành cơ bản mục tiêu xóa nhà tạm, nhà dột nát trên phạm vi cả nước trước ngày 31-8-2025.
-- Đề xuất hỗ trợ sau khi hợp nhất hai địa phương, gồm chi phí đi lại, thuê chỗ ở, hỗ trợ một lần chi phí sinh hoạt.
-- Hai cơ sở kinh doanh hàng hóa giả mạo nhãn hiệu của các thương hiệu nổi tiếng vừa bị Đà Nẵng xử phạt tiền và buộc tiêu hủy số hàng giả mạo.
-- Dự báo sáng mai (11-6), áp thấp nhiệt đới trên Biển Đông khả năng mạnh lên thành bão số 1.
-- Đây là diễn biến mới liên quan vụ hàng trăm tấn xi măng ở xã miền núi huyện Hương Khê tập kết ngoài trời dẫn đến một số lượng lớn bị hư.
-- Thống đốc Ngân hàng Nhà nước Nguyễn Thị Hồng thông tin về nhóm chính sách cho vay đặc biệt có lãi suất 0%/năm, không có tài sản bảo đảm.
-- Ủy ban Thường vụ Quốc hội thống nhất trình Quốc hội chủ trương đầu tư dự án đường vành đai 4 TP.HCM.
-- Dữ liệu đăng ký doanh nghiệp của Công ty cổ phần Mekolor đã tiết lộ nhiều thông tin bất ngờ về doanh nghiệp này.
 ![New](News.png)
 ## Nhịp sống số 
+- Người sáng tạo viết, quay, đăng nhưng ai được thấy, ai bị ẩn đi do một thực thể vô hình: thuật toán đề xuất. Trong thời đại AI kiểm soát dòng nội dung, người làm nghề không khỏi băn khoăn: Mình đang phục vụ khán giả thật hay chỉ cố làm hài lòng máy?
+- Ứng dụng ruID của Nga giúp đơn giản hóa thủ tục nhập cảnh miễn thị thực, thu thập dữ liệu sinh trắc học và tạo hồ sơ kỹ thuật số.
 - Trong thời đại mà trí tuệ nhân tạo có thể trả lời mọi câu hỏi trong vài giây, nhiều người mặc định xem AI là nguồn kiến thức chính xác. Nhưng nếu thông tin đầu vào đã sai, AI liệu có thể tạo ra câu trả lời đúng?
 - Bạn là chính bạn, nhưng thiết bị chỉ tin điều đó khi vân tay, khuôn mặt hay mã số khớp hoàn hảo. Trong thế giới số, danh tính không còn là con người thật, mà là dữ liệu máy móc có chấp nhận hay không.
 - Khi AI trở thành công cụ không thể thiếu trong cuộc sống hằng ngày, từ việc soạn email công việc đến viết hôn thú, điều quan trọng là chúng ta phải nhìn nhận và hiểu rõ những tác động sinh thái mà nó mang lại.
@@ -3003,6 +3005,4 @@
 - Từ ngày 1 đến 31-7, mua điện thoại Redmi Note 5 và Redmi S2 tại FPT Shop, bạn không chỉ được mua trả góp không lãi suất và được hưởng gói bảo hành mở rộng mà còn có cơ hội trúng laptop và robot hút bụi Xiaomi.
 - Chỉ trong nửa đầu năm 2018, nhà mạng Vietnamobile đã tung ra nhiều “bom tấn” từ đó đem đến các lợi ích “Phê Không Tưởng” cho hàng triệu người dùng. Và tất nhiên, những điều kỳ tích vẫn chưa dừng lại ở đây…
 - TTO - Gần một nửa số người Việt Nam vớ lấy điện thoại di động trong vòng 5 phút sau khi thức dậy. Nhưng smartphone được người Việt chủ yếu dùng để vào mạng xã hội.
-- TTO - Một nghiên cứu của Kaspersky cho thấy 24% người dùng dễ gặp các sự cố an ninh mạng hơn khi chia sẻ thiết bị và tài khoản trực tuyến của mình với “đối tác”.
-- TTO - Ngày 10-7-2008, Apple đã mở cửa hàng bán các ứng dụng iPhone, cũng từ đó mở ra một kỷ nguyên sáng tạo của các nhà phát triển phần mềm và thay đổi cuộc sống của hàng tỉ người trên khắp thế giới.
 ![life](Life.png)
