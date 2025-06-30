@@ -1,6 +1,9 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Chương trình phổ thông chỉ yêu cầu học sinh đạt B1, trong khi đề thi tiếng Anh tốt nghiệp THPT 2025 có nhiều nội dung ở mức C1.
+- Không chỉ là sân chơi ẩm thực, chương trình thực tế ‘Đầu bếp nhí - Little Chef’ do Báo Tuổi Trẻ sản xuất còn là hành trình giáo dục kỹ năng sống, nơi các em trưởng thành từ căn bếp qua từng thao tác nhỏ nhưng đầy ý nghĩa.
+- Chỉ vài năm kể từ khi thực hiện cuộc vận động "hai không", cảnh gian lận thi cử lại tái phát.
 - Đề thi tốt nghiệp THPT năm 2025 môn toán, tiếng Anh được đánh giá khá khó với thí sinh. Như vậy điểm chuẩn của các ĐH dự kiến sẽ ra sao?
 - Điểm chuẩn lớp 10 năm 2025 vào Trường THPT Gia Định, TP.HCM chỉ còn 18,75 điểm, giảm đến 4,25 điểm. Vì vậy trường này đã văng ra khỏi top những trường có điểm chuẩn cao nhất TP.HCM.
 - Trường Đại học Quốc tế Sài Gòn (SIU) thu hút sự quan tâm của thí sinh với môi trường học tập hiện đại, chuẩn quốc tế và định hướng đào tạo gắn với thực tiễn.
@@ -998,15 +1001,85 @@
 - Sáng 13-4, tại Hải Phòng diễn ra lễ khai mạc kỳ thi Olympic cơ học toàn quốc lần thứ 35 - năm 2025 khu vực phía Bắc.
 - Theo báo cáo, vụ nhóm học sinh đánh bạn dã man ở Thủ Đức bắt nguồn từ việc nữ sinh trêu chọc hình thể nhau, sau đó là đòi tiền 'dàn xếp'.
 - Trường đại học Luật TP.HCM phối hợp doanh nghiệp vừa khởi công xây dựng ký túc xá cho sinh viên theo phương thức xã hội hóa tại phường Long Phước, thành phố Thủ Đức.
-- Các giáo sư tại Đại học Harvard đã đệ đơn kiện chính quyền ông Trump nhằm ngăn chặn việc cắt gần 9 tỉ USD trong các hợp đồng và khoản tài trợ liên bang dành cho ngôi trường danh giá này.
-- Trần Thiên Hương (22 tuổi, ngụ ở Hà Nội) vừa hoàn thành chương trình học trong 3,5 năm với điểm trung bình các môn học (GPA) 3.98/4.0.
-- Cơ quan cảnh sát điều tra Công an tỉnh Quảng Nam đã tạm giữ hình sự chủ nhóm trẻ tư thục có hành vi bạo hành trẻ em.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Ngày 29-6, một lãnh đạo xã Đức Đồng (huyện Vũ Quang, Hà Tĩnh) cho biết ở xã vừa xảy ra vụ hai anh em ruột chết đuối thương tâm.
+- Tuổi Trẻ Online giới thiệu danh sách 34 bí thư các tỉnh, thành ủy, trong đó có 23 bí thư tỉnh, thành ủy được chỉ định sau sáp nhập.
+- Ban Thường vụ Thành ủy TP.HCM gồm 27 thành viên và Ban Chấp hành Đảng bộ TP.HCM nhiệm kỳ 2020-2025 gồm 107 thành viên.
+- Công bố nhân sự Ủy ban Kiểm tra Thành ủy TP.HCM, Đoàn đại biểu Quốc hội, HĐND, UBND, Ủy ban Mặt trận Tổ quốc Việt Nam TP.HCM mới.
+- Trung ương công bố quyết định về việc thành lập Đảng bộ thành phố Đà Nẵng trên cơ sở hợp nhất Đảng bộ Đà Nẵng và Quảng Nam.
+- Dưới đây là danh sách 34 chủ tịch các tỉnh, thành phố. Trong đó có 23 chủ tịch tỉnh, thành phố được Thủ tướng Phạm Minh Chính chỉ định sau sáp nhập.
+- Chủ tịch Quốc hội đã ký các nghị quyết về Đoàn và chỉ định trưởng, phó trưởng đoàn đại biểu Quốc hội khóa XV các tỉnh, thành phố sau sáp nhập.
+- Chủ tịch Quốc hội Trần Thanh Mẫn đã ký các nghị quyết Ủy ban Thường vụ Quốc hội chỉ định chủ tịch, phó chủ tịch HĐND 23 tỉnh, thành sau sáp nhập.
+- Hà Nội công bố danh sách chỉ định cán bộ nắm giữ chức vụ Bí thư, Chủ tịch HĐND, UBND, Ủy ban MTTQ cấp xã, phường với 126 xã phường mới tại thủ đô.
+- Bối cảnh phát triển mới đang đặt ra yêu cầu tổ chức lại không gian phát triển đất nước.
+- 8h sáng nay 30-6, các tỉnh, thành cả nước tổ chức lễ công bố các quyết định của Trung ương và địa phương về sáp nhập đơn vị hành chính.
+- Theo ghi nhận đến thời điểm hiện tại, các đơn vị hành chính mới tại TP.HCM và các tỉnh, thành phố đã cơ bản hoàn thành công tác chuẩn bị.
+- Mời bạn đọc xem lại các mốc thời gian chính thực hiện việc sáp nhập tỉnh thành, phường xã, không tổ chức cấp huyện, tổ chức mô hình chính quyền địa phương 2 cấp.
+- 78 đơn vị hành chính cấp xã tại tỉnh Quảng Trị mới sau khi nhập hai tỉnh Quảng Trị và Quảng Bình đã được Ủy ban Thường vụ Quốc hội thông qua. Cụ thể gồm những đơn vị nào? Trụ sở đặt ở đâu?
+- Một số tin tức đáng chú ý: Giao bổ sung kế hoạch đầu tư công trung hạn vốn ngân sách; Sổ bảo hiểm xã hội điện tử được cấp chậm nhất là ngày 1-1-2026; Quy định điều chỉnh cục bộ quy hoạch đô thị và nông thôn...
+- Tầm nhìn mới cho TP.HCM (mới) là trở thành “siêu đô thị quốc tế” - một đô thị thông minh, xanh, sáng tạo, tiêu biểu không chỉ về sức mạnh kinh tế mà cả sự phong phú về văn hóa, nghệ thuật, thể thao, giải trí và phong cách sống hiện đại, năng động.
+- Tỉnh Hưng Yên mới sẽ có lợi thế lớn khi nằm giữa 2 cực phát triển Hà Nội - Hải Phòng. Hàng ngàn héc ta đất công nghiệp và nông nghiệp công nghệ cao cũng sẽ được mở đường ra biển.
+- Chuyện của người làm hồ sơ thông qua dịch vụ công quốc gia: thay vì phải về địa phương để nộp các giấy tờ và đợi vài ngày, người dân bất ngờ nhận được kết quả chỉ sau 1 ngày làm việc.
+- Thời tiết nhiều nơi trên cả nước mưa rào đến mưa to, có nơi mưa rất to, riêng các tỉnh thành từ Đà Nẵng đến duyên hải Nam Trung Bộ ngày nắng nóng.
+- Trước ngày công bố thành lập tỉnh Lào Cai mới, hai tỉnh Yên Bái và Lào Cai cùng tổ chức chương trình nghệ thuật và bắn pháo hoa chào mừng.
+- Chiều 29-6, Công an Đồng Nai đã công bố các quyết định của Bộ trưởng Bộ Công an và giám đốc Công an Đồng Nai về tổ chức bộ máy và công tác cán bộ, theo nghị quyết của Ủy ban Thường vụ Quốc hội liên quan đến sắp xếp đơn vị hành chính cấp tỉnh, cấp xã.
+- Lợi dụng thông tin về việc sáp nhập, điều chỉnh địa giới hành chính, nhiều đối tượng xấu đã giả mạo nhân viên điện lực để lừa đảo, chiếm đoạt tài sản của khách hàng.
+- Theo Ban Giao thông TP.HCM, trong ngày mai (30-6), nhánh hầm HC1-01 thuộc một phần của dự án nút giao An Phú (TP Thủ Đức, TP.HCM) sẽ được thông xe.
+- Trước ngày 99 xã phường ở tỉnh Bắc Ninh mới chính thức đi vào hoạt động, nhiều trụ sở đã thay đổi nhận diện, sửa sang trụ sở. Còn với người dân, mỗi người một cảm xúc, nhưng tựu trung lại là phấn khởi, vui mừng, hồi hộp đón thời khắc lịch sử.
+- Nhân viên bảo vệ một công ty sản xuất ô tô (xã An Mỹ, huyện Tuy An, Phú Yên) phát hiện tổng giám đốc công ty nằm ngửa trên sàn nhà trong phòng ngủ, nghi có điều bất ổn sau khi trình báo công an thì được xác định người này đã tử vong.
+- Chiều 29-6, Công an tỉnh Thanh Hóa tổ chức lễ công bố quyết định của bộ trưởng Bộ Công an và giám đốc Công an tỉnh về tổ chức, cán bộ theo nghị quyết của Ủy ban Thường vụ Quốc hội sắp xếp đơn vị hành chính cấp xã.
+- UBND tỉnh Thái Nguyên đã có thông báo địa điểm trung tâm phục vụ hành chính công và đường dây nóng giải đáp thắc mắc, kiến nghị của người dân, doanh nghiệp khi giải quyết thủ tục hành chính.
+- Từ 1-7-2025, huyện đảo Lý Sơn, tỉnh Quảng Ngãi chính thức trở thành đặc khu Lý Sơn. Người dân, cán bộ địa phương rất kỳ vọng sự đổi thay không chỉ ở tên gọi mà còn giúp hòn đảo trở thành thiên đường du lịch.
+- Công an tỉnh Lâm Đồng và tỉnh Đồng Tháp đã công bố quyết định của bộ trưởng Bộ Công an và giám đốc Công an tỉnh về tổ chức, cán bộ theo nghị quyết của Ủy ban Thường vụ Quốc hội.
+- Trưởng Ban Tuyên giáo và Dân vận Trung ương Nguyễn Trọng Nghĩa đến thắp hương tưởng nhớ cố Tổng Bí thư Nguyễn Văn Linh tại nhà riêng ở TP.HCM.
+- Huyện đảo Phú Quý, tỉnh Bình Thuận sẽ trở thành một trong những đặc khu của cả nước kể từ ngày 1-7.
+- Cơ quan chức năng Quảng Ninh đã tìm thấy thi thể cháu bé 9 tuổi chết đuối khi đi bơi ở khu vực biển nguy hiểm, cấm tắm.
+- Chiều 29-6, một vụ cháy xảy ra trên đường Nam Kỳ Khởi Nghĩa, quận Ninh Kiều, TP Cần Thơ đã thiêu rụi đồ đạc tại cửa hàng bán đồ cúng.
+- Thể chế rõ ràng, tín dụng cởi mở và cơ chế minh bạch là ba nền tảng giúp doanh nghiệp tư nhân "trưởng thành" và chủ động đóng góp cho nền kinh tế.
+- Công tác chuẩn bị cho lễ công bố tỉnh Tây Ninh mới vào 8h ngày 30-6 đã được hoàn tất. Các bảng tên trụ sở chính đã được thay tên, hậu cần phục vụ cho buổi lễ cũng đã được Long An chuẩn bị sẵn sàng.
+- Sau khi sáp nhập Công an tỉnh Phú Thọ, Vĩnh Phúc và Hòa Bình, ban giám đốc Công an tỉnh Phú Thọ mới có giám đốc là Thiếu tướng Nguyễn Minh Tuấn và 8 phó giám đốc.
+- Ông Trần Phong - chủ tịch UBND tỉnh Quảng Bình - yêu cầu cấp dưới phải ưu tiên bố trí xe công tốt nhất cho các xã vùng sâu, vùng xa khi bỏ cấp huyện, nhập tỉnh.
+- Công an tỉnh Bắc Ninh sẽ có 5 phó giám đốc, thành lập 99 đơn vị cấp xã, 27 đơn vị cấp phòng và 5 đồn công an khu công nghiệp.
+- Dù thời tiết ở Phú Quốc những ngày này nắng, mưa thất thường nhưng hàng trăm công nhân vẫn miệt mài đào đất, khoan địa chất... làm dự án trung tâm hội nghị và nâng cấp mở rộng cảng hàng không Phú Quốc phục vụ APEC.
+- Lực lượng chức năng đang tiến hành đưa chiếc xe con 7 chỗ bị lật nghiêng giữa đường sau vụ va chạm giao thông để đảm bảo an toàn cho phương tiện lưu thông trên tuyến cao tốc Bắc - Nam.
+- Công an tỉnh Khánh Hòa mới có 8 phó giám đốc công an tỉnh sau khi sáp nhập với Công an tỉnh Ninh Thuận.
+- Thiếu tướng Nguyễn Hữu Hợp - giám đốc Công an tỉnh Quảng Nam - giữ chức giám đốc Công an thành phố Đà Nẵng sau sáp nhập.
+- Ký hiệu biển số xe các tỉnh, thành phố sau khi hợp nhất sẽ bao gồm ký hiệu biển số của các địa phương được hợp nhất.
+- Chiều 29-6, Công an TP Cần Thơ tổ chức lễ công bố quyết định của bộ trưởng Bộ Công an và giám đốc Công an TP về tổ chức cán bộ theo nghị quyết của Ủy ban Thường vụ Quốc hội về sắp xếp đơn vị hành chính cấp xã.
+- Một hành trình đầy xúc cảm vừa khép lại tại Bệnh viện Nhân dân Gia Định, để lại dư âm sâu lắng về sự hy sinh cao cả và phép màu của sự sống từ một ca hiến tạng.
+- Lãnh đạo UBND, HĐND, Ủy ban Mặt trận Tổ quốc Việt Nam TP Cần Thơ cùng nhận quyết định nghỉ hưu trước tuổi, trước khi vận hành chính quyền địa phương 2 cấp.
+- Đường tránh TP Đông Hà dài 13,3km, vốn đầu tư 400 tỉ đồng nhằm giảm tải cho quốc lộ 1 qua thành phố này đứng trước nguy cơ chậm tiến độ do vướng mặt bằng dù đã được gia hạn thêm 1 năm.
+- Sở Xây dựng vừa đề xuất UBND TP.HCM về cắt giảm thủ tục cấp phép xây dựng trước mắt với 112 dự án đủ điều kiện miễn giấy phép xây dựng trên địa bàn TP.HCM.
+- Nhiều bạn đọc có ý kiến liên quan việc nhiều tài xế xe container, xe tải... chạy chậm hơn tốc độ tối thiểu trên cao tốc.
+- Trước thềm sáp nhập Bình Dương và TP.HCM, Bà Rịa - Vũng Tàu, Chủ tịch UBND tỉnh Bình Dương Võ Văn Minh gửi thư động viên cán bộ, người lao động tiếp tục năng động, kỳ vọng sáp nhập sẽ mở ra “đại lộ” mới cho phát triển.
+- Các tỉnh thành ở Nam Trung Bộ - Tây Nguyên đã hoàn tất các khâu chuẩn bị, sẵn sàng cho lễ công bố sáp nhập tỉnh thành sáng 30-6.
+- Ngày 29-6, tỉnh Đồng Tháp tổ chức lễ công bố quyết định của Thủ tướng công nhận hoàn thành nhiệm vụ xây dựng nông thôn mới 2024.
+- Liên danh Vingroup - Techtra vừa ký kết hợp đồng BOT với UBND tỉnh Bình Phước liên quan dự án cao tốc Gia Nghĩa - Chơn Thành.
+- Nơi cao nhất tăng tới 170% so với bảng giá cũ, trong đó đường Bạch Đằng đắt nhất, gần 341 triệu đồng/m².
+- Sáng 30-6, Hà Nội sẽ công bố các quyết định về triển khai đơn vị hành chính cấp xã mới tại thủ đô.
+- Từ 1-7-2025, sáp nhập toàn bộ tỉnh Cà Mau và tỉnh Bạc Liêu, lấy tên là tỉnh Cà Mau. Trung tâm hành chính đặt tại tỉnh Cà Mau như trước.
+- Dịch vụ xe điện du lịch 4 bánh tại TP.HCM sẽ tạm ngừng hoạt động từ ngày 1-7 do vướng quy định.
+- Ngày 29-6, lực lượng chức năng đang làm rõ nguyên nhân vụ cháy xảy ra tại một công ty trên đường Tam Tân, gần Khu công nghiệp Tân Phú Trung.
+- Đoàn công tác Trung ương do Tổng Bí thư Tô Lâm dẫn đầu khảo sát thực tế mô hình chính quyền địa phương hai cấp tại phường Xuân Hòa, TP.HCM.
+- Đường phố ở Quảng Nam trang hoàng rực rỡ với nhiều khẩu hiệu về một thành phố Đà Nẵng mới "tự hào, tự tin vươn mình phát triển".
+- Các nguyên lãnh đạo tỉnh Bạc Liêu kỳ vọng tỉnh Cà Mau mới sẽ là "3 trung tâm" về du lịch, năng lượng và ngành tôm.
+- "Đoàn kết, đoàn kết, đại đoàn kết. Thành công, thành công, đại thành công", câu nói của Chủ tịch Hồ Chí Minh vẫn vẹn nguyên giá trị thời sự.
+- Tại lễ khởi công tuyến cao tốc Bảo Lộc - Liên Khương, lãnh đạo tỉnh Lâm Đồng hứa sẽ hoàn thành xong tuyến đường trong 30 tháng.
+- Thủ tướng Chính phủ vừa ký quyết định bổ nhiệm trung tướng Nguyễn Trường Thắng, tư lệnh Quân khu 7 giữ chức thứ trưởng Bộ Quốc phòng.
+- Long An hợp nhất với Tây Ninh thành tỉnh Tây Ninh mới với 96 xã, phường. Tên gọi Long An được sử dụng cho phường ở vị trí trung tâm tỉnh mới.
+- Bộ Nội vụ hướng dẫn cụ thể về sắp xếp, bố trí và giải quyết chế độ chính sách đối với người hoạt động không chuyên trách cấp xã.
+- Cá heo dài hơn 2m, nặng khoảng 130kg được phát hiện đã chết, nằm trên mé sông Ông Đốc, đoạn qua ấp 6, xã Khánh An, huyện U Minh, Cà Mau.
+- Thông tin được bạn đọc quan tâm là vụ bắt người kéo sập cửa nhà hàng xóm vì bị nhắc hát karaoke; Miễn học phí cho học sinh công lập...
+- Tuần này, từ ngày 29-6 đến 5-7, dự báo thời tiết cả nước có mưa, nhiều nơi mưa to đến rất to.
+- Bình Phước trao quết định nghỉ hưu theo chế độ cho 17 cán bộ là lãnh đạo các sở, ngành, địa phương thuộc diện Ban Thường vụ quản lý.
+- Sau vụ máy bay va nhau tại sân bay Nội Bài, Cục Hàng không yêu cầu phi công tuân thủ tuyệt đối các quy trình khai thác.
+- Nhiều năm qua, khu vực chợ Thủ Đức, đặc biệt trên các đường như Tô Ngọc Vân, Dương Văn Cam… cứ mưa lớn là ngập.
+- Nhiều xã, phường mới ở TP.HCM và Hà Nội sẽ thay đổi tiền lương tối thiểu vùng từ 1-7.
+- Tỉnh ủy Đồng Tháp tổ chức hội nghị công bố các quyết định cho 39 cán bộ thuộc Ban Thường vụ Tỉnh ủy, UBND tỉnh nghỉ hưu theo nguyện vọng.
+- Ngày 29-6, một lãnh đạo xã Đức Đồng (huyện Đức Thọ, Hà Tĩnh) cho biết ở xã vừa xảy ra vụ hai anh em ruột chết đuối thương tâm.
 - Dù là ngày cuối tuần, tại trụ sở làm việc mới thuộc tỉnh Đồng Tháp, các đơn vị thi công gấp rút lắp đặt bảng tên các phường, xã.
 - Tỉnh Đồng Nai đã công bố địa chỉ trụ sở trung tâm phục vụ hành chính công các cấp của tỉnh Đồng Nai mới.
-- Chánh án Toà án nhân dân tỉnh Bình Dương và viện trưởng Viện kiểm sát nhân dân tỉnh Trà Vinh sẽ nhận nhiệm vụ tại tỉnh Đồng Nai mới từ 1-7.
+- Chánh án Tòa án nhân dân tỉnh Bình Dương và viện trưởng Viện Kiểm sát nhân dân tỉnh Trà Vinh sẽ nhận nhiệm vụ tại tỉnh Đồng Nai mới từ 1-7.
 - Trụ sở UBND quận 1 đã được thay bảng tên thành trụ sở Đảng ủy - HĐND - UBND phường Sài Gòn, chuẩn bị cho lễ công bố thành lập phường, xã mới vào sáng 30-6 và chính thức vận hành mô hình chính quyền địa phương hai cấp từ 1-7.
 - Đêm thi cuối cùng của vòng loại lễ hội pháo hoa quốc tế Đà Nẵng (DIFF 2025) đã để lại cho khán giả nhiều cảm xúc với màn so tài bùng nổ giữa đội tân binh đến từ Hàn Quốc và "gã khổng lồ" đến từ Ý.
 - Tin tức đáng chú ý: Nhiều luật quan trọng có hiệu lực từ ngày 1-7, là những luật nào?; Bộ Nội vụ ban hành cẩm nang giúp vận hành cấp xã mới thông suốt; Hải Phòng: Ra mắt tour du lịch đêm có trình diễn 3D mapping...
@@ -1074,6 +1147,7 @@
 - Ủy ban Thường vụ Quốc hội đã có hướng dẫn chỉ định nhân sự với đơn vị hành chính cấp xã ở những nơi không thực hiện hợp nhất, sáp nhập.
 - Tuyến Ngô Quyền - Ngũ Hành Sơn (Đà Nẵng) là đường huyết mạch của Đà Nẵng, vậy nhưng nhiều đoạn đang bị hư hỏng nặng với nhiều vệt 'sống trâu'.
 - Từ ngày 1-7, tỉnh Phú Thọ mới (sáp nhập 3 tỉnh Vĩnh Phúc, Hòa Bình, Phú Thọ) có 148 đơn vị hành chính cấp xã, gồm 133 xã và 15 phường.
+- Sau khi sắp xếp lại đơn vị hành chính, Việt Nam sẽ có 34 tỉnh, thành phố. Các đơn vị hành chính mới này dự kiến sẽ bắt đầu hoạt động từ ngày 1 tháng 7 năm 2025
 - Bí thư Thành ủy TP.HCM Nguyễn Văn Nên khẳng định TP.HCM đang bước vào giai đoạn phát triển mới và sẽ trở thành một siêu đô thị của khu vực, tầm quốc tế.
 - Sáng 28-6, Hội đồng nhân dân TP.HCM khóa X tổ chức kỳ họp thứ 23 (kỳ họp chuyên đề) để xem xét, thông qua nhiều tờ trình UBND TP.HCM về sử dụng ngân sách và đầu tư công.
 - Tin tức sáng 28-6: Mức hỗ trợ cho người tham gia BHXH tự nguyện từ 1-7; Becamex IDC muốn huy động 2.500 tỉ đồng từ trái phiếu; Bộ Y tế khuyến cáo không dùng một thực phẩm chức năng...
@@ -1929,82 +2003,10 @@
 - Tin tức đáng chú ý: Quốc hội thảo luận lần 2 về sửa Hiến pháp 2013; VNG của ông Lê Hồng Minh muốn đổi tên; Ngân hàng giảm hàng ngàn nhân sự; Cổ phiếu đại gia xăng dầu miền Tây buộc phải rời sàn...
 - Hôm nay 13-6, bão số 1 đi lên phía bắc nhưng vẫn gây mưa to cho miền Trung, dù mưa có giảm nhưng nhiều nơi vẫn còn mưa to.
 - Đại tá Đỗ Thanh Bình - giám đốc Công an tỉnh Hòa Bình - được điều động giữ chức cục trưởng Cục Cảnh sát giao thông (Bộ Công an).
-- Dự báo rạng sáng 13-6, ở khu vực từ Hà Tĩnh trở vào Quảng Ngãi, bắc Tây Nguyên tiếp tục có mưa to đến mưa rất to do ảnh hưởng của bão số 1 (Wutip), nguy cơ ngập lụt ở các vùng trũng, thấp ven sông từ Quảng Bình đến Huế.
-- Dù trời mưa to, sóng lớn do ảnh hưởng bão số 1, nhiều người dân Đà Nẵng vẫn mang chài, lưới ra biển bắt cá nước ngọt. Nhiều người kéo được hàng chục ký cá chỉ trong vài giờ.
-- TP.HCM triển khai thủ tục hành chính phi địa giới khi thực hiện mô hình tổ chức chính quyền địa phương 2 cấp.
-- Trung tâm tài chính quốc tế tại TP.HCM sẽ phát triển thị trường vốn, phát triển hệ thống ngân hàng, sản phẩm thị trường tiền tệ, phát triển cơ chế thử nghiệm (sandbox), fintech, đổi mới sáng tạo trong lĩnh vực tài chính.
-- Hai ngày nay, mưa lớn cuốn bùn đất từ cao tốc Vạn Ninh - Cam Lộ vào đường làng và nhà dân ở tỉnh Quảng Trị. Người dân phải đội mưa, dùng cuốc xẻng khơi thông dòng chảy.
-- Bão số 1 gây mưa rất lớn khiến hơn 700 ngôi nhà ở tỉnh Quảng Nam bị ngập, hàng ngàn hecta hoa màu, lúa, dưa hấu bị ngập trong nước lũ.
-- UBND TP.HCM giao Công an TP.HCM xử lý hành vi chiếm dụng, sử dụng quỹ bảo trì trái quy định, hành vi cố ý gây thiệt hại quyền lợi cư dân chung cư.
-- Đại tá Lâm Phước Nguyên - giám đốc Công an tỉnh An Giang - được Bộ Công an điều động đến nhận công tác và giữ chức vụ giám đốc Công an tỉnh Tiền Giang kể từ ngày 15-6.
-- Thông điệp được Thủ tướng Phạm Minh Chính nêu khi cùng ăn sáng làm việc với các tập đoàn kinh tế hàng đầu Thụy Điển ngày 12-6.
-- Quân đội huy động 264.000 cán bộ, chiến sĩ cùng 7 máy bay, 428 xe đặc chủng, hơn 1.400 xuồng, ca nô… sẵn sàng ứng phó bão số 1.
-- Sở Xây dựng TP.HCM đề xuất giao UBND cấp xã cấp phép xây dựng nhà ở, nhằm đảm bảo thủ tục hành chính không bị gián đoạn khi chuyển đổi mô hình chính quyền 2 cấp.
-- Đại tá Vũ Văn Đấu, giám đốc Công an tỉnh Quảng Trị, làm giám đốc Công an tỉnh Điện Biên.
-- Bộ trưởng Bộ Công an quyết định điều động, bổ nhiệm đại tá Nguyễn Quốc Vương - phó giám đốc Công an tỉnh Phú Thọ - giữ chức vụ phó cục trưởng Cục Tổ chức cán bộ, Bộ Công an.
-- Ngày 12-6, Phó thủ tướng Trần Hồng Hà đã thị sát hoạt động của nhà ga T3 - Cảng hàng không quốc tế Tân Sơn Nhất (TP.HCM) trong giai đoạn vận hành khai thác có điều kiện.
-- Từ ngày 7-6, Sở Xây dựng TP.HCM bắt đầu điều chỉnh giao thông trên đường dẫn cao tốc TP.HCM - Long Thành - Dầu Giây, từ nút giao An Phú đến đường Võ Chí Công. Nhiều người dân bỡ ngỡ nên gây kẹt xe ở đường song hành.
-- Theo Ban Quản lý dự án đầu tư xây dựng các công trình giao thông TP.HCM (Ban Giao thông), gần một tháng qua tình trạng ngập nước tại hầm chui trước bến xe Miền Đông mới không còn xảy ra.
-- Chợ Kim Biên sẽ được giám sát, kiểm tra chặt chẽ thường xuyên để không trở thành 'điểm nóng' về buôn bán hóa chất độc hại.
-- Bộ Xây dựng cơ bản thống nhất nghiên cứu phương án thực hiện đầu tư kéo dài đường băng sân bay Vinh, UBND tỉnh Nghệ An bố trí kinh phí và hỗ trợ giải phóng mặt bằng.
-- Nhiều hồ sơ, giấy tờ phải đem đi tiêu hủy đúng quy trình nhưng nhân viên Bệnh viện Y học cổ truyền Nghệ An lại đem ra bờ kênh đốt.
-- Bước đầu cảnh sát xác định nguyên nhân vụ việc là lái xe đầu kéo biển số 29H-706.XX không chú ý quan sát dẫn đến vụ tai nạn.
-- Gỡ diều mắc trên đường dây điện cao thế, ba học sinh ở tỉnh Nghệ An bị điện giật bị thương.
-- Thời gian qua, nhiều tài xế chạy xe trên cao tốc Vĩnh Hảo - Phan Thiết phản ánh vạch sơn kẻ đường tại nút giao Ma Lâm như thách đố, dễ bị vi phạm.
-- Đại tá Lê Quang Nhân, giám đốc Công an tỉnh Bình Thuận, vừa được bộ trưởng Bộ Công an điều động giữ chức vụ giám đốc Công an tỉnh Bình Định.
-- Dù thiết kế những cống kiểm soát không để hệ thống nước chảy ra các bãi tắm nhưng trước áp lực mưa lớn, Đà Nẵng vẫn phải để chảy ra biển Mỹ Khê.
-- Mưa lớn khiến nhiều nơi ở thị xã Phong Điền, TP Huế ngập lụt do nước sông Ô Lâu dâng cao.
-- Phó chủ tịch UBND TP.HCM Võ Văn Hoan cho biết hình ảnh này đã khẳng định Việt Nam dù trải qua nhiều thăng trầm sau 50 năm nhưng vẫn kiên cường, bất khuất và từng bước đi lên.
-- Hiện bão số 1 (bão Wutip) đang có xu hướng đi chậm từ 5-10km và hoàn lưu bão lệch về phía đất liền nên sẽ có mưa rất lớn ở Hà Tĩnh đến Huế.
-- Đại diện Liên hợp quốc đánh giá cao nỗ lực của Việt Nam và đề xuất đưa nữ sĩ quan cảnh sát Việt Nam đảm nhận các vị trí lãnh đạo, vai trò chủ chốt tại các phái bộ gìn giữ hòa bình.
-- Chiều 12-6, Phó thủ tướng thường trực Nguyễn Hòa Bình chủ trì hội nghị công bố 28 nghị định về phân quyền, phân cấp, phân định thẩm quyền giữa Chính phủ và chính quyền địa phương hai cấp.
-- Đây là biện pháp mạnh mà UBND TP.HCM áp dụng để răn đe các hành vi gây ô nhiễm môi trường, ảnh hưởng đến môi trường sống thành phố.
-- Lực lượng cứu nạn, cứu hộ Công an tỉnh Thanh Hóa vừa giải cứu cháu bé 8 tuổi, trú tại phường Quảng Hưng, TP Thanh Hóa bị kẹt tay vào một đoạn ống nhựa thoát nước trong bể bơi.
-- Những tài xế, tiếp viên xe buýt phục vụ tốt, ân cần với hành khách... sẽ được tri ân nhằm động viên đội ngũ, nâng chất lượng ngành xe buýt hơn nữa.
-- Những trận mưa lớn kéo dài do ảnh hưởng bão số 1 khiến hàng chục héc ta rau màu tại làng rau La Hường - vùng chuyên canh rau sạch lớn nhất TP Đà Nẵng - chìm trong nước lũ.
-- Khu vực cạnh một số nhà chờ xe buýt tại TP.HCM đang trở thành nơi xả rác vô tội vạ, thậm chí thành nơi ngủ trưa.
-- Hồ sơ hành chính mà người dân thực hiện trực tuyến chưa được quận huyện, phường xã giải quyết sẽ được lưu chuyển trên hệ thống cho phường xã, đơn vị mới giải quyết.
-- Đó là chủ đề nhiều đại biểu là lãnh đạo các cơ quan báo chí quan tâm, thảo luận tại tọa đàm báo chí Việt Nam trên lộ trình tinh, gọn, mạnh, do Trung tâm truyền hình Việt Nam tổ chức ngày 12-6.
-- Thứ trưởng Bộ Văn hóa, Thể thao và Du lịch Lê Hải Bình nhắc cú bấm nút lịch sử tại Lễ phát động Giải thưởng toàn quốc về thông tin đối ngoại lần thứ XI diễn ra chiều 12-6 tại Hà Nội.
-- Sau vài lần điều chỉnh mốc tiến độ, hầm chui HC1 tại nút giao An Phú (TP Thủ Đức) đang bước vào nước rút với phần việc cuối cùng là hoàn thiện hệ thống trạm bơm thoát nước.
-- Việc này nhằm thực hiện chỉ đạo của trung ương về việc đưa Cổng dịch vụ công quốc gia trở thành điểm 'một cửa số' tập trung, duy nhất, đóng cổng dịch vụ công cấp tỉnh từ 1-7.
-- Từ chuyện 'Hủy cấm xuất cảnh với cô giáo ở TP.HCM bỗng dưng làm giám đốc ở Đà Nẵng', có ý kiến thắc mắc người bị chặn xuất cảnh sai có được quyền yêu cầu bồi thường thiệt hại?
-- Tiếp Tổng thống Lithuania Gitanas Nauseda, Tổng Bí thư Tô Lâm đề nghị nước này tăng cường đào tạo sinh viên Việt Nam, nhất là trong những lĩnh vực Lithuania có thế mạnh, để bổ sung nguồn nhân lực phục vụ sự nghiệp phát triển cho cả hai nước.
-- Ngày 12-6, Sở Khoa học và Công nghệ TP Đà Nẵng đã tổ chức diễn tập ứng phó sự cố bức xạ, hạt nhân cấp thành phố năm 2025 tại công viên Trung tâm hành chính quận Liên Chiểu (TP Đà Nẵng).
-- Những chiếc máy bay L-39NG bay lượn với những bài tập từ đơn giản đến biên đội phức tạp trên bầu trời Tuy Hòa từ sáng sớm tinh mơ đến quá trưa, khiến bao người tự hào về Không quân Việt Nam.
-- Hai tàu cá Quảng Bình bị chìm trên vùng biển Quảng Ngãi khi đang đi tránh bão số 1. Rất may tất cả thuyền viên trên 2 tàu cá đã được cứu.
-- Sáng 12-6, Quốc hội bấm nút thông qua nghị quyết sắp xếp đơn vị hành chính cấp tỉnh, cả nước còn 34 tỉnh thành, được nhiều người dân, bạn đọc kỳ vọng sẽ đưa đất nước sang trang mới.
-- Vành đai 4 TP.HCM có chiều dài 207,26km, với sơ bộ tổng mức đầu tư giai đoạn 1 (giai đoạn phân kỳ) của dự án khoảng 120.412,55 tỉ đồng.
-- Thượng tá Hoàng Văn Hiều cho hay hiện nay ma túy tổng hợp ẩn nấp dưới nhiều dạng khác nhau, ngay cả trong bánh kẹo, nước uống tại những cuộc giao lưu, sinh nhật.
-- Công an Đà Nẵng vừa triệt phá một nhóm sử dụng nhiều thủ đoạn công nghệ cao, lợi dụng các lỗ hổng bảo mật để tạo ra các công cụ phần mềm tự động thu thập thẻ thanh toán ngân hàng quốc tế của người nước ngoài nhằm chiếm đoạt tài sản.
-- Trong khuôn khổ chuyến công tác Pháp cùng Thủ tướng Phạm Minh Chính, Phu nhân Lê Thị Bích Trân đã cùng phu nhân, phu quân các nước tham dự UNOC 3 tham quan làng cổ Saint Paul de Vence và Bảo tàng nghệ thuật Maeght.
-- Trước sự chứng kiến của Chủ tịch nước Lương Cường và Tổng thống Lithuania Gitanas Nauseda, đại diện bộ ngành hai bên đã ký văn kiện hợp tác trong các lĩnh vực năng lượng, khoa học công nghệ, nông nghiệp và tài chính.
-- Bến Lộc An tại Bà Rịa - Vũng Tàu là một trong những điểm của Đường Hồ Chí Minh trên biển trong những năm kháng chiến, là nơi tiếp nhận vũ khí chi viện cho chiến trường miền Nam. Bến này được xếp hạng là di tích quốc gia đặc biệt.
-- Nửa thế kỷ trôi qua, nhà máy A41, Quân chủng Phòng không - Không quân đã thầm lặng đóng góp vào nhiệm vụ bảo vệ Tổ quốc và cũng là nơi ươm mầm giấc mơ chế tạo máy bay Việt.
-- TP Huế là địa phương ghi nhận có lượng mưa lớn nhất nước do hoàn lưu bão số 1 trong sáng 12-6 khi có nơi vượt mức 721mm. Nhiều thủy điện được lệnh xả nước đón lũ.
-- Do ảnh hưởng của bão số 1, biển động mạnh, tuyến vận tải hành khách Lý Sơn - Sa Kỳ tạm dừng hoạt động, hơn 100 du khách bị mắc kẹt tại đảo Lý Sơn chưa thể vào đất liền.
-- TP.HCM sẽ điều chỉnh tổ chức giao thông qua đường hầm sông Sài Gòn (nối quận 1 và TP Thủ Đức) vào cuối tháng 6-2025.
-- UBND tỉnh Quảng Ngãi yêu cầu bàn giao, chuyển tiếp xử lý hồ sơ thủ tục hành chính đất đai của hộ gia đình, cá nhân. Những thủ tục cấp huyện chưa làm xong thì chuyển tiếp cho cấp xã tiếp tục thực hiện.
-- Sau những đợt mưa lớn do ảnh hưởng của bão số 1 (bão Wutip), đất đá tại nhiều điểm trên bán đảo Sơn Trà (TP Đà Nẵng) bị sạt lở, tràn xuống mặt đường gây cản trở giao thông.
-- Cú tông liên hoàn trên cao tốc Hà Nội - Hải Phòng khiến xe đầu kéo biến dạng, lật ngang còn ô tô của lực lượng tuần đường vỡ nát, trưa 12-6.
-- Sáng 12-6 tại Phủ Chủ tịch, Chủ tịch nước Lương Cường đã điện đàm với tân Tổng thống Hàn Quốc Lee Jae Myung. Đây là cuộc điện đàm đầu tiên giữa hai nhà lãnh đạo sau khi ông Lee nhậm chức hôm 4-6 vừa qua.
-- Gió lớn khiến 1 cây xanh ở trung tâm TP Quy Nhơn, Bình Định bật gốc, ngã đè lên xe hơi, khiến 1 phụ nữ đi đường bị thương.
-- Khi chạy đến vòng xoay cầu Hùng Vương Phan Thiết, chiếc xe hơi bất ngờ tông xe máy rồi lao thẳng vào quán bánh xèo.
-- Thông tin trên được ông Trần Đình Cảnh - giám đốc Sở Nội vụ Hà Nội - đưa ra tại cuộc họp với tổ công tác chỉ đạo, hướng dẫn công tác sắp xếp đơn vị hành chính tại Hà Nội diễn ra sáng 12-6.
-- Công an tỉnh Kiên Giang vừa bắt nhóm 5 người chuyên trộm tài sản của du khách lưu trú tại các khu nghỉ dưỡng cao cấp ở TP Phú Quốc.
-- Cơ quan chức năng đã xác định nguyên nhân ban đầu gây ra vụ tai nạn giao thông đường sắt giữa hai vợ chồng đi xe máy và tàu hỏa sáng 12-6, tại xã An Phú, TP Tuy Hòa (Phú Yên).
-- Mưa lớn tiếp tục ở miền Trung và các khu vực miền núi khiến nước sông dâng lên, nhiều tuyến đường thôn xóm ven sông ở Đà Nẵng ngập.
-- Những cánh đồng lúa mới gieo sạ ở Quảng Nam ngập chìm trong biển nước lênh láng, nước lũ từ thượng nguồn đổ về khiến người dân trở tay không kịp, trâu bị ngạt nước chết.
-- Tỉnh Quảng Trị đang phải đối mặt với tình hình ngập lụt nghiêm trọng do mưa lớn kéo dài trong 24 giờ qua, với gần 8.000ha lúa bị ngập, nhiều đường giao thông ở nhiều xã miền núi chia cắt.
-- Ông Nguyễn Phước Lộc - phó bí thư Thành ủy, chủ tịch Ủy ban MTTQ Việt Nam TP.HCM (tổ trưởng tổ công tác số 4) - đã trực tiếp đến 3 phường Hòa Hưng, Vườn Lài và Diên Hồng, quận 10 để thị sát việc vận hành chính quyền địa phương mới ngày đầu.
-- Trước khoảnh khắc lịch sử Quốc hội thông qua việc sắp xếp đơn vị hành chính cấp tỉnh, Bộ trưởng Bộ Nội vụ Phạm Thị Thanh Trà đã bày tỏ cảm xúc và lời cảm ơn trước sự ủng hộ của nhân dân.
-- Cục Đăng kiểm đã đưa ra những góp ý dự thảo quyết định của Thủ tướng quy định lộ trình áp dụng kiểm định khí thải xe máy, mô tô đang lưu hành.
-- Tỉnh Cà Mau đã hoàn thành toàn bộ 4.400 căn nhà trong đề án xóa nhà tạm, nhà dột nát sau gần 9 tháng triển khai, vượt tiến độ gần 3 tháng so với kế hoạch.
-- Thường trực HĐND cấp tỉnh sẽ chỉ định nhân sự giữ các chức danh chủ tịch, phó chủ tịch, trưởng ban của HĐND và chủ tịch, phó chủ tịch UBND các đơn vị hành chính cấp xã.
-- Người dân và doanh nghiệp yên tâm sử dụng các giấy tờ đã cấp cho đến khi hết thời hạn. Nếu có nguyện vọng cấp lại giấy tờ theo địa chỉ mới, các cơ quan quản lý nhà nước sẽ hỗ trợ với thủ tục hành chính đơn giản và không thu phí.
-- Sáng 12-6, sau lễ đón chính thức tại Phủ Chủ tịch, Chủ tịch nước Lương Cường đã dẫn đầu đoàn đại biểu cấp cao Việt Nam bước vào hội đàm với Tổng thống Lithuania Gitanas Nauseda.
 ![New](News.png)
 ## Nhịp sống số 
+- Chỉ cần truy cập, web đã biết bạn đang dùng thiết bị gì: máy tính hay điện thoại. Bằng cách nào mà nó biết điều đó?
+- Thời gian qua rộ tin CapCut ‘âm thầm’ cập nhật điều khoản sử dụng để giữ lại video, âm thanh và hiệu ứng do người dùng tạo ra, ngay cả khi họ chưa từng chia sẻ.
 - Chỉ cần bạn vừa gõ vài chữ cái đầu, Google đã hiện ra đúng điều bạn đang định tìm. Làm thế nào mà công cụ tìm kiếm này có thể ‘đọc' được suy nghĩ của bạn?
 - Cảnh báo chướng ngại vật, giúp định vị và tìm đường... công nghệ nhận diện vật thể và cảnh vật được ví như 'đôi mắt' cho người khiếm thị.
 - AI đang góp mặt vào lĩnh vực sinh học bằng cách thiết kế các chuỗi ADN mới. Công nghệ này giúp tăng tốc nghiên cứu protein, vắc xin, vi sinh vật và nhiều ứng dụng y sinh tiềm năng khác.
@@ -3003,6 +3005,4 @@
 - TTO - Không chỉ nhằm vào một số cá nhân, không ít gian hàng cũng bị chiếm quyền, gây thiệt hại lớn. Cách nào để phòng tránh và ngăn ngừa thiệt hại?
 - TTO - Có những thay đổi tưởng như rất đơn giản nhưng sẽ giúp cho cuộc sống của chúng ta trở nên thú vị hơn rất nhiều. Điều bạn cần phải làm là mạnh dạn thay đổi những thói quen đang ngăn cản bạn cảm nhận được những điều thú vị đó…
 - TTO - Nhà nghiên cứu robot Sun Tianqi (Trung Quốc) đã chế tạo ra một loại robot 6 chân tích hợp trồng cây trên đỉnh có thể tự di chuyển về phía ánh sáng.
-- TTO - Đức là một trong số ít những quốc gia đầu tiên quan tâm về vấn đề pháp lý đối với dữ liệu số của các chủ sở hữu đã qua đời.
-- TTO - Một nhóm nghiên cứu ở Pháp đã ứng dụng các phương pháp điều trị dựa trên VR và kết luận sử dụng VR có khả năng làm giảm chứng sợ độ cao và các rối loạn sức khỏe tâm thần.
 ![life](Life.png)
