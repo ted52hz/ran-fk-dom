@@ -1,6 +1,16 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Năm 2025, Học viện Chính trị Công an nhân dân xét tuyển 100 học viên nhưng có tới gần 8.000 thí sinh đăng ký thi đánh giá của Bộ Công an xét tuyển vào học viện.
+- Được ghi nhận là khối ngành đón rất nhiều Thủ khoa DTU qua các năm với điểm số trung bình luôn trên 9 điểm/môn, khối ngành Ngôn ngữ & Xã hội nhân văn của Đại học (ĐH) Duy Tân đã có rất nhiều bứt phá trong hơn 5 năm trở lại đây.
+- Năm nay, có gần 23.000 thí sinh đăng ký dự thi đánh giá của Bộ Công an, tăng gần 5.000 thí sinh so với năm ngoái.
+- Doanh nghiệp nước ngoài kỳ vọng vào một thế hệ lao động Việt Nam vừa thạo công nghệ như AI, vừa có tư duy phản biện mạnh mẽ, để làm chủ chuỗi giá trị mới đang hình thành.
+- Người theo học các ngành chuyên môn đặc thù đáp ứng yêu cầu phát triển kinh tế - xã hội, quốc phòng, an ninh theo quy định của Luật Giáo dục đại học sẽ không phải đóng học phí.
+- MC Minh Trang - người sáng lập Làng Háo Hức - cho biết đã xin lỗi người mẹ cũng như nhờ chuyển lời xin lỗi đến bạn học sinh bị bắt nạt tại đây.
+- Việc xem xét lại mô hình tổ chức dạy học môn khoa học tự nhiên ở cấp THCS là hết sức cần thiết trong bối cảnh hiện nay.
+- Trường THPT Lý Tự Trọng ở phường Nha Trang là một trong những trường top đầu tỉnh Khánh Hòa (cũ), nhưng năm nay điểm chuẩn vào lớp 10 trường này chỉ 9 điểm.
+- Các hội đồng chấm thi tốt nghiệp THPT năm 2025 trên cả nước đều khởi động từ đầu tháng 7.
+- Sáng 5-7, thí sinh từ nhiều tỉnh, thành phố đã mặc áo dài, trang phục dân tộc, 'quần đùi áo số'... hội tụ về Trường đại học Sư phạm Hà Nội để thi năng khiếu xét tuyển vào ngành sư phạm.
 - Theo quy định của Hà Nội, mỗi thí sinh dự tuyển vào lớp 10 THPT công lập năm nay có 3 nguyện vọng vào lớp 10 không chuyên.
 - Trường đại học Kiểm sát Hà Nội được đổi tên thành Trường đại học Kiểm sát. Trường đại học Công nghiệp dệt may Hà Nội được đổi tên thành Trường đại học Công nghiệp và Thương mại Hà Nội.
 - Từ ngày 10-7 đến 12-7, thí sinh trúng tuyển vào lớp 10 Hà Nội phải xác nhận nhập học trực tiếp hoặc trực tuyến, nếu không sẽ được coi là từ chối quyền nhập học.
@@ -991,18 +1001,46 @@
 - "Mỗi lần muốn tổ chức một hội thảo quốc tế, việc xin phép rất phức tạp, mất 5 - 6 tháng", GS.TS Trần Xuân Tú cho rằng đây là điều cần thay đổi ngay.
 - Sở Giáo dục và Đào tạo TP.HCM vừa công bố kế hoạch chi tiết tuyển sinh lớp 1, lớp 6 năm học 2025-2026.
 - Tỉnh Khánh Hòa yêu cầu các cơ sở giáo dục tăng cường giáo dục đạo đức, văn hóa và cách sử dụng mạng xã hội cho học sinh, sau khi xảy ra vụ nhiều nữ sinh bị ghép hình ảnh nhạy cảm.
-- Chính sự cần cù, kiên trì cùng tinh thần cầu tiến và luôn sẵn sàng học hỏi đã giúp Ái Thi vững bước trong hành trình học tập, đạt được thành tích xuất sắc.
-- Đại học Quốc gia TP.HCM vừa chính thức mở cổng đăng ký dự thi đánh giá năng lực đợt 2 năm 2025.
-- Sở Giáo dục và Đào tạo TP.HCM vừa công bố các mốc thời gian tuyển sinh lớp 10 năm học 2025-2026.
-- Phu nhân Lê Thị Bích Trân và Phu nhân Zinash Tayachew đã tham quan cơ sở vật chất Trường phổ thông cơ sở Nguyễn Đình Chiểu, xem các em học sinh khiếm thị vẽ tranh và trò chuyện với các em.
-- Sáng 17-4, hơn 200 học sinh THCS ở TP.HCM tham gia vòng chung kết cấp thành phố hội thi 'Lớn lên cùng sách' lần thứ 10 năm học 2024-2025.
-- Thi thể của học sinh lớp 7 bị đuối nước khi đang tắm biển ở Huế đã được lực lượng cứu hộ tìm thấy.
-- Những ngày qua, TikTok bỗng rộ lên loạt clip sinh viên hướng dẫn lắp mạch IC 555 - một loại vi mạch tích hợp nổi tiếng trong ngành điện - điện tử.
-- Thủ khoa kỳ thi đánh giá năng lực Đại học Quốc gia TP.HCM đợt 1 năm 2025 là Phan Lê Thúc Bảo với 1.060 điểm.
-- Sáng 17-4, Bộ Giáo dục và Đào tạo tổ chức công bố quyết định tiếp nhận, bổ nhiệm vụ trưởng Vụ Giáo dục đại học với ông Nguyễn Tiến Thảo.
-- Đội Dongry Corporation của Đại học (ĐH) Duy Tân đã giành ngôi vô địch tại cuộc thi SAP ERPsim Student Competition 2025 - APJ Cup khu vực châu Á - Thái Bình Dương diễn ra vào ngày 11-4.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Công an TP.HCM vừa kiểm tra, phát hiện 3 cơ sở sơ chế hoa chuối tại khu dân cư Bến Lức (phường Bình Đông) ngâm hàng trăm kg hoa chuối với hàn the, chất tẩy trắng không rõ nguồn gốc trước khi bán ra thị trường.
+- Trong vụ án đường dây đánh bạc 107 triệu USD, 136 bị can tham gia sát phạt tại "sòng bạc" King Club có đủ nghề nghiệp, địa vị khác nhau.
+- Xe container và xe tải tông trực diện nhau và bốc cháy dữ dội. Dù lực lượng chữa cháy được huy động nhưng vụ tai nạn vẫn khiến một người không qua khỏi, một người bị thương rất nặng.
+- Sáng 6-7, cường độ bão số 2 (bão Danas) tiếp tục mạnh thêm một cấp lên cấp 11 (103-117km/h), giật cấp 13. Dự báo trong 24 giờ tới, bão hướng về vùng biển tỉnh Phúc Kiến (Trung Quốc).
+- Theo chỉ thị của Ban Bí thư, số lượng ủy viên Ủy ban Mặt trận Tổ quốc Việt Nam các cấp gồm cấp trung ương 400 - 500 người, cấp tỉnh 90 - 120 người, cấp xã 50 - 70 người.
+- Tin tức đáng chú ý: Ngành bảo hiểm thu phí gần 115.000 tỉ đồng trong 6 tháng đầu năm; Mở rộng điều kiện nhập quốc tịch Việt Nam; Sở Giao dịch chứng khoán Việt Nam có tổng giám đốc mới...
+- Cảnh sát phòng cháy, chữa cháy và cứu nạn, cứu hộ Công an Đà Nẵng lần đầu dùng robot chữa cháy nhà xưởng trong cụm công nghiệp.
+- Cơn mưa lớn vào chiều tối 5-7 đã khiến nhiều tuyến đường trung tâm thành phố Đà Nẵng bị ngập. Nhiều nơi nước tràn vào nhà kéo theo bùn đất, người dân phải trắng đêm dọn bùn.
+- Hôm nay 6-7, nhiều nơi trên cả nước có nắng trở lại, có nơi nắng nóng, về chiều tối trời lại chuyển mưa dông, có nơi mưa to.
+- Người đàn ông có biểu hiện bất thường leo lên biển quảng cáo cao khoảng 15m và mắc kẹt trên đó. May mắn lực lượng chức năng giải cứu kịp thời.
+- Đà Nẵng, Nghệ An và Lâm Đồng có mưa vừa, mưa to, có nơi mưa rất to; cảnh báo lũ quét, sạt lở đất ở 42 xã, phường thuộc ba tỉnh này.
+- Chiều tối nay, cường độ bão số 2 (bão Danas) mạnh lên cấp 10 (89-102km/h), giật cấp 12. Dự báo bão có khả năng mạnh thêm trong 24 giờ tới.
+- Tình trạng ô nhiễm môi trường nói chung và ô nhiễm không khí nói riêng tại các TP lớn đang vấn đề là thách thức.
+- Trời mưa, đường trơn khiến hai xe tải đối đầu trên đường Hồ Chí Minh nhánh Đông qua Quảng Trị, rồi lao vào mái sân nhà dân ven đường.
+- Sở Nông nghiệp và Môi trường tỉnh An Giang đã kiến nghị UBND tỉnh này ưu tiên bố trí 1 triệu m3 đá để làm dự án, công trình phục vụ APEC 2027.
+- UBND phường Bãi Cháy, Quảng Ninh đã xử phạt nhà hàng Thu Hương bán 3 bát bún, 1 bánh cuốn, 1 bát cháo và 1 cốc nước ép giá 810.000 đồng.
+- Ông Hồ Đại Dũng khi đương chức phó chủ tịch UBND tỉnh Phú Thọ đã mở tài khoản dưới cái tên nước ngoài 'Mr. Michael' chi 7 triệu USD đánh bạc.
+- Nhiều phường mới thành lập ở trung tâm tỉnh Đồng Nai không xác nhận khối lượng rác sinh hoạt phải vận chuyển nên các điểm thu gom rác tạm dừng lấy rác.
+- Cục Đường bộ Việt Nam vừa có báo cáo gửi Bộ Xây dựng về tình hình triển thực hiện dự án đầu tư xây dựng đường cao tốc Dầu Giây - Tân Phú (giai đoạn 1).
+- Trong nhóm 3 đứa trẻ chăn bò bị kẹt lũ giữa sông Ba, có 2 em được cứu bằng drone, còn em thứ 3 vì sao phải chờ xuồng ứng cứu?
+- Bài ca 'Nguyễn Văn Trỗi - lời anh vọng mãi ngàn năm' vang lên mở đầu lễ kỷ niệm 214 năm Quốc khánh nước Cộng hòa Bolivar Venezuela (5-7-1811 - 5-7-2025).
+- Sau khi kiện toàn nhân sự các chánh án ở Tòa án nhân dân tỉnh Đồng Nai, Tòa án nhân dân tối cao đã công bố danh sách địa chỉ đặt trụ sở chính của 14 tòa án khu vực tại tỉnh Đồng Nai sau sáp nhập.
+- Thường trực Ban Bí thư Trần Cẩm Tú mới đây ký ban hành quy định 332 của Bộ Chính trị về tổ chức Đảng trong Quân đội nhân dân Việt Nam.
+- Sáng 5-7, Đại tướng Phan Văn Giang, bộ trưởng Bộ Quốc phòng, đã có buổi tiếp Đại tướng Songwit Noonpackdee, tư lệnh Lực lượng Quốc phòng Thái Lan.
+- TP.HCM đang đẩy nhanh tiến độ giải quyết các thủ tục, để sớm khởi công metro số 2 (Bến Thành - Tham Lương).
+- Phó chủ tịch UBND TP Đà Nẵng Phan Thái Bình vừa ký phê duyệt phương án đấu giá quyền sử dụng đất tại dự án tổ hợp công trình Lễ hội pháo hoa quốc tế Đà Nẵng.
+- Gần 1.000 cán bộ ở tỉnh Hậu Giang, Sóc Trăng (cũ) có nhu cầu nhà ở công vụ khi đến TP Cần Thơ làm việc trong giai đoạn 2025-2030.
+- UBND phường Sài Gòn vừa tổ chức hội thi thiết kế biểu trưng (logo) phường với chủ đề: 'Phường Sài Gòn - Hội tụ và Tỏa sáng'. Giải A 30 triệu đồng và 2 giải khuyến khích với 10 triệu đồng/giải.
+- Ngoài yêu cầu sớm kiện toàn tổ chức, sắp xếp cán bộ phù hợp với công việc, năng lực…, chủ tịch TP Cần Thơ còn mong cán bộ trên dưới một lòng, nơi nào để xảy ra mất đoàn kết nội bộ, người đứng đầu chịu trách nhiệm.
+- Sẽ có các nhóm tiêu chí gắn với số điểm KPI để xác định hiệu quả công việc của cán bộ, công chức.
+- Dự báo trong 24 giờ tới, bão số 2 có khả năng mạnh thêm hai cấp, lên cấp 10-11 (89-117km/h), giật cấp 13.
+- Công ty TNHH chế xuất Billion Max Việt Nam, TP Huế đã nhận trách nhiệm, sau khi một nhóm lãnh đạo dây chuyền buộc hơn 10 công nhân đứng giữa nắng nóng để 'phổ biến công việc'.
+- Mẫu logo được thiết kế sử dụng hình tượng chính là hình ảnh Chủ tịch Hồ Chí Minh đọc bản Tuyên ngôn độc lập khai sinh ra nước Việt Nam Dân chủ cộng hòa vào ngày 2-9-1945 tại quảng trường Ba Đình lịch sử.
+- Tốc độ tăng trưởng GDP 6 tháng đầu năm nay đạt 7,52%, cao nhất trong giai đoạn 2011-2025.
+- Bộ Quốc phòng sẽ chỉ đạo các cơ quan, đơn vị nghiên cứu, đề xuất sửa đổi, bổ sung vào Bộ luật Hình sự quy định truy cứu trách nhiệm hình sự với hành vi không chấp hành lệnh gọi khám sức khỏe nghĩa vụ quân sự.
+- Nhiều chuyên gia kinh tế cho rằng con số doanh nghiệp thành lập mới cho thấy niềm tin kinh doanh tăng lên khi hàng loạt chính sách, thể chế khuyến khích khu vực tư nhân phát triển.
+- Ngày 5-7, liên quan vụ chủ tiệm Internet đánh dã man hai cháu nhỏ ở phường Tân Thới Hiệp (TP.HCM), UBND phường đã có báo cáo ban đầu về vụ việc gây bức xúc dư luận này.
+- Phó thủ tướng yêu cầu Đà Nẵng chủ động phối hợp với các bộ tập trung đẩy nhanh tiến độ thực hiện, tháo gỡ khó khăn cho 13 dự án bán đảo Sơn Trà.
 - Dù được đưa đi cấp cứu kịp thời, người phụ nữ 'diễn xiếc' trên đường dây điện ở phường Tây Nam, TP.HCM đã tử vong tại bệnh viện.
 - Trên khu đất từng là nghĩa trang Bình Hưng Hòa, ngôi trường tiểu học đầu tiên đang được xây dựng với không khí thi công nhộn nhịp. Nơi từng là mồ mả và cỏ xanh nay đã thành nền trường học.
 - Theo quy định mới từ ngày 1-7, cán bộ không chuyên trách ở thôn, xã có phải đóng bảo hiểm xã hội không, mức đóng như thế nào?
@@ -1965,46 +2003,11 @@
 - Sáng 20-6, 58 xã phường mới của tỉnh Bình Định đã tổ chức vận hành thử nghiệm hệ thống tiếp nhận, xử lý hồ sơ thủ tục hành chính đối với một số thủ tục và đạt kết quả tốt.
 - Năm 2024, Bộ Y tế kiểm tra 354.000 cơ sở, phát hiện 22.073 cơ sở vi phạm về an toàn thực phẩm; trong đó đã xử lý 9.043 cơ sở (43,9%), xử phạt trên 33 tỉ đồng.
 - Ông Võ Văn Quý - phó giám đốc Đài phát thanh và truyền hình tỉnh Tây Ninh - được bổ nhiệm làm phó tổng biên tập và giao phụ trách Báo và Đài phát thanh - truyền hình tỉnh Tây Ninh.
-- Ban Thường trực Ủy ban Trung ương Mặt trận Tổ quốc Việt Nam đã có quyết định kết thúc hoạt động của Ủy ban Mặt trận Tổ quốc Việt Nam TP.HCM từ ngày 30-6 và thành lập Ủy ban Mặt trận Tổ quốc Việt Nam TP.HCM mới từ 1-7.
-- Liên quan đến vụ việc khoảng ngàn chai nước mắm, nước chấm bị vứt ven đường ở xã Tam Thái, huyện Phú Ninh, Quảng Nam, cơ quan chức năng đã triệu tập 2 người lên làm việc.
-- Phó thủ tướng thường trực Nguyễn Hòa Bình báo cáo làm rõ các vấn đề liên quan và trực tiếp trả lời chất vấn của đại biểu Quốc hội.
-- Mạng lưới đường sắt đô thị sẽ được rà soát tổng thể theo mô hình, tầm nhìn mới, phù hợp với bối cảnh mở rộng địa giới hành chính khi hợp nhất Bình Dương, Bà Rịa - Vũng Tàu vào TP.HCM.
-- Hơn 1,23 triệu biển số xe vừa được niêm yết trên cổng thông tin điện tử Bộ Công an, trang thông tin điện tử Cục Cảnh sát giao thông để người dân lựa chọn đấu giá.
-- UBND tỉnh Bà Rịa - Vũng Tàu vừa có quyết định điều chỉnh quy hoạch thời kỳ 2021-2030, tầm nhìn đến năm 2050. Theo đó bổ sung cao tốc Hồ Tràm - Long Thành, bỏ sân bay Gò Găng và duy trì sân bay Vũng Tàu.
-- Sau thời gian tạm tuyển, thực hiện chủ trương của Bộ Công an, Công an tỉnh Long An đã tuyển dụng chính thức đối với chị Nguyễn Thị Thúy Diễn, em ruột liệt sĩ Nguyễn Xuân Hào.
-- Nhiều đại biểu quan tâm đến vấn đề dạy thêm, học thêm khi chất vấn Bộ trưởng Bộ Giáo dục và đào tạo Nguyễn Kim Sơn ngày 19-6.
-- Ngày 19-6, Quốc hội chất vấn Bộ trưởng Bộ Tài chính Nguyễn Văn Thắng giữa nhiều vấn đề thời sự nổi lên của ngành, liên hệ trực tiếp đến đời sống người dân.
-- Kể từ ngày 1-7-2025, cùng với cả nước, TP.HCM cùng các địa phương trên cả nước sẽ chính thức bước vào giai đoạn mới trong vận hành bộ máy nhà nước.
-- Công chức, viên chức từ Đông Hà di chuyển ra trung tâm hành chính mới của tỉnh Quảng Trị làm việc có thể được nhận 21,6 triệu đồng hỗ trợ, giải ngân trước khi tỉnh mới hoạt động.
-- Đánh nhau vì những mâu thuẫn nhỏ trên đường đặt ra câu hỏi: sao lại hành động như vậy khi xã hội đang hướng tới những điều tốt đẹp?
-- Theo chương trình, sáng nay (20-6), Quốc hội tiếp tục tiến hành chất vấn về nhóm vấn đề thứ hai thuộc lĩnh vực giáo dục và đào tạo.
-- Trong vụ án làm giả sữa bột mang nhãn hiệu HIUP vừa bị khởi tố, cơ quan chức năng xác định ban đầu ít nhất ba doanh nghiệp có liên quan, đóng vai trò khác nhau trong chuỗi sản xuất phân phối sản phẩm ra thị trường.
-- Sau khi biên tập viên Quang Minh lên tiếng cho rằng mình bị lừa vụ quảng bá cho sữa Hiup, đến lượt Nguyễn Thanh Vân - MC Vân Hugo, cũng lên tiếng rằng 'tôi đã bị lừa'.
-- Tin tức đáng chú ý: Toàn bộ 168 phường, xã, đặc khu của TP.HCM mới sẵn sàng hoạt động từ 1-7; Sáng nay, Phó thủ tướng thường trực Nguyễn Hòa Bình trả lời chất vấn tại Quốc hội; Bầu Đức chi hàng trăm tỉ đồng gom thêm cổ phiếu Hoàng Anh Gia Lai...
-- Hôm nay 20-6, thời tiết Bắc Bộ và Nam Bộ mưa to, Trung Bộ nắng nóng đến nắng nóng gay gắt.
-- Tối 19-6, máy móc cùng công nhân đã được huy động để bắt đầu tiến hành phá dỡ, hạ giải tòa nhà Hàm cá mập.
-- Nhân kỷ niệm 100 năm Ngày Báo chí cách mạng Việt Nam, chiều 19-6, Thủ tướng Phạm Minh Chính chủ trì cuộc gặp mặt của Thường trực Chính phủ với lãnh đạo, nguyên lãnh đạo các cơ quan báo chí.
-- Sau khi nhận được clip phản ánh về ô tô tải chở hàng xiêu vẹo trên tuyến cao tốc Nội Bài - Lào Cai, Đội cảnh sát giao thông đường bộ cao tốc số 1 đã xác minh, xử lý.
-- Chi phí cho phần mềm hóa đơn điện tử khởi tạo từ máy tính tiền đối với hộ kinh doanh làm nóng hội nghị về các giải pháp phát triển kinh tế tư nhân.
-- Tin vui cho cán bộ, công chức, và người dân tỉnh Quảng Trị mới, đoàn tàu Đông Hà - Đồng Hới sẽ khai thác khi tỉnh mới đi vào hoạt động, đáp ứng nhu cầu đi lại giữa 2 đô thị.
-- Nhiều doanh nghiệp bày tỏ việc thực thi trách nhiệm tái chế (EPR) còn nhiều vướng mắc do thiếu cơ sở hạ tầng, chi phí cao và chưa có cơ chế hỗ trợ tương xứng.
-- Sau hơn 1 tháng tập luyện liên tục, 19 cán bộ, chiến sĩ cảnh sát phòng cháy chữa cháy và cứu nạn cứu hộ đã sẵn sàng lên đường tham dự Đại hội thể thao cảnh sát và cứu hỏa thế giới 2025.
-- Chiếc xe khách 16 chỗ sau khi va chạm với xe máy tại quốc lộ 25 (xã Hòa Định Tây, huyện Phú Hòa, Phú Yên) thì lao xuống mương nước, người dân sống hai bên bờ mương đã kịp thời lao xuống mương giải cứu hành khách.
-- Tổng số tiền Công ty cổ phần Tasco (HNX: HUT) huy động trong đợt chào bán lần này lên đến 1.785 tỉ đồng, trong đó hơn 385 tỉ đồng sẽ dùng để đầu tư hệ thống showroom phân phối xe Geely.
-- Báo Sài Gòn Giải Phóng đã trao 1 giải nhất, 2 giải nhì, 3 giải ba, 26 giải khuyến khích và giải đơn vị có nhiều tác phẩm dự thi nhất tại cuộc thi Tỏa sáng giá trị Việt năm 2023-2025, với tổng giải thưởng hơn 1 tỉ đồng.
-- TP.HCM đóng Cổng dịch vụ công TP.HCM từ 19-6. 168 phường, xã của TP.HCM mới sẽ vận hành thử nghiệm trên một nền tảng giải quyết thủ tục hành chính vào ngày 21, 22-6.
-- UBND TP.HCM đã ban hành danh mục 298 thủ tục hành chính cắt giảm, đơn giản hóa đợt 1 và yêu cầu các đơn vị nhanh chóng trình phương án cắt giảm, đơn giản hóa.
-- Để tập trung tối đa cho sắp xếp đơn vị hành chính các cấp, TP.HCM yêu cầu thủ trưởng các sở, ban, ngành, chủ tịch UBND quận huyện, phường xã không đi công tác nước ngoài từ nay đến hết tháng 7-2025 (trừ trường hợp đặc biệt).
-- Tỉnh ủy Cà Mau vừa tổ chức hội nghị họp rút kinh nghiệm vận hành thử nghiệm bộ máy hoạt động chính quyền địa phương 2 cấp.
-- KBC - công ty do ông Đặng Thành Tâm làm chủ tịch HĐQT - vừa thông qua giá chào bán và các nội dung liên quan đợt chào bán cổ phiếu riêng lẻ, dự kiến thu gần 6.000 tỉ đồng.
-- Tại họp báo thường kỳ quý 2-2025 của Bộ Công Thương chiều 19-6, Phó cục trưởng Cục Điện lực Bùi Quốc Hùng đã thông tin việc tháo gỡ khó khăn cho các dự án năng lượng tái tạo.
-- Ngoài việc bật đèn khẩn cấp, cần đặt các vật dụng cảnh báo nguy hiểm như tam giác phản quang, cọc tiêu hình nón... để thu hút sự chú ý của các tài xế khác. Các tài xế nên đặt các vật dụng cảnh báo cách xe tối thiểu 150m.
-- Do gió mùa tây nam có xu hướng hoạt động mạnh lên, kết hợp với một số hình thái thời tiết khác gây nhiễu động tạo mưa to cho Nam Bộ và TP.HCM.
-- Ngày 19-6, đoàn công tác của Công an TP.HCM, Viện Kiểm sát nhân dân TP.HCM, Tòa án nhân dân TP.HCM đã đến thăm và chúc mừng báo Tuổi Trẻ nhân kỷ niệm 100 năm Ngày Báo chí cách mạng Việt Nam.
-- Hoạt động xuất khẩu đang chịu tác động của việc đàm phán thuế đối ứng và xung đột tại một số nước ở Trung Đông, như việc gây nên tình trạng thiếu container xuất khẩu.
-- Công ty cổ phần Cảng hàng không Mặt trời thuộc Tập đoàn Sun Group thực hiện đầu tư dự án mở rộng sân bay Phú Quốc, nhằm đáp ứng tiến độ phục vụ APEC 2027 theo sự chấp thuận của UBND tỉnh Kiên Giang.
 ![New](News.png)
 ## Nhịp sống số 
+- Bạn đã từng dùng Bluetooth để nghe nhạc qua tai nghe, AirDrop để gửi ảnh, nhưng có bao giờ thử so sánh chúng?
+- Mỗi lần bạn đăng nhập hay thanh toán, mã OTP chỉ dùng được trong khoảng 30 giây rồi biến mất. Vì sao lại có giới hạn đó, và hệ thống nào đứng sau việc tạo mã nhanh chóng mà vẫn đảm bảo bảo mật?
+- Trong thời đại mà sự hiện diện trực tuyến được xem như thước đo cam kết, người lao động ngày càng bị cuốn vào vòng xoáy 'phải luôn online để được nhìn nhận'. Vậy quyền được tắt máy liệu có còn tồn tại?
 - Ra đời với lời hứa về sự tiện lợi, sạc không dây đến nay vẫn chưa đủ sức thay thế dây sạc truyền thống trong thói quen hằng ngày của người dùng. Công nghệ này liệu có đang chững lại?
 - Trợ lý AI hoạt động 24/7 trên máy tính, điện thoại, máy tính bảng, giúp người dùng tra cứu nhanh các thông tin về đơn vị hành chính mới.
 - Tại Việt Nam, những năm gần đây ghi nhận hàng loạt vụ tấn công mạng nghiêm trọng, từ ransomware đến đánh cắp dữ liệu qua hình thức lừa đảo (phishing)...
@@ -3002,7 +3005,4 @@
 - TTO - Tài khoản email bị hack có thể dẫn đến các vấn đề nghiêm trọng hơn, chẳng hạn như trộm cắp danh tính và xâm nhập quyền riêng tư. Nhưng trước khi bạn hoang mang với những hệ lụy đó, hãy bình tĩnh lại và làm theo 4 bước đơn giản sau đây.
 - TTO - Mạng xã hội Twitter thông báo sẽ công khai rõ ràng việc ai đó đăng tải nội dung (tweet) vi phạm chính sách sử dụng dịch vụ trên nền tảng của họ.
 - TTO - Mạng xã hội Facebook thông báo sẽ loại bỏ và phạt những quảng cáo chứa nội dung cố ý câu view, cố tình che giấu thông tin hoạt động trên nền tảng của họ.
-- TTO - Theo khảo sát tiền lương hàng năm mới nhất của Acumin Consulting ở Anh, mức lương cho các chuyên gia hoạt động trong lĩnh vực bảo mật và an ninh mạng đã tăng 6% trong năm nay, gấp đôi mức trung bình là 2,9%.
-- TTO - Natalie Silvanovich, nhà nghiên cứu bảo mật của Google Project Zero, đã phát hiện ra lỗ hổng nghiêm trọng trong WhatsApp cho phép hacker điều khiển toàn bộ ứng dụng bằng cách gọi video cho bạn.
-- TTO - Hãng Google thông báo sẽ thay đổi chính sách thu phí với hệ điều hành Android của họ tại châu Âu để tuân thủ luật chống độc quyền của Liên minh châu Âu (EU).
 ![life](Life.png)
