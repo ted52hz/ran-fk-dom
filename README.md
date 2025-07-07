@@ -1,6 +1,13 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Hiện nay, một số công cụ như Turnitin và GPTZero có khả năng phát hiện đạo văn, bài luận do AI 'sáng tác' hay số liệu ảo, biểu đồ ảo...
+- Năm 2025, mức thu học phí các trường đại học cao hơn năm ngoái và sẽ tiếp tục tăng qua từng năm theo lộ trình.
+- Chủ tịch UBND tỉnh Bạc Liêu (nay là tỉnh Cà Mau) kết luận nhiều nội dung sai phạm tại Sở Giáo dục và Đào tạo và tại Trường THPT chuyên Bạc Liêu.
+- Bộ Giáo dục và Đào tạo vừa chính thức công bố đáp án các môn thi tốt nghiệp THPT 2025. Theo lịch chung của bộ, 8h ngày 16-7 sẽ công bố điểm thi.
+- Phụ huynh ở phường Thành Nhất (tỉnh Đắk Lắk) phản ánh con trai bị cô giáo dạy thêm đánh bầm mông vì làm sai bài tập, công an đang xác minh vụ việc.
+- Khi bị trượt tốt nghiệp THPT; hay ước mơ vào đại học, cao đẳng 'tan thành mây khói', thường tâm lý chung của các thí sinh là sẽ rất buồn chán.
+- Năm nay, chỉ có 9 trong số trên 100 trường THPT công lập tại Hà Nội có mức điểm chuẩn từ 24 điểm trở lên (điểm trung bình môn là 8 trở lên).
 - Năm 2025, Học viện Chính trị Công an nhân dân xét tuyển 100 học viên nhưng có tới gần 8.000 thí sinh đăng ký thi đánh giá của Bộ Công an xét tuyển vào học viện.
 - Được ghi nhận là khối ngành đón rất nhiều Thủ khoa DTU qua các năm với điểm số trung bình luôn trên 9 điểm/môn, khối ngành Ngôn ngữ & Xã hội nhân văn của Đại học (ĐH) Duy Tân đã có rất nhiều bứt phá trong hơn 5 năm trở lại đây.
 - Năm nay, có gần 23.000 thí sinh đăng ký dự thi đánh giá của Bộ Công an, tăng gần 5.000 thí sinh so với năm ngoái.
@@ -994,15 +1001,44 @@
 - Sở Giáo dục và Đào tạo TP.HCM vừa giải thích về kỳ khảo sát năng lực tiếng Anh toàn bộ giáo viên trên toàn thành phố sắp tới.
 - Hơn 775 dự án khởi nghiệp của học sinh, sinh viên tham dự cuộc thi ý tưởng khởi nghiệp năm 2025, lần đầu tiên có sự tham gia của cơ sở giáo dục nghề nghiệp.
 - Phụ huynh ở TP Buôn Ma Thuột (tỉnh Đắk Lắk) thắc mắc tại sao chương trình 'Toán bằng tiếng Anh' (iSmart, do Công ty cổ phần giáo dục iSmart triển khai) được đưa vào chính khóa và thu tiền?
-- Ngày 18-4, nhiều trường tiểu học, THCS ở TP.HCM đã cảnh báo về chiêu lừa đảo phụ huynh liên quan đến tuyển sinh đầu cấp.
-- Ba học sinh lớp 5 Trường tiểu học Trần Hưng Đạo (quận 1, TP.HCM) vừa đoạt giải nhất quốc gia cuộc thi Condeavour 6.0 với sản phẩm ứng dụng AI phát hiện tài xế buồn ngủ khi lái xe.
-- Trường đại học Anh Quốc Việt Nam (BUV) là trường đại học tư thục đầu tiên của Việt Nam với vốn đầu tư nước ngoài, vừa khánh thành giai đoạn 2 của khuôn viên học tập trị giá 165 triệu đô la, đáp ứng nhu cầu học tập của 5.500 sinh viên.
-- Dù nhà trường nói đây là hình thức tự nguyện, nhiều học sinh cho biết nếu không có “giấy vào cổng”, các em sẽ không được xem chương trình văn nghệ do bạn bè và chính học sinh trong trường biểu diễn.
-- "Mỗi lần muốn tổ chức một hội thảo quốc tế, việc xin phép rất phức tạp, mất 5 - 6 tháng", GS.TS Trần Xuân Tú cho rằng đây là điều cần thay đổi ngay.
-- Sở Giáo dục và Đào tạo TP.HCM vừa công bố kế hoạch chi tiết tuyển sinh lớp 1, lớp 6 năm học 2025-2026.
-- Tỉnh Khánh Hòa yêu cầu các cơ sở giáo dục tăng cường giáo dục đạo đức, văn hóa và cách sử dụng mạng xã hội cho học sinh, sau khi xảy ra vụ nhiều nữ sinh bị ghép hình ảnh nhạy cảm.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Phó thủ tướng thường trực Nguyễn Hòa Bình vừa ký công điện ngày 7-7 về vụ cháy tại cư xá Độc Lập, phường Phú Thọ Hòa, TP.HCM.
+- UBND TP.HCM gửi lời chia buồn sâu sắc nhất đến thân nhân các gia đình gặp nạn trong vụ cháy tại cư xá Độc Lập.
+- Chủ tịch UBND TP.HCM Nguyễn Văn Được vừa 'đặt hàng' Viện Nghiên cứu phát triển TP xây dựng quy hoạch kinh tế - xã hội của TP.HCM mới.
+- Công an xác định người đi xe máy thả hai tay, nằm ngửa ra yên xe trên cầu Rồng là ông K., đã 5 lần đi chữa bệnh tại bệnh viện tâm thần.
+- Đường sắt giao cắt với nhiều tuyến đường ở TP.HCM gây kẹt xe triền miên, cách nào để giải bài toán nan giải này?
+- Hôm nay 7-7, thời tiết Bắc Bộ đến các tỉnh ven biển Nam Trung Bộ ngày nắng nóng, chiều mưa dông. Nam Bộ và cao nguyên Trung Bộ nắng gián đoạn, có lúc mưa rào.
+- Một số tin tức đáng chú ý: Khối ngoại mua ròng chứng khoán mạnh nhất 2 năm; Phạt Chứng khoán CV vì không gửi báo cáo liên quan rửa tiền...
+- Chủ tịch UBND TP.HCM Nguyễn Văn Được đã trực tiếp đến hiện trường vụ cháy tại cư xá Độc Lập để động viên, hỗ trợ ban đầu cho gia đình nạn nhân và chỉ đạo khắc phục vụ cháy tại cư xá Độc Lập, phường Phú Thọ Hòa.
+- Mặc dù đã bị tước bằng, tài xế H.T.S. vẫn cầm lái chiếc xe giường nằm chở theo 38 hành khách chạy trên đường cao tốc Vĩnh Hảo - Phan Thiết.
+- Bão Danas (bão số 2) đang áp sát, chuẩn bị quét dọc bờ tây Đài Loan (Trung Quốc) với gió mạnh cấp 12 (118-133km/h), giật cấp 15.
+- Chủ tịch UBND cấp xã nhận thẩm quyền từ chủ tịch UBND TP.HCM về việc ra văn bản chấp thuận cho doanh nghiệp thỏa thuận nhận quyền sử dụng đất để làm dự án.
+- Chương mới của non sông thì chúng ta cũng nên trở thành những người mới, và cùng đoàn kết chung lòng đưa hình ảnh của giang sơn đi lên.
+- Sau khi chủ tịch UBND TP Cần Thơ tuyên bố "treo thưởng" 50 triệu đồng cho sáng kiến giúp thành phố thoát ngập, đến nay chưa tiếp nhận sáng kiến, giải pháp nào. Sở Xây dựng là nơi sẽ tiếp nhận các sáng kiến này.
+- Nhiều xã tỉnh Tây Ninh đã tổ chức họp Hội đồng nhân dân (HĐND) thông qua tên gọi các ấp. Một số xã đã giữ nguyên tên ấp cũ. Những ấp mang số trước đây thì giữ tên số thứ tự kèm theo tên xã cũ để người dân dễ nhớ.
+- Trưa 6-7, cường độ bão số 2 (tên quốc tế Danas) tiếp tục mạnh lên đầu cấp 12, giật cấp 15. Dự báo trong 24 giờ tới, bão đi vào vùng biển tỉnh Phúc Kiến (Trung Quốc).
+- Công an tỉnh Phú Thọ đã tạm giữ hình sự hai người ở Hưng Yên và Hải Phòng trong vụ rút súng K54 đe dọa tài xế trên đèo Đá Trắng, tỉnh Phú Thọ.
+- Phụ huynh ở phường Thành Nhất (tỉnh Đắk Lắk) phản ánh con trai bị cô giáo dạy thêm đánh bầm mông vì làm sai bài tập, công an đang xác minh vụ việc.
+- UBND tỉnh Lạng Sơn thông báo về trụ sở Đảng ủy - UBND xã ở 65 đơn vị hành chính mới thành lập khi vận hành chính quyền địa phương 2 cấp.
+- Hai cặp vợ chồng ở Quảng Ninh đi xe bán tải xuống lòng hồ Bến Châu chơi thì bị nước tràn vào xe khiến hai người trong nhóm tử vong.
+- Sáng 6-7, nhiều quầy hàng tại chợ Thanh Vinh (phường Liên Chiểu, TP Đà Nẵng) phải đóng cửa để khắc phục hậu quả sau trận mưa lớn đêm qua.
+- Từ 1-7, Công an tỉnh Phú Thọ có 23 điểm tiếp nhận hồ sơ cấp đổi, cấp lại giấy phép lái xe cho người dân tại 20 công an xã, phường và 3 đội sát hạch, cấp giấy phép lái xe. Từ 1-8, sẽ tiếp tục triển khai thực hiện tại 128 công an xã, phường còn lại.
+- Khám chữa bệnh theo yêu cầu vẫn được hưởng bảo hiểm; Cứu trẻ bằng drone... là những thông tin thu hút nhiều bạn đọc quan tâm tuần qua.
+- Trận mưa như trút nước chiều tối 5-7 khiến nhiều người bất ngờ khi chứng kiến nhiều tuyến phố của Đà Nẵng chìm trong nước. Tiến sĩ Lê Hùng - Trường đại học Bách khoa Đà Nẵng - đã có những chia sẻ về nguyên nhân và đề xuất, hiến kế các giải pháp.
+- Sát bên đô thị Sala (khu độ thị mới Thủ Thiêm, TP.HCM) hiện đại là vùng đất mênh mông với bãi lau sậy và bùn lầy, rặng dừa mướt mắt vừa được đề xuất làm công viên sinh thái.
+- Ngoài phân công nhiệm vụ, thực hiện công tác thu hồi đất, bồi thường và hỗ trợ tái định cư, Sở Nông nghiệp và Môi trường tỉnh An Giang kiến nghị UBND đặc khu Phú Quốc sớm bố trí khoảng 2.000 nền tái định cư cho phục vụ APEC 2027.
+- Việc xuất khẩu gạo sang Brazil giúp nước này đảm bảo an ninh lương thực. Hai bên cũng thúc đẩy liên minh cà phê, xây dựng thương hiệu chung.
+- Tỉnh Lâm Đồng được thành lập dựa trên việc sáp nhập 3 tỉnh Bình Thuận, Đắk Nông và Lâm Đồng cũ. Sau sáp nhập, biển số xe người dân được cấp như thế nào?
+- Quảng Ngãi đã bổ nhiệm, kiện toàn các chức danh trưởng ban Đảng, giám đốc sở. Ông Lữ Ngọc Bình làm trưởng Ban Tổ chức Tỉnh ủy; ông Huỳnh Quốc Huy làm chủ nhiệm Ủy ban Kiểm tra Tỉnh ủy...
+- Tổng Bí thư Tô Lâm yêu cầu xây dựng chính sách đãi ngộ đặc biệt (vượt khung lương, nhà ở, môi trường làm việc) để thu hút ít nhất 100 chuyên gia hàng đầu về nước làm việc.
+- Tuần này, từ 6-7 đến 12-7, mưa dông vẫn chiếm ưu thế, sau một vài ngày dứt mưa, trời nắng, mưa sẽ trở lại và kéo dài cả tuần.
+- Sau treo thưởng của chủ tịch Cần Thơ, nhiều giải pháp 'độc lạ' để thoát ngập lẫn kiến nghị xử phạt hành vi vứt rác bừa bãi đã được góp ý, hiến kế.
+- UBND các xã, phường tổ chức thực hiện tiếp nhận, xử lý hồ sơ thủ tục hành chính có tính cấp thiết thêm ngày thứ bảy hằng tuần, thay vì chỉ làm từ thứ hai đến thứ sáu như trước, thực hiện đến hết tháng 7-2025.
+- Sau va chạm giao thông với xe khách, chiếc xe máy chở hai người đàn ông bắt lửa cháy rụi làm hai nạn nhân chết tại chỗ.
+- Liên quan vụ tai nạn thảm khốc trên cao tốc Đà Nẵng - Quảng Ngãi hôm 19-6 khiến 2 người chết, nhiều người bị thương, Cơ quan cảnh sát điều tra Công an TP Đà Nẵng khởi tố, bắt tạm giam tài xế xe đầu kéo.
+- Liệu có nên bỏ việc hoàn công công trình như một số ý kiến đề xuất?
+- Tại một số địa phương, người dân phải đóng tiền sử dụng đất cao khi chuyển từ đất nông nghiệp sang đất ở.
 - Công an TP.HCM vừa kiểm tra, phát hiện 3 cơ sở sơ chế hoa chuối tại khu dân cư Bến Lức (phường Bình Đông) ngâm hàng trăm kg hoa chuối với hàn the, chất tẩy trắng không rõ nguồn gốc trước khi bán ra thị trường.
 - Trong vụ án đường dây đánh bạc 107 triệu USD, 136 bị can tham gia sát phạt tại "sòng bạc" King Club có đủ nghề nghiệp, địa vị khác nhau.
 - Xe container và xe tải tông trực diện nhau và bốc cháy dữ dội. Dù lực lượng chữa cháy được huy động nhưng vụ tai nạn vẫn khiến một người không qua khỏi, một người bị thương rất nặng.
@@ -1967,42 +2003,6 @@
 - Tập đoàn Metro Quảng Châu (Trung Quốc) cho biết sẽ sẵn sàng đồng hành, hỗ trợ trong quá trình phát triển đô thị theo mô hình TOD tại TP.HCM.
 - Ban Chỉ đạo của Chính phủ định hướng có thể sắp xếp kéo dài việc sử dụng người hoạt động không chuyên trách ở cấp xã đến trước 31-5-2026.
 - Đài khí tượng thủy văn Cần Thơ dự báo thành phố này còn những cơn mưa 'khủng trên 100mm trong vài ngày tới.
-- Sáng 21-6, Tổng Bí thư Tô Lâm, các lãnh đạo, nguyên lãnh đạo Đảng, Nhà nước và các đại biểu dự Lễ kỷ niệm 100 năm Ngày Báo chí cách mạng Việt Nam.
-- Phóng sự ảnh Lũ quét Làng Nủ: Sự sống nảy sinh từ cái chết... không để ai bị bỏ lại phía sau của phóng viên Nguyễn Khánh đạt giải A Giải báo chí quốc gia.
-- Báo giới đang tưng bừng kỷ niệm 100 năm Ngày Báo chí cách mạng Việt Nam, Tuổi Trẻ cũng chào mừng ngày của nghề theo cách riêng.
-- Phóng sự Lần theo 10.000km hàng Trung Quốc vào Việt Nam của nhóm phóng viên Tuổi Trẻ được ghi nhận với hành trình tác nghiệp dấn thân xuyên biên giới.
-- Một số tin tức đáng chú ý: Chứng khoán Maybank có chủ tịch mới; Báo cáo sai lệch, một công ty bất động sản bị phạt nặng...
-- Hôm nay 21-6, thời tiết miền Bắc có mưa rào kèm dông, miền Nam chiều tối có nơi mưa to đến rất to và rải rác có dông.
-- Tối 20-6, Thủ tướng Phạm Minh Chính chủ trì cuộc họp quán triệt, triển khai các chỉ đạo của Bộ Chính trị, Tổng Bí thư Tô Lâm về triển khai mô hình tổ chức chính quyền địa phương 2 cấp từ ngày 1-7.
-- Bộ trưởng Lương Tam Quang đề nghị người làm báo Công an nhân dân phải vừa hồng, vừa chuyên, thật sự là thư ký của thời đại, "người gác cổng" của nhân dân.
-- Chiều 20-6, Phó thủ tướng Nguyễn Chí Dũng chủ trì họp về triển khai, cung cấp dịch vụ công trực tuyến theo hướng chủ động, hoàn toàn dựa trên dữ liệu.
-- Bộ trưởng Trần Hồng Minh đảm bảo riêng đường vành đai 4 TP.HCM, lượng cát của Long An, Tiền Giang và một số tỉnh lân cận sẽ đảm bảo đáp ứng đủ.
-- Chiến dịch trấn áp buôn lậu, gian lận thương mại quy mô lớn tại An Giang kết thúc với những kết quả đáng chú ý.
-- Ngày 20-6, Cục An toàn thực phẩm, Bộ Y tế có văn bản đề nghị các đơn vị thu hồi thực phẩm bảo vệ sức khỏe Siro ăn ngon Hải Bé - sản phẩm do TikToker Hải Sen quảng cáo, bán ra thị trường.
-- 4 trong tổng số 13 ủy viên Ban Thường vụ Tỉnh ủy Long An được trao quyết định nghỉ hưu trước tuổi, 9 người còn lại đủ tiêu chuẩn, điều kiện tái cử kỳ Đại hội Đảng bộ tới.
-- Chiều 20-6, cơn mưa lớn xảy ra trên diện rộng tại TP Cần Thơ, gây ngập hầu hết các tuyến đường nội ô thành phố, giao thông đi lại khó khăn.
-- Quảng Ngãi công bố danh sách dự kiến nhân sự chủ chốt là bí thư, phó bí thư, chủ tịch UBND 56 xã, phường, đặc khu. Trong đó có cán bộ tỉnh về xã, cán bộ huyện về xã.
-- Hàng trăm tấn rác thải các loại từ biển dạt vào các bãi biển Nhật Lệ và Bảo Ninh. Đây là hai bãi biển nổi tiếng nhất tại Quảng Bình.
-- Trước thời điểm nhập tỉnh, tổ chức chính quyền 2 cấp, lãnh đạo tỉnh Gia Lai chỉ đạo các cơ quan, đơn vị thực hiện nghiêm việc xử lý tài sản công, không để xảy ra thất thoát dù là nhỏ nhất.
-- Sau gần một năm công bố dịch sởi trên toàn TP.HCM, đến nay đã có 100% phường, xã tại thành phố đủ điều kiện công bố hết dịch sởi.
-- Ban Quản lý dự án đầu tư xây dựng hạ tầng đô thị TP.HCM đã báo cáo UBND TP tình hình triển khai dự án nạo vét, cải tạo môi trường, xây dựng hạ tầng rạch Xuyên Tâm.
-- Ngày 20-6, bí thư Tỉnh ủy Gia Lai cho biết Ban Thường vụ Tỉnh ủy đã chỉ định các chức danh chủ chốt của 77 xã phường mới sau sắp xếp đơn vị hành chính cấp xã.
-- Đề xuất Chính phủ được điều chỉnh một số quy định có liên quan tại luật, nghị quyết của Quốc hội do Chính phủ trình, báo cáo Ủy ban Thường vụ Quốc hội, Quốc hội tại phiên họp, kỳ họp gần nhất.
-- Gần hai tháng qua, ông Nguyễn Đức Quân (ở TP Dĩ An, tỉnh Bình Dương) cùng vợ rong ruổi trên chiếc xe tải đi nhiều nơi tự nguyện hút đinh, vá xe, thay ruột xe miễn phí và tặng xăng giúp người đi đường.
-- Nhiều bạn đọc đã thẳng thắn đặt câu hỏi: Ai chịu trách nhiệm nếu chậm tiến độ ở dự án nút giao An Phú (TP Thủ Đức)?
-- Ông L‏‏ê ‏‏Huy To‏‏à‏‏n - ‏t‏‏ổ‏‏ng bi‏‏ê‏‏n t‏‏ậ‏‏p b‏‏á‏‏o B‏‏ì‏‏nh Thu‏‏ậ‏‏n - được bổ nhiệm gi‏‏ữ ‏‏ch‏‏ứ‏‏c v‏‏ụ ‏‏t‏‏ổ‏‏ng bi‏‏ê‏‏n t‏‏ậ‏‏p Báo và ‏‏Đà‏‏i phát thanh - truyền hình tỉnh B‏‏ì‏‏nh Thu‏‏ậ‏‏n sau hợp nhất.
-- UBND TP.HCM phê duyệt dự án xây dựng Nhà văn hóa Thanh niên với tổng vốn đầu tư hơn 2.240 tỉ đồng, gồm 25 tầng.
-- Sáng 20-6, hội nghị quán triệt triển khai vận hành thử nghiệm hệ thống chính quyền địa phương 2 cấp ở tỉnh Bắc Ninh mới đã diễn ra.
-- Bí thư Bà Rịa - Vũng Tàu Phạm Viết Thanh yêu cầu các xã mới sau khi sáp nhập không được để trở ngại, gián đoạn vận hành hệ thống chính trị, nhất là trong phục vụ nhân dân và doanh nghiệp.
-- Nhân kỷ niệm 100 năm Ngày Báo chí cách mạng Việt Nam 21-6, Tuổi Trẻ Online trân trọng giới thiệu bài viết của Ủy viên Bộ Chính trị, Bí thư Trung ương Đảng, Trưởng Ban Tuyên giáo và Dân vận Trung ương Nguyễn Trọng Nghĩa.
-- Sau một buổi sáng nắng “giòn tan”, trời trong xanh thì trưa nay 20-6, mây dông phát triển nhanh khiến bầu trời TP.HCM đen kịt, mưa sắp trút xuống.
-- Sở Xây dựng Hà Nội đang phối hợp Công an thành phố triển khai phương án phân làn bằng dải phân cách cứng trên tuyến đường Võ Chí Công (vành đai 2) và Phạm Văn Đồng (vành đai 3).
-- Chủ tịch nước phong tặng danh hiệu Anh hùng Lực lượng vũ trang nhân dân cho Ban An ninh Phú Yên (nay là Công an tỉnh Phú Yên).
-- Trụ sở HĐND - UBND xã Hồ Tràm ở Bà Rịa - Vũng Tàu đã hiển thị thuộc TP.HCM trên biển tên ở cổng ra vào. Trụ sở này trước đây là nơi làm việc của HĐND - UBND huyện Xuyên Mộc.
-- Ông Nguyễn Mạnh Cường - ủy viên Ban thường vụ Thành ủy, trưởng Ban Tuyên giáo và Dân vận Thành ủy TP.HCM - mong Tuổi Trẻ phát huy và tiếp tục thực hiện tốt các nhiệm vụ được giao trong thời gian tới.
-- Sáng 20-6, 58 xã phường mới của tỉnh Bình Định đã tổ chức vận hành thử nghiệm hệ thống tiếp nhận, xử lý hồ sơ thủ tục hành chính đối với một số thủ tục và đạt kết quả tốt.
-- Năm 2024, Bộ Y tế kiểm tra 354.000 cơ sở, phát hiện 22.073 cơ sở vi phạm về an toàn thực phẩm; trong đó đã xử lý 9.043 cơ sở (43,9%), xử phạt trên 33 tỉ đồng.
-- Ông Võ Văn Quý - phó giám đốc Đài phát thanh và truyền hình tỉnh Tây Ninh - được bổ nhiệm làm phó tổng biên tập và giao phụ trách Báo và Đài phát thanh - truyền hình tỉnh Tây Ninh.
 ![New](News.png)
 ## Nhịp sống số 
 - Bạn đã từng dùng Bluetooth để nghe nhạc qua tai nghe, AirDrop để gửi ảnh, nhưng có bao giờ thử so sánh chúng?
