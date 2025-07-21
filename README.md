@@ -1,6 +1,13 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Việc Trần Xuân Đam trở thành một trong hai thủ khoa toàn quốc của kỳ thi tốt nghiệp THPT 2025 đang là đề tài bàn tán rôm rả ở vùng quê Lang Xá.
+- Một nữ sinh Trường THCS Đăk Mar (xã Đăk Mar, Quảng Ngãi) bị một nhóm nam nữ đánh hội đồng ở rẫy cà phê và quay video truyền cho nhau xem.
+- ThS Phạm Thanh Hà, Trường đại học Ngoại thương, lưu ý để tăng cơ hội trúng tuyển ngành học yêu thích, thí sinh không nên đặt quá ít nguyện vọng, cũng không nên đặt tất cả nguyện vọng vào một trường.
+- Đăng ký nguyện vọng thế nào để vừa theo được ngành yêu thích, vừa có nhiều cơ hội trúng tuyển? Chương trình học ra sao, học phí thế nào... Nhiều phụ huynh, thí sinh đã được chuyên gia tư vấn chi tiết tại Ngày hội lựa chọn nguyện vọng xét tuyển ĐH-CĐ.
+- Nhiều người cho rằng lời cảm ơn chỉ có trẻ con mới cần nói; hoặc chỉ nên nói với người thân quen, nếu cứ nói cảm ơn thì khách sáo quá.
+- Sau bài viết về nhóm học sinh tụ tập ném vỏ chai bia ra đường ở Quảng Trị, nhiều bạn đọc đánh giá cao với cách xử lý buộc phụ huynh cùng con em dọn sạch hiện trường.
+- Trận lốc xoáy quét qua một ngôi trường ở Hà Tĩnh khiến dãy nhà hai tầng bị tốc mái hoàn toàn, ước tính thiệt hại khoảng 300 triệu đồng.
 - Trong tập phát sóng tiếp theo của Khám phá trường học 2025, mời khán giả cùng chương trình tìm hiểu các ngành học tại Trường đại học Yersin Đà Lạt.
 - Tin tức đáng chú ý: Điểm chuẩn tuyển sinh đại học năm 2025 khó đoán; Bộ Y tế yêu cầu cấp cứu tối đa cho nạn nhân vụ lật tàu du lịch; Đề xuất chỉ cơ quan báo chí mới được sản xuất kênh chương trình chuyên quảng cáo...
 - Với phương thức xét điểm thi THPT 2025, điểm sàn các trường đại học dao động từ 15 đến 24.
@@ -44,65 +51,58 @@
 - Mức điểm sàn xét tuyển nhiều ngành của Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) năm nay giảm sâu so với năm ngoái.
 - Nguyễn Trần Phúc An, học sinh Trường THPT Vĩnh Long, là thí sinh duy nhất trong hơn 34.000 thí sinh của tỉnh đạt điểm 10 môn tin học trong kỳ thi tốt nghiệp THPT 2025.
 - Thị lực chỉ khoảng 1/10, nữ sinh Nguyễn Thị Thanh Huyền, Trường THPT Lê Hữu Trác, tỉnh Đắk Lắk vẫn lấy hai điểm 10 trong kỳ thi tốt nghiệp THPT 2025.
-- Theo quy định, từ 16-7 thí sinh bắt đầu đăng ký nguyện vọng xét tuyển. Thế nhưng đến nay phần lớn trường đại học chưa công bố điểm sàn.
-- Tuổi Trẻ Online phân tách điểm thi tốt nghiệp THPT, cung cấp cho bạn đọc, thí sinh nhiều thông số tham khảo trước khi đăng ký xét tuyển đại học năm nay.
-- Năm nay Đại học Kinh tế quốc dân sử dụng bốn tổ hợp xét tuyển đều có môn toán và tiếng Anh. Đây là hai môn thi tốt nghiệp THPT có phổ điểm nhiều biến động so với năm ngoái.
-- Không cần học quá nhiều mà học đúng cách, chủ động tực học. Không học thêm bên ngoài, tự ôn, chỗ nào không hiểu thì hỏi thầy cô... là điểm chung của nhiều thủ khoa kỳ thi tốt nghiệp THPT năm nay.
-- 'Trợ lý' AI Otter.ai giúp sinh viên tập trung nghe giảng bài mà không cần ghi chép.
-- Kết quả kỳ thi tốt nghiệp THPT năm 2025 ghi nhận những biến động rõ rệt phổ điểm ở các môn trọng yếu. Các trường đại học dự báo điểm chuẩn ra sao?
-- Nếu xét tuyển một điểm chuẩn chung cho các tổ hợp, thí sinh sử dụng tổ hợp A01, B00 và A01 sẽ có cơ hội ít hơn A00, C00.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Dù hoạt động rất xa, những bão số 3 Wipha có thể khiến thời tiết TP.HCM, Nam Bộ mưa to kèm theo gió lốc mạnh.
-- Dự báo hôm nay 20-7, cường độ bão số 3 (Wipha) tiếp tục mạnh thêm và có thể đạt cấp 12 (118-133km/h), giật cấp 15.
-- Tin tức đáng chú ý: Điểm chuẩn tuyển sinh đại học năm 2025 khó đoán; Bộ Y tế yêu cầu cấp cứu tối đa cho nạn nhân vụ lật tàu du lịch; Đề xuất chỉ cơ quan báo chí mới được sản xuất kênh chương trình chuyên quảng cáo...
-- Giảm xe xăng, dầu, tăng xe điện là chuyện khó khi đụng đến tài sản, thói quen, mưu sinh của người dân. Nhưng khó cũng phải làm, không làm bây giờ sẽ còn chờ bao giờ nữa?
-- Những tiếng khóc nấc của thân nhân người quá cố trong vụ lật tàu Vịnh Xanh 58 khiến nhà tang lễ Bệnh viện Bãi Cháy đã lạnh càng thêm lạnh hơn.
-- Hôm nay 20-7, bão số 3 tiếp tục khiến bắc Biển Đông dông gió dữ dội, còn Nam Bộ do gió tây nam mạnh lên nên mưa nhiều.
-- Anh Mai Xuân Hải đã lặn ra khỏi khoang tàu du lịch Vịnh Xanh 58 (QN 7105) bị lật, sau đó lênh đênh trên biển 3 giờ và được tàu đánh cá cứu.
-- Mong muốn hỗ trợ, chia sẻ nỗi đau với người thân các nạn nhân vụ lật tàu Vịnh Xanh, chiều 19-7, các khách sạn ở Hạ Long, Bãi Cháy (Quảng Ninh) thông báo hỗ trợ phòng ở, bữa ăn miễn phí.
-- Gần 300 người của các lực lượng quân đội, công an, ngư dân cùng hàng chục tàu, xuồng xuyên đêm chạy đua tìm kiếm những nạn nhân mắc kẹt sau vụ lật tàu ở vịnh Hạ Long.
-- Là một trong những người may mắn sống sót khi tàu du lịch lật trên vịnh Hạ Long, chị Đinh Thị Thùy Linh không thể quên được giây phút thoát cửa tử và tìm cách cứu người.
-- Tàu 711 của Hải đoàn 129 Hải quân đã vượt sóng lớn, gió mạnh do ảnh hưởng của bão số 3 (Wipha) để  hoàn thành nhiệm vụ đưa 2 ngư dân bị bệnh nặng trên biển từ đảo Nam Yết, đặc khu Trường Sa về TP.HCM an toàn.
-- Thủ tướng Phạm Minh Chính vừa ký công điện chỉ đạo khẩn trương tìm kiếm cứu nạn nhanh nhất các nạn nhân gặp nạn trong vụ lật tàu dịch vụ trên vịnh Hạ Long, Quảng Ninh, chiều 19-7.
-- Ủy ban Thường vụ Quốc hội đã ban hành nghị quyết về việc cho thôi làm nhiệm vụ đại biểu Quốc hội khóa XV đối với ông Đỗ Đức Duy.
-- Thực hiện chương trình làm việc toàn khóa, Hội nghị lần thứ 12 Ban Chấp hành Trung ương Đảng khóa XIII họp từ ngày 18-7 đến ngày 19-7 tại thủ đô Hà Nội.
-- Tại Hà Nội, chiều 19-7, mưa kèm gió lớn khiến cây cối, cột điện đổ đè lên nhiều ô tô đang di chuyển, thậm chí một số khu chung cư bị sập trần thạch cao vì gió lùa.
-- Tại xã Nghĩa Hành, tỉnh Quảng Ngãi, nhiều hộ dân phản ánh họ phải nộp tiền cho đơn vị thu gom heo chết mới được đưa heo đi xử lý.
-- Theo Quân chủng Hải quân, tính đến 7h sáng nay 20-7, các lực lượng chức năng đã cứu được 10 người, có 37 người chết, vẫn còn 5 người vẫn mất tích.
-- Gió lớn kèm mưa đá xảy ra ở tỉnh Quảng Ninh gây khó khăn cho các phương tiện tham gia giao thông.
-- Sau 2 ngày (18, 19-7) làm việc khẩn trương, nghiêm túc, dân chủ, trách nhiệm cao, Hội nghị lần thứ 12 Ban Chấp hành Trung ương Đảng khóa XIII đã hoàn thành toàn bộ chương trình đề ra và bế mạc chiều 19-7.
-- Sau 2 ngày (18, 19-7) làm việc khẩn trương, nghiêm túc, dân chủ, trách nhiệm cao, Hội nghị lần thứ 12 Ban Chấp hành Trung ương Đảng khóa XIII đã hoàn thành toàn bộ chương trình đề ra và bế mạc chiều 19-7.
-- Hơn 200 cán bộ, chiến sĩ Công an tỉnh An Giang đã ra quân tổ chức dọn dẹp, vệ sinh và thay hoa mới cho hơn 9.000 mộ liệt sĩ trong tỉnh, để tri ân những người có công với đất nước.
-- Hàng ngàn hộ chăn nuôi heo ở Nghệ An bị thiệt hại nặng nề, khi đàn heo mắc dịch tả heo châu Phi phải tiêu hủy.
-- Bộ Chính trị thống nhất chủ trương đầu tư xây dựng các trường phổ thông nội trú liên cấp tiểu học và trung học cơ sở tại 248 xã biên giới đất liền.
-- Mới đây, Thủ tướng đã yêu cầu 15 địa phương có tuyến đường sắt cao tốc Bắc - Nam đi qua phải chạy đua với thời gian, khởi công các dự án giải phóng mặt bằng (GPMB) liên quan trước ngày 19-8-2025.
-- TP.HCM đang điều chỉnh dần hệ thống biển chỉ dẫn theo tên hành chính mới, đảm bảo đồng bộ và thuận tiện cho người dân.
-- Đó là thông tin từ lãnh đạo Tổng công ty Đầu tư phát triển đường cao tốc Việt Nam (VEC) về công tác phối hợp, điều tiết tình hình giao thông trên cao tốc TP.HCM - Long Thành - Dầu Giây trong những ngày tới.
-- Phòng cảnh sát giao thông (PC08) Công an TP.HCM vừa thông báo một số thông tin người dân TP.HCM cần lưu ý khi đi lại cuối tuần.
-- Thủ tướng Phạm Minh Chính trao quyết định giao quyền bộ trưởng Bộ Nông nghiệp và Môi trường cho ông Trần Đức Thắng.
-- Kiểm tra thực tế, bên cạnh nhiều hộ dân chấp hành tốt, chính quyền địa phương phường Bình Trưng (TP.HCM) cũng ghi nhận nhiều cư dân chung cư Bình Trưng vẫn còn lắp lồng sắt bít bùng, để vật dụng cản trở lối thoát hiểm.
-- Trận mưa lớn bất ngờ vào chiều tối 5-7 làm nhiều đường phố ở Đà Nẵng chìm trong nước giữa mùa hè, khiến người dân bức xúc.
-- Nam thanh niên ở Hà Nội cùng nhóm bạn ra khu vực chân đập thủy điện Phiêng Lúc (tỉnh Lai Châu) để tắm, không may bị chuột rút và chìm dần.
-- Trong lúc chữa cháy  tại ngõ 289 Trương Định, một cán bộ Phòng Cảnh sát phòng cháy chữa cháy và cứu nạn cứu hộ, bị ngạt khói.
-- Người bệnh tham gia bảo hiểm y tế sẽ được thanh toán tiền thuốc nếu bệnh viện bị thiếu thuốc? Cần làm gì để được thanh toán đúng và đủ?
-- Đắk Lắk ghi nhận một bệnh nhân 19 tuổi, quê xã Nâm Nung, tỉnh Lâm Đồng tử vong do bị sốt xuất huyết.
-- Khoảng sáng nay 19-7 bão Wipha sẽ đi vào Biển Đông và trở thành cơn bão số 3 trong năm nay.
-- Ban Chỉ đạo của Chính phủ yêu cầu bảo đảm kinh phí với nhiệm vụ tinh giản biên chế, giải quyết chế độ cho cán bộ, công chức nghỉ việc.
-- Ngọn lửa bùng lên dữ dội ở bên trong khu vực kho xưởng rộng hàng trăm mét vuông tại ngõ 389 Trương Định (phường Tương Mai, Hà Nội).
-- Hôm nay 19-7, thời tiết Bắc Bộ nắng nóng ban ngày sau đó chuyển mưa từ đêm, Nam Bộ mưa dông.
-- Một số tin tức đáng chú ý: Xây dựng Hòa Bình chậm trả lãi trái phiếu; Lộ trình nâng hạng thị trường chứng khoán Việt Nam tiến thêm bước quan trọng; Tỉ lệ sống của trẻ sinh non tăng vọt từ 58% lên 85% nhờ kỹ thuật mới...
-- Xưởng nhựa ở xã Mỏ Cày, Quảng Ngãi bốc cháy trong đêm. Cột lửa bốc cao cả trăm mét. Cảnh sát phòng cháy chữa cháy đang nỗ lực dập tắt đám cháy.
-- Người dân xóm Gò Rạch và Kà La ở Quảng Ngãi đang sống trong cảnh điện thiếu, sóng chập chờn. Bật tivi không lên, nấu nồi cơm không chín. Trong khi công trình tiền tỉ, kéo điện về xóm làm từ năm 2021 đến nay chưa xong.
-- Từ đầu năm đến nay, xã Thanh Tùng (tỉnh Cà Mau) đã xảy ra 23 vụ sạt lở đất, làm hư hỏng nhà dân, đường giao thông và nhiều công trình dân sinh, gây thiệt hại gần 1,7 tỉ đồng.
-- Phó chủ tịch UBND tỉnh Phú Thọ Nguyễn Huy Ngọc yêu cầu các sở, ngành, địa phương nắm bắt, xử lý 'cò mồi' làm thủ tục đất đai tại trung tâm hành chính công tỉnh, xã sau khi vận hành chính quyền hai cấp.
-- Dự báo sau khi vào Biển Đông, cường độ bão Wipha có thể đạt cấp 12 (118 - 133km/h), giật cấp 15. Nhiều khả năng bão sẽ ảnh hưởng trực tiếp đất liền Việt Nam và gây mưa lớn ở Bắc Bộ từ 21-7.
-- Đất nền bị lún khiến cần cẩu đang hạ cống bê tông ở công trường cao tốc Biên Hòa - Vũng Tàu (đoạn qua Đồng Nai) đổ sập, đè một người bị thương và tử vong sau đó.
-- Tối 18-7, thông tin từ UBND tỉnh Đồng Tháp cho biết có một con sếu đã tử vong do không thích nghi được với môi trường, riêng 5 con sếu còn lại khỏe mạnh, cơ bản thích nghi với môi trường khu bảo tồn của Vườn quốc gia Tràm Chim.
-- Quảng trường ngàn tỉ tại trung tâm TP Đà Nẵng đang thu hút sự quan tâm lớn của người dân và dư luận. Khi nào dự án chính thức triển khai?
-- Bộ Văn hóa, Thể thao và Du lịch vừa có văn bản gửi UBND TP Huế góp ý kế hoạch phục chế bảo vật quốc gia ngai vàng triều Nguyễn bị khách tham quan bẻ gãy hồi tháng 5 vừa qua.
-- Còn ông Lê Minh Cường giữ chức giám đốc Ban quản lý dự án đầu tư xây dựng công trình giao thông và nông nghiệp TP Cần Thơ. Mỗi ban có 9 phó giám đốc, gồm các cán bộ từ Hậu Giang, Sóc Trăng và Cần Thơ cũ.
-- Ngày 18-7, người đổ đất lấp đường thoát nước lũ lụt vùng tây Nha Trang và Diên Khánh đã đào múc lại đất, chuyển đi nơi khác để khôi phục hiện trạng theo yêu cầu của phường Tây Nha Trang, tỉnh Khánh Hòa.
+- Để đáp ứng nhu cầu của người dân và giải quyết dứt điểm hồ sơ chưa sát hạch còn tồn đọng, Phòng CSGT TP.HCM tổ chức tăng ca liên tục, triển khai các ca sát hạch kéo dài từ 7h30 sáng đến 21h hàng ngày, kể cả ngày nghỉ.
+- UBND xã có cần thực hiện đổi từ 'ấp' thành 'thôn' theo quy định mới trước khi thực hiện quy định chỉ định trưởng ấp hay không?
+- Trước dự báo chịu ảnh hưởng cơn bão số 3 (bão Wipha), Nghệ An đã cấm tàu thuyền ra khơi từ sáng 21-7. Nhiều hồ thủy điện cũng chủ động xả nước, đảm bảo an toàn hồ đập.
+- Dông lốc ập đến, chỉ trong tích tắc con tàu Vịnh Xanh 58 QN-7105 bị lật úp giữa vịnh Hạ Long, Quảng Ninh. 49 người gồm cả thuyền viên và du khách đều bị nhấn chìm.
+- Tin tức đáng chú ý: Một doanh nghiệp bất động sản liên tục giải trình vì cổ phiếu tăng nóng; Công ty cổ phần Vận tải biển Sài Gòn bị phạt vì 'ém' nhiều tài liệu; Mức hưởng trợ cấp thai sản mới nhất...
+- Hôm nay 21-7, thời tiết Bắc Bộ mưa to đến rất to, Nam Bộ mưa rào và dông, Trung Bộ ngày nắng nhưng tối mưa rào.
+- Các địa phương kiểm soát việc đi lại, hạn chế người dân ra đường trong thời gian bão số 3 (Wipha) đổ bộ, dông lốc trước bão.
+- Lối vào cao tốc TP.HCM - Long Thành - Dầu Giây bị đóng, dòng xe từ Lâm Đồng về TP.HCM đổ dồn qua quốc lộ 1 khiến tuyến đường kẹt cứng hơn 10km.
+- Thủ tướng Chính phủ Phạm Minh Chính dẫn đầu đoàn công tác Bộ Quốc phòng thăm, tặng quà nhiều gia đình thương binh tại An Giang nhân kỷ niệm 78 năm Ngày Thương binh liệt sĩ 27-7.
+- Dự báo khi xuống vịnh Bắc Bộ ngày mai, bão số 3 có khả năng mạnh trở lại cấp 12, giật cấp 15.
+- Ngày 20-7, Chủ tịch UBND TP Hà Nội Trần Sỹ Thanh ký, ban hành công điện gửi các sở, ngành và các phường, xã về việc chủ động, tập trung ứng phó bão số 3.
+- Trong số các nạn nhân vụ tàu du lịch bị lật ở Hạ Long có ba người cùng gia đình gồm anh Lương Văn Yên (40 tuổi, quê xã Tân Yên, Bắc Ninh) và hai con nhỏ (11 tuổi và 6 tuổi).
+- Ban Chỉ huy phòng, chống thiên tai, tìm kiếm cứu nạn và phòng thủ dân sự tỉnh Thanh Hóa đã có quyết định cấm biển từ 8h ngày 21-7.
+- Thay cho niềm vui mừng tân gia, trong căn nhà mới xây ở thôn Hòa Đa, xã Tuy An Nam, Đắk Lắk giờ là những tiếng nấc nghẹn ngào khi chỉ trong một buổi sáng ba người đã ra đi.
+- Phòng Cảnh sát giao thông Công an TP.HCM công khai số điện thoại trưởng phòng - đại tá Trần Trung Hiếu.
+- Cơn dông ập đến, trong tích tắc con tàu Vịnh Xanh 58 bị lật úp giữa vịnh Hạ Long, Quảng Ninh.
+- Ảnh hưởng dông lốc xảy ra tối qua, trên địa bàn tỉnh Hà Tĩnh đã ghi nhận thiệt hại về người và tài sản.
+- Trong phòng khách là bốn di ảnh của hai vợ chồng cùng hai con tử nạn trong vụ lật tàu. Nhiều người đến thăm không khỏi rơi nước mắt.
+- 30 du khách và 4 thuyền viên trên tàu du lịch đã nhanh chóng mặc áo phao nhảy xuống biển trước khi tàu bị chìm, sau đó được các tàu cá lớn cứu.
+- Lực lượng chức năng vẫn đang duy trì gần 30 mũi tìm kiếm 4 nạn nhân còn mất tích trong vụ lật tàu du lịch trên vịnh Hạ Long, Quảng Ninh.
+- Theo Ủy ban MTTQ Việt Nam TP Hà Nội, ban đầu xác định có 17 người tử vong và 1 người bị thương là dân Hà Nội trong vụ lật tàu xảy ra tại vịnh Hạ Long chiều 19-7.
+- Để ứng phó với bão số 3 (Wipha), tỉnh Thanh Hóa sẵn sàng sơ tán 170.000 dân. Tỉnh Quảng Ninh đã cấm biển từ 11h trưa nay.
+- Chìm tàu cá trên vùng biển Quảng Trị, 7 ngư dân trên tàu được cứu nhờ một tàu cá của ngư dân địa phương đang đánh bắt gần đó.
+- Cảnh sát giao thông cùng các đơn vị liên quan đã tiến hành khảo sát thực tế toàn tuyến cao tốc Hòa Liên - Túy Loan (Đà Nẵng) đang thi công và đề nghị chủ đầu tư khẩn trương khắc phục các bất cập tiềm ẩn nguy cơ cao tai nạn giao thông.
+- Cây rừng bất ngờ đổ xuống đường, đè trúng ô tô đang di chuyển qua đèo Bảo Lộc (quốc lộ 20, tỉnh Lâm Đồng).
+- Nhiều bạn đọc Tuổi Trẻ Online cho rằng cần lắp đặt thêm camera giám sát, xử phạt lấn chiếm lòng đường, vỉa hè ở TP.HCM.
+- Những ngày gần đây, tại kênh mương qua các xã Phú Hòa 1, 2 (Đắk Lắk) có nhiều xác heo chết. Điều này không chỉ gây ô nhiễm môi trường mà còn có nguy cơ làm bùng phát dịch tả heo châu Phi.
+- Dự báo bão số 3 (Wipha) ảnh hưởng trực tiếp Quảng Ninh, Hải Phòng. Còn ven biển tỉnh Hưng Yên, Ninh Bình, Thanh Hóa chịu tác động gió bão mạnh nhất.
+- Đề xuất ngưng ký hợp đồng với shipper, tài xế công nghệ chạy xe xăng; 'Cho thuê bụng'... là chủ đề hút nhiều bạn đọc phản hồi tuần qua.
+- Sau khi luật mới không cho kinh doanh trên vỉa hè (hiệu lực từ năm 2025), TP.HCM tính toán xây dựng đề án quản lý vỉa hè mới phù hợp, làm cơ sở triển khai sau khi sáp nhập địa giới hành chính.
+- Xã Hồng Vân (Hà Nội) xác định có 6 người tử vong trong vụ lật tàu ở vịnh Hạ Long hôm 19-7. Chính quyền UBND xã đã tới thăm hỏi, hỗ trợ khẩn cấp gia đình các nạn nhân.
+- Trưa 20-7, cơn mưa kéo dài kèm theo gió giật, dông lốc mạnh quét qua nhiều khu vực ở Đồng Nai khiến hàng loạt cây xanh ngã đổ, một số nhà tốc mái. Chưa ghi nhận thương vong về người.
+- Thủ tướng yêu cầu có chính sách đãi ngộ đặc biệt với nhân tài, chuyên gia hàng đầu, các tổng công trình sư, kiến trúc sư trưởng để triển khai các hệ thống chiến lược, các sáng kiến đột phá.
+- Người dân phát hiện một con cá sấu nhỏ dưới kênh Nước Đen, phường Bình Hưng Hòa, TP.HCM. Ngày 20-7, lực lượng chức năng đã đến khu vực trên để tìm kiếm.
+- Cơ quan chức năng cho biết do thời tiết xấu đã không phát hiện ngay vụ lật tàu. Sau khi nhận tin, tàu cứu hộ đã có mặt chỉ trong 10 phút.
+- UBND TP Đà Nẵng vừa ban hành công điện triển khai các biện pháp ứng phó với bão số 3, trong đó yêu cầu căn cứ diễn biến của bão, chủ động quyết định việc cấm biển đối với tàu cá, tàu vận tải, tàu du lịch.
+- Rất nhiều bạn đọc phản hồi trên Tuổi Trẻ Online, cho rằng cần làm gấp metro để kết nối giao thông với sân bay Long Thành.
+- Trong lúc chở hai cháu bằng xe máy, bà Nguyễn Thị B. (63 tuổi, trú thôn Hòa Đa, xã Tuy An Nam, Đắk Lắk) tông vào đuôi xe tải khiến cả 3 bà cháu thiệt mạng.
+- Xe giường nằm chạy sai hành trình, đón, trả khách không đúng nơi quy định vẫn diễn ra 'bát nháo' ở nhiều nơi.
+- UBND tỉnh Hưng Yên yêu cầu hoàn thành việc di dời người dân và lao động ven biển vào nơi an toàn trước 17h ngày 21-7. Đồng thời địa phương dự kiến thực hiện lệnh cấm biển từ 18h ngày 20-7.
+- 40 tỉ đồng là tổng giá trị hàng hóa mà Công an TP.HCM đã thu giữ trong cao điểm đấu tranh chống hàng giả, hàng lậu, gian lận thương mại.
+- Ngay khi triển khai mô hình chính quyền địa phương hai cấp, lãnh đạo Đảng và Nhà nước nhiều lần nhấn mạnh phải vận hành theo hướng chuyển từ 'quản lý' sang 'phục vụ và đổi mới, sáng tạo'.
+- Trưa 20-7, mưa dông lớn xảy ra trên diện rộng ở TP.HCM, cây xanh trên nhiều tuyến đường bị gãy nhánh, ngã đổ.
+- Ngày 20-7, một lãnh đạo UBND xã Cổ Đạm (Hà Tĩnh) cho biết lực lượng chức năng đang phối hợp với người dân tổ chức tìm kiếm một ngư dân bị chìm thuyền, mất tích trên biển.
+- Ngày 20-7, đại diện Phòng cảnh sát giao thông (PC08) Công an TP.HCM cho biết Phòng cảnh sát giao thông tăng cường đảm bảo trật tự an toàn giao thông, ứng phó nguy cơ mưa lớn, chủ động phòng chống thiên tai.
+- Sáng 20-7, cường độ bão số 3 (Wipha) mạnh lên đầu cấp 12 (118-133km/h), giật cấp 15. Lúc 10h sáng nay, tâm bão đang cách Móng Cái (Quảng Ninh) khoảng 680km.
+- Sau một đêm tìm kiếm người mất tích và trục vớt tàu Vịnh Xanh QN-7105, sáng nay lực lượng chức năng đã lai dắt tàu về khu vực Nhà máy đóng tàu Hạ Long để phục vụ công tác khám nghiệm, điều tra nguyên nhân tàu lật.
+- Xã Tu Mơ Rông, Quảng Ngãi vừa phát đi thông báo không nhận hoa chúc mừng nhân dịp Đại hội Đảng bộ xã. Thay vào đó kêu gọi ủng hộ cây giống, phân bón… để hỗ trợ đồng bào Xơ Đăng phát triển kinh tế.
+- Cảnh sát phòng cháy, chữa cháy và cứu nạn cứu hộ - Công an tỉnh Quảng Ngãi lao xuống sông Đăk Bla, vật lộn với dòng nước xiết cứu sống 2 anh em ruột bị đuối nước.
+- Ngày 20-7, mạng xã hội lan truyền clip ghi cảnh nhóm người cự cãi với cảnh sát giao thông trên đường khi bị xử lý vi phạm nồng độ cồn. Sau đó một người đàn ông cầm ghế tấn công cảnh sát.
 ![New](News.png)
 ## Nhịp sống số 
 - Theo chuyên gia bảo mật, trước đây email lừa đảo dễ dàng bị phát hiện do cách diễn đạt không tự nhiên, nhưng sự tiến bộ của AI đã giúp tạo ra các câu tự nhiên, cho phép tin tặc vượt qua rào cản ngôn ngữ.
