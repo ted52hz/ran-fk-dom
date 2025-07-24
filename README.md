@@ -1,6 +1,32 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Bộ Chính trị thống nhất chủ trương đầu tư xây dựng các trường phổ thông nội trú liên cấp tiểu học và trung học cơ sở (THCS) tại 248 xã biên giới đất liền. Đây là lần đầu tiên có mô hình trường phổ thông nội trú liên cấp này ở các xã biên giới.
+- Một nhóm quản trị viên đã dùng fanpage giả mạo trang chính thức của Trường đại học Yersin Đà Lạt để thông tin nhiều nội dung không đúng về nhà trường. Cơ quan công an nhận định đây là hành vi bôi nhọ.
+- Hầu hết trường đại học chuyên ngành sức khỏe đều sử dụng chứng chỉ IELTS để tuyển sinh, cộng điểm xét tuyển.
+- Theo Bộ Giáo dục và Đào tạo, đội tuyển Việt Nam dự Olympic vật lý quốc tế (IPhO) năm 2025 giành 1 huy chương vàng, 4 huy chương bạc.
+- Một số trường đại học ở TP.HCM vừa công bố điểm sàn năm 2025, thấp hơn điểm chuẩn năm 2024 từ 8 - 13 điểm.
+- Tính đến hết ngày 23-7, đã có hơn 200 trường đại học, học viện công bố điểm sàn xét tuyển bằng điểm thi tốt nghiệp THPT, mức điểm dao động 14 - 25 điểm.
+- Trường đại học Ngân hàng TP.HCM và Trường đại học Công Thương TP.HCM vừa công bố điểm sàn và quy đổi điểm xét tuyển đại học hệ chính quy năm 2025.
+- Trường đại học Công nghệ thông tin (Đại học Quốc gia TP.HCM) bất ngờ điều chỉnh giảm điểm sàn xét tuyển đại học năm 2025 đã công bố trước đây. Học viện Hàng không Việt Nam cũng vừa điều chỉnh điểm sàn.
+- Chiều 23-7, đại diện UBND phường Phú Nhuận, TP.HCM cho biết clip bạo hành trẻ mầm non xuất hiện trên mạng xã hội những ngày qua là clip cũ, người bạo hành chuẩn bị hầu tòa.
+- Theo Học viện Ngân hàng, năm tổ hợp A00, A01, D07, D09, D14 không có chênh lệch điểm so với tổ hợp D01; tổ hợp C00, C03 có điểm trúng tuyển cao hơn so với tổ hợp D01 là 2,5 điểm/thang điểm 30.
+- Câu lạc bộ Khoa học - Khơi nguồn sáng tạo có nhiệm vụ giúp học sinh bồi dưỡng năng khiếu, niềm yêu thích đối với khoa học, công nghệ...
+- Thí sinh Phạm Huy Hùng nhận thông báo không trúng tuyển vào Trường THPT chuyên Trần Phú (Hải Phòng) đã được nhận trở lại.
+- Trường đại học Kinh tế - Luật (Đại học Quốc gia TP.HCM) vừa công bố điểm sàn và quy tắc quy đổi điểm trúng tuyển tương đương của các phương thức tuyển sinh năm 2025.
+- Ban Tuyển sinh quân sự (Bộ Quốc phòng) đã thông báo quy định mức điểm nhận hồ sơ xét tuyển đại học, cao đẳng vào 20 trường quân đội năm 2025 (điểm sàn).
+- Chiều 23-7, Trường đại học Sài Gòn công bố điểm sàn xét tuyển vào trường. Ngành cao nhất lên đến 25.
+- 203 học sinh xuất sắc được tuyển chọn để làm quen sớm với lập trình, dữ liệu và trí tuệ nhân tạo (AI) tại TP.HCM.
+- Bảng quy đổi điểm tương đương giữa các phương thức được Trường đại học Ngoại thương xây dựng dựa trên dữ liệu tuyển sinh 3 năm gần nhất, kết quả học tập của sinh viên đã trúng tuyển và phổ điểm xét tuyển theo từng nhóm thí sinh.
+- Ngày 23-7, Trường đại học Y Hà Nội công bố ngưỡng điểm sàn nhận hồ sơ xét tuyển năm 2025 phương thức xét điểm thi tốt nghiệp THPT, dao động từ 17 - 22,5 điểm.
+- Ngày 23-7, Đại học Cần Thơ thông báo ngưỡng đảm bảo chất lượng đầu vào (điểm sàn) đối với các ngành học bậc đại học chính quy năm 2025.
+- Trường đại học Khoa học xã hội và Nhân văn (Đại học Quốc gia TP.HCM) vừa công bố điểm các phương thức xét tuyển, trong đó ngành báo chí vẫn trong nhóm các ngành có điểm cao nhất.
+- Một số trường đào tạo y dược phía Bắc chính thức công bố ngưỡng điểm sàn xét tuyển riêng.
+- Trường đại học Y Dược công bố điểm sàn xét tuyển đại học chính quy năm 2025, với tất cả các ngành đều giảm 2 điểm so với mức sàn năm trước.
+- Tiếp xúc cử tri phường Quy Nhơn, Phó thủ tướng Hồ Đức Phớc nói ông đồng quan điểm việc nên thống nhất một bộ sách giáo khoa trên toàn quốc.
+- Vì sao nhiều người không đến họp lớp, hoặc đến rồi rời đi cùng tiếng thở dài?
+- Lần đầu tiên Bộ Giáo dục và Đào tạo công bố bách phân vị điểm thi 7 tổ hợp xét tuyển đại học. Vậy bách phân vị là gì, ý nghĩa ra sao?
+- Từ ngày 1-7, hàng triệu học sinh, sinh viên trên cả nước sẽ được hỗ trợ 50% mức đóng bảo hiểm y tế, thay vì chỉ 30% như trước.
 - Các chuyên gia nhận định điểm sàn khối ngành sức khỏe, sư phạm năm nay phù hợp với thực tế kỳ thi tốt nghiệp.
 - Nhiều trường đại học công bố điểm quy đổi tương đương giữa điểm học bạ, đánh giá năng lực và điểm thi đánh giá năng lực.
 - Trường đại học Y Dược Cần Thơ vừa có thông báo về ngưỡng đảm bảo chất lượng đầu vào xét tuyển các ngành hệ đại học chính quy năm 2025.
@@ -25,86 +51,63 @@
 - Năm nay, Trường đại học Ngoại thương (FTU) lấy điểm sàn cho phương thức xét điểm thi tốt nghiệp THPT với tổ hợp A00 (toán, lý, hóa) 24 điểm, các tổ hợp còn lại 23 điểm.
 - Chiều 21-7, Phó chủ tịch UBND TP.HCM đón và thưởng nóng 50 triệu đồng cho học sinh đoạt HCB toán quốc tế Lê Phan Đức Mân.
 - Điểm sàn các ngành sư phạm của trường là 19, tương đương điểm sàn khối ngành sư phạm năm 2024 do Bộ Giáo dục và Đào tạo công bố.
-- Ngày 21-7, giám đốc Sở Giáo dục và Đào tạo TP.HCM đã có quyết định về việc phân cấp thẩm quyền giải quyết việc chuyển trường sau sáp nhập.
-- Trường đại học Công nghiệp Hà Nội đã công bố bảng quy đổi điểm thi tốt nghiệp THPT với học bạ, điểm thi đánh giá năng lực, đánh giá tư duy.
-- Đại học Kinh tế TP.HCM vừa công bố điểm sàn và dự báo điểm chuẩn xét tuyển đại học chính quy năm 2025 của hai cơ sở đào tại TP.HCM và Vĩnh Long.
-- Những ngày này, từ trường học đến từng gia đình, đâu đâu cũng thấy những dòng trạng thái, những bức ảnh khoe điểm số, thành tích.
-- 5 sinh viên của Trường Du lịch (HTi), Đại học (ĐH) Duy Tân vừa chính thức nhận chứng chỉ thực tập, ghi nhận những nỗ lực và đóng góp trong các hoạt động do Vietnam Airlines tổ chức.
-- Chiều 21-7, hơn 70 đại học công bố điểm sàn 2025, phần lớn giảm so với năm ngoái.
-- Ngô Quang Minh giành HCV Olympic Hóa 2025, giúp Trường THPT chuyên Bắc Ninh có 3 năm liên tiếp đoạt vàng.
-- 300 thí sinh có điểm IELTS từ 7.5 - 8.5, một thí sinh có điểm SAT tuyệt đối 1.600/1.600 nộp chứng chỉ quốc tế để cộng điểm xét tuyển Trường đại học Y dược TP.HCM.
-- Trường đại học Sư phạm Hà Nội công bố các mốc quy đổi chính giữa điểm tổ hợp thi đánh giá năng lực do trường tổ chức sang điểm thi tốt nghiệp THPT.
-- Học viện Công nghệ bưu chính viễn thông vừa công bố ngưỡng đảm bảo chất lượng đầu vào trình độ đại học hệ chính quy đợt 1 năm 2025 (điểm sàn xét tuyển).
-- Các trường THPT ở TP.HCM cảnh báo khẩn phụ huynh, học sinh lớp 12 về chiêu lừa đảo mới sau khi có điểm thi tốt nghiệp THPT 2025.
-- Lần đầu tiên sẽ có mô hình trường phổ thông nội trú liên cấp tiểu học - THCS tại 248 xã biên giới, trước năm học mới 2025 - 2026 sẽ thí điểm cải tạo hoặc xây mới 100 trường ở dải đất vùng biên.
-- Năm 2025 với nhiều thay đổi trong tuyển sinh đại học, Bộ GD-ĐT và các trường thực hiện quy trình xét tuyển, lọc ảo ra sao? Thí sinh cần lưu ý gì để tránh mất cơ hội trúng tuyển?
-- Trường đại học Quốc tế Sài Gòn (SIU) triển khai chương trình học bổng 50% học phí toàn khóa dành cho thí sinh là con ruột của cán bộ, viên chức đang công tác trong ngành giáo dục và y tế.
-- Đăng ký nguyện vọng như thế nào để nắm chắc cơ hội trúng tuyển đại học luôn là một trong những bài toán khó đối với không ít thí sinh và cả các bậc phụ huynh.
-- Dự kiến quý 4-2025 phân hiệu miền Trung của Trường đại học Luật TP.HCM tại Quảng Trị bắt đầu tuyển sinh.
-- Việc Trần Xuân Đam trở thành một trong hai thủ khoa toàn quốc của kỳ thi tốt nghiệp THPT 2025 đang là đề tài bàn tán rôm rả ở vùng quê Lang Xá.
-- Một nữ sinh Trường THCS Đăk Mar (xã Đăk Mar, Quảng Ngãi) bị một nhóm nam nữ đánh hội đồng ở rẫy cà phê và quay video truyền cho nhau xem.
-- ThS Phạm Thanh Hà, Trường đại học Ngoại thương, lưu ý để tăng cơ hội trúng tuyển ngành học yêu thích, thí sinh không nên đặt quá ít nguyện vọng, cũng không nên đặt tất cả nguyện vọng vào một trường.
-- Đăng ký nguyện vọng thế nào để vừa theo được ngành yêu thích, vừa có nhiều cơ hội trúng tuyển? Chương trình học ra sao, học phí thế nào... Nhiều phụ huynh, thí sinh đã được chuyên gia tư vấn chi tiết tại Ngày hội lựa chọn nguyện vọng xét tuyển ĐH-CĐ.
-- Nhiều người cho rằng lời cảm ơn chỉ có trẻ con mới cần nói; hoặc chỉ nên nói với người thân quen, nếu cứ nói cảm ơn thì khách sáo quá.
-- Sau bài viết về nhóm học sinh tụ tập ném vỏ chai bia ra đường ở Quảng Trị, nhiều bạn đọc đánh giá cao với cách xử lý buộc phụ huynh cùng con em dọn sạch hiện trường.
-- Trận lốc xoáy quét qua một ngôi trường ở Hà Tĩnh khiến dãy nhà hai tầng bị tốc mái hoàn toàn, ước tính thiệt hại khoảng 300 triệu đồng.
-- Trong tập phát sóng tiếp theo của Khám phá trường học 2025, mời khán giả cùng chương trình tìm hiểu các ngành học tại Trường đại học Yersin Đà Lạt.
-- Tin tức đáng chú ý: Điểm chuẩn tuyển sinh đại học năm 2025 khó đoán; Bộ Y tế yêu cầu cấp cứu tối đa cho nạn nhân vụ lật tàu du lịch; Đề xuất chỉ cơ quan báo chí mới được sản xuất kênh chương trình chuyên quảng cáo...
-- Với phương thức xét điểm thi THPT 2025, điểm sàn các trường đại học dao động từ 15 đến 24.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Đang câu cá, anh Đầu nghe tiếng kêu cứu thất thanh từ một hồ nước cạnh đó và đã lao xuống hồ nước sâu để cứu người.
-- Phòng khám đa khoa Việt Khang Thủ Đức là điểm nóng thường xuyên bị người dân phản ánh có tình trạng 'vẽ bệnh, moi tiền'.
-- Trong đêm 22-7, nhiều người dân ở xã Tương Dương (tỉnh Nghệ An) chạy lên núi, tìm nơi cao để tránh lũ.
-- Sau khi bão Wipha đổ bộ vào đất liền nước ta, nhiều người cho rằng ảnh hưởng gió bão, mưa có nơi cũng không lớn như dự báo trước đó.
-- Mưa lớn do bão số 3 (Wipha) khiến dòng chảy lũ về hồ thủy điện Bản Vẽ (Nghệ An) ở mức rất cao, vượt lưu lượng lũ thiết kế gần 3.000m³/s. Lũ trên sông Cả ở các trạm Mường Xén, Thạch Giám và Con Cuông đều trên báo động 3 từ 4,7m đến gần 8m.
-- Tin tức đáng chú ý: Đề xuất phụ cấp mới cho nhà giáo từ 1-1-2026 mức 25-80% lương; Bệnh viện Bạch Mai và Việt Đức mới hoạt động từ 30-11 tới đây.
-- Hôm nay 23-7, dù bão số 3 đã tan nhưng vùng nhiễu động suy yếu từ bão vẫn gây mưa to cho Bắc Bộ và các vùng lân cận.
-- Đêm 22-7, nước sông Nậm Mộ qua xã Mường Xén, tỉnh Nghệ An dâng cao gây ngập lụt nhiều khu dân cư. Người dân và chính quyền đang hối hả 'chạy lũ'.
-- Thủ tướng Lào tin tưởng nhân dân Việt Nam sẽ vượt qua mọi khó khăn, đưa cuộc sống của các gia đình bị ảnh hưởng sớm ổn định.
-- Thông tin được đưa ra trong quyết định số 1575 do Phó thủ tướng thường trực Nguyễn Hòa Bình ký ban hành về kế hoạch triển khai thi hành Luật Cán bộ, công chức năm 2025.
-- Ông Lâm Văn Mẫn được chỉ định làm bí thư Đảng ủy Hội đồng Dân tộc và phê chuẩn ông Hoàng Duy Chinh làm phó chủ tịch thường trực Hội đồng Dân tộc của Quốc hội.
-- Quảng Ngãi đang căng mình dập dịch tả heo châu Phi ở phía đông (tỉnh Quảng Ngãi cũ) thì đàn bò ở phía tây (tỉnh Kon Tum cũ) xuất hiện các triệu chứng bất thường, cơ quan chức năng ngay ngáy lo dịch lở mồm long móng.
-- Theo Phó chủ tịch UBND tỉnh Khánh Hòa Trần Hòa Nam, tỉnh sẽ gặp gỡ, đối thoại với doanh nghiệp, nhà đầu tư để giải quyết các kiến nghị và công khai, cam kết tiến độ xử lý đảm bảo minh bạch, hiệu quả, thực chất.
-- Khoảng 17h30 ngày 22-7, tại đê bối khu vực cống Cù Là, xã Hồng Vũ, tỉnh Hưng Yên có hiện tượng tràn 300m trên mặt đê và vỡ khoảng 7m đê.
-- Một đôi nam nữ người Lào mang theo 17kg ma túy đá cùng 6.000 viên ma túy tổng hợp qua biên giới Việt - Lào thì bị biên phòng bắt giữ.
-- Chiều 22-7, ông Nguyễn Văn Nên - ủy viên Bộ Chính trị, bí thư Thành ủy TP.HCM - dẫn đầu đoàn công tác thăm hỏi, tặng quà các thương binh, bệnh binh, người có công tại xã Long Hải, TP.HCM.
-- Do mưa lớn kéo dài ảnh hưởng từ cơn bão số 3 (bão Wipha), nước sông suối ở các xã miền núi Nghệ An dâng cao. Lũ quét qua cuốn trôi cầu, nhiều hộ dân bị chia cắt.
-- Nội dung được nêu trong thông báo kết luận của chủ tịch UBND TP.HCM, sau buổi làm việc với Tập đoàn Sun Group về đề xuất đầu tư các dự án tại TP.HCM.
-- Sau bão số 3, thủy triều lên nhanh làm một số tuyến đường nội đô thành phố Hải Phòng ngập trong nước.
-- Từ ngày 1 đến 18-7, TP.HCM đã tổ chức hơn 5.000 lượt xe đưa rước miễn phí cán bộ, công chức từ Bình Dương và Bà Rịa - Vũng Tàu cũ vào trung tâm TP làm việc.
-- Quảng Trị vừa có kiến nghị cơ chế đặc thù để tuyển dụng lãnh đạo, cán bộ phụ trách lĩnh vực đất đai có năng lực, chuyên môn để đáp ứng nhiệm vụ chủ đầu tư nhiều dự án giải phóng mặt bằng lớn, quan trọng của quốc gia.
-- Nhiều ý kiến đồng tình ủng hộ hướng bắt đầu chuyển đổi xe xăng sang xe điện bắt đầu từ shipper và góp ý cho lộ trình chuyển đổi tại TP.HCM.
-- Phó chủ tịch UBND TP.HCM Bùi Xuân Cường giao Sở Xây dựng khẩn trương phối hợp với UBND các phường xây dựng kế hoạch cải tạo, xây dựng lại 31 chung cư cũ trong năm 2025.
-- Chiều 22-7, bão số 3 (Wipha) bất ngờ ít di chuyển và tại Hòn Dấu (Hải Phòng), Văn Lý (Ninh Bình) lúc 16h vẫn có gió mạnh cấp 8, giật cấp 10.
-- Bộ trưởng Bộ Y tế Đào Hồng Lan đã có trả lời ý kiến của cử tri về đề xuất sáp nhập các trạm y tế xã, phường mới.
-- Dù việc nuôi chim diều lửa cần phải có giấy tờ chứng minh nguồn gốc hợp pháp, nhưng vẫn có người mang loài chim này đến bờ kênh Nhiêu Lộc - Thị Nghè, TP.HCM để huấn luyện cho chim bay lượn cũng như quay clip đăng lên mạng xã hội.
-- Vấn đề gói đồ ăn thừa từ đám cưới hoặc tiệc tùng để mang về nhà thu hút nhiều tranh luận, sau bài viết trên Tuổi Trẻ Online.
-- Công ty TNHH Công nghệ bảo hộ Kanglongda Việt Nam vừa bị UBND TP Huế xử phạt hành chính 335 triệu đồng, vì bán 2,6 tấn chất thải nguy hại cho người không có chức năng xử lý và vi phạm quy định về lưu giữ chất thải công nghiệp.
-- Theo bạn đọc, việc chẩn đoán khác biệt giữa hai cơ sở y tế là điều không thể chấp nhận.
-- Lợi dụng sáp nhập tỉnh thành, nhiều đối tượng lừa đảo giả mạo nhân viên điện lực TP.HCM để chiếm đoạt tài sản khách hàng.
-- Lực lượng cảnh sát phòng cháy chữa cháy và cứu nạn cứu hộ - Công an TP Hà Nội vừa phối hợp lực lượng tại chỗ, cơ sở dập tắt đám cháy tại ngôi nhà 5 tầng trên đường Giải Phóng.
-- Bộ Công an đã tổ chức các hoạt động nhân kỷ niệm 78 năm Ngày Thương binh Liệt sĩ, 65 năm Ngày thành lập Ban An ninh Trung ương Cục miền Nam tại tỉnh Tây Ninh.
-- Theo báo cáo của Sở Y tế TP.HCM, đến nay TP có 2.711 nhà thuốc (trong đó gồm nhà thuốc tư nhân, nhà thuốc bệnh viện, và các nhà thuốc của doanh nghiệp) tham gia bán giá thuốc bình ổn, thấp hơn giá thị trường tối thiểu 5%.
-- Do ảnh hưởng bão số 3, hai hãng tàu cao tốc Phú Quốc Express và Phú Quý Express tạm ngưng tuyến ra Côn Đảo từ 21 đến 25-7.
-- Sau khi phát hiện gà nuôi trong 1 hộ gia đình bị nhiễm cúm gia cầm A (H5N1), ngành chức năng Đắk Lắk đã khoanh vùng dập dịch.
-- Lúc 13h chiều 22-7, tâm bão số 3 (Wipha) đang trên đất liền Ninh Bình - Thanh Hóa. Dự báo trong chiều tối nay, bão sẽ đi sâu vào đất liền và suy yếu thành vùng áp thấp trên khu vực thượng Lào.
-- Do ảnh hưởng cơn bão số 3 Wipha, trong 2 ngày qua, trên địa bàn nhiều xã, phường của tỉnh Thanh Hóa có mưa to đến rất to làm gần 7.200ha lúa mùa bị ngập cục bộ.
-- Ông Nguyễn Trọng Nghĩa dẫn đầu đoàn công tác đến làm việc với Ban Thường vụ Tỉnh ủy An Giang về một số giải pháp phát triển kinh tế và công tác chuẩn bị Đại hội Đảng bộ nhiệm kỳ 2025-2030.
-- Phòng Cảnh sát giao thông Công an tỉnh Đồng Nai cho hay việc công bố số điện thoại nhằm giải quyết nhanh các vụ việc được người dân phản ảnh.
-- Ban Bí thư yêu cầu các cơ quan, địa phương tăng cường chỉ đạo, kiểm tra, ứng phó với bão số 3 (bão Wipha), hạn chế đến mức thấp nhất thiệt hại xảy ra.
-- Trao đổi với Tuổi Trẻ Online, trung tá Lê Thế Dũng, phó đồn trưởng Đồn biên phòng cửa khẩu cảng Hòn Gai, cho biết đã vớt được 1 thi thể nạn nhân tại khu vực cách vị trí tàu Vịnh Xanh 58 gặp nạn khoảng 500m.
-- Bộ Xây dựng cho biết cầu Nhơn Trạch đạt 99% khối lượng, sẵn sàng khai thác. Tuy nhiên, hiện chưa có đường kết nối với vành đai 3 TP.HCM. Tuổi Trẻ Online trao đổi với chủ đầu tư vành đai 3 về vấn đề này.
-- Ngày 22-7, Đảng bộ phường Nha Trang (tỉnh Khánh Hòa) tổ chức Đại hội đại biểu lần thứ I nhiệm kỳ 2025 - 2030. Đây là đại hội điểm cấp cơ sở của Khánh Hòa.
-- Xe hơi chở bốn người bất ngờ bị nổ lốp, sau đó lao vào xe đầu kéo và dải phân cách.
-- Ngày 22-7, Ban quản lý dự án Mỹ Thuận đã báo cáo Bộ Xây dựng về kế hoạch tổ chức lễ khởi công dự án cao tốc Mỹ An - Cao Lãnh giai đoạn 1.
-- Một ổ dịch bệnh dại vừa được phát hiện tại biên giới xã Ia Tơi, Quảng Ngãi. Đến nay đã có 15 con chó bị tiêu hủy và ít nhất hai người bị chó dại cắn đã được tiêm vắc xin, huyết thanh phòng bệnh dại.
-- Người đàn ông ở Đồng Nai chạy xe máy vào đường cong thì mất lái lao thẳng xuống lề đường, văng xa cả chục mét, tử vong sau đó.
-- Chính phủ vừa có nghị quyết tháo gỡ khó khăn, vướng mắc liên quan đến dự án ngăn triều 10.000 tỉ và dự án kết nối đường Phạm Văn Đồng đến nút giao thông Gò Dưa - quốc lộ 1.
-- Đảng ủy xã Nghĩa Hành, Quảng Ngãi đã họp với UBND xã chấn chỉnh những phát sinh không đáng có trong công tác phòng, chống dịch. Việc có người tự phát thu tiền của người dân là chưa đúng và yêu cầu hoàn trả.
-- TP.HCM sẽ nghiên cứu, đề xuất quy định bắt buộc kiểm định khí thải định kỳ xe máy, từng bước loại bỏ xe cũ nát nhằm giảm ô nhiễm môi trường và đảm bảo an toàn giao thông.
+- Hôm nay, cường độ bão Cỏ May (bão số 4) có thể mạnh lên cấp 10 (89-102km/h), giật cấp 12 - cấp bão mạnh nhưng hầu như không có khả năng ảnh hưởng đến đất liền và ven biển nước ta.
+- Theo Bộ Giáo dục và Đào tạo, đội tuyển Việt Nam dự Olympic vật lý quốc tế (IPhO) năm 2025 giành 1 huy chương vàng, 4 huy chương bạc.
+- Bộ xương người này được một người dân đi rừng phát hiện ở vùng rừng có tên Ngọn Khe Tuần, thuộc xã Tuyên Lâm, Quảng Trị, nghi là của người đàn ông mất tích khi đi săn mật ong.
+- Bộ Nội vụ đề xuất người sử dụng lao động không xóa bỏ, cắt giảm tiền lương khác của người lao động khi tăng lương tối thiểu vùng.
+- Hôm nay 24-7, trọng tâm mưa vẫn tập trung ở hai tỉnh Thanh Hóa, Nghệ An, mưa liên tục gây lũ và sạt lở nguy hiểm.
+- Phu nhân Tổng Bí thư Tô Lâm, bà Ngô Phương Ly, đã đến Matxcơva và dành hoạt động đầu tiên trong ngày 23-7 cho cộng đồng người Việt Nam tại đây.
+- Chương trình Ngày hội văn hóa hữu nghị Việt - Hàn 2025 tổ chức tại làn ô tô đường Lê Lợi (đoạn từ Nguyễn Huệ đến Pasteur), phường Sài Gòn từ nay đến 24h ngày 28-7.
+- 'Số nhà trôi khoảng 150 nhà, ngập trên 200 nhà, cầu treo Yên Hòa trôi hoàn toàn, quốc lộ 16 bị sạt lở chia cắt nhiều điểm…', bức thư tay của đồn trưởng Đồn biên phòng Mỹ Lý, Nghệ An viết vội.
+- Trước diễn biến mưa lũ do ảnh hưởng cơn bão số 3, Phó thủ tướng Chính phủ Mai Văn Chính đề nghị tỉnh Nghệ An có phương án đảm bảo an toàn tính mạng và tài sản của nhân dân và Nhà nước.
+- Lực lượng chức năng cơ bản đã khống chế được đám cháy xảy ra trên núi Hoàng Ngưu Sơn (phường Nam Nha Trang, tỉnh Khánh Hòa).
+- Ông Đỗ Văn Chiến nêu rõ việc xây dựng đề án sáp nhập, tinh gọn các tổ chức hội được Đảng, Nhà nước giao nhiệm vụ trình Bộ Chính trị.
+- Sở Xây dựng TP.HCM đề nghị lực lượng cảnh sát giao thông và các địa phương tổ chức ra quân chấn chỉnh, xử lý nghiêm tình trạng xe ba, bốn bánh tự chế lưu thông gây mất an toàn giao thông.
+- "Chuyển đổi phương tiện giao thông 'xanh' là nhiệm vụ cấp thiết, cần triển khai quyết liệt, khẩn trương theo các chỉ đạo của Chính phủ, HĐND và UBND TP" - theo ông Nguyễn Mạnh Quyền, phó chủ tịch UBND TP Hà Nội.
+- Những tấm lòng vàng, nghĩa cử cao đẹp của cộng đồng là nguồn động viên tiếp thêm sức mạnh cho người dân vùng lũ Nghệ An sớm vượt qua khó khăn.
+- Phó bí thư Thành ủy kiêm Chủ tịch Ủy ban Mặt trận Tổ quốc Việt Nam TP.HCM Nguyễn Phước Lộc đã đến thăm, tặng quà các thương binh, gia đình chính sách tiêu biểu, người có công với cách mạng.
+- TP.HCM yêu cầu rà soát, bố trí nhân sự làm việc tại Trung tâm phục vụ hành chính công TP.HCM, Trung tâm phục vụ hành chính công khu vực Bình Dương, Bà Rịa - Vũng Tàu và 38 tổ địa bàn để sẵn sàng hoạt động từ ngày 31-7.
+- Theo quy hoạch mới của Khu kinh tế Chân Mây - Lăng Cô (TP Huế), trong tương lai sẽ có một tuyến đường cao tốc nối cảng Chân Mây với cao tốc Cam Lộ - La Sơn.
+- Nhà đất của 31 hộ dân đường Nguyễn Bỉnh Khiêm, Nha Trang được tỉnh bán “hóa giá” cho cán bộ, công chức hơn 40 năm và lãnh đạo tỉnh Khánh Hòa cũ đã chỉ đạo giải tỏa, thu hồi đất để mở rộng khu trụ sở tỉnh đang xây.
+- Mỗi năm vào tháng bảy, nhân dân ta lại dành những tình cảm thiêng liêng và sâu lắng nhất để tưởng nhớ, tri ân những người hy sinh vì non sông đất nước.
+- Đến thăm người có công, Chủ tịch UBND TP.HCM Nguyễn Văn Được bày tỏ sự tri ân sâu sắc đến những cán bộ lão thành cách mạng, thương binh, bệnh binh đã dũng cảm chiến đấu, hy sinh xương máu vì sự nghiệp giải phóng dân tộc, bảo vệ Tổ quốc.
+- Ngày 23-7, UBND TP.HCM đã ban hành kế hoạch thực hiện công tác bồi thường, hỗ trợ, tái định cư cho dự án đường sắt tốc độ cao Bắc - Nam và dự án khai thác quỹ đất vùng phụ cận các nhà ga, depot đường sắt.
+- Mưa do ảnh hưởng của bão số 3 suy yếu không có dấu hiệu ngớt, dộ ẩm đất đã bão hòa, nhiều nơi ở Thanh Hóa, Nghệ An nguy cơ lũ, sạt lở rất cao.
+- Thủ tướng yêu cầu bộ trưởng Bộ Công Thương chỉ đạo các địa phương và chủ đập thủy điện rà soát, xây dựng phương án ứng phó để chủ động bảo đảm an toàn cho các hồ đập thủy điện, nhất là khi xuất hiện các tình huống mưa lũ lớn vượt mức thiết kế.
+- Thứ trưởng Bộ Công Thương Nguyễn Hoàng Long cho rằng các dự án năng lượng là các dự án quyết định việc tăng trưởng kinh tế hai con số.
+- Do sợ vợ buồn vì bán nhẫn để trả nợ, nên tài xế taxi đã dựng chuyện bị cướp nhẫn vàng và trình báo đến cơ quan công an.
+- Công an tỉnh An Giang đã bắt quả tang 3 người có hành vi dùng xe chuyên dụng khai thác đá, đất trái phép tại khu phố Đường Bào, đặc khu Phú Quốc.
+- Vụ va chạm khiến 2 người bị thương được đưa đi cấp cứu. Cảnh sát cùng người dân phải đẩy xe bán tải lên để giải cứu nạn nhân mắc kẹt.
+- Ngày 23-7, Thủ tướng Phạm Minh Chính chủ trì phiên họp Chính phủ chuyên đề xây dựng pháp luật tháng 7-2025.
+- Sau 2 tuần mở rộng truy xét đường dây tổ chức tội phạm ma túy liên quan 3 quán bar tại phường Đông Hòa, An Phú (tỉnh Bình Dương cũ) và phường Vũng Tàu (tỉnh Bà Rịa - Vũng Tàu cũ), Công an TP.HCM đã khởi tố 247 bị can.
+- Mưa lũ dồn dập do ảnh hưởng từ cơn bão số 3 (bão Wipha) ở Nghệ An đã làm 3 người chết, 4 người bị thương và hơn 3.200 nhà dân bị ngập.
+- Dự án rạp xiếc và biểu diễn đa năng Phú Thọ ở TP.HCM có tổng vốn đầu tư gần 1.400 tỉ đồng sắp hoàn thành.
+- Trung tâm phát triển quỹ đất thành phố Cần Thơ trực thuộc UBND thành phố có 6 phòng và 10 chi nhánh phát triển quỹ đất khu vực.
+- Có lợi thế rừng và biển, Phú Quốc đề nghị cấp thẩm quyền cần nghiên cứu lấn biển, xây đảo nhân tạo để làm sân golf, khu dịch vụ, khu chức năng, phát triển du lịch, kinh tế - xã hội ở đảo bền vững và mang tầm cỡ thế giới.
+- Bộ Nội vụ đã có trả lời kiến nghị của cử tri về chế độ, chính sách và cơ chế tạo việc làm với cán bộ, công chức chuyển từ khu vực công sang tư nhân.
+- "Cả đêm qua nhà tôi thức trắng vì nước lên từng giờ. Đến sáng nay, nước đã ngập nửa nhà", bà Vy Thị Hoạt, thôn Nà Vạt, xã Con Cuông, nói.
+- Chỉ vài milimet chênh lệch trong quy định thuế đã mở ra “lối vòng” cho hàng trăm ngàn tấn thép cán nóng (HRC) giá rẻ tràn vào Việt Nam.
+- Người dân đến khám sức khỏe tại Trung tâm Y tế khu vực Hải Châu (Đà Nẵng) bất ngờ được chỉ qua... quán tạp hóa đối diện.
+- TP.HCM có 12/162 bệnh viện đạt điểm trên 900 điểm tính theo thang điểm 1.000, dựa vào các tiêu chí như: độ hài lòng, công tác cấp cứu...
+- Giám đốc Sở Xây dựng tỉnh Gia Lai cho biết đã thông báo dừng tổ chức các chuyến xe đưa đón cán bộ tỉnh từ Pleiku xuống Quy Nhơn làm việc.
+- Sau hơn 7 tháng vận hành, tuyến metro số 1 (Bến Thành - Suối Tiên) đã ghi nhận những kết quả vượt mong đợi.
+- Một nam thanh niên bị công an bắt quả tang mang theo súng đã lên đạn, ma túy và kiếm sau khi xô xát tại quán ăn ở trung tâm Đông Hà.
+- Sáng 23-7, Tổng Bí thư Tô Lâm - Bí thư Quân ủy Trung ương, đến thăm, làm việc với Tổng cục Chính trị Quân đội nhân dân Việt Nam.
+- Mưa dông, kèm gió lốc mạnh đã khiến hàng loạt nhà dân ở các xã biên giới miền Trung từ Quảng Trị đến Quảng Ngãi tốc mái, sập, hư hỏng...
+- Cơn lốc xoáy quét qua xã Ba Chúc, tỉnh An Giang trong tích tắc đã làm 19 căn nhà bị sập, tốc mái nghiêm trọng.
+- Lãnh đạo xã Cần Giuộc (tỉnh Tây Ninh) vừa khen thưởng nóng cho 2 đơn vị khám phá nhanh, bắt kẻ gây ra vụ cướp tiệm vàng vào tối 22-7.
+- 12 hài cốt liệt sĩ vừa được tìm thấy tại xã Hiếu Giang đã được tổ chức lễ truy điệu, an táng trang trọng tại Nghĩa trang liệt sĩ quốc gia Đường 9.
+- Sở Y tế Đà Nẵng yêu cầu toàn bộ hệ thống khám chữa bệnh rà soát, chấn chỉnh hoạt động hành nghề sau loạt phản ánh "vẽ bệnh moi tiền".
+- Hai ngôi nhà sàn của anh em Hồ Văn K Roi và Hồ Văn Thương tại xã A Dơi, tỉnh Quảng Trị bị cháy rụi, rất may không có thương vong.
+- Mưa lũ do ảnh hưởng của bão số 3 (bão Wipha) làm tuyến quốc lộ 7 đoạn qua khu vực eo Vực Bồng, xã Con Cuông bị ngập sâu hơn 1m.
+- Ông Lữ Quang Ngời - chủ tịch UBND tỉnh Vĩnh Long - đã khảo sát, nghe báo cáo một số khó khăn làm ảnh hưởng đến tiến độ dự án cầu Đại Ngãi.
 ![New](News.png)
 ## Nhịp sống số 
+- Giả mạo shipper là một hình thức lừa đảo ngày càng tinh vi, gây thiệt hại lớn cho người tiêu dùng.
+- Hai khối băng tần được đấu giá lại là những băng tần quan trọng, giúp tối ưu hóa tốc độ và độ phủ sóng của các mạng di động thế hệ mới.
+- Các cuộc tấn công này cho phép tin tặc chiếm quyền kiểm soát hoàn toàn hệ thống, cài đặt cửa hậu (backdoor) để truy cập lâu dài.
 - Công ty khởi nghiệp về công nghệ thần kinh Neuralink của tỉ phú Mỹ Elon Musk vừa thông báo lần đầu tiên thực hiện thành công 2 ca cấy chip vào não người trong 1 ngày.
 - Mùa hè sôi động đang gọi tên bạn, và JBL sẵn sàng cùng bạn khuấy đảo từng khoảnh khắc với đại tiệc khuyến mãi JBL Summer Sale cực kỳ hấp dẫn - chỉ từ 990.000 đồng.
 - Microsoft phối hợp Chính phủ Pháp tạo bản sao kỹ thuật số Nhà thờ Đức Bà, mở ra trải nghiệm thực tế ảo cho những người không thể đến Paris, đồng thời lưu trữ chi tiết kiến trúc trong 100 năm tới.
@@ -152,7 +155,4 @@
 - Bạn là chính bạn, nhưng thiết bị chỉ tin điều đó khi vân tay, khuôn mặt hay mã số khớp hoàn hảo. Trong thế giới số, danh tính không còn là con người thật, mà là dữ liệu máy móc có chấp nhận hay không.
 - Khi AI trở thành công cụ không thể thiếu trong cuộc sống hằng ngày, từ việc soạn email công việc đến viết hôn thú, điều quan trọng là chúng ta phải nhìn nhận và hiểu rõ những tác động sinh thái mà nó mang lại.
 - Bạn từng nghĩ mình viết tốt, có gu, biết lập trình, thiết kế ổn. Rồi AI viết hay hơn, chỉnh ảnh đẹp hơn, code logic chuẩn hơn. Và thế là bạn bắt đầu tự hỏi: Khi mọi thứ đều có AI làm giỏi hơn, rốt cuộc bạn giỏi điều gì?
-- Tại nhiều quốc gia, nghề nuôi ong đang chuyển mình với công nghệ cảm biến và trí tuệ nhân tạo. Chỉ cần xem điện thoại, người nuôi biết hết những gì xảy ra bên trong tổ ong.
-- Google chính thức hé lộ Android XR, một nền tảng dành riêng cho thiết bị thực tế ảo và tăng cường, được kỳ vọng sẽ định hình lại cách chúng ta làm việc, giải trí và kết nối với thế giới ảo, bắt đầu từ cuối năm 2025.
-- Không chỉ phổ cập mạng tốc độ cao, Viettel còn mang đến trải nghiệm số sống động cho người dân miền Tây ngay tại chợ, trường học, công viên và khu dân cư.
 ![life](Life.png)
