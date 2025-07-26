@@ -1,6 +1,16 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Đại học Cần Thơ và Trường đại học Mở TP.HCM cung cấp công cụ quy đổi nhanh điểm kỳ thi V-SAT sang điểm thi tốt nghiệp THPT.
+- AlphaMath đã thể hiện khả năng tự phân tích bài toán, đặt lại giả định, đưa ra hướng tiếp cận, phản biện lời giải của chính nó y như thí sinh thật.
+- Mấy hôm nay phụ huynh, học sinh đua nhau tìm hiểu các khái niệm toán học và ý nghĩa của chúng. Họ lần mò theo các công thức, học cách tính toán, làm đi làm lại nhiều lần để quy đổi, biết số điểm chính xác của mình trước khi đăng ký xét tuyển đại học.
+- Liên quan nội dung tố cáo của một giáo viên ở Bạc Liêu, Sở Giáo dục và Đào tạo tỉnh Cà Mau mời 8 nguyên giám đốc, phó giám đốc được cho là "có liên quan" đến để nghe công bố quyết định.
+- Đại học Quốc gia TP.HCM và Ngân hàng ACB triển khai gói tín dụng 50 tỉ đồng hỗ trợ sinh viên vay nộp học phí, với lãi suất 2%.
+- Trong số phát sóng tiếp theo của Khám phá trường học 2025, khán giả sẽ cùng chương trình vi vu tại Trường đại học Văn Hiến.
+- Sáng 25-7, văn phòng đại diện Ngân hàng Nông nghiệp và Phát triển nông thôn Việt Nam (Agribank) khu vực miền Nam phối hợp báo Tuổi Trẻ tổ chức khóa tập huấn "Ứng dụng khoa học công nghệ, chuyển đổi số trong công tác truyền thông".
+- Ở Trường đại học Thủ đô Hà Nội, tổ hợp C00 lệch C03 là 0,75 điểm, Trường đại học Khoa học xã hội và Nhân văn xác định mức lệch từ 1 - 2,5 điểm.
+- Lần đầu tiên các em nhỏ được học bộ môn diễn xuất với nghệ sĩ Sơn Đăng, được nhập vai nhân vật cổ tích đáng yêu tại lớp học hè miễn phí của thầy Nguyễn Khánh.
+- Việc sử dụng bách phân vị để quy đổi điểm giữa các tổ hợp xét tuyển lại đang gây ra nhiều hiểu lầm, dẫn đến nguy cơ sai lệch và mất công bằng trong tuyển sinh đại học.
 - Chủ trương 'một chương trình, nhiều sách giáo khoa' không phải là ý tưởng mới nảy sinh, mà là kết quả của cả quá trình nghiên cứu, thảo luận.
 - Nhiều trường đại học gặp khó khăn trong áp dụng phương pháp bách phân vị để quy đổi điểm xét tuyển. Trong khi đó, thí sinh và phụ huynh khá bối rối vì mỗi trường có một cách quy đổi khác nhau.
 - Phó thủ tướng Nga Dmitry Nikolayevich Chernyshenko mong muốn Phân viện Puskin ở Hà Nội trở thành trung tâm học tiếng Nga tại Đông Nam Á.
@@ -41,70 +51,63 @@
 - Lần đầu tiên Bộ Giáo dục và Đào tạo công bố bách phân vị điểm thi 7 tổ hợp xét tuyển đại học. Vậy bách phân vị là gì, ý nghĩa ra sao?
 - Từ ngày 1-7, hàng triệu học sinh, sinh viên trên cả nước sẽ được hỗ trợ 50% mức đóng bảo hiểm y tế, thay vì chỉ 30% như trước.
 - Các chuyên gia nhận định điểm sàn khối ngành sức khỏe, sư phạm năm nay phù hợp với thực tế kỳ thi tốt nghiệp.
-- Nhiều trường đại học công bố điểm quy đổi tương đương giữa điểm học bạ, đánh giá năng lực và điểm thi đánh giá năng lực.
-- Trường đại học Y Dược Cần Thơ vừa có thông báo về ngưỡng đảm bảo chất lượng đầu vào xét tuyển các ngành hệ đại học chính quy năm 2025.
-- Trường đại học Sư phạm Hà Nội chính thức công bố ngưỡng đảm bảo chất lượng đầu vào đại học chính quy 2025 với nhóm ngành đào tạo giáo viên 19 - 22 điểm.
-- Đại học Kinh tế quốc dân chính thức công bố điểm sàn xét tuyển và bảng quy đổi tương đương giữa các phương thức xét tuyển.
-- Trường đại học Sư phạm TP.HCM công bố điểm sàn và nguyên tắc quy đổi điểm trúng tuyển giữa các phương thức xét tuyển năm 2025 tại 3 cơ sở đào tạo.
-- Các ứng viên nhận học bổng - được gọi là Học giả Jardine-Fulbright, sẽ được nhận hỗ trợ tài chính từ quỹ để chi trả học phí.
-- Theo lãnh đạo Đại học Phenikaa, việc chuyển sang 'đại học' không chỉ là sự chuyển đổi về tên gọi, mà là một cam kết quốc gia, là trách nhiệm trước người học, xã hội và cộng đồng khoa học.
-- Đại học Quốc gia TP.HCM và CT Group ký kết hợp tác, với thỏa thuận dành 100 tỉ đồng tài trợ dài hạn, thúc đẩy công nghệ cao, hỗ trợ người học và thu hút nhân tài.
-- Thí sinh xét tuyển vào ngành bán dẫn phải thuộc nhóm 25% thí sinh có điểm tổ hợp môn xét tuyển cao nhất toàn quốc và nhóm 20% thí sinh có điểm môn toán cao nhất toàn quốc.
-- Trường đại học Công nghiệp TP.HCM vừa công bố điểm sàn phương thức xét điểm thi tốt nghiệp THPT và quy tắc quy đổi điểm trúng tuyển tương đương giữa các phương thức xét tuyển.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Bộ và ngành nội vụ là tâm điểm của cuộc cách mạng tinh gọn bộ máy, với vai trò nòng cốt tham mưu, đề xuất, gánh vác sứ mệnh lịch sử.
-- Bộ Y tế đang đề xuất tăng mức phụ cấp để đảm bảo đời sống tối thiểu, tiền công cho người lao động.
-- Từ vụ nhà thiết kế Nguyễn Công Trí bị bắt, càng đặt ra vấn đề với người nổi tiếng việc giữ hình ảnh cá nhân với công chúng rất quan trọng.
-- Chiếc xe khách di chuyển trên quốc lộ 1, đoạn qua Hà Tĩnh bất ngờ mất lái đâm vào cột mốc bên đường, xe bị lật làm 9 người tử vong.
-- Thông tin từ Sở Nông nghiệp và Môi trường tỉnh Đồng Tháp, thiệt hại do hoàn lưu bão số 3 gây ra khoảng 21,2 tỉ đồng.
-- Một số tin tức đáng chú ý: Mạo danh Ủy ban Chứng khoán để tung gói đầu tư; Giá bán bình quân căn hộ cao cấp ở TP.HCM hơn 133 triệu đồng/m2; Rà soát, xử lý nghiêm nạn đổ trộm rác thải...
-- Hôm nay 25-7, thời tiết cả nước đều có mưa, khu vực Bắc Bộ mưa to. Nam Bộ ngày mưa rào, chiều tối có nơi mưa to.
-- Phó thủ tướng Nga Dmitry Nikolayevich Chernyshenko mong muốn Phân viện Puskin ở Hà Nội trở thành trung tâm học tiếng Nga tại Đông Nam Á.
-- Viettel đã sẵn sàng giải pháp sử dụng drone kết hợp truyền dẫn vệ tinh phát sóng để tiếp cận các khu vực ngập lụt, phục vụ công tác cứu hộ, cứu nạn.
-- Phó bí thư thường trực Thành ủy TP.HCM Nguyễn Thanh Nghị đã đến thăm các tướng lĩnh công an, quân đội và thể hiện sự tri ân với thế hệ đi trước.
-- Phó chủ tịch Quốc hội Lê Minh Hoan đề nghị TP.HCM quy hoạch, huy động nguồn lực để xử lý ô nhiễm không khí, nước thải, rác thải và bảo tồn đa dạng sinh học.
-- Tài xế GrabBike ra bờ kênh rửa tay bất ngờ trượt chân rơi xuống nước, bị cuốn vào cống mất tích. Lực lượng cứu hộ cứu nạn đang tích cực lặn, tìm kiếm nhưng chưa có kết quả.
-- Hà Nội quyết định hỗ trợ 5 tỉ đồng cho chính quyền và nhân dân tỉnh Nghệ An, nơi đang chịu ảnh hưởng nặng nề vì mưa lũ diễn biến phức tạp sau bão số 3.
-- Thủ tướng yêu cầu nguyên tắc 'ba phải': phải từ sớm từ xa, từ khi chưa xảy ra sự cố; phải ứng phó bình tĩnh, sáng suốt, kịp thời, phù hợp và an toàn, hiệu quả; phải chung tay khắc phục.
-- Mức lương bình quân của chủ tịch HĐQT Công ty Cấp nước Cà Mau được đề xuất 58,9 triệu, trong khi lương cơ bản là 31 triệu.
-- TP.HCM đang dùng các trụ sở hiện có để đảm bảo hoạt động không gián đoạn sau sáp nhập. Khi bộ máy ổn định, thành phố sẽ rà soát, sắp xếp lại tài sản công theo hướng hiệu quả, tránh lãng phí.
-- Do cửa sổ phòng khách sạn không có song chắn, cháu V.P.A. (sinh năm 2021, Hà Nội) bị ngã từ tầng 2 xuống đất dẫn đến đa chấn thương.
-- Sau hợp nhất, TP.HCM trở thành siêu đô thị lớn nhất cả nước, với dự toán thu ngân sách và chi cho đầu tư phát triển đều ở mức 'khủng'.
-- Sau khi Chính phủ có nghị quyết tháo gỡ vướng mắc, TP.HCM cũng đã họp và chỉ đạo tổ công tác nhằm giải quyết các công việc tồn đọng của dự án ngăn triều 10.000 tỉ.
-- Phó bí thư Thành ủy - Chủ tịch Ủy ban Mặt trận Tổ quốc Việt Nam TP.HCM Nguyễn Phước Lộc có buổi làm việc với lãnh đạo 6 xã về công tác chuẩn bị tổ chức đại hội Đảng.
-- Nhiều xã của Nghệ An vẫn bị cô lập, chia cắt do mưa bão, dự kiến ngày 25-7 mới thông tuyến. Chủ tịch tỉnh khẳng định chủ động hỗ trợ nhu yếu phẩm cho người dân, không để cảnh 'màn trời chiếu đất'.
-- 344 nhà trọ, căn hộ, nhà ở kết hợp sản xuất và kinh doanh tại TP.HCM bị yêu cầu tạm dừng hoạt động do không khắc phục các vi phạm về phòng cháy chữa cháy đúng thời hạn theo quy định.
-- Nhiều tuyến đường bị sạt lở, ngập lụt chia cắt do mưa lũ ảnh hưởng bởi cơn bão số 3 (bão Wipha) nên Nghệ An vẫn còn 5 xã bị cô lập hoàn toàn trong ngày 24-7.
-- Những ngày qua, cao tốc TP.HCM - Long Thành - Dầu Giây hay kẹt xe kéo dài, đặc biệt tại khu vực cầu Long Thành khiến người dân mệt mỏi.
-- Thấy vợ người khác đang ngồi một mình, anh M. buông lời trêu ghẹo. Người chồng phát hiện, hai bên xảy ra cãi vã, đánh nhau, anh M. bị ngã dẫn đến tử vong.
-- Tính từ đầu năm đến ngày 15-7, toàn TP.HCM (mới) ghi nhận 15.546 ca sốt xuất huyết, trong khi cùng kỳ năm ngoái là 6.029 ca.
-- Nhiều nạn nhân vụ lật tàu Vịnh Xanh 58 ở vịnh Hạ Long đã không qua khỏi. Doanh nghiệp bảo hiểm nhân thọ và phi nhân thọ đang khẩn trương chi trả quyền lợi, hỗ trợ người thân nạn nhân vượt qua mất mát, biến cố lớn.
-- Vì sao bệnh nhân đi khám bảo hiểm y tế, bệnh viện cứ phải chụp hình bệnh nhân?
-- Chiều 24-7, Đại hội đại biểu Đảng bộ Cục Chính trị Quân khu 7 lần thứ XIII đã bầu đại tá Trần Đức Thắng - phó chủ nhiệm Chính trị Quân khu 7 - giữ chức bí thư Đảng ủy.
-- Chia sẻ với khó khăn của người dân vùng lũ Nghệ An, Phó thủ tướng Chính phủ Mai Văn Chính nhấn mạnh việc đảm bảo tuyệt đối an toàn tính mạng của con người là trên hết.
-- Đại biểu Nguyễn Thị Tuyết Nhung cho rằng nhiều phường, xã có tốc độ đô thị hóa cao trong khi không có cơ chế thành lập đội quản lý trật tự đô thị, gây khó khăn trong công tác kiểm tra, xử lý vi phạm trật tự xây dựng, trật tự đô thị.
-- HĐND TP.HCM vừa thông qua cơ chế ưu đãi để hỗ trợ chủ đầu tư tham gia cải tạo, xây dựng lại nhà chung cư tại TP.HCM.
-- Một số hộ dân hiện tự ý xây nhà ở, vật kiến trúc trên khu đất quy hoạch các dự án trọng điểm đón Diễn đàn hợp tác kinh tế châu Á - Thái Bình Dương tại Phú Quốc vào năm 2027 (APEC 2027) là vi phạm Luật Đất đai và không được kiểm đếm, bồi thường.
-- TP.HCM đang đẩy nhanh tiến độ làm các dự án hạ tầng giao thông quy mô lớn tại các cửa ngõ, trong đó có 4 dự án BOT quan trọng (quốc lộ 1, 13, 22, trục Bắc Nam) và dự án xây dựng cầu đường Bình Tiên.
-- Ngày 24-7, kỳ họp thứ 3, Hội đồng nhân dân tỉnh Đồng Nai khóa 10 đã chuyển tải các kiến nghị, tâm tư của cử tri tỉnh Đồng Nai.
-- Bảo hiểm xã hội TP.HCM sẽ trực tiếp chuyển tiền vào tài khoản người hưởng lương hưu và trợ cấp BHXH từ ngày làm việc đầu tiên của tháng.
-- Tại Hội nghị lần thứ 12, Trung ương Đảng thống nhất phương hướng công tác nhân sự Đại hội XIV gồm định hướng phân bổ cơ cấu, số lượng ủy viên Trung ương Đảng chính thức khóa XIV.
-- Đó là yêu cầu được Thủ tướng Phạm Minh Chính - trưởng Ban Chỉ đạo phòng thủ dân sự quốc gia về công tác phòng, chống thiên tai và tìm kiếm cứu nạn năm 2025 chủ trì phiên họp lần thứ nhất chiều 24-7.
-- UBND TP.HCM vừa chỉ đạo các sở, ngành và đơn vị liên quan sớm hoàn thành đường tạm dài 200m, từ cầu Nhơn Trạch ra đường cao tốc TP.HCM - Long Thành - Dầu Giây, đảm bảo thông xe kỹ thuật vào ngày 19-8.
-- Dù đạt tiêu chuẩn quốc gia và được Bộ Công Thương phê duyệt, nhiều sản phẩm công nghiệp Việt vẫn bị "gạt ra ngoài cuộc chơi" khi tham gia đấu thầu dự án đầu tư công chỉ vì không mang thương hiệu nhập khẩu.
-- Ngày 24-7, Vietnam Airlines cho biết sẽ bổ sung 2 máy bay Airbus A320 thuê ướt (gồm tổ bay) vào cuối tháng 7-2025, nhằm tăng năng lực phục vụ dịp cao điểm hè.
-- Theo báo cáo, kết quả quan trắc qua nhiều năm của Sở Nông nghiệp và Môi trường và các nghiên cứu liên quan đều ghi nhận ô nhiễm không khí tại TP.HCM chủ yếu liên quan đến bụi.
-- UBND tỉnh Khánh Hòa đã được Chính phủ phân bổ vốn (đợt 1) 3.260 tỉ đồng để bố trí chi trả đền bù thu hồi đất, tái định cư của 2 dự án Nhà máy điện hạt nhân Ninh Thuận 1 và Ninh Thuận 2.
-- Đại hội Đảng bộ xã Tu Mơ Rông, Quảng Ngãi nhiệm kỳ 2025 - 2030 diễn ra theo cách rất đặc biệt, không nhận hoa chúc mừng, mà thay bằng cây giống, phân bón và tiền hỗ trợ để tặng lại cho người dân phát triển kinh tế.
-- Đồn biên phòng Non Nước (Bộ đội biên phòng TP Đà Nẵng) vừa bắt giữ 2 đối tượng vận chuyển, mua bán khí cười (N2O) trái phép, thu giữ 163 bình khí cười các loại cùng nhiều thiết bị sang chiết.
-- Phó bí thư thường trực Thành ủy TP.HCM Nguyễn Thanh Nghị đề nghị tập trung cho hạ tầng giao thông đô thị, kết nối các khu vực và kết nối vùng như khép kín vành đai 2, vành đai 3, vành đai 4, các tuyến đường sắt đô thị, các tuyến quốc lộ...
-- Nước lũ từ thượng nguồn tiếp tục đổ về hạ lưu sông Lam khiến tuyến quốc lộ 7 đoạn qua huyện Anh Sơn (cũ), tỉnh Nghệ An ngập sâu trong nước.
-- Các cơn bão ở Biển Đông thường đi theo hướng từ Thái Bình Dương vào đất liền nước ta, tuy nhiên có một vài ngoại lệ quỹ đạo bất thường, bão Cỏ may là một cơn bão như vậy.
-- Ngày 24-7, xã Củ Chi (TP.HCM) đã hỗ trợ hai hộ dân có hoàn cảnh đặc biệt khó khăn trong số 13 hộ có nhà bị tốc mái do mưa dông kèm gió mạnh vào trưa 20-7.
-- 3 tàu hải quân lớn của Ấn Độ gồm tàu khu trục, tàu hộ vệ chống ngầm và tàu chở dầu cùng lúc cập cảng Tiên Sa thăm chính thức Đà Nẵng.
+- 6 thủ tục bảo hiểm thất nghiệp được thí điểm trên Cổng dịch vụ công quốc gia, người lao động mất việc có thể ngồi nhà làm thủ tục hưởng trợ cấp.
+- Chính phủ vừa ban hành nghị định quy định rõ thời điểm thẻ bảo hiểm y tế có hiệu lực, tác động trực tiếp đến quyền lợi khám chữa bệnh.
+- Chuyện một hiệu trưởng trường THCS ở Cà Mau bị tuyên phạt 7 năm tù về tội tham ô tài sản đang thu hút sự chú ý đặc biệt của dư luận.
+- Bộ Tư pháp đang thẩm định dự thảo nghị định quy định chế độ, chính sách và công tác bảo đảm đối với tổ chức, cá nhân làm nhiệm vụ tìm kiếm, quy tập hài cốt liệt sĩ do Bộ Quốc phòng xây dựng.
+- Ngay sau khi phát hiện tài xế xe đầu kéo có biểu hiện nghi vấn, cảnh sát giao thông Đội 6 thuộc Phòng 6 Cục Cảnh sát giao thông nhanh chóng dừng xe, kiểm tra, phát hiện tài xế dương tính ma túy.
+- Tin tức đáng chú ý: Giá thuê mặt bằng khu trung tâm TP.HCM tiếp tục tăng; Quy chế hoạt động của Ban Chỉ đạo cải cách lương, bảo hiểm xã hội, ưu đãi người có công; TP.HCM yêu cầu kiểm tra, gia cố bảng quảng cáo trong mùa mưa bão...
+- Hôm nay 26-7, thời tiết mưa dông vẫn bao trùm cả nước, Bắc Bộ tới Đà Nẵng mưa to đến rất to, Nam Bộ mưa dông.
+- Thủ tướng nhấn mạnh cần nỗ lực cao nhất để đưa các liệt sĩ trở về với tên tuổi, quê hương, không để ai bị lãng quên, không gia đình nào còn phải chờ đợi trong vô vọng.
+- Ngày 25-7, UBND tỉnh Gia Lai tổ chức hội nghị kiểm tra tình hình triển khai công tác bồi thường, giải phóng mặt bằng phục vụ dự án đường cao tốc Quy Nhơn - Pleiku đoạn qua địa bàn tỉnh Gia Lai cũ.
+- Cảnh sát đã hướng dẫn thoát nạn cho 45 cư dân và giải cứu 2 người bị ảnh hưởng bởi khói từ căn hộ bị cháy. Hiện cả 2 nạn nhân sức khỏe ổn định.
+- Xăng RON 95-III và xăng E5 RON 92-II sẽ được thay thế bằng xăng sinh học E10 RON 95-III từ ngày 1-8 tại các cửa hàng xăng dầu ở TP.HCM (cũ) của Petrolimex. Mặt hàng xăng khoáng RON 95-V vẫn còn bán bình thường.
+- Hải Phòng đã dự kiến phương án bố trí trên 1.000 tỉ đồng để cải tạo, sửa chữa hoặc xây mới các trụ sở, mua sắm trang thiết bị làm việc cho cấp xã theo đề xuất của các địa phương.
+- Liên quan nội dung tố cáo của một giáo viên ở Bạc Liêu, Sở Giáo dục và Đào tạo tỉnh Cà Mau mời 8 nguyên giám đốc, phó giám đốc được cho là "có liên quan" đến để nghe công bố quyết định.
+- Ngày 25-7, xã Tân Nhựt (TP.HCM) đang khẩn trương khắc phục sự cố sạt lở gần 30 mét đường Xóm Hố.
+- Khoảng 3,4 triệu người đang nhận lương hưu và trợ cấp bảo hiểm xã hội hằng tháng. Vậy ủy quyền nhận lương hưu từ khi vận hành chính quyền địa phương 2 cấp cần lưu ý gì?
+- Bộ Chính trị, Ban Bí thư nghiêm túc phê bình các địa phương chậm kiện toàn nhân sự chủ chốt, nhất là chức danh bí thư, chủ tịch UBND, chủ tịch HĐND cấp xã.
+- Bộ Tài chính có thông báo về việc "công chức tử vong tại cơ quan Bộ Tài chính". Theo đó sáng 25-7, tại cơ quan Bộ Tài chính xảy ra vụ tai nạn dẫn đến việc ông Phan Đức Dũng - vụ trưởng - bị ngã tử vong.
+- Bộ trưởng Phạm Thị Thanh Trà cho hay, thời gian tới sẽ tham mưu cho Chính phủ ban hành nghị định sử dụng KPI đánh giá cán bộ, công chức.
+- Sau khi nhận được thông tin phản ánh về việc rò rỉ hóa chất tại nhà máy bột giặt VICO, Công an phường An Hải (Hải Phòng) đã vào cuộc xác minh.
+- TP.HCM chỉ đạo tăng cường phối hợp tổ chức giao thông sau loạt kẹt xe nghiêm trọng tại cửa ngõ phía đông, do cùng lúc sửa cầu Long Thành và đóng nút giao ĐT743 - quốc lộ 1 để thi công nút Tân Vạn.
+- Chiều 25-7, tập thể người làm báo của báo Người Lao Động đã long trọng tổ chức kỷ niệm 50 năm thành lập (28-7-1975 - 28-7-2025).
+- Chủ tịch HĐND TP.HCM Võ Văn Minh khảo sát thực tế tại phường Tân Đông Hiệp, khi biết một thủ tục hành chính là đăng ký thế chấp thời gian xử lý mất 3 ngày thay vì 1 ngày như trước, ông yêu cầu phải điều chỉnh ngay.
+- Phó thủ tướng Nguyễn Chí Dũng cho rằng tỉnh Khánh Hòa sau sáp nhập có tiềm năng rất lớn trở thành trung tâm năng lượng, trung tâm du lịch đẳng cấp quốc tế.
+- Làm việc với đặc khu Côn Đảo chiều 25-7, Chủ tịch UBND TP.HCM Nguyễn Văn Được nhấn mạnh cần định vị bản sắc riêng của Côn Đảo để xây dựng chiến lược phát triển dài hạn, đặc biệt theo hướng giao thông xanh, an ninh, hạnh phúc cho người dân.
+- Chủ tịch UBND TP Cần Thơ Trần Văn Lâu cho biết qua 25 ngày vận hành chính quyền địa phương 2 cấp, thành phố sẽ đánh giá năng lực thực hiện của cán bộ để xem xét bố trí, điều chuyển lại cho phù hợp. Ông cũng gợi ý miễn phí bánh, nước cho người dân.
+- Chủ xe khách 29 chỗ cho tài xế chưa đủ điều kiện điều khiển chạy trên cao tốc bị lực lượng Cục Cảnh sát giao thông phát hiện lập biên bản, sẽ xử phạt 77 triệu đồng.
+- Một gói thầu được bổ sung để đánh giá hiện trạng nhằm sửa chữa và lập dự toán phát sinh ở dự án Trung tâm triển lãm quy hoạch TP.HCM, với giá trị phát sinh dự kiến 76,9 tỉ đồng.
+- Chuyển xe xăng sang xe điện để dần dần cải thiện môi trường được nhiều người đồng tình.
+- Cán bộ Công an phường Bình Minh, tỉnh Vĩnh Long tăng ca đêm thứ năm hằng tuần, phục vụ thủ tục liên quan thẻ căn cước, định danh điện tử cho tất cả công dân.
+- Nạn nhân được xác định là chị H.T.Q., được tìm thấy ở khu vực cửa Dứa trên vịnh Hạ Long.
+- Bí thư phường kiến nghị bổ sung 1 phó chủ tịch UBND đối với những phường có dân số trên 100.000 người do khối lượng công việc rất lớn.
+- Nhiều ý kiến bạn đọc đã chia sẻ liên quan vụ 'Làm đồ dùng cho trường, hiệu trưởng vướng vòng lao lý'.
+- Giai đoạn mùa khô 2024-2025, ba Đội K70, K71 và K73 đã tìm kiếm và quy tập được 474 hài cốt liệt sĩ chưa xác định được danh tính.
+- Nước phù sa đổ về đỏ quạch chảy cuồn cuộn trên các nhánh sông đã kéo theo cá, tôm cho người dân vùng ĐBSCL mỗi khi mùa lũ về.
+- Ngày 25-7, Cục Cảnh sát giao thông ban hành kế hoạch tổng kiểm soát, xử lý vi phạm liên quan phương tiện kinh doanh vận tải trên đường bộ và đường thủy.
+- Phó bí thư thường trực Thành ủy TP Nguyễn Thanh Nghị khẳng định TP.HCM sẽ tiếp tục nỗ lực thực hiện tốt chính sách đền ơn đáp nghĩa.
+- Wu Miao xây các phòng đánh mạt chược có gắn máy lạnh, phục vụ ăn uống rồi rủ rê những người 'đồng hương' Trung Quốc đến chơi.
+- Thủ tướng Phạm Minh Chính vừa ký công điện về khắc phục hậu quả vụ tai nạn giao thông trên quốc lộ 1 đoạn qua phường Sông Trí, tỉnh Hà Tĩnh.
+- Bộ Nội vụ đã trình quy định tiếp nhận người hoạt động không chuyên trách cấp xã, thanh niên trí thức trẻ có hợp đồng làm công chức.
+- Hành khách Trần Huy Tùng bất ngờ thấy rung lắc mạnh rồi xe khách lật nghiêng, những người sống sót hoảng loạn kêu cứu và tìm cách thoát thân ra ngoài.
+- Hàng ngàn ngôi nhà của người dân Nghệ An bị lũ cuốn trôi, hư hỏng, ngập nặng cùng nhiều tài sản bị thiệt hại do mưa lũ cơn bão số 3 (bão Wipha).
+- Số ca mắc sốt xuất huyết nặng nhập viện tại Bệnh viện Bệnh nhiệt đới tăng nhanh. Đội ngũ y, bác sĩ đang 'căng mình' giành lại sự sống người bệnh.
+- Phó thủ tướng Bùi Thanh Sơn yêu cầu Viện Nghiên cứu hạt nhân Đà Lạt chuẩn bị kỹ cho các dự án lớn vì mục tiêu hòa bình, phát triển kinh tế - xã hội.
+- VinFast của tỉ phú Phạm Nhật Vượng ký kết thỏa thuận hợp tác với 12 ngân hàng và tổ chức tài chính lớn nhằm triển khai các gói vay ưu đãi, hỗ trợ người dân thủ đô chuyển đổi từ xe xăng sang xe điện.
+- Ngày 25-7, tại Trường cao đẳng Công nghệ cao Đồng An, Ban chỉ đạo 138 TP.HCM tổ chức Ngày hội Toàn dân bảo vệ an ninh Tổ quốc năm 2025.
+- Tòa án nhân dân khu vực 2 tỉnh An Giang có quyết định trả hồ sơ để điều tra bổ sung vụ án hình sự xe biển xanh gây tai nạn khiến nữ sinh tử vong.
+- 6 tác phẩm của báo Tuổi Trẻ về thành tựu phát triển của TP.HCM đã được khen thưởng.
+- Thi thể tài xế GrabBike ra bờ kênh trên đường Nguyễn Văn Linh, phường Tân Thuận (TP.HCM) bị cuốn vào cống đã được tìm thấy.
+- Ứng dụng công nghệ số, AI, điều chỉnh quy hoạch linh hoạt... là những hiến kế giúp Khánh Hòa sớm hoàn thành mục tiêu đưa tỉnh này trở thành thành phố vào năm 2030.
+- UBND tỉnh Quảng Trị kiến nghị cho phép tiếp nhận 12 người thuộc đề án trí thức trẻ tình nguyện mà không cần căn cứ vào chỉ tiêu biên chế.
 ![New](News.png)
 ## Nhịp sống số 
+- Vào ngày 11-6-2025, Phó Thủ tướng Nguyễn Chí Dũng đã ký Quyết định số 1121/QĐ-TTg phê duyệt Chương trình hành động quốc gia về phát triển và chuyển đổi sang sử dụng nền tảng điện toán đám mây giai đoạn 2025 - 2030.
+- AlphaMath đã thể hiện khả năng tự phân tích bài toán, đặt lại giả định, đưa ra hướng tiếp cận, phản biện lời giải của chính nó y như thí sinh thật.
+- Mỗi ngày có đến 2,5 tỉ lượt truy vấn đổ dồn vào ChatGPT, từ khắp nơi trên thế giới. Một công cụ ra đời chưa đầy 2 năm đang khiến thói quen tìm kiếm thông tin dần thay đổi. Điều gì đang thực sự diễn ra?
 - Từ 1-7-2025, kẻ gian lợi dụng việc sắp xếp địa giới hành chính để lừa đảo công nghệ cao.
 - XSS.is là một trong những 'chợ ngầm' chuyên mua bán dữ liệu và phần mềm độc hại, hoạt động lâu năm trên web đen (dark web), với khoảng 50.000 người dùng.
 - Giả mạo shipper là một hình thức lừa đảo ngày càng tinh vi, gây thiệt hại lớn cho người tiêu dùng.
@@ -152,7 +155,4 @@
 - Cảnh báo chướng ngại vật, giúp định vị và tìm đường... công nghệ nhận diện vật thể và cảnh vật được ví như 'đôi mắt' cho người khiếm thị.
 - AI đang góp mặt vào lĩnh vực sinh học bằng cách thiết kế các chuỗi ADN mới. Công nghệ này giúp tăng tốc nghiên cứu protein, vắc xin, vi sinh vật và nhiều ứng dụng y sinh tiềm năng khác.
 - Người sáng tạo viết, quay, đăng nhưng ai được thấy, ai bị ẩn đi do một thực thể vô hình: thuật toán đề xuất. Trong thời đại AI kiểm soát dòng nội dung, người làm nghề không khỏi băn khoăn: Mình đang phục vụ khán giả thật hay chỉ cố làm hài lòng máy?
-- Ứng dụng ruID của Nga giúp đơn giản hóa thủ tục nhập cảnh miễn thị thực, thu thập dữ liệu sinh trắc học và tạo hồ sơ kỹ thuật số.
-- Trong thời đại mà trí tuệ nhân tạo có thể trả lời mọi câu hỏi trong vài giây, nhiều người mặc định xem AI là nguồn kiến thức chính xác. Nhưng nếu thông tin đầu vào đã sai, AI liệu có thể tạo ra câu trả lời đúng?
-- Bạn là chính bạn, nhưng thiết bị chỉ tin điều đó khi vân tay, khuôn mặt hay mã số khớp hoàn hảo. Trong thế giới số, danh tính không còn là con người thật, mà là dữ liệu máy móc có chấp nhận hay không.
 ![life](Life.png)
