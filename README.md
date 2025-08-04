@@ -1,6 +1,13 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Năm học mới sắp gõ nhịp, tôi sẽ lại bắt gặp nỗi lo dâng tràn, áp lực bài vở đong đầy nơi ánh mắt và lời thỏ thẻ của mấy bạn nhỏ lớp 6 ư?
+- Nhiều vụ “bắt cóc online” học sinh, sinh viên gây lo ngại khi kẻ xấu điều khiển nạn nhân từ xa, không cần tiếp xúc trực tiếp.
+- 21 sinh viên là những vận động viên thể thao môn karate, bóng chuyền, điền kinh, wushu... vừa được Trường đại học Kinh tế, Đại học Quốc gia Hà Nội trao bằng tốt nghiệp cử nhân quản trị kinh doanh dành cho các tài năng thể thao.
+- Năm học mới 2025-2026 tại nhiều trường cao đẳng trên cả nước đã chính thức bắt đầu.
+- Theo PGS.TS Hoàng Đình Phi, khi ra trường, tân cử nhân phải chấp nhận thực tế có thể không vui, có thể cay đắng, nhưng không được mải mê với những trò chơi online tẻ nhạt, không được để cho AI và mạng xã hội phá hoại tương lai của chính mình.
+- Bộ Giáo dục và Đào tạo vừa ‘siết’ quy định quy đổi điểm trúng tuyển đại học, nhưng các trường đại học cho rằng việc này không có ý nghĩa, ngược lại có thể gây bức xúc cho thí sinh.
+- Trong dịp kỷ niệm 10 năm thành lập, Trường đại học Khánh Hòa đặt mục tiêu trở thành trung tâm đào tạo, nghiên cứu chất lượng cao tại khu vực. Trước mắt trường mở ngành đào tạo thạc sĩ đầu tiên là ngành toán học.
 - Văn hóa trong dạy học toán là một khái niệm ít được nhắc đến, nay được các nhà toán học phân tích, thảo luận trong một tọa đàm do Viện Nghiên cứu cao cấp về toán tổ chức ngày 2-8.
 - Bộ Giáo dục và Đào tạo yêu cầu các trường đại học phải công bố quy định điểm chênh giữa các tổ hợp xét tuyển, quy tắc quy đổi điểm trúng tuyển bám sát hướng dẫn của bộ.
 - Sau phản ánh của Tuổi Trẻ Online về việc một số trường đại học gửi tin nhắn, thư mời nhập học tới thí sinh dù chưa đến giai đoạn tổ chức xét tuyển, Vụ Giáo dục đại học cho biết đã nhắc nhở các trường rà soát lại, tuân thủ đúng quy chế.
@@ -44,16 +51,41 @@
 - Bộ Giáo dục và Đào tạo cho biết các cấp học mầm non, tiểu học vẫn đang thiếu hàng chục ngàn phòng học và có tới gần 6.500 phòng học phải đi nhờ, mượn.
 - Đại học Quốc gia TP.HCM vừa bổ sung khung quy đổi điểm trúng tuyển xét điểm thi đánh giá năng lực về điểm trúng tuyển xét điểm thi tốt nghiệp THPT năm 2025 theo bách phân vị thêm hai tổ hợp A00, C00.
 - Chủ trương "một chương trình, nhiều bộ sách giáo khoa (SGK)" đã được đặt ra từ lâu, là một bước tiến đáng kể trong quá trình đổi mới giáo dục tại Việt Nam.
-- Chính phủ Nhật Bản phê duyệt chính sách triển khai hệ thống tư cách lưu trú mới dành cho lao động nước ngoài từ tháng 4-2027.
-- Vòng chung kết kỳ thi toán quốc tế WMI 2025 (World Mathematics Invitational) diễn ra từ ngày 25-7 đến 29-7 tại Bangkok, Thái Lan, trong đó có 2 học sinh Việt Nam đoạt huy chương kim cương.
-- Theo quy định, thí sinh phải nộp lệ phí đăng ký xét tuyển theo số lượng nguyện vọng xét tuyển đã đăng ký bằng hình thức trực tuyến.
-- TP.HCM phát động ủng hộ xây dựng hệ thống điện mặt trời tại các trường tiểu học của Cuba nhằm đảm bảo nguồn điện ổn định lâu dài cho các học sinh.
-- Hơn 7,6 triệu nguyện vọng đăng ký xét tuyển đại học, cao đẳng năm 2025 chính thức được giảm lệ phí xét tuyển xuống 15.000 đồng/nguyện vọng, tương đương giảm hơn 38 tỉ đồng lệ phí xét tuyển.
-- Từng chật vật với bảng điểm khiêm tốn, rồi tự tin đặt chân vào đại học top đầu ở Mỹ, trở thành phó hiệu trưởng đại học - đó chính là minh chứng sống động cho sức mạnh bền vững của giáo dục khai phóng.
-- Tối 28-7, Trường Phổ thông Năng khiếu (Đại học Quốc gia TP.HCM) tổ chức lễ tri ân thầy Lê Bá Khánh Trình và thầy Nguyễn Thanh Hùng. Hai thầy được xem là 'huyền thoại' ở môn toán và tin học của nhà trường.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Dự báo trong tháng 8, có thể xuất hiện 1-2 cơn bão, áp thấp nhiệt đới trên Biển Đông và có thể ảnh hưởng đến đất liền Việt Nam. Ngoài ra, ở Bắc Bộ và các tỉnh từ Thanh Hóa - Huế có khả năng xuất hiện một số đợt mưa lớn diện rộng.
+- Vì sao khởi công xây dựng đường N1 liên kết vùng Đồng Tháp - An Giang đã hoàn thành hơn 98% nhưng sao vẫn chưa đưa vào sử dụng?
+- Thủ tướng Phạm Minh Chính vừa có thư khen tấm gương cứu người trong trận lũ quét tại bản Háng Pu Xi của Trưởng bản Mùa A Thi.
+- Những chuyến bay thử nghiệm qua sân bay Long Thành (Đồng Nai) là tín hiệu cho thấy thời điểm vận hành chính thức đang đến rất gần.
+- Ba nút giao lớn ở TP.HCM sắp được xây cầu vượt để giảm kẹt xe, người dân mong từng ngày vì áp lực giao thông đã kéo dài nhiều năm.
+- Có người đồng tình với cách làm hiện hữu, nhưng cũng không ít người cho rằng phố đi bộ Bùi Viện nên cải thiện nếu muốn 'vươn tầm'.
+- Nhiều trại giam trên cả nước đang triển khai công tác xem xét đặc xá dịp Quốc khánh 2-9 theo quyết định của Chủ tịch nước.
+- Tin tức đáng chú ý: Tổng liên đoàn Lao động Việt Nam điều chỉnh mức đóng đoàn phí công đoàn hằng tháng; Phó thủ tướng Hồ Đức Phớc chỉ đạo khắc phục hậu quả mưa lũ Nghệ An; Có thể chẩn đoán, điều trị nhiều bệnh lý từ giai đoạn bào thai...
+- Hôm nay 4-8, thời tiết Nam Bộ ngày nắng, chiều tối mưa dông. Bắc Bộ ngày nắng nóng, chiều tối mưa rào đến mưa to.
+- Nhiệm vụ trọng tâm được Phó thủ tướng Chính phủ Hồ Đức Phớc yêu cầu tại buổi kiểm tra, đôn đốc khắc phục hậu quả mưa lũ Nghệ An chiều 3-8.
+- Yêu cầu được Thủ tướng Phạm Minh Chính đưa ra trong cuộc họp với tỉnh Điện Biên sau khi thị sát vùng lũ và thăm hỏi, động viên người dân.
+- Dự báo từ tối mai 4-8 đến sáng 7-8, khu vực vùng núi và trung du Bắc Bộ có khả năng xảy ra một đợt mưa lớn diện rộng, cảnh báo nguy cơ mưa có cường suất lớn trên 100mm/3 giờ.
+- Tổng Bí thư Tô Lâm yêu cầu cấp ủy, chính quyền địa phương các cấp lo đảm bảo cho những người mất nhà cửa do mưa lũ có chỗ ở, đảm bảo không để người dân đói rét.
+- Bí thư Thành ủy Hà Nội chia sẻ với chính quyền, người dân 2 tỉnh Điện Biên và Sơn La chịu ảnh hưởng nghiêm trọng bởi mưa lũ. Hà Nội cũng hỗ trợ khẩn cấp 8 tỉ đồng cho 2 địa phương.
+- Hàng trăm cán bộ, chiến sĩ thuộc Bộ Chỉ huy quân sự tỉnh Điện Biên đã được huy động tới các điểm để giúp người dân dựng nhà bạt dã chiến, hỗ trợ nhu yếu phẩm, khắc phục hậu quả sau lũ.
+- Dự án cải tạo và nâng cấp quốc lộ 28B nối miền biển và xứ hoa của tỉnh Lâm Đồng mới đang tăng tốc quyết liệt, nhưng vẫn còn nỗi lo về mặt bằng ở 10km đầu tuyến.
+- Chiều 3-8, Thủ tướng Phạm Minh Chính và đoàn công tác đã tới hiện trường thăm hỏi, động viên người dân chịu ảnh hưởng, thiệt hại nặng nề do mưa lũ, sạt lở đất tại xã Na Son, xã Tìa Dình, xã Xa Dung của tỉnh Điện Biên.
+- Những ngày đầu vụ, hàng chục tấn cá cơm tươi rói liên tục được ngư dân Quảng Trị đưa vào bờ, cảng cá Nam Cửa Việt nhộn nhịp như ngày hội.
+- Người dân đến Trung tâm hành chính công xã Nhà Bè làm giấy tờ được mời bánh, nước miễn phí và chấm điểm mức hài lòng ngay tại chỗ bằng máy tính bảng.
+- Xe điện vẫn chưa được đón nhận rộng rãi tại các chung cư do lo ngại nguy cơ cháy nổ và thiếu hạ tầng sạc an toàn.
+- Những 'vết trượt' lớn trên núi kết hợp với lũ ống, lũ quét đã xóa sổ 1/3 bản Háng Pu Xi (xã Xa Dung, tỉnh Điện Biên).
+- Trưa 3-8, một người đàn ông được cho là rơi từ tầng 4 của trung tâm thương mại Aeon Mall Long Biên (Hà Nội).
+- Ông Hoàng Nam Tiến đột ngột qua đời để lại nhiều tiếc thương; Chung cư Tân Phước cấm gửi xe điện… là những thông tin được đông đảo bạn đọc phản hồi.
+- Tỉnh Nghệ An đã hỗ trợ khẩn cấp 317 tỉ đồng cho 35 xã khắc phục thiệt hại mưa lũ, sớm ổn định đời sống người dân.
+- Cà phê doanh nhân là dịp để chính quyền đặc khu Phú Quốc lắng nghe và tháo gỡ khó khăn cho doanh nghiệp.
+- "Tôi đã có dịp được tìm hiểu nguyên lý và chương trình đào tạo bác sĩ y khoa ở nhiều nước trong khu vực Đông Nam Á cũng như ở nhiều nước phát triển khu vực châu Á, châu Âu, Úc và Hoa Kỳ" - nguyên thứ trưởng Bộ Y tế Lê Quang Cường nói với Tuổi Trẻ.
+- Cảnh sát giao thông Đồng Nai vừa xử phạt hơn 20 tài xế vi phạm nồng độ cồn trên quốc lộ 13 và đường ĐT 741. Trong đó có tài xế vượt kịch trần vi phạm hơn 5 lần.
+- Sáng 3-8, Tập đoàn Công nghiệp - Năng lượng Quốc gia Việt Nam (Petrovietnam) tổ chức Đại hội đại biểu Đảng bộ Tập đoàn lần thứ IV nhiệm kỳ 2025-2030, với sự tham dự của Thủ tướng Phạm Minh Chính.
+- Hình ảnh cột nước cao vài mét kèm bùn đất được nhiều tài khoản mạng xã hội chia sẻ và cho rằng vỡ ống nước hoặc vỡ trụ nước cứu hỏa, vậy thực tế ra sao?
+- Bảo hiểm xã hội Việt Nam lưu ý nhiều trường hợp bị chấm dứt hưởng trợ cấp thất nghiệp.
+- Tuần này, Bắc Bộ mưa trở lại sau đó nắng, Trung Bộ thời tiết vẫn nắng nóng, Nam Bộ ngày nắng, chiều tối mưa dông.
+- Chủ tịch nước Lương Cường cùng Phu nhân rời Hà Nội sáng 3-8, bắt đầu chuyến công du với điểm đến đầu tiên là Ai Cập.
+- Nhiều bạn đọc cho rằng thay vì cấm xe giường nằm, điều quan trọng là phải siết chặt quản lý, nâng cao ý thức tài xế và trách nhiệm của doanh nghiệp vận tải.
+- Dự báo trong tháng 8, có thể xuất hiện 1-2 cơn bão, áp thấp nhiệt đới trên Biển Đông và có thể ảnh hưởng đến đất liền Việt Nam. Ngoài ra ở Bắc Bộ và các tỉnh từ Thanh Hóa - Huế có khả năng xuất hiện một số đợt mưa lớn diện rộng.
 - Bộ Nông nghiệp và Môi trường nêu rõ nguyên nhân cốt lõi dẫn đến tình trạng vứt rác bừa bãi xuống kênh rạch, nơi công cộng TP.HCM chủ yếu do ý thức người dân chưa cao. Bộ đã hoàn thiện dự thảo nghị định theo hướng tăng mức phạt.
 - Gánh nặng từ chi phí sách vở, đồ dùng học tập, ăn bán trú, cũng như học bồi dưỡng nâng cao ngoại ngữ, thể chất và kỹ năng cho học sinh cũng nên được xem xét giảm trừ thuế thu nhập cá nhân, bà Vũ Thu Hà góp ý.
 - Thủ tướng vừa ký công văn chỉ đạo tập trung khắc phục hậu quả mưa lũ, lũ quét, sạt lở đất tại các tỉnh Điện Biên, Sơn La, Nghệ An.
@@ -71,40 +103,10 @@
 - Sau sáp nhập, TP.HCM có lượng xe và cơ sở đăng kiểm tăng vọt, cấp thiết cần đầy đủ dữ liệu để nâng cao năng lực quản lý, giám sát hoạt động kiểm định xe cơ giới trên địa bàn.
 - Cơ quan chức năng đã xác định được chủ xe biển số tỉnh Ninh Thuận cũ (nay là Khánh Hòa) đậu suốt hơn một năm nay bên đường Nguyễn Đình Chiểu (phường Bắc Nha Trang, tỉnh Khánh Hòa).
 - Ngày 2-8, đại diện Phòng Cảnh sát giao thông Công an TP.HCM cho biết Đội cảnh sát giao thông An Sương đang phối hợp Công an xã Xuân Thới Sơn xử lý thanh niên dùng thanh sắt đập vỡ kính chiếu hậu của xe tải được đăng tải trên mạng xã hội.
-- Theo lãnh đạo Tòa án nhân dân tối cao, việc ra mắt chuyên trang đặc biệt “Lịch sử 80 năm Tòa án nhân dân” nhằm số hóa các tư liệu lịch sử, lan tỏa những giá trị truyền thống và nâng cao hiệu quả giáo dục pháp luật trong thời kỳ chuyển đổi số.
-- Công an tỉnh Đồng Nai vừa trao tặng 1,6 tỉ đồng ủng hộ đồng bào, cán bộ chiến sĩ bị ảnh hưởng do bão số 3 và mưa lũ gây ra.
-- Chủ tịch UBND tỉnh Bắc Ninh yêu cầu khắc phục triệt để việc ngập úng tại phường Bắc Giang và không để tình trạng này trở thành "thương hiệu" mỗi khi mùa mưa đến.
-- Ngôi nhà xảy ra cháy có quy mô 3 tầng, 1 tum, diện tích khoảng 35m² nằm trong ngõ sâu, cách đường giao thông 200m. Các chiến sĩ cảnh sát phòng cháy đã kịp thời giải cứu 3 người mắc kẹt tại tầng 2 xuống khu vực an toàn.
-- Ban Quản lý dự án đầu tư xây dựng Long An kiến nghị tỉnh chỉ đạo xã lập quy hoạch chi tiết khu tái định cư vành đai 4 TP.HCM đồng thời với quy hoạch xã. Quy hoạch xong trước thì thẩm định, phê duyệt trước và đồng bộ với quy hoạch chung sau.
-- Chiều 2-8, Thủ tướng Phạm Minh Chính cùng đoàn công tác trung ương đã đi kiểm tra tiến độ thi công dự án sân bay Long Thành.
-- Từ đầu năm đến nay, Tây Ninh đã tiêu hủy hơn 1.000 con heo mắc bệnh dịch tả heo châu Phi. Có hai ổ dịch ở xã Tân Hội và phường Bình Minh chưa qua 21 ngày, tiêu hủy 434 con.
-- Các lực lượng quân đội, đoàn thanh niên vượt núi, băng sông 'cõng' hàng cứu trợ tới bà con Nghệ An đang bị cô lập do cầu treo dân sinh bị lũ cuốn trôi.
-- Ngày 2-8, UBND xã Bình Mỹ, TP.HCM đã tổ chức lễ khởi động chương trình "Vì sức khỏe cộng đồng" và trao tặng xe đạp, mũ bảo hiểm cho 60 học sinh có hoàn cảnh khó khăn trên địa bàn xã.
-- Nhiều công trình giao thông kết nối liên vùng đang được đẩy mạnh thi công, trong đó có nhiều tuyến mới để  kết nối TP.HCM với các tỉnh trong khu vực.
-- Ngày 2-8, ông Lê Minh Hoan - phó chủ tịch Quốc hội - cùng đoàn công tác và lãnh đạo tỉnh An Giang, Cà Mau khảo sát tiến độ thực hiện dự án đường Hồ Chí Minh đoạn Rạch Sỏi - Bến Nhứt, Gò Quao - Vĩnh Thuận, tỉnh An Giang.
-- Thủ tướng Phạm Minh Chính yêu cầu Bộ Tài chính chủ trì cùng các địa phương vùng Đông Nam Bộ rà soát, cập nhật quy hoạch phù hợp với việc sắp xếp lại các đơn vị hành chính cấp tỉnh và định hướng phân vùng kinh tế - xã hội mới.
-- Lãnh đạo TP.HCM đề xuất tăng thêm phó chủ tịch cho phường, xã đông dân; kiến nghị ủy quyền cho giám đốc trung tâm hành chính công cấp xã được ký duyệt một số hồ sơ thuộc thẩm quyền của lãnh đạo cấp xã.
-- Lãnh đạo Bộ Công an ghi nhận, đánh giá cao, biểu dương, khen ngợi Công an tỉnh Sơn La trong công tác triển khai ứng phó với mưa lũ, kịp thời cứu dân bị mắc kẹt trong lũ dữ.
-- Việt Nam kiên quyết phản đối thông tin xuyên tạc, sai sự thật về hoạt động hợp tác nhân đạo tìm kiếm và kiểm kê quân nhân Mỹ mất tích trong chiến tranh ở Việt Nam.
-- Các lực lượng chức năng Đồng Nai đang nỗ lực dập tắt đám cháy ở xưởng mút xốp rộng cả ngàn mét vuông.
-- Thành ủy Hà Nội kiến nghị Ban Tổ chức Trung ương nghiên cứu, bổ sung chức năng, nhiệm vụ, tổ chức bộ máy đối với mô hình Tổ hợp báo chí truyền thông đối với Hà Nội và TP.HCM.
-- Sau mưa lũ, sạt lở đất, bản Háng Pu Xi (xã Xa Dung, tỉnh Điện Biên) có 3 người chết và mất tích, 24/70 ngôi nhà bị đất, đá vùi lấp, cuốn trôi mất trắng hoàn toàn cả nhà ở và tài sản.
-- Ý muốn ở trong di tích lầu Bảo Đại thật kỳ quặc, lẽ ra không bao giờ có trong tư tưởng của lãnh đạo một cơ quan quản lý di tích.
-- Xe bán tải chạy trên đường Đặng Văn Bi (phường Thủ Đức, TP.HCM) bất ngờ mất lái tông gãy cột điện ven đường, khiến một người đi xe máy gần đó bị thương. Tài xế được xác định đã tử vong, nghi đột tử.
-- Sáng 2-8, Phó thủ tướng Trần Hồng Hà cùng đoàn công tác đã có mặt tại hiện trường bản Háng Pu Xi (xã Xa Dung, tỉnh Điện Biên) kiểm tra, chỉ đạo công tác cứu hộ, khắc phục hậu quả lũ quét.
-- Nhiều chuyên gia ca ngợi xe chạy bằng nhiên liệu hydro hơn xe điện. Thật ra hai loại xe này đều có ưu và khuyết điểm riêng nên chưa chắc xe nào phát thải gây ô nhiễm môi trường ít hơn.
-- Thủ tướng cho rằng việc xây dựng và phát triển Trung tâm tài chính quốc tế tại Việt Nam là một trong những động lực, thúc đẩy phát triển nguồn lực tài chính. Đây là xu thế của thế giới, đòi hỏi của thực tiễn và cũng là tầm nhìn của đất nước.
-- Ngày 2-8, TAND TP Đà Nẵng xét xử lưu động và tuyên phạt bị cáo Trần Bảo Quốc (48 tuổi, trú TP.HCM) mức án 20 năm tù về tội vận chuyển trái phép chất ma túy.
-- Sau mệnh lệnh tổng kiểm soát xe kinh doanh vận tải của Thiếu tướng Đỗ Thanh Bình, cảnh sát giao thông kiểm soát và phát hiện nhiều vi phạm liên quan xe kinh doanh vận tải.
-- Tổ công tác '1 kèm 1' của phường Bình Tiên, TP.HCM sẽ đến từng nhà hỗ trợ người dân sử dụng VNeID, thao tác trên Cổng dịch vụ công...
-- Hình ảnh bà con vùng lũ Nghệ An sẵn sàng chia sẻ hàng cứu trợ cho 40 hộ dân Lào bị cô lập do lũ lụt lay động hàng triệu trái tim.
-- Sau vụ xe điện du lịch tông 3 du khách đang đi bộ qua đường làm 1 người chết tại phường Quy Nhơn, Sở Xây dựng tỉnh Gia Lai yêu cầu tạm dừng hoạt động toàn bộ xe điện để tổng kiểm tra.
-- Việc gửi và sạc xe điện trong các chung cư ở TP.HCM đang có tình trạng 'nơi cho, nơi cấm' tiếp tục được nhiều bạn đọc Tuổi Trẻ phản ánh.
-- Các tầng hầm giữ xe chung cư vẫn 'bài xích' xe điện thì đến bao giờ ước muốn 'giao thông xanh', năng lượng xanh trở thành hiện thực?
-- Thời gian tới, Bộ Công an sẽ làm rõ sự tiếp tay, câu kết, móc nối của các cơ quan quản lý với sản xuất thực phẩm, sữa giả...
-- Chủ tịch UBND TP.HCM Nguyễn Văn Được cho biết việc xây dựng Trung tâm tài chính quốc tế tại Việt Nam không chỉ đơn thuần là xây dựng trung tâm tài chính mà còn là xây dựng niềm tin, vị thế của Việt Nam trên bản đồ vị thế toàn cầu.
 ![New](News.png)
 ## Nhịp sống số 
+- Mô hình AI này chuyển đổi dữ liệu vệ tinh - như màu sắc, mây, địa hình - thành các dạng biểu diễn số, giúp người dùng dễ dàng tìm kiếm các đặc điểm như loại cây, tòa nhà hay mạch nước ngầm.
+- Nhiều vụ “bắt cóc online” học sinh, sinh viên gây lo ngại khi kẻ xấu điều khiển nạn nhân từ xa, không cần tiếp xúc trực tiếp.
 - Google đang định hình lại cách tìm kiếm thông tin bằng AI với 'Web Guide', một tính năng thử nghiệm giúp sắp xếp kết quả thành các chủ đề, mang lại trải nghiệm trực quan và hiệu quả hơn.
 - Mạng xã hội xuất hiện một đoạn âm thanh dài hơn 23 phút, được cho là của tỉ phú Elon Musk khen ngợi sự phát triển của Ấn Độ. Tuy nhiên kiểm chứng cho thấy đây là sản phẩm của AI.
 - Từ phòng nghiên cứu ở Mỹ đến dự án thử nghiệm của các công ty công nghệ, những chiếc tai nghe thông minh đang học cách nhận biết trầm cảm và lo âu thông qua cảm biến sinh học và trí tuệ nhân tạo.
@@ -153,6 +155,4 @@
 - Bạn đã từng dùng Bluetooth để nghe nhạc qua tai nghe, AirDrop để gửi ảnh, nhưng có bao giờ thử so sánh chúng?
 - Mỗi lần bạn đăng nhập hay thanh toán, mã OTP chỉ dùng được trong khoảng 30 giây rồi biến mất. Vì sao lại có giới hạn đó, và hệ thống nào đứng sau việc tạo mã nhanh chóng mà vẫn đảm bảo bảo mật?
 - Trong thời đại mà sự hiện diện trực tuyến được xem như thước đo cam kết, người lao động ngày càng bị cuốn vào vòng xoáy 'phải luôn online để được nhìn nhận'. Vậy quyền được tắt máy liệu có còn tồn tại?
-- Ra đời với lời hứa về sự tiện lợi, sạc không dây đến nay vẫn chưa đủ sức thay thế dây sạc truyền thống trong thói quen hằng ngày của người dùng. Công nghệ này liệu có đang chững lại?
-- Trợ lý AI hoạt động 24/7 trên máy tính, điện thoại, máy tính bảng, giúp người dùng tra cứu nhanh các thông tin về đơn vị hành chính mới.
 ![life](Life.png)
