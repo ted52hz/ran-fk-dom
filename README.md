@@ -1,6 +1,7 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Trường đại học Quốc tế cho biết sinh viên Lê Nguyễn Bảo Ngọc đã tốt nghiệp đại học trong đợt xét tháng 7-2025 với kết quả đạt loại giỏi.
 - Tin tức đáng chú ý: TP.HCM tuyển bổ sung hơn 4.800 giáo viên năm học 2025-2026; Cần Thơ khởi công nhà dưỡng lão chăm sóc người già neo đơn miễn phí; Đào tạo nâng cao kiến thức, kinh nghiệm của thầy thuốc điều trị tật khúc xạ...
 - Đại học Kinh tế quốc dân (NEU) vừa ban hành đề án Phát triển tiếng Anh trở thành ngôn ngữ thứ hai trong nhà trường.
 - Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) vừa quyết định cấp học bổng toàn phần cho chàng trai vàng Olympic Tin học quốc tế Lê Kiến Thành.
@@ -50,59 +51,58 @@
 - Việt Nam giành 1 giải Champion, 10 huy chương vàng, 7 huy chương bạc, 4 huy chương đồng tại Đấu trường toán học châu Á AIMO 2025.
 - Quảng Ngãi đề xuất khoảng 750 tỉ đồng xây dựng 5 trường học liên cấp ở 5 xã. Các xã còn lại sẽ đề xuất sau.
 - Lần đầu tiên một chương trình đào tạo thạc sĩ chuẩn Đức trong lĩnh vực logistics và quản lý chuỗi cung ứng được tổ chức tại Việt Nam.
-- Những mảnh đời kém may mắn tại Đồng Tháp được phẫu thuật mắt miễn phí nhờ chương trình 'Phẫu thuật mắt đục thủy tinh thể - Rạng ngời đôi mắt Việt Nam', với chủ đề ‘Ánh sáng Sen Hồng’ lần 1 năm 2025'.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Ung thư không còn gây chết chóc như trước kia, và những tiến bộ liên tục đang diễn ra trên phạm vi toàn cầu.
+- Cho phép người Việt vào chơi casino nếu quản lý tốt sẽ ngăn dòng tiền chảy ra nước ngoài, mang lại nguồn thu lớn cho ngân sách, góp phần lo an sinh xã hội.
+- Thời gian qua, bọn lừa đảo chủ yếu nhắm vào học sinh, sinh viên, có độ tuổi từ 18 đến 22 để  'bắt cóc online', đòi tiền chuộc và nhiều nạn nhân đã sập bẫy. Làm gì để ngăn tình trạng này?
+- Chuyến thăm cấp nhà nước 4 ngày của Tổng Bí thư Tô Lâm tới Hàn Quốc được cả hai phía đặt kỳ vọng cao, mong muốn có những dự án và con số cụ thể, đánh dấu bước tiến mới trong quan hệ Đối tác chiến lược toàn diện.
+- Sắp tới, người dân chỉ cần mở ứng dụng VNeID để mua thuốc, tiến tới người dân được nhận thuốc ngay tại nhà qua VNeID.
+- Tin tức đáng chú ý: Ủy ban Thường vụ Quốc hội họp, xem xét nhiều nội dung quan trọng; Tiền đóng bảo hiểm y tế giảm nhưng quyền lợi giữ nguyên; Ngân hàng nào cho vay nhiều nhất Việt Nam...
+- Sau thời gian vận hành, khu vực đón xe nhà ga T3 Tân Sơn Nhất vẫn còn nhiều bất cập, khiến không ít hành khách và tài xế gặp khó.
+- Hôm nay 11-8, thời tiết nắng nóng dần thu hẹp, chỉ còn tập trung ở các tỉnh miền Trung. Nam Bộ và Bắc Bộ trời có mưa to.
+- Tổng Bí thư Tô Lâm dành nhiều hoạt động cho kiều bào trong ngày 10-8, ngày đầu tiên ông đến thăm Hàn Quốc.
+- Thủ tướng Phạm Minh Chính nhấn mạnh việc triển khai hiệu quả Nghị quyết 68 của Bộ Chính trị, tạo đột phá thực sự để phát triển kinh tế tư nhân.
+- Hai ca sinh rớt bị ngưng tim, ngưng thở được các y bác sĩ Trung tâm Cấp cứu 115 TP.HCM cứu sống ngoạn mục.
+- Gặp Tổng Bí thư Tô Lâm, nhiều người Hàn Quốc đã bày tỏ tình cảm và sự gắn bó cùng những kỷ niệm không thể nào quên tại Việt Nam.
+- Báo cáo tài chính bán niên 2025 cho thấy Công ty Xổ số điện toán Việt Nam (Vietlott) đã chi tổng 2.494 tỉ đồng cho việc trả thưởng.
+- PGS.TS Nguyễn Lân Hiếu cho rằng một thiết bị có thể tăng cơ hội cứu sống người khác thì không ai lại lấy để đi bán.
+- Tài xế này cho rằng đường hẹp phải chuyển làn đường như vậy để có khoảng trống đủ rộng quay đầu xe, cũng như gia đình đang có việc đột xuất.
+- Lực lượng chức năng đã tìm thấy thi thể nam thanh niên leo núi Hoàng Ngưu Sơn nằm ở độ cao 800m so với mực nước biển.
+- Nhiều bạn đọc bày tỏ phẫn nộ với người đàn ông xăm trổ đánh dã man phụ nữ trước mặt nhiều trẻ nhỏ.
+- Đầu tối nay 10-8, trời tiết TP.HCM chuyển xấu nhanh, gió thổi bụi mù mịt, mưa to trút xuống nhiều nơi.
+- Sau gần 2 tuần kêu gọi doanh nghiệp góp ý chính sách hỗ trợ chuyển sang xe điện, Viện Nghiên cứu phát triển TP.HCM nhận được nhiều phản hồi.
+- Phường Quy Nhơn là trung tâm chính trị, văn hóa, lịch sử, kinh tế, hội tụ nhiều tiềm năng phát triển của tỉnh Gia Lai mới.
+- Các phường trung tâm của Đà Nẵng mở đợt ra quân xử lý mạnh tay các hành vi chiếm dụng vỉa hè, lòng đường.
+- Đông đã lừa đảo chiếm đoạt gần 1 tỉ đồng của một người dân thông qua thủ đoạn hứa lo thủ tục cấp giấy chứng nhận quyền sử dụng đất.
+- Sau hơn một tháng bùng phát, dịch tả heo châu Phi tại Quảng Ngãi đã cơ bản được kiểm soát.
+- Ngày 10-8, Đảng bộ quân sự tỉnh Tây Ninh tổ chức Đại hội đại biểu lần thứ I, nhiệm kỳ 2025 - 2030.
+- Nữ chiến sĩ Công an Hà Nội không chỉ hóa thân hoàn hảo vào vai "girl phố" gây rối trật tự công cộng mà còn gây ấn tượng với nhan sắc xinh đẹp.
+- Ngày 10-8, Đảng bộ phường Long Xuyên, tỉnh An Giang tổ chức thành công Đại hội đại biểu lần thứ I, nhiệm kỳ 2025-2030.
+- Việc sáp nhập TP.HCM với Bình Dương và Bà Rịa - Vũng Tàu mở ra cơ hội chưa từng có để tái cấu trúc không gian phát triển thành phố.
+- Nhiều thành phố lớn trên thế giới đang đồng thời triển khai các khu vực phát thải thấp và cấm xe xăng đi vào khu vực trung tâm.
+- Mỗi đại biểu dự Đại hội Đảng bộ xã Quỳnh Văn, Nghệ An nhận được phần quà trị giá hơn 300.000 đồng.
+- Sau gần 1 tuần tìm kiếm, trưa 10-8 lực lượng chức năng đã tìm thấy thi thể nam thanh niên mất tích khi leo núi Hoàng Ngưu Sơn (Khánh Hòa).
+- Khối nhà 3 tầng là tài sản công được UBND tỉnh Thừa Thiên Huế cũ bàn giao cho Viện Quy hoạch xây dựng quản lý.
+- Hai vụ rút chìa khóa xe; Bé trai 14 tháng tuổi bị bảo mẫu bạo hành đã qua đời… là những thông tin được nhiều bạn đọc TTO phản hồi tuần qua.
+- Một thanh niên lên mạng học làm tiền giả loại 500.000 đồng (tổng số tiền giả là 421,5 triệu đồng) nhưng chưa kịp tiêu thụ thì bị công an phát hiện.
+- Đoàn tàu được ví như “chuyên cơ mặt đất” của ngành đường sắt chính thức được đưa vào vận hành từ ngày 10-8.
+- Tổng Bí thư Tô Lâm và Phu nhân được chào đón trang trọng ngay tại sân bay, bắt đầu chuyến thăm Hàn Quốc trong 4 ngày từ ngày 10-8.
+- Đánh cá ngoài khơi, các ngư dân phát hiện một tàu cá trôi dạt, không có người nên lai dắt vào bờ, phối hợp tìm kiếm ngư dân mất tích.
+- Một nhóm người đã xâm nhập trái phép vào các tài khoản Facebook rồi mạo danh người thân của các chủ tài khoản để lừa đảo.
+- Đà Nẵng đã kiểm tra, lập biên bản và yêu cầu dừng toàn bộ hoạt động xe điện trẻ em không phép tại nhiều công viên.
+- Việc triển khai kinh doanh, hình thành các khu mua sắm, giải trí gắn kết với ga metro tại TP.HCM là một nhu cầu tất yếu.
+- Thủ tướng vừa phê chuẩn kết quả bầu chức danh phó chủ tịch UBND tỉnh Đồng Nai với ông Nguyễn Kim Long, chánh Văn phòng UBND tỉnh Đồng Nai.
+- Hơn 5.000 người đi bộ đồng hành vì nạn nhân chất độc da cam 2025 tại công viên văn hóa Đầm Sen sáng 10-8.
+- Hai ngôi nhà của hai mẹ con nằm cạnh nhau ở xã vùng heo hút Măng Bút, Quảng Ngãi bị cháy rụi trong đêm khiến người con thiệt mạng.
+- Đề xuất TP.HCM thiết lập vùng phát thải thấp (LEZ), hạn chế xe kinh doanh vượt ngưỡng khí thải đi vào khu trung tâm từ 2026.
+- Kỷ niệm 64 năm thảm họa da cam, một cuộc đi bộ ủng hộ các nạn nhân diễn ra ngày 10-8.
+- 22h tối nay (10-8) Hà Nội sẽ bắn pháo hoa kéo dài trong 8 phút với quy mô 300 quả pháo hoa tầm cao và 60 giàn pháo hoa tầm thấp.
+- Denis Demchenko lý giải hiện tượng này đến từ "cái tôi quá lớn", còn Marc Bruijns nhận xét cách nói chuyện lớn tiếng như vậy là "không lịch sự".
+- Sau tuần nắng nóng, thời tiết cả nước sẽ có mưa dông trở lại, nhiều nơi mưa to, chủ yếu xảy ra vào chiều tối.
+- Bộ Nội vụ sẽ dự thảo nghị định tổ chức hoạt động thôn, tổ dân phố và một số chế độ, chính sách của người hoạt động không chuyên trách.
 - Trong tối 9-8, lực lượng công an đã đưa 3 người đậu 2 ô tô giữa đường Nguyễn Hữu Hào rồi đuổi đánh nhau, về trụ sở công an làm việc.
 - Dự án metro số 1 nối sân bay Long Thành có tổng vốn đầu tư khoảng 65.000 tỉ đồng, chưa bao gồm chi phí bồi thường, giải phóng mặt bằng.
-- Hơn 8h sáng 10-8, chuyên cơ rời Hà Nội đưa Tổng Bí thư Tô Lâm và Phu nhân thăm Hàn Quốc từ ngày 10 đến 13-8.
-- Hôm nay 10-8, thời tiết các tỉnh Bắc Bộ, Trung Bộ ngày nắng nóng, chiều tối các vùng đều có mưa, nhiều nơi mưa to.
-- Tổng Bí thư Tô Lâm, Thủ tướng Phạm Minh Chính, Chủ tịch Quốc hội Trần Thanh Mẫn cùng nhiều lãnh đạo Đảng, Nhà nước đã dự chương trình tối 9-8.
-- Hội đồng nhân dân tỉnh Khánh Hòa vừa có nghị quyết về chỉ định các nhân sự giữ chức vụ chủ tịch, phó chủ tịch UBND đặc khu Trường Sa, nhiệm kỳ 2021 - 2026.
-- Khu tái định cư ở xã Hàm Kiệm, tỉnh Lâm Đồng rộng 3,5ha đã sẵn sàng khởi công, để phục vụ dự án đường sắt Bắc - Nam tốc độ cao.
-- 11 công dân Việt Nam được Campuchia trao trả sau khi bị lừa sang làm việc bất hợp pháp, có người mới 14 tuổi.
-- Chiếc ô tô màu trắng hiệu Mercedes GLC 300 đi trên đường Nguyễn Trãi - đoạn giao với vành đai 3 (Hà Nội). Đáng chú ý, phía đuôi xe được gắn chiếc nơ hồng kích thước lớn, che mất 2 số cuối của biển số.
-- Những phần quà hỗ trợ tiền mặt của tuổi trẻ TP.HCM được trao tận tay tới các gia đình bị thiệt hại do mưa lũ ở các xã miền núi phía tây tỉnh Nghệ An.
-- Bộ Nội vụ dự kiến triển khai vị trí việc làm của công chức cấp xã theo hướng có 8 vị trí với công chức lãnh đạo, quản lý; 20 vị trí với công chức chuyên môn.
-- Dự báo từ ngày 11-8, nắng nóng ở Bắc Bộ dịu dần nhờ đợt mưa rào và dông rải rác, cục bộ có nơi mưa to kéo dài tới 18-8.
-- Khu vực TP.HCM (cũ) có 17 bệnh viện, khu vực Bình Dương có 3 bệnh viện và Bà Rịa - Vũng Tàu 6 bệnh viện. Tất cả đều trực thuộc Sở Y tế TP.HCM.
-- Sở Nông nghiệp và Môi trường TP.HCM kiến nghị tích hợp 3 bảng giá đất hiện hành thành bảng giá đất mới ở TP.HCM, áp dụng từ 1-1-2026.
-- Phiên đấu giá đất ở tại tỉnh Quảng Trị đã khiến nhiều người "sốc", vì giá đấu trúng vọt lên gấp gần 4 lần giá khởi điểm.
-- Dù được Trung ương cho 5 năm, nhưng Chủ tịch Nguyễn Văn Được yêu cầu lãnh đạo sở, ngành cần làm quyết liệt sắp xếp nhân sự trong 1-2 năm để ổn định hoạt động.
-- Sau những ngày đầu tháng nắng nóng, thời tiết TP.HCM và các tỉnh lân cận sắp có đợt mưa xua tan oi bức, có nơi mưa to đến rất to.
-- Bệnh viện Trường đại học Y Dược - cơ sở Linh Đàm thuộc Đại học Quốc gia Hà Nội đang chuẩn bị đưa vào sử dụng cơ sở mới hoàn tất xây dựng giai đoạn 1, quy mô 500 giường bệnh trong tháng 10 tới.
-- Cầu Nhơn Trạch thuộc vành đai 3 TP.HCM sắp thông xe, người dân quan tâm việc tổ chức giao thông, kết nối cao tốc TP.HCM - Long Thành - Dầu Giây.
-- Ngư dân ở Đà Nẵng bơi thuyền đi câu cá ngoài biển nhưng không thấy về, chiếc thuyền cũng trôi dạt vào bờ. Lực lượng biên phòng đã tìm thấy thi thể ngư dân trên biển.
-- Nhóm 3 thanh niên tại xã Cam Lộ tìm đến nhà con nợ để đòi nợ. Tại đây hai bên xảy ra cự cãi và xô xát. Sau đó một người trong nhóm thanh niên đòi nợ dùng dao chém con nợ gây trọng thương.
-- Cầu Cát Lái, cầu Đồng Nai 2, Phú Mỹ 2 có tổng vốn hơn 51.900 tỉ đồng sẽ tăng cường kết nối TP.HCM và Đồng Nai, nhất là khi sân bay Long Thành đi vào khai thác.
-- Trưa 9-8, sau khi xảy ra va chạm trên đường Phan Đăng Lưu, phường Cầu Kiệu (TP.HCM), ô tô 16 chỗ bất ngờ bốc cháy dữ dội.
-- Đang thi công tường chắn chống sạt lở trụ sở UBND xã Bình Hải cũ (xã Vạn Tường, Quảng Ngãi) bất ngờ bờ đất sạt lở, một công nhân bị vùi lấp tử vong.
-- Nhiệm kỳ tới, phường Phú Thọ (TP.HCM) tập trung xây dựng đô thị xanh, phát triển thương mại hiện đại và khai thác hiệu quả các công trình trọng điểm tại khu trường đua Phú Thọ.
-- Theo Sở Xây dựng Hà Nội, sau 1 năm vận hành thương mại, 99,9% hành khách hài lòng với chất lượng, dịch vụ của tuyến metro Nhổn - ga Hà Nội.
-- Bộ trưởng Bộ Nội vụ nhắc lại kết luận 183 của Bộ Chính trị, Ban Bí thư về thực hiện chế độ, chính sách với cán bộ, công chức theo nghị định 178, nghị định 67 với yêu cầu cố gắng kết thúc trước ngày 31-8.
-- Trong bối cảnh hiện tại, nhiều nhà đầu tư đến TP.HCM để tìm hiểu và đề xuất dự án, dòng vốn sẽ đến, nhưng không duy trì lâu nếu thành phố không kịp thời hấp thụ.
-- Trong vòng 3 ngày sau khi xảy ra vụ việc giả danh công an, cướp tài sản, các trinh sát đã lần ra tung tích, bắt 2 nghi phạm và thu giữ toàn bộ tang vật liên quan.
-- Tỉnh ủy Quảng Trị yêu cầu đại hội đảng bộ cấp xã sắp tới không tổ chức văn nghệ chào mừng, không quá 5 lẵng hoa chúc mừng.
-- Liên quan vụ tài xế rút chìa khóa xe máy của cô gái rồi bỏ đi, nhiều bạn đọc Tuổi Trẻ Online cho rằng hành động này là "quá ngang ngược, cần xử lý nghiêm", và khuyên mọi người ra đường giữ bình tĩnh trước những tình huống tương tự.
-- Hà Nội cho biết sẽ điều chỉnh tổ chức giao thông đường Nguyễn Hoàng Tôn đoạn từ Lạc Long Quân đến đường Võ Chí Công phục vụ thi công công trình sửa chữa, lắp đặt hệ thống thoát nước.
-- Ban Chỉ huy Bộ đội biên phòng TP.HCM đã tiếp nhận toàn bộ 20 thuyền viên của tàu chở dầu GT Unity bị cháy trên biển.
-- UBND TP.HCM trao quyết định của Thủ tướng phê chuẩn kết quả bầu chức vụ phó chủ tịch UBND TP.HCM đối với ông Nguyễn Mạnh Cường - ủy viên Ban Thường vụ Thành ủy, trưởng Ban Tuyên giáo và Dân vận Thành ủy TP.HCM.
-- Vụ thiếu nữ 14 tuổi ở xã Trần Đề, TP Cần Thơ bị nhóm bạn đồng trang lứa hành hung dã man nhận được sự quan tâm của bạn đọc. Nhiều người đề nghị phải có biện pháp xử lý nghiêm minh.
-- Nhiều tuyến đường tại Đà Nẵng dần biến thành “bãi đậu xe”, khiến việc đi lại hằng ngày của người dân gặp không ít khó khăn và tiềm ẩn nguy cơ xảy ra tai nạn.
-- Dừng đèn đỏ, người tranh thủ lướt mạng, người vẫn dán mắt vào điện thoại dù đèn xanh đã bật. Một số tài xế xe khách vẫn "tám chuyện" nhiều phút, nhiều cuộc khi cầm lái... Những chuyện này đang hằng ngày đe dọa an toàn giao thông.
-- Một số tin tức đáng chú ý: Khối ngoại bán ròng 800 tỉ đồng trên thị trường chứng khoán; Chưa đến 10% doanh nghiệp nhỏ và vừa tiếp cận được vốn vay; Phạt tới 75 triệu đồng với hành vi mua, bán trái phép quân hiệu, quân phục...
-- Hôm nay 9-8, các tỉnh thành thời tiết nắng đến nắng nóng, có nơi nắng nóng gay gắt, trên Biển Đông áp thấp nhiệt đới gây mưa dông.
-- Giữa cái nắng như thiêu đốt của mùa hè miền Bắc, khu vực trường đua F1 (cạnh sân vận động quốc gia Mỹ Đình, Hà Nội) bỗng rộn ràng tiếng hát của những ca sĩ, nghệ sĩ đặc biệt.
-- Ông Nguyễn Trọng Nghĩa, ủy viên Bộ Chính trị, trưởng Ban Tuyên giáo và Dân vận Trung ương, đã dâng hương tưởng niệm tại Đền thờ Bác Hồ và một số “địa chỉ đỏ” ở Quảng Trị.
-- Bí thư Thành ủy Đà Nẵng Nguyễn Văn Quảng cho biết hiện thành phố đang triển khai xây dựng 6 trường cho các xã miền núi giáp biên giới, và đề nghị ngành giáo dục cần đến học tập mô hình quản lý của Trường Hy Vọng.
-- Chiếc xe khách mang biển số của nước Lào chở 1 tấn sụn chân gà bốc mùi hôi thối đang trên đường về TP Đà Nẵng để tiêu thụ thì bị phát hiện, chặn lại ở Huế.
-- Ngày 8-8, phường Bình Phước, tỉnh Đồng Nai đã tổ chức Đại hội đại biểu lần thứ I, nhiệm kỳ 2025-2030.
-- Phát hiện người phụ nữ có biểu hiện không bình thường rồi nhảy sông tự tử, hai thanh niên tại xã Lệ Thủy (Quảng Trị) đã không ngại nguy hiểm lao xuống cứu.
-- Sau khi vượt qua khó khăn mặt bằng, dự án vành đai 3 TP.HCM đoạn qua tỉnh Đồng Nai đang bứt tốc.
-- Tổng Bí thư Tô Lâm cho rằng Cảnh sát hình sự xứng đáng là 'quả đấm thép' của lực lượng Công an nhân dân trên lĩnh vực đấu tranh phòng, chống tội phạm.
-- Tối 8-8, Công an phường Xuân Hòa đã đưa tài xế ô tô công nghệ rút chìa khóa xe máy của hai cô gái tại vòng xoay hồ Con Rùa rồi bỏ đi về trụ sở làm việc.
-- Philippines - thị trường chiếm tới 40-45% kim ngạch xuất khẩu gạo của Việt Nam - vừa thông báo tạm dừng nhập khẩu 60 ngày từ 1-9 để bảo vệ nông dân nội địa. Hiệp hội Lương thực Việt Nam cảnh báo hàng loạt hợp đồng bị đình trệ, tồn kho, giá giảm.
-- Logo kỷ niệm 50 năm thành lập báo Tuổi Trẻ xuất hiện trên các tuyến đường trung tâm của miền Tây như TP Cần Thơ, tỉnh Vĩnh Long, An Giang.
 ![New](News.png)
 ## Nhịp sống số 
 - Thông tin rò rỉ về các sản phẩm trong series iPhone 17, dự kiến ra mắt vào tháng 9-2025, tiếp tục được nhiều nguồn uy tín tung ra.
