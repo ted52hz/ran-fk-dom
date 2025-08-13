@@ -1,6 +1,15 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Đây là một trong nhiều đề xuất đi kèm giải pháp góp phần hiện thực các chỉ tiêu phát triển bảo hiểm xã hội, bảo hiểm y tế vừa được Bảo hiểm xã hội TP.HCM trình Thành ủy và UBND TP.HCM.
+- Hôm nay 13 -8, Bộ Giáo dục và Đào tạo sẽ phối hợp các cơ sở đào tạo rà soát cơ sở dữ liệu trên hệ thống xét tuyển, chuẩn bị khởi động quy trình lọc ảo xét tuyển đại học năm 2025.
+- Năm học mới 2025-2026 học sinh tiếp tục dùng sách giáo khoa hiện hành, từ năm học 2026-2027 sách sẽ được chỉnh sửa để phù hợp với việc thay đổi địa giới hành chính.
+- Từ vốn đầu tư hàng chục tỉ đồng của Nhà nước, nhiều năm qua Trường tiểu học, Trường phổ thông dân tộc bán trú THCS Pù Nhi, xã biên giới Pù Nhi (Thanh Hóa) được xây dựng nhiều công trình phục vụ dạy học. Hai trường này sẵn sàng bước vào năm học mới.
+- Theo quyết định mới nhất của Thủ tướng Chính phủ, hai đại học quốc gia nằm trong số các đơn vị sự nghiệp công lập trực thuộc Bộ Giáo dục và Đào tạo.
+- Ngày 12-8, tại Đại hội đại biểu Đảng bộ Đại học Cần Thơ lần thứ XIII (nhiệm kỳ 2025 - 2030) đặt ra mục tiêu 3 khâu đột phá, để đến cuối nhiệm kỳ một số lĩnh vực đào tạo vào nhóm các trường đại học hàng đầu châu Á.
+- Nhiều phụ huynh ở địa bàn tỉnh Ninh Thuận cũ (nay thuộc tỉnh Khánh Hòa) “dở khóc dở cười” vì đã lỡ mua đồng phục cho con, nay Sở Giáo dục và Đào tạo Khánh Hòa chỉ đạo áp dụng thống nhất đồng phục cho năm học mới 2025 - 2026.
+- Sở Giáo dục và Đào tạo TP.HCM sẽ tham mưu với UBND TP ấn định thời gian tựu trường đối với khối 1, 9, 12 vào ngày 18-8; các khối khác vào ngày 25-8.
+- 'Nhiều người cứ nói tôi nâng học trò của mình lên nhưng chính các em đã nâng tôi lên, thôi thúc tôi, tạo cảm hứng cho tôi phải làm mới mình mỗi ngày', nhà toán học Lê Bá Khánh Trình tâm sự.
 - Từ năm học 2025 - 2026, Trường tiểu học Tô Vĩnh Diện (Hà Nội) sẽ là trường công lập đầu tiên tại Việt Nam đưa golf vào chương trình giảng dạy.
 - Bộ GD-ĐT vừa công bố khung thời gian năm học mới 2025-2026, với yêu cầu lịch tựu trường sớm nhất là trước lễ khai giảng 1 tuần.
 - Trường đại học Luật Hà Nội cơ sở 2 được xây dựng tại tỉnh Bắc Ninh, dự kiến khánh thành vào ngày 19-8.
@@ -42,69 +51,62 @@
 - Là thành viên Cognita - tập đoàn giáo dục với hơn 100 trường tại 17 quốc gia, ISHCMC - American Academy (ISHCMC-AA) có tỉ lệ cao học sinh tốt nghiệp trúng tuyển vào ít nhất 1 trong top 3 nguyện vọng đại học.
 - Tỉnh Đắk Lắk hiện thiếu gần 700 biên chế giáo viên và nhân viên trong toàn ngành giáo dục, gây khó khăn lớn cho công tác chuẩn bị năm học 2025 - 2026.
 - Sáng 7-8, hơn 97 sinh viên khoa truyền thông sáng tạo, Trường đại học Nguyễn Tất Thành tham gia buổi học thực tế đặc biệt tại hồ bơi của MLC Sports, đặt trong khuôn viên Hệ thống Trường Quốc tế CIS - SSV - CVK.
-- Lần đầu tiên tại Việt Nam, trí tuệ nhân tạo (AI), ảnh vệ tinh và hình ảnh Street View được giới thiệu như công cụ kỹ thuật trong đánh giá mức độ an toàn giao thông khu vực trường học.
-- Bộ Xây dựng đề nghị Phó thủ tướng Trần Hồng Hà chấp thuận việc giao máy bay Boeing bị bỏ rơi tại sân bay Nội Bài cho Học viện Hàng không Việt Nam làm giáo cụ thay vì bán đấu giá.
-- Báo cáo Giám sát giáo dục toàn cầu (Global Education Monitoring Report - GEM Report) mới đây nhấn mạnh rằng công nghệ chỉ nên được sử dụng trong lớp học khi thực sự phục vụ mục đích học tập.
-- Tại Singapore, hiệu trưởng đóng vai trò quyết định trong trường học. Song song đó có chuyên viên và hội đồng giáo dục giám sát, hỗ trợ các trường.
-- Mùa tuyển sinh đại học năm 2025 ghi nhận số lượng nguyện vọng đăng ký xét tuyển trên hệ thống chung của Bộ GD-ĐT tăng kỷ lục trong nhiều năm qua.
-- Kinh nghiệm quốc tế cho thấy đầu tư vào tiếng Anh như ngôn ngữ thứ hai là chiến lược dài hạn, nâng cao năng lực hội nhập, sức cạnh tranh của nguồn nhân lực và đóng góp vào tăng trưởng quốc gia.
-- Học 2 buổi/ngày nhưng nội dung học thế nào, có thực sự mang lại lợi ích cho học sinh không? Học sinh có được lựa chọn nội dung học tập không?...
-- Tổng điểm thi của thí sính thi vào lớp 10 khi nhân hệ số chỉ 24,4 điểm, nhưng trên bảng điểm lại là 39,4 điểm.
-- Trường đại học Y Dược TP.HCM vừa công bố danh sách 264 thí sinh bổ sung chứng chỉ quốc tế năm 2025 được cộng điểm xét tuyển đại học chính quy.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Hội đàm giữa Tổng Bí thư Tô Lâm và Tổng thống Hàn Quốc mở ra giai đoạn hợp tác mới, ưu tiên chất lượng, nâng tầm liên kết kinh tế.
-- Phó bí thư thường trực Đảng ủy xã Phong Dụ Thượng (tỉnh Lào Cai) lái xe tông vào nhiều người dân ở sân Nhà văn hóa thôn Làng Chạng khiến 1 em nhỏ tử vong.
-- Một số tin tức đáng chú ý: Các mốc thời gian sử dụng thẻ bảo hiểm y tế học sinh, sinh viên; Khối ngoại vừa 'xả' ròng mạnh nhất cổ phiếu nào?; Sữa Kun có tổng giám đốc mới sau thua lỗ...
-- Hôm nay 12-8, thời tiết Bắc Bộ, Trung Bộ ngày nắng nóng, chiều tối có mưa. Nam Bộ mưa nhiều nơi rải rác trong ngày.
-- Người đàn ông lái ô tô tông vào đám đông ở nhà văn hóa xã Phong Dụ Thượng (Lào Cai), khiến một người chết và 7-8 người bị thương.
-- 3 nghi phạm người Trung Quốc cấu kết với 2 người Việt Nam sử dụng trái phép thẻ thanh toán quốc tế, thông tin thẻ thanh toán quốc tế của người khác để chiếm đoạt khoảng 30 tỉ đồng.
-- Người phụ nữ bị thanh niên Nga chạy xe máy tông phải viết thư gởi giám đốc Công an tỉnh Khánh Hòa bày tỏ lòng biết ơn lực lượng này.
-- Cục Hàng không Việt Nam sẽ cùng ACV nghiên cứu kỹ lưỡng, đánh giá tác động phương án khai thác  sân bay Tân Sơn Nhất và sân bay Long Thành.
-- Tại Đại học Yonsei, Tổng Bí thư Tô Lâm đã có bài phát biểu chính sách về việc tăng cường hơn nữa quan hệ Đối tác chiến lược toàn diện Việt Nam - Hàn Quốc.
-- Thủ tướng Phạm Minh Chính chủ trì họp Ban Thường vụ Đảng ủy Chính phủ góp ý, hoàn thiện dự thảo nghị quyết về y tế và giáo dục.
-- Hàn Quốc mong Việt Nam tạo điều kiện cho doanh nghiệp Hàn tham gia dự án trọng điểm như điện hạt nhân, đường sắt cao tốc.
-- Tuyên bố chung giữa Việt Nam và Hàn Quốc gồm 23 điểm, hướng tới việc làm sâu sắc hơn quan hệ giữa hai Đối tác chiến lược toàn diện.
-- Chủ tịch HĐQT và giám đốc VietNamCapital lãnh án chung thân vì lừa 288 người, chiếm đoạt gần 140 tỉ đồng.
-- Doanh nghiệp trở thành "cỗ máy học tập" để người lao động liên tục cập nhật kiến thức, tăng năng suất làm việc, tránh bị đào thải bởi AI.
-- Logo kỷ niệm 50 năm thành lập báo Tuổi Trẻ đã xuất hiện tại quảng trường 2 Tháng 4, trung tâm Nha Trang (Khánh Hòa).
-- Ông Tôn Thành Minh (55 tuổi), một trong hai người tử vong trong vụ tai nạn lao động khi thi công cao tốc Quy Nhơn - Chí Thạnh, có hoàn cảnh gia đình rất khó khăn.
-- Sở Xây dựng TP.HCM báo cáo Cục Đường bộ Việt Nam về tiến độ dự án cao tốc TP.HCM - Thủ Dầu Một - Chơn Thành đoạn qua TP.HCM.
-- Nhiều trường hợp cán bộ, công chức, viên chức xin nghỉ việc ở tỉnh Khánh Hòa muốn được giải quyết chính sách, chế độ theo diện “do sắp xếp tổ chức bộ máy”.
-- Ban Thường vụ Tỉnh ủy Tây Ninh chỉ định thiếu tướng Vũ Như Hà giữ chức bí thư Đảng ủy Công an tỉnh nhiệm kỳ 2025-2030.
-- Đại tướng Nguyễn Tân Cương nêu rõ việc trao quyền cho Thủ tướng Chính phủ được áp dụng các biện pháp luật chưa quy định là cơ sở để vận dụng được các biện pháp khi chưa ban bố được tình trạng khẩn cấp.
-- Ông Nguyễn Trọng Nghĩa, ủy viên Bộ Chính trị, trưởng Ban Tuyên giáo và Dân vận Trung ương, yêu cầu bộ đội biên phòng quản lý tốt an ninh biên giới, ứng xử khéo léo, mềm mỏng, không để xảy ra xung đột vũ lực trên tuyến biên giới.
-- Từ bảng chỉ dẫn rối rắm, khoảng cách xa, giá taxi cao... khiến không ít người ví việc tìm được xe ở nhà ga T3 Tân Sơn Nhất như 'vượt chướng ngại vật'.
-- Dự kiến 28 doanh nghiệp sẽ được vinh danh giải thưởng “Doanh nghiệp tiêu biểu vì người lao động” năm 2025.
-- Tổng công ty Đầu tư phát triển đường cao tốc Việt Nam phê duyệt mở rộng cao tốc TP.HCM - Long Thành lên 8-10 làn, khởi công ngày 19-8.
-- Xã Củ Chi (TP.HCM) đã hoàn thành nâng cấp trụ sở Trung tâm phục vụ hành chính công, chào mừng Đại hội Đảng bộ xã.
-- Lâm Đồng dự kiến sửa chữa, nâng cấp 5km đường giao thông nông thôn, nhằm rút ngắn khoảng cách từ trung tâm Đà Lạt đến Gia Nghĩa.
-- Phường Bến Thành (TP.HCM) vừa có báo cáo tiến độ xử lý các vấn đề an ninh trật tự liên quan đến các cơ sở kinh doanh trên phố đi bộ Bùi Viện.
-- Trường đại học Luật Hà Nội cơ sở 2 được xây dựng tại tỉnh Bắc Ninh, dự kiến khánh thành vào ngày 19-8.
-- Trong lúc đi đường, người dân phát hiện bé gái sơ sinh được đặt trên một thùng giấy nên trình báo cơ quan chức năng.
-- Sau nhiều ngày triển khai, câu lạc bộ Sài Gòn Xanh (thuộc Hội Liên hiệp thanh niên Việt Nam TP.HCM) đã thử nghiệm robot vớt rác trên mặt nước, nhằm giảm thiểu sức người cho việc lội xuống kênh thu gom rác.
-- Ngày 11-8, Trung tâm Quản lý và điều hành giao thông Hà Nội cho biết để phục vụ nhân dân, du khách tham gia Triển lãm thành tựu kinh tế - xã hội nhân dịp kỷ niệm 80 năm Ngày Quốc khánh, đơn vị tăng cường thêm nhiều tuyến xe buýt.
-- Sau thời gian xôn xao dư luận về việc một xã tại tỉnh Bình Định cũ đốt tài liệu trước lúc sáp nhập, đến nay cơ quan công an đã có kết quả điều tra bước đầu.
-- Sáng 11-8, Tổng cục Hậu cần - Kỹ thuật phối hợp Học viện Hậu cần đã khai mạc lớp tập huấn công tác hậu cần, tài chính cho cán bộ Quân đội nhân dân Lào.
-- Quy trình phục chế ngai vàng triều Nguyễn bị khách tham quan bẻ gãy sẽ được thực hiện qua 9 bước, từ vệ sinh khoa học, tái định vị các mảnh vỡ, phục hồi lớp sơn thếp vàng đến phủ bảo vệ và nghiệm thu.
-- Phát triển giao thông xanh, giảm khí thải vào bầu không khí là mục tiêu mà TP.HCM hướng đến để giảm ô nhiễm.
-- Những ngày này, dọc tuyến đường Trường Sơn Đông đoạn qua xã Kon Plông, xã Sơn Tây… (Quảng Ngãi), ươi rực đỏ khắp những cánh rừng, người dân đổ xô đi nhặt lộc trời.
-- Nhạc hội Cảnh sát thế giới 2025 diễn ra ngày 9 và 10-8 tại Hà Nội với sự tham gia của 11 đoàn trong và ngoài nước.
-- Sáng 11-8, Công an TP.HCM tổ chức khai mạc triển lãm 'Công an TP.HCM tiếp bước truyền thống anh hùng'.
-- Sân bay Long Thành sẽ cơ bản hoàn thành trong năm 2025 và đưa vào vận hành, khai thác thương mại vào năm 2026.
-- Từ ngày 19-8, cao tốc TP.HCM - Long Thành - Dầu Giây có thêm lối ra vào tại nút giao vành đai 3 (nối cầu Nhơn Trạch), kèm trạm thu phí.
-- Phó bí thư thường trực Nguyễn Thanh Nghị cùng Thường trực Thành ủy TP.HCM nghe ý kiến cán bộ lãnh đạo cao cấp, lãnh đạo TP.HCM nghỉ hưu góp ý dự thảo báo cáo chính trị Đại hội đại biểu Đảng bộ TP.HCM lần thứ I, nhiệm kỳ 2025-2030.
-- Bất chấp thời tiết nóng bức, người dân vẫn đổ về Hồ Gươm dịp cuối tuần để xem kỵ binh, nghe quân nhạc các nước ở Nhạc hội Cảnh sát thế giới 2025.
-- Phó bí thư Thành ủy TP.HCM Đặng Minh Thông chỉ đạo Đảng bộ phường Thủ Đức cần chú trọng phát triển các trung tâm thương mại - dịch vụ chất lượng cao gắn với TOD.
-- Nhiệm kỳ 2025-2030, Đảng bộ đặc khu Phú Quốc xác định nhiều khâu đột phá và đặc biệt sẽ kiến tạo không gian xanh, phát triển kinh tế, du lịch bền vững.
-- Do bực tức hai bạn nhậu thất hứa, không nhậu 'tăng 2' nên nam thanh niên đập phá hàng loạt ô tô đậu trên đường.
-- Những ngày này, các lực lượng thuộc Quân chủng Hải quân, Cảnh sát biển Việt Nam, Bộ đội biên phòng và Quân khu 5 đang tích cực tập luyện để phục vụ lễ diễu binh lực lượng vũ trang trên biển Cam Ranh - Khánh Hòa.
-- Sáng 11-8, Đại tướng Trịnh Văn Quyết, chủ nhiệm Tổng cục Chính trị Quân đội nhân dân Việt Nam, đã chủ trì lễ đón và hội đàm với Trung tướng Vongsone Inpanphim, thứ trưởng Bộ Quốc phòng, chủ nhiệm Tổng cục Chính trị Quân đội nhân dân Lào.
-- UBND TP.HCM đã chỉ đạo các đơn vị khẩn trương rà soát, phối hợp các bộ ngành đề xuất cấp có thẩm quyền điều chỉnh, bổ sung Nghị quyết 98 theo trình tự thủ tục rút gọn.
-- Phó chủ tịch Quốc hội Nguyễn Khắc Định cho rằng cần giữ nhân tài trong nước nhưng phải luân chuyển giữa các bộ phận công - tư, đem văn hóa doanh nghiệp vào quản lý nhà nước và ngược lại.
-- Đoạn cao tốc Quy Nhơn - Chí Thạnh (qua xã Tuy An Bắc, Đắk Lắk) xảy ra vụ tai nạn lao động khiến 2 người chết, 1 người bị thương.
+- Đây là một trong nhiều đề xuất đi kèm giải pháp góp phần hiện thực các chỉ tiêu phát triển bảo hiểm xã hội, bảo hiểm y tế vừa được Bảo hiểm xã hội TP.HCM trình Thành ủy và UBND TP.HCM.
+- Theo quy định mới, thủ tục giao đất ở có thu tiền sử dụng đất không thông qua đấu giá giảm 50 ngày còn 35 ngày.
+- Bộ Nội vụ đang lấy ý kiến về dự thảo Luật Viên chức sửa đổi. Dự luật dự kiến được trình Quốc hội xem xét, thông qua tại kỳ họp thứ 10 tới.
+- Tin tức đáng chú ý: TP.HCM '5 đi đầu' trong phát triển kinh tế - xã hội; Bệnh viện TP.HCM cảnh báo giả mạo giải chạy gây quỹ cho trẻ bị dị tật hàm mặt; Lộ diện quỹ ngoại bán hơn 55 triệu cổ phiếu Vietcombank...
+- Hôm nay 13-8, thời tiết các tỉnh Bắc Bộ và Trung Bộ nắng nóng. Nam Bộ trời nhiều mây, mưa rào nhiều nơi.
+- Phát biểu tại Diễn đàn Kinh tế Việt Nam - Hàn Quốc trong khuôn khổ chuyến thăm Hàn Quốc, Tổng Bí thư Tô Lâm tin tưởng hai nước tiếp tục chung tay, hỗ trợ Việt Nam phát triển và tạo nên “kỳ tích sông Hồng”.
+- Tòa án tuyên anh Thái Khắc Thành 6 năm tù với cáo buộc nuôi, mua bán 13 con gà lôi thuộc loài quý hiếm. Phiên tòa kết thúc, vợ của anh Thành ôm hai con nhỏ khóc nức nở trước sân tòa.
+- Trong khuôn khổ chuyến thăm cấp nhà nước tới Hàn Quốc, chiều 12-8 tại thủ đô Seoul, Tổng Bí thư Tô Lâm đã hội kiến Chủ tịch Quốc hội Hàn Quốc Woo Won Sik.
+- Bộ trưởng Bộ Nội vụ và Bộ trưởng Bộ Việc làm và Lao động Hàn Quốc vừa có hội đàm về cơ hội tăng chỉ tiêu trúng tuyển trong các kỳ thi tiếng Hàn, tăng tiếp nhận lao động Việt Nam…
+- Chiều 12-8, Thủ tướng Phạm Minh Chính chủ trì cuộc họp của Thường trực Chính phủ về công tác chuẩn bị tổ chức lễ khánh thành, khởi công các dự án, công trình chào mừng kỷ niệm 80 năm Quốc khánh.
+- Ngày 12-8, mạng xã hội lan truyền đoạn clip ghi lại cảnh hai tài xế xe ôm công nghệ lao vào dùng tay, chân, mũ bảo hiểm đánh nhau tới tấp. Lực lượng Công an phường Thạnh Mỹ Tây đang tiến hành xác minh, xử lý.
+- Ban Thường vụ Tỉnh ủy Đồng Nai chỉ định Thiếu tướng Nguyễn Đức Hải, giám đốc Công an tỉnh, giữ chức bí thư Đảng ủy Công an tỉnh Đồng Nai nhiệm kỳ 2025-2030.
+- Nhiều ý kiến băn khoăn việc chuyển toàn bộ chuyến bay quốc tế từ sân bay Tân Sơn Nhất về sân bay Long Thành khi hạ tầng như cao tốc, metro hay đường sắt vẫn chưa hoàn thiện.
+- Chiều 12-8, Đảng bộ xã Bình Mỹ tổ chức Đại hội đại biểu lần thứ I, nhiệm kỳ 2025 - 2030. Ông Phạm Thành Kiên - ủy viên Ban Thường vụ Thành ủy, phó chủ tịch thường trực HĐND TP.HCM - đến dự và trực tiếp chỉ đạo đại hội.
+- Hơn 300 hình ảnh, tài liệu và hiện vật tiêu biểu tái hiện chặng đường '80 mùa thu độc lập' đang được trưng bày trong triển lãm Giữ trọn lời thề độc lập tại Bảo tàng Lịch sử quân sự Việt Nam.
+- Mưa lớn kéo dài hơn 30 phút tại Đà Lạt khiến nhiều khu dân cư ngập sâu, hàng trăm người đã được lực lượng chức năng sơ tán đến nơi an toàn.
+- Liên quan vụ tai nạn lao động tại đoạn cao tốc Quy Nhơn - Chí Thạnh (qua xã Tuy An Bắc, Đắk Lắk) khiến 2 người chết, 1 người bị thương, Thủ tướng Chính phủ có công điện về việc khắc phục hậu quả, khẩn trương điều tra, làm rõ nguyên nhân vụ tai nạn.
+- Trong trận mưa lớn, một bờ ta luy cao khoảng 1,5m đã đổ sập khiến 2 người tử vong. Vụ việc xảy ra tại phường Xuân Trường - Đà Lạt.
+- Ngày 12-8, tại phường Bắc Cam Ranh (Khánh Hòa), HĐND tỉnh này tổ chức hội nghị trao quyết định chỉ định chủ tịch, phó chủ tịch UBND đặc khu Trường Sa.
+- Chủ tịch Quốc hội Trần Thanh Mẫn nêu rõ giám sát không cần đi những đoàn rình rang, rầm rộ. Phải rất gọn nhẹ, trên tinh thần không làm khó khăn cho bộ, ngành, địa phương.
+- Ngày 12-8, tại Cục Gìn giữ hòa bình Việt Nam đã diễn ra lễ bàn giao vật tư, trang thiết bị do Chính phủ Úc tài trợ.
+- Đại hội đại biểu lần thứ I Đảng bộ các xã Tân Trụ, Mỹ Yên, Long Cang đã công bố các quyết định chỉ định của Ban Thường vụ Tỉnh ủy Tây Ninh về công tác nhân sự.
+- Nhiều phường tại Đà Nẵng đang triển khai cao điểm xử lý tình trạng lấn chiếm vỉa hè, lòng đường, buôn bán hàng rong, chèo kéo khách du lịch. Lực lượng chức năng làm việc 3 ca mỗi ngày, kể cả ngày nghỉ để lập lại trật tự đô thị.
+- Mùa nước nổi miền Tây về, người dân tất bật cho mùa đánh bắt thủy sản mới. Cá linh, ếch đồng, cua đồng cùng nhiều loài cá đồng trở thành đặc sản mang lại thu nhập tốt cho người dân.
+- Phó bí thư Thành ủy TP.HCM Nguyễn Phước Lộc đề nghị xã Bình Chánh nghiên cứu tích hợp các thế mạnh 3 xã cũ để nâng tầm xã mới, phục vụ tốt nhất cho doanh nghiệp và người dân.
+- Chỉ trong vòng hai năm 2023 và 2024, Sở Y tế TP.HCM ghi nhận cơ quan Bảo hiểm xã hội chưa chi trả chi phí vượt dự toán chi khám chữa BHYT cho các bệnh viện với số tiền gần 2.500 tỉ đồng.
+- Sau khi sáp nhập Bình Dương và Bà Rịa - Vũng Tàu, kinh tế số được xem là mũi trọng tâm thúc đẩy tăng trưởng của TP.HCM.
+- Thiếu niên 14 tuổi đi dã ngoại ở suối Ba Hồ (xã Công Hải, tỉnh Khánh Hòa) cùng gia đình thì mất tích, lực lượng chức năng xác định em đã chết đuối khi tắm suối.
+- Ban chỉ huy Bộ đội biên phòng tỉnh An Giang phối hợp lực lượng chức năng địa phương tiếp nhận 72 công dân Việt Nam do phía Campuchia trao trả vì vi phạm các quy định về xuất nhập cảnh, lao động.
+- Tiêu thụ sữa bình quân của người Việt khoảng 26-28 lít/năm, thấp hơn khu vực, nhưng mục tiêu 2030 là 40 lít và 2045 là 70 lít.
+- Một đầu máy tàu hỏa ở Huế bất ngờ bốc cháy do sự cố kỹ thuật, không có thiệt hại về người.
+- Có 9/19 gói thầu tại Bệnh viện Đa khoa vùng Tây Nguyên bị thất lạc hồ sơ, khiến dự án chưa thể quyết toán dù đã hoạt động hơn 6 năm.
+- Ngày 12-8, Thủ tướng Phạm Minh Chính chủ trì tọa đàm với các doanh nghiệp Nhật Bản nhằm thúc đẩy hợp tác, đầu tư, với tinh thần tháo gỡ dứt điểm các vướng mắc, phát huy hiệu quả cao nhất của các dự án hợp tác.
+- Phó chủ tịch UBND xã Thường Phước đã có báo cáo vụ sạt lở mới tại công trình kè chống xói lở thị trấn Thường Thới Tiền dài 55m.
+- Sáng 12-8, tại Nhà Xanh, Tổng Bí thư Tô Lâm và Phu nhân dự tiệc trà và thưởng thức biểu diễn nghệ thuật truyền thống.
+- Trong 40 ngày, Bộ Công an và tỉnh Nghệ An sẽ xây dựng 500 căn nhà cho người dân bị thiệt hại do mưa lũ.
+- Chính quyền xã Ô Lâm đã xác định có 23 hộ dân xây dựng trái phép trên đất rừng phòng hộ và dưới lòng hồ Ô Thum để kinh doanh gà đốt.
+- Ngành y tế xác định quy trình chế biến của cơ sở bánh mì Cô Thắm chưa đảm bảo an toàn thực phẩm khiến 38 người nhập viện, từ đó đã xử phạt 80,5 triệu đồng.
+- Thủ tướng Chính phủ vừa có các quyết định số 1720, 1721 ngày 12-8 thi hành kỷ luật đối với ông Lê Thanh Hải, nguyên chủ tịch UBND TP.HCM và ông Nguyễn Bá Hoan, thứ trưởng Bộ Nội vụ.
+- Rừng thông ở xã Thiên Nhẫn, tỉnh Nghệ An bùng cháy dữ dội sau khi bị sét đánh. Hàng trăm người đang tích cực dập lửa.
+- Ông Nguyễn Trí Dũng - nguyên chủ tịch UBND quận Gò Vấp (cũ) - được chỉ định làm bí thư Đảng ủy phường Gò Vấp (TP.HCM) nhiệm kỳ 2025 - 2030.
+- Nhiều năm qua, các hộ dân cạnh làng đá mỹ nghệ Non Nước (TP Đà Nẵng) phải sống trong cảnh ô nhiễm không khí và tiếng ồn trầm trọng.
+- Bà Tôn Ngọc Hạnh, phó bí thư thường trực Tỉnh ủy Đồng Nai, đã dự và phát biểu chỉ đạo tại Đại hội đại biểu Đảng bộ phường Đồng Xoài.
+- Chủ tịch UBND thành phố Cần Thơ Trần Văn Lâu yêu cầu các xã, phường vừa tiến hành xong đại hội đại biểu phải ban hành chương trình hành động thực hiện nghị quyết của Đảng bộ, bởi theo ông, 'nghị quyết mà đút trong hộc tủ thì cũng như tờ giấy thôi'.
+- Ban chấp hành Đảng bộ phường Xuân Hòa, TP.HCM nhiệm kỳ 2025 - 2030 có 27 thành viên. Bà Nguyễn Thanh Xuân làm Bí thư phường.
+- Sau khi Quảng Nam sáp nhập với Đà Nẵng, HĐND địa phương này phải rà soát, xử lý tới hơn 500 nghị quyết, xóa 90 nghị quyết.
+- Bộ Nội vụ lấy ý kiến nhân dân về việc trình xét, tặng danh hiệu Anh hùng Lao động cho nguyên Phó chủ tịch nước Nguyễn Thị Bình.
+- Ông Hứa Quốc Hưng - chủ tịch UBND huyện Củ Chi cũ - làm Bí thư Đảng ủy, chủ tịch HĐND xã Củ Chi nhiệm kỳ 2025-2030.
+- Công ty Điện lực Hoàn Kiếm, Hội Người mù Hà Nội, Trung tâm hội nghị TP Hà Nội (phường Hoàn Kiếm)... đang tất bật di chuyển đồ đạc ra khỏi trụ sở.
+- Sáng 12-8, phường Phú Thuận tổ chức lễ khởi công mở rộng hẻm 1549, khánh thành hai hẻm 1225 và 803/58 trên đường Huỳnh Tấn Phát.
 ![New](News.png)
 ## Nhịp sống số 
+- DeepSeek, mô hình AI của Trung Quốc, đã gây chấn động thị trường khi chứng minh rằng có thể tạo ra một mô hình mạnh mẽ với chi phí thấp.
+- Chỉ cần gõ từ khóa 'Brain Rot' trên bất kỳ mạng xã hội nào, người dùng lập tức bị bủa vây bởi một loạt video có hình ảnh sặc sỡ, nhân vật kỳ quái...
 - Từ lỗ hổng này, tin tặc có thể khiến ChatGPT gợi ý người dùng tải về phần mềm chứa vi rút, đưa ra lời khuyên kinh doanh sai lệch, thậm chí truy cập các tệp tin trên Google Drive...
 - Nắm rõ một số dấu hiệu cảnh báo, phát hiện và sửa chữa càng sớm càng tốt khi bị hack điện thoại giúp hạn chế thiệt hại.
 - Thông tin rò rỉ về các sản phẩm trong series iPhone 17, dự kiến ra mắt vào tháng 9-2025, tiếp tục được nhiều nguồn uy tín tung ra.
@@ -153,6 +155,4 @@
 - Người Việt không còn chỉ theo sau làn sóng AI toàn cầu. Từ việc ứng dụng, họ bắt đầu tạo ra những hệ thống AI mang bản sắc riêng hiểu ngôn ngữ, văn hóa và nhu cầu của chính người Việt.
 - Theo chuyên gia bảo mật, trước đây email lừa đảo dễ dàng bị phát hiện do cách diễn đạt không tự nhiên, nhưng sự tiến bộ của AI đã giúp tạo ra các câu tự nhiên, cho phép tin tặc vượt qua rào cản ngôn ngữ.
 - Mirage được giới thiệu có thể chuyển đổi các luồng video trực tiếp sang nhiều phong cách hình ảnh khác nhau mà vẫn giữ nguyên chuyển động, cấu trúc và tốc độ khung hình.
-- Thông tin Meta AI có thể đọc lén tin nhắn cá nhân trên WhatsApp đang lan truyền nhanh chóng trên mạng xã hội khiến nhiều người dùng hoang mang. Tuy nhiên, kiểm chứng cho thấy đây là thông tin sai lệch và gây hiểu nhầm.
-- Từ những nhân vật hoạt hình biết nói, biết hát đến những người nổi tiếng không tồn tại thật, idol ảo đang vươn lên thành ngôi sao mạng xã hội nhờ công nghệ AI và kiếm tiền như người thật.
 ![life](Life.png)
