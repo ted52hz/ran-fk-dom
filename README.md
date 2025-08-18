@@ -1,6 +1,10 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Sau gần 2 tháng vận hành bộ máy chính quyền 2 cấp ở các xã - phường, trước việc một số người dân gặp khó khăn khi sử dụng thiết bị để làm thủ tục hành chính, TP Đà Nẵng đã điều động 105 sinh viên ngành công nghệ thông tin lên đường.
+- Năm 2024, tân sinh viên Nguyễn Ngọc Như Uyên đã nhận được suất học bổng đặc biệt “Tiếp sức đến trường” do báo Tuổi Trẻ trao tặng, giúp cô hoàn tất học phí học kỳ I. Tuy nhiên, đến kỳ hạn đóng học phí học kỳ II, gia đình cô vẫn không có tiền.
+- Làm gì để ngăn những vụ việc đau lòng như trường hợp bé 14 tháng tuổi bị bảo mẫu ném xuống sàn tử vong do chấn thương sọ não?
+- Hàn Quốc có thể thu hơn 100 tỉ USD nếu thêm 1 triệu sinh viên quốc tế tốt nghiệp đại học, theo nghiên cứu KCCI và giáo sư Kim Duk Pa.
 - Trường đại học Công Thương TP.HCM ghi nhận số nguyện vọng đăng ký xét tuyển cao kỷ lục, với hơn 178.000.
 - Có '2 sẵn sàng' cho học sinh và '2 sẵn sàng' cho phụ huynh. Chuyên gia cho rằng khi đáp ứng đủ '4 sẵn sàng' này là thời điểm thích hợp cho con du học.
 - Thầy hiệu trưởng Trường tiểu học Chính Nghĩa, phường Chợ Lớn (quận 5 cũ), TP.HCM đã trực tiếp nói chuyện với phụ huynh lớp 1 trong cuộc họp đầu năm.
@@ -47,12 +51,40 @@
 - Thường trực Ủy ban Văn hóa - Xã hội đề nghị Bộ Giáo dục và Đào tạo nghiên cứu theo hướng có bộ sách giáo khoa dùng chung.
 - Câu trả lời đơn giản là vì có rác! Nhưng tại sao lại có rác?
 - Đây là một trong nhiều đề xuất đi kèm giải pháp góp phần hiện thực các chỉ tiêu phát triển bảo hiểm xã hội, bảo hiểm y tế vừa được Bảo hiểm xã hội TP.HCM trình Thành ủy và UBND TP.HCM.
-- Hôm nay 13 -8, Bộ Giáo dục và Đào tạo sẽ phối hợp các cơ sở đào tạo rà soát cơ sở dữ liệu trên hệ thống xét tuyển, chuẩn bị khởi động quy trình lọc ảo xét tuyển đại học năm 2025.
-- Năm học mới 2025-2026 học sinh tiếp tục dùng sách giáo khoa hiện hành, từ năm học 2026-2027 sách sẽ được chỉnh sửa để phù hợp với việc thay đổi địa giới hành chính.
-- Từ vốn đầu tư hàng chục tỉ đồng của Nhà nước, nhiều năm qua Trường tiểu học, Trường phổ thông dân tộc bán trú THCS Pù Nhi, xã biên giới Pù Nhi (Thanh Hóa) được xây dựng nhiều công trình phục vụ dạy học. Hai trường này sẵn sàng bước vào năm học mới.
-- Theo quyết định mới nhất của Thủ tướng Chính phủ, hai đại học quốc gia nằm trong số các đơn vị sự nghiệp công lập trực thuộc Bộ Giáo dục và Đào tạo.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Báo cáo từ Charoen Pokphand Foods - công ty mẹ của C.P. Việt Nam - cho thấy doanh thu của "ông lớn" này tại thị trường Việt Nam quý 2 và lũy kế 6 tháng đầu năm nay.
+- Một số tin tức đáng chú ý: Lộc Trời đề cử nhân sự ban kiểm soát, có người từ Bamboo Capital; TP.HCM tăng chuyến 7 tuyến xe buýt từ hôm nay, 18-8.
+- Hôm nay 18-8, cả đất liền lẫn Biển Đông đều mưa dông, thời tiết xấu ảnh hưởng tới mọi hoạt động, sinh hoạt, đi lại của người dân.
+- 130 công nhân Công ty TNHH Phúc Thịnh tại Khu công nghiệp Nhơn Hòa (Gia Lai) bị nợ lương, nợ bảo hiểm xã hội nhiều tháng liên tiếp, còn giám đốc doanh nghiệp đi đâu không rõ.
+- Lãnh đạo TP Đà Nẵng muốn THACO tham gia nghiên cứu, đầu tư dự án đường sắt đô thị nối sân bay Đà Nẵng - Hội An - sân bay Chu Lai.
+- Xe hơi biển số TP.HCM mất lái lao lên vỉa hè, tông gãy trụ camera giao thông ở trung tâm Nha Trang (tỉnh Khánh Hòa).
+- Công an TP Hà Nội ra mắt 4 sản phẩm chuyển đổi số phục vụ nhân dân và nhiệm vụ công tác chuyên môn, trong đó đáng chú ý là tổng đài viên AI (1900 0113) và chatbot AI.
+- Đến 18h ngày 17-8, chương trình vận động ủng hộ nhân dân Cuba "65 năm nghĩa tình Việt Nam - Cuba" của Hội Chữ thập đỏ Việt Nam đã vượt mốc 310,9 tỉ đồng.
+- Một cây phượng đại thụ bất ngờ bật gốc rồi đổ sập xuống ngang đường đúng lúc có nhiều xe máy đi qua. May mắn, 4 người gần nhất đã thoát nạn trong gang tấc.
+- Giá vé tham quan di sản Huế 200 ngàn đồng/người được nhiều bạn đọc quan tâm, tranh luận.
+- Nhiều tiểu thương ở các sàn thương mại điện tử đang xoay trục, tập trung tối ưu lợi nhuận trên từng đơn, bán ít nhưng lãi chắc, giảm áp lực khi sàn tăng phí cao.
+- Hơn 650 tàu thuyền của Đà Nẵng đang còn trên biển, trong đó có 130 tàu với 961 ngư dân khu vực biển Hoàng Sa nơi đang có áp thấp nhiệt đới.
+- Lực lượng cảnh sát giao thông TP.HCM vừa ngăn chặn, bắt giữ nhóm thanh thiếu niên chạy xe tốc độ cao, nẹt pô, lạng lách trên đường.
+- Ngày 19-8 tại 34 tỉnh, thành sẽ đồng loạt khởi công, khánh thành 250 dự án với tổng mức đầu tư 1,28 triệu tỉ đồng.
+- Thầy hiệu trưởng, người nuôi gà lôi được tại ngoại; Đề xuất chuyển chuyến bay quốc tế về Long Thành... là những vấn đề được bạn đọc quan tâm.
+- Sẽ có thêm gần 500 cán bộ ở Quảng Trị được bố trí nhà công vụ khi 265 phòng ở bốn dãy nhà công vụ được thiết kế như khách sạn sắp hoàn thành.
+- Sáng 17-8, xã Hồ Tràm đã tổ chức Đại hội đại biểu lần 1, nhiệm kỳ 2025 - 2030.
+- Dịp 19-8 và 2-9, nhiều tỉnh, thành miền Trung sẽ khởi công, khánh thành hàng loạt dự án trọng điểm có ảnh hưởng lớn đến sự phát triển của cả vùng.
+- Giữa trưa 17-8, người dân phát hiện lửa bùng lên trong căn nhà ở xã Ninh Sơn (tỉnh Khánh Hòa) nên gọi lực lượng chức năng. Tuy nhiên ngọn lửa đã lan nhanh khiến một người phụ nữ đang ở trong nhà thiệt mạng.
+- Đảng bộ phường Nhiêu Lộc xác định du lịch đường thủy, phố ẩm thực và kinh tế ven kênh sẽ trở thành thương hiệu đặc trưng của phường.
+- Cộng đồng doanh nghiệp, người dân đang chung tay góp sức cùng chính quyền địa phương để chuyển đổi xanh Phú Quốc.
+- Làm gì để ngăn những vụ việc đau lòng như trường hợp bé 14 tháng tuổi bị bảo mẫu ném xuống sàn tử vong do chấn thương sọ não?
+- Tổng Bí thư Tô Lâm đã thay mặt lãnh đạo Đảng và Nhà nước gắn Huân chương Sao vàng lên cờ truyền thống của lực lượng Công an nhân dân.
+- Trong lúc chèo sup tắm biển ở khu vực xã Tiên Hải (hay gọi đảo Hải Tặc, An Giang) và gặp phải sóng lớn nên chiếc sup bị đánh lật.
+- Bài phát biểu của Tổng Bí thư tại Lễ kỷ niệm 80 năm Ngày truyền thống Công an nhân dân, 20 năm Ngày hội toàn dân bảo vệ an ninh Tổ quốc.
+- Dự tiệc cưới vì ai, vì điều gì không chỉ là mối quan tâm của nhiều người, mà đây còn là câu hỏi luôn thu hút nhiều tranh luận sôi nổi.
+- Du lịch công nghiệp đang mở ra hướng đi mới cho TP.HCM, với chìa khóa là sự kết nối giữa các khu công nghiệp và doanh nghiệp lữ hành.
+- Tuần này thời tiết mưa dông chiếm ưu thế, mưa kéo dài cả tuần, nhiều nơi mưa to đến rất to.
+- Những công đoạn cuối cùng trên tuyến chính cao tốc dài 11,5km qua Đà Nẵng đang chạy nước rút chuẩn bị cho việc thông xe.
+- Lễ kỷ niệm được tổ chức nhằm ôn lại chặng đường vẻ vang 80 năm xây dựng, chiến đấu, trưởng thành của lực lượng Công an nhân dân.
+- Sáng 17-8, lãnh đạo Đảng, Nhà nước vào Lăng viếng Chủ tịch Hồ Chí Minh, nhân kỷ niệm 80 năm Ngày truyền thống Công an nhân dân.
+- Việc có làn đường dành riêng cho xe buýt là chủ trương đúng và cần làm, nhưng cần triển khai sao cho hợp lý và hiệu quả.
 - Tin tức đáng chú ý: TP.HCM đo thân nhiệt tại cửa khẩu 24/7 phòng bệnh Chikungunya; Yêu cầu hàng chục ngân hàng phong tỏa tài khoản đại gia thép một thời...
 - Hôm nay 17-8, thời tiết cả nước tiếp tục duy trì mưa to, nhiều nơi mưa rất to, trên biển do ảnh hưởng áp thấp nên mưa gió mạnh, sóng cao.
 - Cán bộ, công chức, viên chức, người lao động hưởng lương ngân sách bị ảnh hưởng do sắp xếp đơn vị hành chính vẫn được bảo lưu hoặc tiếp tục hưởng phụ cấp nếu tiếp tục làm việc trong hệ thống chính trị.
@@ -71,38 +103,6 @@
 - Sáng 16-8, khoảng 16.000 cán bộ, chiến sĩ quân đội, công an đã tham gia buổi tổng hợp luyện diễu binh phục vụ 80 năm Quốc khánh (A80) tại Trung tâm Huấn luyện quân sự quốc gia 4 (Hà Nội).
 - Bé gái bị bỏ lại phía ngoài một ngôi chùa tại Hưng Yên. Bên cạnh bé là lá thư có lời nhắn 'Mong thầy không giao bất kỳ ai, con tin tưởng nhà chùa'.
 - Nhiều bạn đọc quan tâm tới đề xuất mở làn riêng cho xe buýt tại TP.HCM, nêu các ý kiến về tính khả thi, hiệu quả và cách triển khai phù hợp.
-- Phường Long Bình phải thực sự là kiểu mẫu về kết nối nội thị và liên vùng, đóng góp vào nhiệm vụ đầu mối logistics chiến lược.
-- Lực lượng chức năng vừa tìm thấy thi thể nam công nhân mất tích khi bơi trên sông Ba (phường Tuy Hòa, Đắk Lắk) để vào bờ trước đó 1 ngày.
-- Quốc hội sẽ tiếp tục đổi mới toàn diện hoạt động, đổi mới tư duy xây dựng pháp luật và tới đây tổ chức diễn đàn về xây dựng pháp luật.
-- Chủ đàn bò để một con bò đi lạc vào hầm sông Sài Gòn chiều 15-8 bị cảnh sát giao thông lập biên bản xử phạt.
-- Tuổi Trẻ Online gửi đến bạn đọc toàn văn bài viết của Đại tướng, Tổng Bí thư Tô Lâm nhân dịp kỷ niệm 80 năm Ngày truyền thống lực lượng Công an nhân dân.
-- Mạng xã hội xuất hiện thông tin đàn bò tót lai đang được nuôi dưỡng ở Vườn quốc gia Núi Chúa - Phước Bình (tỉnh Khánh Hòa) bị 'gầy còm, ốm yếu'.
-- Sau hai ngày làm việc, Đại hội Đảng bộ phường Đức Nhuận (TP.HCM) lần thứ I đã thành công tốt đẹp, đề ra phương hướng phát triển trong giai đoạn mới.
-- Sáng 16-8, Chủ tịch Quốc hội Trần Thanh Mẫn dự lễ khánh thành công trình Nhà tưởng niệm Chủ tịch Tôn Đức Thắng tại Tuyên Quang.
-- Một nam công nhân đang thi công sửa chữa hầm cống tại phường Tuy Hòa (tỉnh Đắk Lắk) thì tử vong, nghi do ngạt khí.
-- Phường Bình Phú (TP.HCM) tiếp tục đeo bám giải quyết các dự án tồn đọng, trong đó có dự án khu III - Nam Lý Chiêu Hoàng 'treo' 20 năm.
-- Ngày 16-8, tại Đại hội đại biểu Đảng bộ phường Tân Hải lần thứ I (nhiệm kỳ 2025-2030), ông Võ Văn Minh, phó bí thư Thành ủy, chủ tịch HĐND TP.HCM, yêu cầu nghiên cứu làm metro, giảm phụ thuộc vào quốc lộ 51.
-- Sáng 16-8, Đảng bộ xã Thái Mỹ tổ chức Đại hội đại biểu lần thứ I, nhiệm kỳ 2025 - 2030.
-- Để thúc đẩy phát triển kinh tế tư nhân, tỉnh Khánh Hòa lập kế hoạch trong đó nhấn mạnh đổi mới tư duy, cải thiện môi trường đầu tư kinh doanh, đồng thời xử lý nghiêm hành vi tham nhũng của cán bộ, công chức.
-- Ông Nguyễn Phước Lộc gợi mở xã Hòa Hội cần phát triển kinh tế bền vững, kinh tế xanh kết hợp khai thác lợi thế du lịch sinh thái.
-- Mưa lớn kéo dài khiến mực nước dâng cao làm hai bên mố cầu dân sinh ở Đồng Nai sụt lún, giao thông của người dân bị chia cắt.
-- Sáng 16-8, Bộ Công an tổ chức lễ khánh thành trụ sở Bộ Công an tại số 96 Nguyễn Du, phường Cửa Nam, thành phố Hà Nội.
-- Phó bí thư thường trực Thành ủy TP.HCM Nguyễn Thanh Nghị đề nghị phường An Lạc khai thác lợi thế hạ tầng giao thông kết nối liên vùng, tận dụng vị trí chiến lược để thu hút đầu tư.
-- Học sinh, phụ huynh và giáo viên ở các xã biên giới Quảng Ngãi đang háo hức trước thông tin tỉnh đề xuất đầu tư 775 tỉ đồng xây dựng 5 trường phổ thông nội trú liên cấp.
-- Bước vào nhiệm kỳ đầu tiên sau khi sáp nhập, Đảng bộ phường Gia Định (TP.HCM) đặt ra nhiều giải pháp quản lý tốt hơn để phát triển kinh tế - xã hội.
-- Thủ tướng lưu ý việc xây dựng nhà ở xã hội phải đa dạng phân khúc, đa đạng hình thức mua, thuê mua; đảm bảo các hạ tầng thiết yếu về giao thông.
-- Công tác sửa chữa khe co giãn trên tuyến vành đai 3 (Hà Nội) đoạn trên cao từ Pháp Vân đến Nguyễn Trãi - Khuất Duy Tiến và ngược lại đã hoàn thành.
-- Sáng 16-8, Đảng bộ phường Đức Nhuận (TP.HCM) tổ chức Đại hội đại biểu lần thứ I, nhiệm kỳ 2025-2030.
-- Các tổ công tác của Công an Đà Nẵng đã truy tìm và phát hiện nạn nhân của vụ 'bắt cóc online' đang chat với một đối tượng bên Campuchia.
-- Nhân dịp kỷ niệm 80 năm Ngày truyền thống lực lượng Công an nhân dân Việt Nam, phu nhân Tổng Bí thư Tô Lâm, bà Ngô Phương Ly, đã có chuyến thăm đầy xúc động và ý nghĩa tới tỉnh Sơn La ngày 15-8.
-- Cơ chế đã mở, làm thế nào để khu vực tư nhân thực sự tham gia; và đưa các chủ trương, đường lối của Đảng, chính sách của Nhà nước thành hiện thực?
-- Một chi tiết 'nhỏ mà có võ' được trang bị giúp những khí tài hạng nặng di chuyển nhịp nhàng trên đường nhựa: guốc xích cao su.
-- Dự báo năm nay không khí lạnh hoạt động sớm, mạnh dần từ khoảng tháng 10-2025 và gia tăng mạnh từ tháng 11.
-- Sáng 16-8, Công an xã Tràm Chim, tỉnh Đồng Tháp đã có báo cáo nhanh vụ cháy chợ thực phẩm Tam Nông xảy ra vào tối 15-8 làm thiệt hại 31 ki ốt. Có hơn 230 cán bộ chiến sĩ và người dân tham gia chữa cháy.
-- Bộ Nội vụ hướng dẫn gỡ vướng về tuyển dụng, xếp ngạch công chức, xếp lương với chỉ huy trưởng, phó chỉ huy trưởng, trợ lý ban chỉ huy quân sự cấp xã.
-- TP.HCM đang lấy ý kiến dự thảo quy định mới về quản lý xe buýt, trong đó có nội dung mở làn ưu tiên hoặc làn riêng cho xe buýt.
-- Ngày 15-8, báo Tuổi Trẻ tổ chức hội thảo về giải pháp kiểm soát ô nhiễm không khí đô thị, với sự tham dự của lãnh đạo sở ngành và chuyên gia.
-- Toàn văn bài viết của Đại tướng Lương Tam Quang - ủy viên Bộ Chính trị, bộ trưởng Bộ Công an, nhân dịp kỷ niệm 80 năm Ngày truyền thống lực lượng Công an nhân dân.
 ![New](News.png)
 ## Nhịp sống số 
 - Chỉ bằng vài câu lệnh, AI đã có thể dựng nên những khung hình sống động, từ bối cảnh, ánh sáng đến từng chuyển động nhỏ... Nó làm điều đó thế nào?
