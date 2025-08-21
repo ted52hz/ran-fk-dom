@@ -1,6 +1,19 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Bên cạnh các yếu tố truyền thống như khuôn viên, chất lượng giảng viên, các trường đại học đang cạnh tranh ngày càng khốc liệt thông qua cả những yếu tố mới như dịch vụ số cho sinh viên, tính cá nhân hóa.
+- Tại phiên họp Thường vụ Quốc hội cho ý kiến dự Luật sửa đổi, bổ sung một số điều Luật Giáo dục, cùng với cơ quan thẩm tra của Quốc hội, có ý kiến đề nghị Bộ GD-ĐT cần biên soạn một bộ sách giáo khoa dùng chung, các SGK khác là tài liệu tham khảo.
+- Sở Giáo dục và Đào tạo Hà Nội sẽ cho học sinh nghỉ học trong các ngày chuẩn bị lễ diễu hành 80 năm Quốc khánh.
+- Sau 11 lần lọc ảo toàn quốc và nhóm phía Nam, các trường thành viên Đại học Quốc gia TP.HCM bắt đầu hé lộ mức điểm chuẩn dự kiến năm 2025.
+- Chiều 20-8, Sở Giáo dục và Đào tạo TP.HCM đã phát hành công văn hướng dẫn về việc lựa chọn chương trình nhà trường năm học 2025-2026.
+- Hiện các trường đại học, cao đẳng tại Việt Nam chỉ đáp ứng một số lượng rất hạn chế nhu cầu nguồn lao động để phục vụ phát triển du lịch Halal trong nước.
+- Năm học 2025-2026, TP.HCM sẽ triển khai chương trình STEM song ngữ và tích hợp sâu rộng AI, thực tế ảo (VR/AR) vào dạy học tiếng Anh.
+- Sau khi tăng thêm 4 lần lọc ảo, Bộ Giáo dục và Đào tạo đề nghị các cơ sở giáo dục không công bố điểm chuẩn trúng tuyển trước lần lọc ảo cuối cùng trên hệ thống, tức không công bố trước 12h30 ngày 22-8.
+- Ngày 20-8, Trường đại học Hùng Vương TP.HCM công bố điểm chuẩn các ngành đào tạo đại học chính quy nhưng rút lại sau thông báo mới nhất của Bộ GD-ĐT.
+- Sáng 20-8, hàng loạt trường học trên địa bàn TP.HCM đã tổ chức đón học sinh lớp 1 tựu trường trong không gian vui tươi, với nhiều hoạt động trải nghiệm.
+- Nhiều trường cao đẳng, trung cấp đang nỗ lực thu hút thí sinh bằng những thế mạnh và sự hấp dẫn của chính mình, thay vì bị động trông chờ vào nguồn tuyển "rớt đại học mới chọn cao đẳng".
+- Một số trường THCS ở TP.HCM phải dời lịch tựu trường vì nhà thầu chậm tiến độ sửa chữa, xây dựng trường lớp.
+- Những trường sẽ công bố điểm chuẩn ngay trong chiều tối nay gồm Trường ĐH Bách khoa, Trường ĐH Kinh tế - Luật (ĐH Quốc gia TP.HCM); ĐH Bách khoa Hà Nội...
 - Sau các vòng lọc ảo tuyển sinh đại học 2025, nhiều trường đại học tại TP.HCM ghi nhận biến động điểm chuẩn đáng chú ý.
 - Chiều 19-8, trong quá trình chạy lọc ảo, cán bộ tuyển sinh tại một trường cao đẳng TP.HCM phát hiện một thí sinh đã đăng ký đến 231 nguyện vọng xét tuyển đại học, cao đẳng năm 2025.
 - GS.TS Nguyễn Khắc Quốc Bảo được Bộ trưởng Bộ Giáo dục và Đào tạo công nhận giữ chức chủ tịch hội đồng Đại học Kinh tế TP.HCM nhiệm kỳ 2025-2030.
@@ -38,73 +51,62 @@
 - Sau hợp nhất, sáp nhập và thực hiện chính quyền 2 cấp, các trường ngoài công lập phải thực hiện thay đổi trên con dấu, giấy phép. Hiện nay, nhiều trường, đơn vị vướng mắc sẽ liên hệ ở đâu, thủ tục thế nào?
 - Theo một lãnh đạo Sở Giáo dục và Đào tạo TP.HCM, ngôi trường có nhiều điều kiện thuận lợi để chuyển thành trường chuyên là Trường THPT Nguyễn Thượng Hiền.
 - Ngày 15-8, tại Ðại hội đại biểu Ðảng bộ Trường đại học Y Dược Cần Thơ (nhiệm kỳ 2025-2030), mục tiêu Đảng bộ trường đặt ra là phấn đấu trở thành đại học tốp đầu trong lĩnh vực đào tạo khoa học sức khỏe khu vực châu Á.
-- Sau 6 năm theo học ngành y học cổ truyền, ông Phạm Ngọc Hồng, 75 tuổi, đã nhận bằng bác sĩ loại giỏi, điểm GPA đạt 3.28/4.
-- Theo chuyên gia từ một tình huống STEM, học sinh được dẫn dắt qua các bước xác định vấn đề, nghiên cứu - đề xuất giải pháp, lựa chọn, chế tạo - thử nghiệm và chia sẻ - đánh giá sản phẩm.
-- Ngày 15-8, Sở Giáo dục và Đào tạo TP.HCM đã tổ chức lễ tuyên dương, khen thưởng học sinh giỏi các cấp năm học 2024-2025. Dịp này chủ tịch UBND TP đã tặng bằng khen cho 929 giáo viên và học sinh giỏi.
-- Hơn 360 người bị ngộ độc thực phẩm sau khi ăn bữa trưa trong chương trình bữa ăn học đường miễn phí ở Indonesia.
-- TS Quách Hoài Nam vừa được bổ nhiệm làm hiệu trưởng Trường đại học Nha Trang.
-- Tháng 4-2025, TP.HCM có 100 trường tiểu học, THCS, THPT đầu tiên được công nhận đạt các tiêu chuẩn của trường học số.
-- 1-2 tuần nữa, học sinh nhiều địa phương trong cả nước bắt đầu tựu trường, chuẩn bị năm học mới.
-- Nhiều sinh viên Trường đại học Kinh Bắc bất an khi 12 ngành của trường bị đình chỉ tuyển sinh, giảng dạy trong 9 tháng, và hơn thế còn... không biết ban giám hiệu hiện tại là ai.
-- Dự kiến từ nay đến hết năm 2025, tỉnh Thanh Hóa sẽ đầu tư xây dựng 6 trường nội trú liên cấp tại các xã biên giới.
-- Phân hiệu chiến lược mới của Đại học Kinh tế TP.HCM tại Nha Trang (UEH Nexus Campus Nha Trang) sẽ chính thức góp mặt trong 80 công trình khởi công, khánh thành chào mừng Ngày Quốc khánh Việt Nam.
-- Tối 14-8, Sở Giáo dục và Đào tạo TP.HCM đã có thông báo tuyển hơn 6.000 giáo viên các cấp cho năm học mới 2025-2026.
-- Theo các chuyên gia, sự gia tăng quá nhanh các lớp học chuyên ngành bằng tiếng Anh tại các trường đại học có thể để lại khó khăn.
-- Trường đại học Y khoa Phạm Ngọc Thạch vừa công bố mức thu học phí chính thức với sinh viên đại học chính quy năm học tới.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Toàn văn thư Thủ tướng Chính phủ Phạm Minh Chính gửi chúc mừng lãnh đạo, phóng viên, biên tập viên và cán bộ nhân viên báo Tuổi Trẻ.
+- Từ đêm qua tới sáng nay khắp TP.HCM mưa to, mưa trải đều khắp các tỉnh thành, có nơi mưa đã vượt 100mm và dự báo còn mưa tiếp.
+- Một số tin tức đáng chú ý: Phạt Tập đoàn CIC vì 'mập mờ' nhiều thông tin; 50-80% người cao tuổi mắc tăng huyết áp yếu tố gây đột quỵ, suy tim...
+- Tại phiên họp Thường vụ Quốc hội cho ý kiến dự Luật sửa đổi, bổ sung một số điều Luật Giáo dục, cùng với cơ quan thẩm tra của Quốc hội, có ý kiến đề nghị Bộ GD-ĐT cần biên soạn một bộ sách giáo khoa dùng chung, các SGK khác là tài liệu tham khảo.
+- TP.HCM ngày càng quá tải phương tiện cá nhân. Hạ tầng giao thông dù có phát triển đáng kể vẫn khó theo kịp. Kẹt xe cũng là một trong những điều bức xúc nhất đối với người đô thị, đường đi về mỗi ngày luôn mệt mỏi lo trễ giờ.
+- Hôm nay 21-8, nắng nóng đã quay lại miền Trung. Miền Bắc và miền Nam vẫn còn mưa to đến rất to.
+- Một người nước ngoài chạy xe máy với tốc độ cao, lạng lách, vượt ẩu trên đường phố Nha Trang khiến dư luận bức xúc đề nghị cảnh sát giao thông xử lý nghiêm.
+- Theo báo cáo của Sở Xây dựng, TP.HCM đã thu 8,5 tỉ đồng phí vỉa hè, lòng đường. Khoản thu chủ yếu từ lễ hội, thể thao và bãi giữ ô tô.
+- Trong nhiệm kỳ mới, Ban Chấp hành Đảng bộ phường An Nhơn chú trọng thực hiện các công trình chống ngập, chỉnh trang đô thị và đảm bảo vệ sinh môi trường.
+- Tài xế phóng xe bán tải trên bãi biển Tuy Hòa (Đắk Lắk), liên tục bóp còi lúc đông người đang vui chơi vào dịp Tết Đoan ngọ (ngày 31-5 dương lịch) vừa bị tòa án tuyên phạt 6 tháng tù về tội gây rối trật tự công cộng.
+- Các tổ công tác của Bộ Chính trị làm việc với đại diện ban thường vụ tỉnh ủy các tỉnh Sơn La, Thanh Hóa, Bắc Ninh, Lạng Sơn về chuẩn bị đại hội đảng bộ tỉnh.
+- Khoảng 14h30 ngày 20-8, tại khu vực suối Chà Làm thuộc bản Khằm 2, xã Trung Lý, tỉnh Thanh Hóa xảy ra vụ lũ cuốn trôi hai mẹ con.
+- TP.HCM dự kiến chi gần 3.000 tỉ đồng xây dựng nút giao cao tốc Bến Lức - Long Thành với đường Rừng Sác, dự kiến khởi công giữa năm 2026.
+- Trong nhiệm kỳ mới, Ban Chấp hành Đảng bộ phường Thông Tây Hội sẽ chú trọng đầu tư hạ tầng giao thông, giải quyết triệt để tình trạng ngập cục bộ trên địa bàn, cũng như mở rộng các vùng xanh.
+- Ngày 20-8, UBND TP Hà Nội ban hành công văn số 4686 về việc đảm bảo các điều kiện phục vụ nhân dân, du khách theo dõi các hoạt động kỷ niệm và lễ kỷ niệm, diễu binh, diễu hành 80 năm Cách mạng Tháng Tám thành công và Quốc khánh 2-9.
+- Tỉnh Đồng Nai và các đơn vị liên quan cần sớm hoàn thiện các tuyến đường kết nối sân bay Long Thành bởi tình trạng ùn tắc hiện nay rất lớn.
+- Ngày 20-8, Bộ Quốc phòng đã tổ chức lễ công bố quyết định thành lập Bộ tư lệnh Pháo binh - Tên lửa.
+- Phường Tăng Nhơn Phú xác định khâu đột phá về nhà ở là triển khai quy hoạch chi tiết 1/500 để miễn giấy phép xây dựng cho người dân.
+- Ông Nguyễn Thanh Nghị - ủy viên Trung ương Đảng, phó bí thư thường trực Thành ủy TP - được chỉ định làm bí thư Đảng ủy các cơ quan Đảng TP.HCM nhiệm kỳ 2025 - 2030.
+- Dự kiến chậm nhất trong quý 1-2026 việc thu phí đường cao tốc do nhà nước đầu tư sẽ thực hiện trên 13 đoạn tuyến đường cao tốc Bắc - Nam phía Đông.
+- Các doanh nghiệp quốc tế dồn dập đặt hàng Việt Nam sản xuất vỏ container.
+- Chủ tịch Ủy ban Trung ương MTTQ Việt Nam Đỗ Văn Chiến được chỉ định giữ chức bí thư Đảng ủy Cơ quan Ủy ban Trung ương Mặt trận Tổ quốc Việt Nam.
+- Bạn đọc cho biết đi khám bệnh bảo hiểm y tế thường gặp tình trạng thiếu thuốc, phải 'chạy đôn chạy đáo' mua thuốc bên ngoài.
+- Khối quân nhân lực lượng vũ trang Liên bang Nga đã có mặt tại Hà Nội để tham dự lễ diễu binh, diễu hành kỷ niệm 80 năm Quốc khánh 2-9 (A80).
+- Phó chủ tịch UBND TP.HCM Nguyễn Lộc Hà đề nghị phường Lái Thiêu cần đi đầu trong công tác quy hoạch, thu hút nhiều nhà đầu tư, góp phần đẩy nhanh các công trình trọng điểm…
+- Sáng 20-8, công an hai phường Đông Hòa và Linh Xuân đã ký kết quy chế phối hợp đảm bảo an ninh trật tự cùng Trung tâm Quản lý ký túc xá và khu đô thị Đại học Quốc gia TP.HCM.
+- Sáng 20-8, UBND phường Đại Mỗ (Hà Nội) tổ chức lễ công bố quyết định và gắn biển tên phố Lê Giản và phố Bạch Thành Phong.
+- Phó chủ tịch Quốc hội Vũ Hồng Thanh lưu ý dự án sân bay Long Thành không chỉ làm nhanh, mà còn phải đảm bảo chất lượng khi đưa vào vận hành.
+- Sáng 20-8, các trung đoàn trực thăng của Quân chủng Phòng không - Không quân đã tiến hành bay huấn luyện đội hình treo cờ Đảng, cờ Tổ quốc trong dịp Lễ kỷ niệm 80 năm Quốc khánh 2-9 (A80).
+- Thời gian cấm, tạm cấm và hạn chế xe cộ từ 11h30 ngày 21-8 đến 3h ngày 22-8. So với thông báo trước đó, thời gian thực hiện sẽ sớm hơn 5 tiếng 30 phút.
+- Sáng 20-8, trong không khí chào mừng Cách mạng Tháng Tám và Quốc khánh 2-9, Lễ kỷ niệm 80 năm Ngày thành lập Chính phủ được tổ chức trọng thể tại Hà Nội.
+- Khoảng 9.000 người thuộc 13 khối quần chúng, khối nghệ thuật, khối xếp chữ tham gia buổi hợp luyện đầu tiên chuẩn bị cho dịp kỷ niệm 80 năm Quốc khánh (A80).
+- Bộ Công an khen thưởng đột xuất cho Công an xã biên giới Bờ Y, Quảng Ngãi khi phá được vụ án buôn bán ma túy, với những người liên quan có súng K54 và đạn.
+- Sau tiếng nổ lớn, người đàn ông được phát hiện trong tình trạng bê bết máu, giập nát bàn tay. Cạnh đó là chiếc điện thoại vỡ nát.
+- Chính phủ ban hành Nghị định số 230/2025/NĐ-CP ngày 19-8-2025 quy định các trường hợp khác được miễn, giảm tiền sử dụng đất, tiền thuê đất theo quy định tại khoản 2 Điều 157 Luật Đất đai năm 2024.
+- Sáng 20-8, Đại hội đại biểu Đảng bộ phường Bàn Cờ, TP.HCM lần thứ I, nhiệm kỳ 2025 - 2030 xác định sẽ tập trung vào chuyển đổi số, chỉnh trang đô thị để chất lượng sống người dân được nâng cao.
+- Sở Xây dựng TP.HCM vừa có báo cáo UBND TP.HCM về tình hình thi công dự án nút giao An Phú. Việc sớm hoàn thành dự án được đánh giá là rất cấp bách để đảm bảo kết nối với sân bay Long Thành.
+- Tình hình vận chuyển, tàng trữ, mua bán trái phép ma túy ở đặc khu Phú Quốc còn phức tạp. Địa phương hiện có nhiều giải pháp xây dựng hòn đảo này không ma túy và trở thành đơn vị kiểu mẫu về an ninh trật tự, văn minh đô thị.
+- Sáng 20-8, chỉ một ngày sau lễ khánh thành, cầu Nhơn Trạch chính thức cho xe đi lại. Ngay ngày đầu, nhiều ô tô tải lớn và xe khách chạy lộn vào cầu, khiến giao thông khu vực có lúc lộn xộn.
+- Ông Nguyễn Thanh Nghị - ủy viên Trung ương Đảng, phó bí thư thường trực Thành ủy, bí thư Đảng ủy các cơ quan Đảng TP.HCM - chủ trì Đại hội đại biểu Đảng bộ các cơ quan Đảng lần thứ I, nhiệm kỳ 2025 - 2030.
+- Sau khi phát hiện gà lôi trắng bay vô quán nước của mình, người đàn ông ở Huế chủ động báo tin cho chính quyền và kiểm lâm để giao nộp nhằm chăm sóc, bảo tồn.
+- Bên cạnh sân bay Long Thành (Đồng Nai) đang được nỗ lực thi công để khai thác vào tháng 12-2025, ngày 19-8 sân bay Gia Bình (Bắc Ninh) được khởi công xây dựng.
+- Ngày 19-8, Vietjet đã khởi công trung tâm kỹ thuật bảo dưỡng máy bay ở sân bay Long Thành (Đồng Nai), đánh dấu thêm một bước tổng thể về tiến độ của sân bay quốc tế này.
+- Một con dugong, còn được gọi là cá nàng tiên, dài hơn 2m, nặng gần 300kg mắc cạn ở bờ biển đặc khu Côn Đảo (TP.HCM) và chết sau đó.
+- Dự thảo đề xuất xe ô tô tham gia giao thông tại Hà Nội, TP.HCM sản xuất từ 2017 áp dụng mức 4 từ 1-1-2027. Xe ô tô sản xuất từ 2022 áp dụng mức 5 từ 1-1-2028.
+- Ông Đào Trung Chính - cục trưởng Cục Quản lý đất đai, Bộ Nông nghiệp và Môi trường - khẳng định như vậy khi trao đổi với Tuổi Trẻ về một số điểm mới tại dự thảo sửa Luật Đất đai 2024.
+- Với tinh thần đổi mới, sáng tạo và tiên phong, Đảng bộ Quân khu 7 đã ghi dấu ấn đặc biệt bằng việc tổ chức thành công “Đại hội không giấy” - một bước tiến mạnh mẽ trong cải cách hành chính và ứng dụng công nghệ thông tin.
+- Từ sáng nay (20-8) cầu Nhơn Trạch chính thức 'mở cửa' cho người dân đi lại. Đây là hạng mục quan trọng thuộc dự án vành đai 3 TP.HCM, vừa được khánh thành hôm qua.
 - Tin tức đáng chú ý: Một doanh nghiệp phải giải trình vì cổ phiếu tăng trần liên tục; Phạt Bất động sản Đà Lạt Valley vì 'ém' báo cáo; Cắt giảm thời gian giải quyết thủ tục hành chính thuộc quản lý của Bộ Xây dựng...
 - Hôm nay 20-8, mưa to còn tập trung vài nơi ở Bắc Bộ và Thanh Hóa. Nam Bộ và các nơi khác thời tiết ngày ít mưa, chiều tối mưa rào.
-- Lãnh đạo cấp cao Việt Nam tiếp tục tiếp và hội kiến cùng Quốc vương Bhutan, đánh giá cao tiềm năng phát triển hợp tác giữa hai nước.
-- Tổ công tác số 3, số 4 của Bộ Chính trị đã làm việc với ban thường vụ các tỉnh, thành ủy Đà Nẵng, Quảng Ninh, Khánh Hòa, Nghệ An.
-- Tối 19-8, TP.HCM tổ chức tiệc chiêu đãi nhân kỷ niệm 80 năm Cách mạng Tháng Tám thành công và Quốc khánh 2-9.
-- Cơ quan chức năng vừa xử lý 3 khẩu súng M72, sau khi nhận tin báo của người dân ở xã Tuy An Bắc (Đắk Lắk) trong lúc đào móng nhà đã phát hiện.
-- Chiều 19-8, Đại tướng Lương Tam Quang - ủy viên Bộ Chính trị, bộ trưởng Bộ Công an Việt Nam - có cuộc điện đàm với Ủy viên Quốc vụ, Bộ trưởng Bộ Công an Trung Quốc Vương Tiểu Hồng.
-- Thay mặt Thành ủy - UBND - Ủy ban MTTQ Việt Nam TP.HCM, Bí thư Thành ủy Nguyễn Văn Nên ghi nhận, đánh giá cao những cống hiến của Công an TP.HCM trong thời gian qua.
-- Tổng Bí thư Tô Lâm yêu cầu công tác chuẩn bị, tổ chức lễ kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9 phải thật sự chu đáo, an toàn.
-- Phường An Phú Đông, TP.HCM dự kiến xây cầu Vàm Thuật và bến ca nô phục vụ cứu nạn kết hợp khai thác du lịch sông Sài Gòn trong nhiệm kỳ mới.
-- Chủ tịch Tổng liên đoàn Lao động Việt Nam Nguyễn Đình Khang được chỉ định giữ chức bí thư Đảng ủy Tổng liên đoàn Lao động Việt Nam nhiệm kỳ 2025 - 2030.
-- Chuyên gia cho rằng định hướng phát triển của TP.HCM mới phải xét đến yếu tố chênh lệch của từng địa phương, xây dựng lại quy hoạch.
-- Khoảng 11h30 ngày 19-8, khi cầu Rạch Miễu 2 thông xe, dường như ngay lập tức cầu Rạch Miễu cách đó khoảng 4km về phía hạ lưu sông Tiền vắng tanh, thưa thớt xe, khác hẳn với cảnh chen chúc, xếp hàng trước đó.
-- Việc áp dụng biện pháp kiểm soát an ninh hàng không tăng cường cấp độ 1 tại các sân bay, các cơ sở cung cấp dịch vụ không lưu có hiệu lực từ 20-8.
-- Một trong ba chương trình trọng điểm của xã Hóc Môn đề ra giai đoạn 2025 - 2030 là di dời nhà ở ven kênh, rạch trên địa bàn xã.
-- Phường Bình Tây xác định xây dựng phố đêm Chợ Lớn là bước đột phá, góp phần phát triển du lịch, dịch vụ và kinh tế ban đêm giai đoạn 2025-2030.
-- Sáng 19-8, một lễ kết nghĩa ấm cúng được chính quyền hai địa phương cách nhau hàng trăm cây số ở TP Đà Nẵng thực hiện.
-- UBND tỉnh Nghệ An sẽ chi hơn 1,4 tỉ đồng, để thưởng cho 75 học sinh đạt điểm cao tại kỳ thi tốt nghiệp THPT năm 2025.
-- Ngày 19-8, hơn 1.300 cụ ông, cụ bà đã tham gia sự kiện 'U80 hưởng ứng A80'. Chương trình nhằm tôn vinh thế hệ vàng Việt Nam, nhân kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9.
-- Thi thể của nam du khách mất tích được tìm thấy cách nơi tìm thấy ba lô kèm giấy tờ tùy thân của nạn nhân khoảng 700m.
-- Phường Phú Nhuận có lợi thế là địa bàn cửa ngõ giao thương sân bay quốc tế Tân Sơn Nhất nên tận dụng để cạnh tranh, thực hiện các mục tiêu phát triển kinh tế - xã hội.
-- Ngày 19-8, Đảng bộ xã Thạnh An tổ chức Đại hội đại biểu lần thứ I, nhiệm kỳ 2025-2030.
-- Đại hội Đảng bộ phường Bình Tiên (TP.HCM) xác định mục tiêu hoàn thành thu hồi mặt bằng dự án cầu đường Bình Tiên, kênh Hàng Bàng.
-- Báo Tuổi Trẻ vừa trao quà của bạn đọc đến ba anh em Ngô Quốc Bảo - nhân vật trong câu chuyện 'Ba anh em mồ côi trong căn trọ 9m²'.
-- Ngày 19-8, Đảng bộ phường Mỹ Ngãi, tỉnh Đồng Tháp tổ chức Đại hội đại biểu lần thứ I, nhiệm kỳ 2025 - 2030.
-- Ba trong số năm người giăng lưới, chặn đường trong khu dân cư để đánh cầu lông vừa bị lực lượng chức năng lập biên bản.
-- Sáng 19-8, Đảng bộ phường Bình Trị Đông tổ chức Đại hội đại biểu lần thứ I, nhiệm kỳ 2025 - 2030.
-- Chủ tịch nước Lương Cường chủ trì lễ đón Quốc vương Bhutan Jigme Khesar Namgyel Wangchuck, Hoàng hậu và đoàn cấp cao.
-- Sở Y tế Đà Nẵng vừa có phản hồi ý kiến liên quan vụ thuốc bị buộc tiêu hủy của Công ty cổ phần Dược trung ương 3 lọt ra ngoài.
-- Sáng 19-8, TP.HCM đã khởi công gói rà phá bom mìn, di dời hạ tầng kỹ thuật cao tốc TP.HCM - Mộc Bài.
-- Tuyến có chiều dài hơn 60km, điểm đầu tại nút giao Dầu Giây (xã Dầu Giây, tỉnh Đồng Nai) và điểm cuối tại xã Phú Lâm (tỉnh Đồng Nai).
-- Phường Sài Gòn sẽ nằm trong ranh Trung tâm tài chính quốc tế, Chủ tịch UBND TP.HCM Nguyễn Văn Được cho rằng đây là lợi thế cần phát huy.
-- Rạp xiếc và biểu diễn đa năng Phú Thọ chính thức khánh thành, đánh dấu thêm một thiết chế văn hóa hiện đại, điểm nhấn mới của TP.HCM.
-- Sáng 19-8, Chủ tịch nước Lương Cường và Phu nhân đã chủ trì lễ đón cấp nhà nước Quốc vương Bhutan và Hoàng hậu.
-- Đây là sự kiện chính trị đặc biệt quan trọng chào mừng kỷ niệm 80 năm Cách mạng Tháng Tám thành công và Quốc khánh 2-9.
-- Cách đây 10 năm, GS.TS Lê Ngọc Thạch đến với nhân vật của tôi trên báo Tuổi Trẻ. Tấm lòng với người khó khăn của GS Thạch đã kết thúc có hậu.
-- Cầu Nhơn Trạch là hạng mục đầu tiên của vành đai 3 được khánh thành, giúp thêm lối đi giữa Đồng Nai và TP.HCM.
-- Công an cảnh báo lừa đảo giả mạo nộp phạt giao thông trên Cổng dịch vụ công, dùng kịch bản, giao diện, tin nhắn chiếm đoạt tài sản.
-- Sáng sớm nay 19-8, nhiều khu vực vùng ven thuộc TP Cần Thơ xuất hiện sương mù dày đặc, hạn chế tầm nhìn.
-- Ông là người chỉ huy đội cận vệ đưa Chủ tịch Hồ Chí Minh từ căn cứ địa Cao Bằng về Hà Nội, chuẩn bị cho lễ Tuyên ngôn độc lập.
-- Nhân kỷ niệm 80 năm Ngày truyền thống Công an nhân dân (19-8), Tuổi Trẻ Online giới thiệu bài viết của Thủ tướng Phạm Minh Chính.
-- Sáng nay 19-8, lễ khởi công, khánh thành 250 dự án, công trình với tổng mức đầu tư lên tới 1,28 triệu tỉ đồng đồng loạt diễn ra trên cả nước.
-- Tin tức đáng chú ý: Cả nước đồng loạt khánh thành, khởi công 250 công trình, dự án trị giá 1,28 triệu tỉ đồng; Đề xuất mới về bảng giá đất, không quy định về giá đất cụ thể; Tham gia ngày hội Việt - Lào tại Suối Tiên.
-- Hôm nay 19-8, áp thấp nhiệt đới gây mưa to cho thời tiết Bắc Bộ và vùng biển phía Bắc. Nam Bộ trời khô ráo hơn nhưng vẫn có mưa.
-- Trong cơn mưa lớn, hàng trăm cán bộ, chiến sĩ cùng phương tiện đặc chủng đã đưa dàn khí tài quân sự về Sở chỉ huy Bộ Quốc phòng.
-- Phó thủ tướng yêu cầu Bộ Nội vụ xây dựng tiêu chí đánh giá, trọng dụng cán bộ giỏi nghiệp vụ, loại bỏ người đức mỏng, tài thấp.
-- Cảng vụ Hàng không miền Nam yêu cầu UBND Tân Sơn Hòa, Tân Bình xử lý sớm bãi rác trước lối ra ga T3 sân bay Tân Sơn Nhất.
-- Chiều 18-8, Thủ tướng Phạm Minh Chính khai trương Trung tâm dữ liệu quốc gia số 1 và đưa vào vận hành Cơ sở dữ liệu quốc gia.
-- Bác sĩ Cao Hoài Tuấn Anh, Bệnh viện 115, cảnh báo y khoa sau ca cứu bạn trẻ ngưng tim phổi vì dùng thuốc lá điện tử suốt hai năm.
-- Lãnh đạo hai địa phương thống nhất cần đầu tư các dự án giao thông: cầu thay phà Cát Lái, cầu Phú Mỹ 2 và cầu Đồng Nai 2.
 ![New](News.png)
 ## Nhịp sống số 
+- Apple thông báo sẽ sản xuất toàn bộ dòng sản phẩm iPhone 17 tại các nhà máy đặt tại Ấn Độ, dấu hiệu rõ ràng cho thấy họ đang 'hạn chế' phụ thuộc vào Trung Quốc.
+- Theo OpenAI, ChatGPT Go cho phép người dùng gửi số lượng tin nhắn và tạo hình ảnh gấp 10 lần so với bản miễn phí, đồng thời có tốc độ phản hồi nhanh hơn.
 - Hằng tháng có 280 triệu người dùng ứng dụng chỉnh sửa ảnh AI Meitu, trong đó 98 triệu đến từ các thị trường ngoài Trung Quốc đại lục.
 - Instagram Map ra đời nhằm xóa mờ ranh giới giữa thế giới ảo và thực, nhưng thay vì kết nối mọi người, nó lại khiến người dùng lo bị theo dõi.
 - Thông tin lan truyền rằng tính năng Meta AI trên WhatsApp mặc định truy cập mọi cuộc trò chuyện nếu không bật "Advanced Privacy".
@@ -153,6 +155,4 @@
 - Theo chuyên gia công nghệ, thông qua việc dùng hàng loạt prompt tinh vi, hacker có thể xâm nhập cơ sở dữ liệu 'mật' của doanh nghiệp mà không bị phát hiện.
 - Vào ngày 11-6-2025, Phó Thủ tướng Nguyễn Chí Dũng đã ký Quyết định số 1121/QĐ-TTg phê duyệt Chương trình hành động quốc gia về phát triển và chuyển đổi sang sử dụng nền tảng điện toán đám mây giai đoạn 2025 - 2030.
 - AlphaMath đã thể hiện khả năng tự phân tích bài toán, đặt lại giả định, đưa ra hướng tiếp cận, phản biện lời giải của chính nó y như thí sinh thật.
-- Mỗi ngày có đến 2,5 tỉ lượt truy vấn đổ dồn vào ChatGPT, từ khắp nơi trên thế giới. Một công cụ ra đời chưa đầy 2 năm đang khiến thói quen tìm kiếm thông tin dần thay đổi. Điều gì đang thực sự diễn ra?
-- Từ 1-7-2025, kẻ gian lợi dụng việc sắp xếp địa giới hành chính để lừa đảo công nghệ cao.
 ![life](Life.png)
