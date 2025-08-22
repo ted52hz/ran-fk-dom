@@ -1,6 +1,12 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Là học sinh cuối cấp, tôi tự hỏi trong năm học quan trọng này bản thân mình sẽ kỳ vọng điều gì, muốn làm điều chi trong chặng đường sắp tới?
+- Từ 16h chiều nay (22-8), hàng loạt trường đại học trên cả nước chính thức công bố điểm chuẩn trúng tuyển đại học năm 2025.
+- Cục trưởng Cục Nhà giáo và cán bộ quản lý chất lượng cho biết sẽ có nhiều thay đổi tích cực để nâng vị thế của nhà giáo từ năm học tới.
+- Đại học Duy Tân đã là “bến đỗ” của nhiều thí sinh điểm cao năm 2025, trong đó có Phan Thảo Vi (Trường THPT Phạm Phú Thứ, Đà Nẵng). Thảo Vi đạt 27,34/30 điểm trong kỳ thi tốt nghiệp THPT, với điểm 10 môn địa lý.
+- Đội tuyển Robocon của Trường đại học Lạc Hồng đại diện Việt Nam tham dự vòng chung kết ABU Robocon 2025 sẽ diễn ra ngày 24-8 tại Mông Cổ.
+- 'Năm học mới sở sẽ đẩy mạnh hoạt động tự chủ của cụm chuyên môn. Đó là đẩy mạnh phân cấp công tác quản lý hoạt động của cụm chuyên môn, giao quyền chủ động cho cụm trưởng chuyên môn'.
 - Bên cạnh các yếu tố truyền thống như khuôn viên, chất lượng giảng viên, các trường đại học đang cạnh tranh ngày càng khốc liệt thông qua cả những yếu tố mới như dịch vụ số cho sinh viên, tính cá nhân hóa.
 - Tại phiên họp Thường vụ Quốc hội cho ý kiến dự Luật sửa đổi, bổ sung một số điều Luật Giáo dục, cùng với cơ quan thẩm tra của Quốc hội, có ý kiến đề nghị Bộ GD-ĐT cần biên soạn một bộ sách giáo khoa dùng chung, các SGK khác là tài liệu tham khảo.
 - Sở Giáo dục và Đào tạo Hà Nội sẽ cho học sinh nghỉ học trong các ngày chuẩn bị lễ diễu hành 80 năm Quốc khánh.
@@ -45,14 +51,28 @@
 - Trước ngày khai giảng, những học trò nghèo ở xã Hòa Vang, thành phố Đà Nẵng, háo hức ôm trên tay bộ sách giáo khoa đủ đầy.
 - Ngày 16-8 đã diễn ra lễ trao thưởng Giải Lê Quý Đôn trên ấn phẩm Nhi Đồng TP.HCM lần thứ 30 và trên ấn phẩm Khăn Quàng Đỏ lần thứ 26.
 - Theo báo Mainichi, Chính phủ Nhật Bản dự định thúc đẩy sử dụng trí tuệ nhân tạo tạo sinh (generative AI) và các công nghệ số khác để hỗ trợ việc dạy tiếng Nhật cho trẻ em có gốc nước ngoài.
-- Học sinh, phụ huynh và giáo viên ở các xã biên giới Quảng Ngãi đang háo hức trước thông tin tỉnh đề xuất đầu tư 775 tỉ đồng xây dựng 5 trường phổ thông nội trú liên cấp.
-- Trường có nhiều cơ sở thì phải làm sao sau sáp nhập; xin giấy phép lại, đổi con dấu sau sáp nhập ra sao... Nhiều băn khoăn của các doanh nghiệp giáo dục đã được gửi lên chính quyền TP.HCM sau 1 tháng rưỡi thực hiện chính quyền 2 cấp.
-- Hàng trăm học sinh 'siêu toán' quốc tế đang tranh tài tại Đà Nẵng, trong Kỳ thi Toán học quốc tế lần thứ 25 (VIMC).
-- Sau hợp nhất, sáp nhập và thực hiện chính quyền 2 cấp, các trường ngoài công lập phải thực hiện thay đổi trên con dấu, giấy phép. Hiện nay, nhiều trường, đơn vị vướng mắc sẽ liên hệ ở đâu, thủ tục thế nào?
-- Theo một lãnh đạo Sở Giáo dục và Đào tạo TP.HCM, ngôi trường có nhiều điều kiện thuận lợi để chuyển thành trường chuyên là Trường THPT Nguyễn Thượng Hiền.
-- Ngày 15-8, tại Ðại hội đại biểu Ðảng bộ Trường đại học Y Dược Cần Thơ (nhiệm kỳ 2025-2030), mục tiêu Đảng bộ trường đặt ra là phấn đấu trở thành đại học tốp đầu trong lĩnh vực đào tạo khoa học sức khỏe khu vực châu Á.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Tin tức đáng chú ý: Sẽ có 9.000 nhân lực bán dẫn, vi điện tử tại TP.HCM; Khởi công xây dựng Trường đại học Xây dựng Hà Nội phân hiệu tại Hà Nam; Bác sĩ nha khoa Việt Nam bàn cách tiếp cận mới trong nha khoa hiện đại...
+- Hôm nay 22-8, miền Trung nắng nóng, miền Nam và miền Bắc thời tiết vẫn xấu khi mưa dông chiếm ưu thế.
+- Tổng Bí thư Tô Lâm chủ trì buổi làm việc của Bộ Chính trị với Ban Thường vụ Thành ủy TP.HCM và Hà Nội, cho ý kiến vào dự thảo các văn kiện, phương án nhân sự đại hội đảng bộ hai thành phố này.
+- Tập đoàn công nghệ Việt thành lập công ty nghiên cứu và phát triển trí tuệ nhân tạo (AI) với mục tiêu đưa AI Việt Nam phục vụ người Việt.
+- Từ 28-8 đến 7-9, ga metro Bến Thành sẽ biến thành “thiên đường mua sắm dưới lòng đất” với hơn 500 thương hiệu giảm giá lên tới 80%, đây cũng là điểm nhấn mới của chương trình Shopping Season 2025.
+- Việt Nam có khoảng 7 triệu người mắc đái tháo đường, nhưng hơn 50% chưa được chẩn đoán. Điều này tạo ra một “tảng băng chìm”.
+- Tối 21-8, tại quảng trường Ba Đình (Hà Nội), buổi tổng hợp luyện diễu binh, diễu hành lần thứ nhất cho lễ kỷ niệm 80 năm Quốc khánh 2-9 diễn ra với sự tham gia của hàng chục ngàn người cùng khí tài, xe đặc chủng.
+- Ngày 21-8, UBND TP.HCM có văn bản gửi chủ đầu tư cùng các sở ngành liên quan về đẩy nhanh tiến độ hoàn thành dự án nút giao An Phú.
+- Nhiều doanh nghiệp trụ cột của Việt Nam chuyển mình mạnh mẽ, từ "con mồi" trở thành những "thợ săn" toàn cầu, chủ động đi thâu tóm các công ty quốc tế.
+- Một vùng áp thấp ngoài Thái Bình Dương sẽ đi băng qua Philippines, mạnh thành áp thấp nhiệt đới rồi thành bão trong vài ngày tới.
+- Ngày 21-8 tại Hải Phòng, Ban Tuyên giáo và Dân vận Trung ương phối hợp TP Hải Phòng tổ chức Hội nghị tuyên truyền thực hiện Nghị quyết 57-NQ/TW về đột phá phát triển khoa học, công nghệ, đổi mới sáng tạo và chuyển đổi số quốc gia.
+- Công ty cổ phần Vận tải đường sắt Việt Nam vừa có thông báo về kế hoạch vận tải tàu khách dịp nghỉ lễ Quốc khánh 2-9.
+- Nhiều gói thầu, nhà thầu tại nút giao An Phú đang thi công nhỏ giọt, dù lãnh đạo Chính phủ, TP.HCM nhiều lần thị sát, chỉ đạo sát sao với Ban Giao thông.
+- Bộ trưởng Bộ Y tế Đào Hồng Lan dẫn số liệu của Tổ chức Y tế thế giới, ước tính 10% thuốc tại các nước thu nhập thấp hoặc trung bình là kém chất lượng hoặc giả mạo.
+- Sáng 21-8, hàng trăm m³ đá từ trên núi cao bất ngờ sạt xuống lấp kín mặt đường quốc lộ 4G đoạn qua xã Sốp Cộp, tỉnh Sơn La.
+- 8 cán bộ, đảng viên cấp xã, phường ở Quảng Ninh bị xử phạt hành chính vì soạn thảo, lưu giữ tài liệu sai quy định, nguy cơ lộ, mất bí mật nhà nước.
+- Sáng 21-8, các máy bay trực thăng, vận tải của Quân chủng Phòng không - Không quân đã bay khảo sát qua quảng trường Ba Đình, Hà Nội.
+- Mưa lớn suốt đêm khiến nhiều tuyến đường ở Đồng Nai ngập sâu, nước từ sông suối đổ về làm nhiều khu dân cư ngập lụt cục bộ.
+- Trung đoàn trưởng Trung đoàn Đặc nhiệm cho biết đơn vị đã xây dựng kế hoạch, phương án bảo vệ lễ diễu binh, diễu hành 2-9 ở Hà Nội.
+- Theo số liệu thống kê, sau hơn 1 tuần phát động, đến sáng 21-8 đã có trên 358 tỉ đồng nghĩa tình được nhân dân Việt Nam ủng hộ gửi tới Cuba.
 - Toàn văn thư Thủ tướng Chính phủ Phạm Minh Chính gửi chúc mừng lãnh đạo, phóng viên, biên tập viên và cán bộ nhân viên báo Tuổi Trẻ.
 - Từ đêm qua tới sáng nay khắp TP.HCM mưa to, mưa trải đều khắp các tỉnh thành, có nơi mưa đã vượt 100mm và dự báo còn mưa tiếp.
 - Một số tin tức đáng chú ý: Phạt Tập đoàn CIC vì 'mập mờ' nhiều thông tin; 50-80% người cao tuổi mắc tăng huyết áp yếu tố gây đột quỵ, suy tim...
@@ -83,26 +103,6 @@
 - Phó chủ tịch Quốc hội Vũ Hồng Thanh lưu ý dự án sân bay Long Thành không chỉ làm nhanh, mà còn phải đảm bảo chất lượng khi đưa vào vận hành.
 - Sáng 20-8, các trung đoàn trực thăng của Quân chủng Phòng không - Không quân đã tiến hành bay huấn luyện đội hình treo cờ Đảng, cờ Tổ quốc trong dịp Lễ kỷ niệm 80 năm Quốc khánh 2-9 (A80).
 - Thời gian cấm, tạm cấm và hạn chế xe cộ từ 11h30 ngày 21-8 đến 3h ngày 22-8. So với thông báo trước đó, thời gian thực hiện sẽ sớm hơn 5 tiếng 30 phút.
-- Sáng 20-8, trong không khí chào mừng Cách mạng Tháng Tám và Quốc khánh 2-9, Lễ kỷ niệm 80 năm Ngày thành lập Chính phủ được tổ chức trọng thể tại Hà Nội.
-- Khoảng 9.000 người thuộc 13 khối quần chúng, khối nghệ thuật, khối xếp chữ tham gia buổi hợp luyện đầu tiên chuẩn bị cho dịp kỷ niệm 80 năm Quốc khánh (A80).
-- Bộ Công an khen thưởng đột xuất cho Công an xã biên giới Bờ Y, Quảng Ngãi khi phá được vụ án buôn bán ma túy, với những người liên quan có súng K54 và đạn.
-- Sau tiếng nổ lớn, người đàn ông được phát hiện trong tình trạng bê bết máu, giập nát bàn tay. Cạnh đó là chiếc điện thoại vỡ nát.
-- Chính phủ ban hành Nghị định số 230/2025/NĐ-CP ngày 19-8-2025 quy định các trường hợp khác được miễn, giảm tiền sử dụng đất, tiền thuê đất theo quy định tại khoản 2 Điều 157 Luật Đất đai năm 2024.
-- Sáng 20-8, Đại hội đại biểu Đảng bộ phường Bàn Cờ, TP.HCM lần thứ I, nhiệm kỳ 2025 - 2030 xác định sẽ tập trung vào chuyển đổi số, chỉnh trang đô thị để chất lượng sống người dân được nâng cao.
-- Sở Xây dựng TP.HCM vừa có báo cáo UBND TP.HCM về tình hình thi công dự án nút giao An Phú. Việc sớm hoàn thành dự án được đánh giá là rất cấp bách để đảm bảo kết nối với sân bay Long Thành.
-- Tình hình vận chuyển, tàng trữ, mua bán trái phép ma túy ở đặc khu Phú Quốc còn phức tạp. Địa phương hiện có nhiều giải pháp xây dựng hòn đảo này không ma túy và trở thành đơn vị kiểu mẫu về an ninh trật tự, văn minh đô thị.
-- Sáng 20-8, chỉ một ngày sau lễ khánh thành, cầu Nhơn Trạch chính thức cho xe đi lại. Ngay ngày đầu, nhiều ô tô tải lớn và xe khách chạy lộn vào cầu, khiến giao thông khu vực có lúc lộn xộn.
-- Ông Nguyễn Thanh Nghị - ủy viên Trung ương Đảng, phó bí thư thường trực Thành ủy, bí thư Đảng ủy các cơ quan Đảng TP.HCM - chủ trì Đại hội đại biểu Đảng bộ các cơ quan Đảng lần thứ I, nhiệm kỳ 2025 - 2030.
-- Sau khi phát hiện gà lôi trắng bay vô quán nước của mình, người đàn ông ở Huế chủ động báo tin cho chính quyền và kiểm lâm để giao nộp nhằm chăm sóc, bảo tồn.
-- Bên cạnh sân bay Long Thành (Đồng Nai) đang được nỗ lực thi công để khai thác vào tháng 12-2025, ngày 19-8 sân bay Gia Bình (Bắc Ninh) được khởi công xây dựng.
-- Ngày 19-8, Vietjet đã khởi công trung tâm kỹ thuật bảo dưỡng máy bay ở sân bay Long Thành (Đồng Nai), đánh dấu thêm một bước tổng thể về tiến độ của sân bay quốc tế này.
-- Một con dugong, còn được gọi là cá nàng tiên, dài hơn 2m, nặng gần 300kg mắc cạn ở bờ biển đặc khu Côn Đảo (TP.HCM) và chết sau đó.
-- Dự thảo đề xuất xe ô tô tham gia giao thông tại Hà Nội, TP.HCM sản xuất từ 2017 áp dụng mức 4 từ 1-1-2027. Xe ô tô sản xuất từ 2022 áp dụng mức 5 từ 1-1-2028.
-- Ông Đào Trung Chính - cục trưởng Cục Quản lý đất đai, Bộ Nông nghiệp và Môi trường - khẳng định như vậy khi trao đổi với Tuổi Trẻ về một số điểm mới tại dự thảo sửa Luật Đất đai 2024.
-- Với tinh thần đổi mới, sáng tạo và tiên phong, Đảng bộ Quân khu 7 đã ghi dấu ấn đặc biệt bằng việc tổ chức thành công “Đại hội không giấy” - một bước tiến mạnh mẽ trong cải cách hành chính và ứng dụng công nghệ thông tin.
-- Từ sáng nay (20-8) cầu Nhơn Trạch chính thức 'mở cửa' cho người dân đi lại. Đây là hạng mục quan trọng thuộc dự án vành đai 3 TP.HCM, vừa được khánh thành hôm qua.
-- Tin tức đáng chú ý: Một doanh nghiệp phải giải trình vì cổ phiếu tăng trần liên tục; Phạt Bất động sản Đà Lạt Valley vì 'ém' báo cáo; Cắt giảm thời gian giải quyết thủ tục hành chính thuộc quản lý của Bộ Xây dựng...
-- Hôm nay 20-8, mưa to còn tập trung vài nơi ở Bắc Bộ và Thanh Hóa. Nam Bộ và các nơi khác thời tiết ngày ít mưa, chiều tối mưa rào.
 ![New](News.png)
 ## Nhịp sống số 
 - Apple thông báo sẽ sản xuất toàn bộ dòng sản phẩm iPhone 17 tại các nhà máy đặt tại Ấn Độ, dấu hiệu rõ ràng cho thấy họ đang 'hạn chế' phụ thuộc vào Trung Quốc.
