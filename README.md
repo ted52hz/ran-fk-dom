@@ -1,6 +1,48 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Năm học 2025-2026, thành phố Hà Nội ước tính có 2.954 trường mầm non và phổ thông, tăng 43 trường so với năm học 2024-2025.
+- Trường đại học Phòng cháy chữa cháy vừa công bố điểm chuẩn trúng tuyển, dao động từ 19,75 đến 24,23, tùy theo khu vực.
+- Theo thông báo của Trường đại học Y Dược Cần Thơ, điểm chuẩn hầu hết các ngành học của trường năm 2025 đều giảm so với năm trước.
+- Điểm chuẩn trúng tuyển trong năm 2025 của Trường đại học Sư phạm TP.HCM có xu hướng giữ nguyên hoặc tăng nhẹ so với năm 2024.
+- Điểm chuẩn 2025 của Học viện Bưu chính viễn thông cao nhất là 26,21 với ngành khoa học máy tính.
+- Các trường cao đẳng 'hot' như Cao đẳng Kỹ thuật Cao Thắng, Cao đẳng Kinh tế đối ngoại, Cao đẳng Kinh tế TP.HCM... đã công bố điểm chuẩn trúng tuyển xét theo điểm thi tốt nghiệp THPT.
+- Nhiều ngành của Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) lấy điểm chuẩn trên 24, riêng ngành khoa học máy tính lấy gần 30 điểm.
+- Ngành Trung Quốc học tiếp tục dẫn đầu điểm chuẩn Học viện Ngoại giao năm 2025, nhưng đã giảm 3,11 điểm so với năm ngoái ở phương thức xét điểm thi tốt nghiệp THPT.
+- Năm nay các ngành thuộc khối quân đội và sư phạm tiếp tục ghi nhận điểm chuẩn cao kỷ lục, có ngành lấy điểm tuyệt đối 30/30 và phải đặt nguyện vọng 1 mới trúng tuyển.
+- Hai trường đại học 'có tiếng' ở TP.HCM lấy điểm chuẩn với ít nhiều thay đổi so với năm trước đó.
+- Nếu không có điểm ưu tiên, thí sinh cần phải đạt hơn 9,5 điểm mỗi môn mới trúng tuyển ngành báo chí Trường ĐH Khoa học xã hội và Nhân văn - Đại học Quốc gia TP.HCM.
+- Ngày 22-8, Trường đại học Ngân hàng TP.HCM công bố điểm chuẩn trúng tuyển đại học chính quy năm 2025 (xét kết quả thi tốt nghiệp THPT).
+- Năm nay, điểm chuẩn trúng tuyển Trường đại học Y Hà Nội từ dao động 17 - 28,7 điểm, ngành tâm lý học tiếp tục dẫn đầu ở tổ hợp C00 (văn, sử, địa).
+- Trường đại học Sư phạm kỹ thuật TP.HCM vừa công bố điểm chuẩn tuyển sinh đại học chính quy năm 2025.
+- Ngành tâm lý học dẫn đầu điểm chuẩn Trường đại học Khoa học xã hội và Nhân văn (Đại học Quốc gia Hà Nội) với 29 điểm, vượt điểm chuẩn ngành quan hệ công chúng và báo chí so với năm ngoái.
+- Trường đại học Luật Hà Nội dùng tổ hợp D01 (toán, văn, tiếng Anh) làm tổ hợp gốc quy đổi, mức điểm chuẩn từ 19,75 đến 25,55.
+- Đa số ngành 'hot' Trường đại học Bách khoa - Đại học Quốc gia TP.HCM có điểm chuẩn tăng, trái với dự đoán giảm trước đó.
+- Ngày 22-8, các trường đại học trên địa bàn tỉnh Khánh Hòa đã công bố điểm chuẩn trúng tuyển đại học chính quy 2025.
+- Một nữ sinh viên ngành sư phạm toán của Trường đại học Khánh Hòa bị phát hiện nộp chứng chỉ tiếng Anh giả để được xét tốt nghiệp.
+- Đại học Kinh tế TP.HCM (UEH) vừa chính thức công bố điểm chuẩn tuyển sinh đại học năm 2025 theo các phương thức xét tuyển.
+- Hai trường đại học thuộc Đại học Quốc gia TP.HCM vừa công bố điểm chuẩn trúng tuyển đại học năm 2025.
+- Trường đại học Giao thông vận tải TP.HCM, Nông Lâm TP.HCM, Mở TP.HCM, Văn Lang… đã công bố điểm chuẩn trúng tuyển đại học 2025.
+- Trường đại học Ngoại thương công bố điểm chuẩn, mức cao nhất là 28,5 với điều kiện điểm thi tốt nghiệp THPT đạt 9,5 điểm/môn.
+- Chiều 22-8, Hội đồng tuyển sinh Trường đại học Cần Thơ đã công bố điểm chuẩn xét tuyển đại học chính quy năm 2025.
+- Chiều 22-8, Hội đồng tuyển sinh Trường đại học Tôn Đức Thắng công bố điểm chuẩn đại học chính quy năm 2025 theo phương thức xét điểm thi tốt nghiệp THPT.
+- Trường đại học Hà Nội công bố điểm chuẩn năm 2025, trong đó ngôn ngữ Trung Quốc dẫn đầu bảng nhóm ngành ngôn ngữ.
+- Hai trường đại học y hàng đầu tại phía Nam công bố điểm chuẩn, dao động từ 17 đến 27,34 điểm.
+- Năm nay, điểm chuẩn trúng tuyển vào Đại học Kinh tế quốc dân dao động từ 23 đến 28,83 điểm, trong khi mức điểm thấp nhất năm ngoái là 26,57 (thang 30) với phương thức xét điểm thi tốt nghiệp THPT.
+- Điểm chuẩn Trường đại học Luật TP.HCM theo phương thức xét điểm thi tốt nghiệp THPT dao động từ 18,12 đến 25,65 điểm.
+- Ban tuyển sinh quân sự (Bộ Quốc phòng) vừa công bố điểm chuẩn vào các trường khối quân sự. Mức điểm chuẩn cao nhất với nữ, lên tới 30 điểm.
+- Nhiều trường thành viên, trực thuộc Đại học Quốc gia Hà Nội đã công bố điểm chuẩn năm 2025, mỗi ngành có duy nhất một mức điểm trúng tuyển.
+- Chiều 22-8, Đại học Bách khoa Hà Nội công bố điểm chuẩn trúng tuyển 65 chương trình đào tạo dựa vào điểm thi tốt nghiệp THPT.
+- Ngành y khoa của Trường đại học Kỹ thuật y tế Hải Dương giảm từ 25,4 xuống 23,8 điểm, thấp nhất là ngành điều dưỡng 21 điểm.
+- Đây là năm học cả nước triển khai thực hiện nghị quyết về đột phá phát triển giáo dục và đào tạo, và các luật sửa đổi trong lĩnh vực này.
+- Với phương thức điểm thi tốt nghiệp THPT, điểm chuẩn của Trường đại học Công Thương TP.HCM dao động từ 17 đến 24,5 điểm.
+- Hội đồng tuyển sinh Trường đại học Đà Lạt đã chính thức công bố mức điểm chuẩn trúng tuyển đại học hệ chính quy năm 2025.
+- Điểm chuẩn trúng tuyển vào Trường đại học Thương mại phương thức xét điểm thi tốt nghiệp có xu hướng giảm nhiều ngành so với năm ngoái.
+- Giữa nhịp sống hiện đại với rất nhiều lo toan, không ít bạn trẻ vẫn dành thời gian cho hành trình sống ý nghĩa: sống để cống hiến, để sẻ chia, để trao đi yêu thương.
+- Trường đại học Công nghệ công bố duy nhất một đầu điểm chuẩn cho mỗi ngành, dao động 22 - 28,19 điểm, tăng so với năm ngoái.
+- Với phương thức xét điểm thi tốt nghiệp THPT, điểm chuẩn của Học viện Hàng không Việt Nam dao động từ 18 đến 27 điểm.
+- Tính đến nay, hơn 230 trường đã công bố điểm chuẩn trúng tuyển đại học chính quy đợt 1 năm 2025 với phương thức xét tuyển thi tốt nghiệp THPT.
+- Năm học sinh Hà Nội dự Olympic thiên văn và vật lý thiên văn quốc tế năm 2025 đều có huy chương, trong đó có 1 huy chương vàng.
 - Là học sinh cuối cấp, tôi tự hỏi trong năm học quan trọng này bản thân mình sẽ kỳ vọng điều gì, muốn làm điều chi trong chặng đường sắp tới?
 - Từ 16h chiều nay (22-8), hàng loạt trường đại học trên cả nước chính thức công bố điểm chuẩn trúng tuyển đại học năm 2025.
 - Cục trưởng Cục Nhà giáo và cán bộ quản lý chất lượng cho biết sẽ có nhiều thay đổi tích cực để nâng vị thế của nhà giáo từ năm học tới.
@@ -9,102 +51,61 @@
 - 'Năm học mới sở sẽ đẩy mạnh hoạt động tự chủ của cụm chuyên môn. Đó là đẩy mạnh phân cấp công tác quản lý hoạt động của cụm chuyên môn, giao quyền chủ động cho cụm trưởng chuyên môn'.
 - Bên cạnh các yếu tố truyền thống như khuôn viên, chất lượng giảng viên, các trường đại học đang cạnh tranh ngày càng khốc liệt thông qua cả những yếu tố mới như dịch vụ số cho sinh viên, tính cá nhân hóa.
 - Tại phiên họp Thường vụ Quốc hội cho ý kiến dự Luật sửa đổi, bổ sung một số điều Luật Giáo dục, cùng với cơ quan thẩm tra của Quốc hội, có ý kiến đề nghị Bộ GD-ĐT cần biên soạn một bộ sách giáo khoa dùng chung, các SGK khác là tài liệu tham khảo.
-- Sở Giáo dục và Đào tạo Hà Nội sẽ cho học sinh nghỉ học trong các ngày chuẩn bị lễ diễu hành 80 năm Quốc khánh.
-- Sau 11 lần lọc ảo toàn quốc và nhóm phía Nam, các trường thành viên Đại học Quốc gia TP.HCM bắt đầu hé lộ mức điểm chuẩn dự kiến năm 2025.
-- Chiều 20-8, Sở Giáo dục và Đào tạo TP.HCM đã phát hành công văn hướng dẫn về việc lựa chọn chương trình nhà trường năm học 2025-2026.
-- Hiện các trường đại học, cao đẳng tại Việt Nam chỉ đáp ứng một số lượng rất hạn chế nhu cầu nguồn lao động để phục vụ phát triển du lịch Halal trong nước.
-- Năm học 2025-2026, TP.HCM sẽ triển khai chương trình STEM song ngữ và tích hợp sâu rộng AI, thực tế ảo (VR/AR) vào dạy học tiếng Anh.
-- Sau khi tăng thêm 4 lần lọc ảo, Bộ Giáo dục và Đào tạo đề nghị các cơ sở giáo dục không công bố điểm chuẩn trúng tuyển trước lần lọc ảo cuối cùng trên hệ thống, tức không công bố trước 12h30 ngày 22-8.
-- Ngày 20-8, Trường đại học Hùng Vương TP.HCM công bố điểm chuẩn các ngành đào tạo đại học chính quy nhưng rút lại sau thông báo mới nhất của Bộ GD-ĐT.
-- Sáng 20-8, hàng loạt trường học trên địa bàn TP.HCM đã tổ chức đón học sinh lớp 1 tựu trường trong không gian vui tươi, với nhiều hoạt động trải nghiệm.
-- Nhiều trường cao đẳng, trung cấp đang nỗ lực thu hút thí sinh bằng những thế mạnh và sự hấp dẫn của chính mình, thay vì bị động trông chờ vào nguồn tuyển "rớt đại học mới chọn cao đẳng".
-- Một số trường THCS ở TP.HCM phải dời lịch tựu trường vì nhà thầu chậm tiến độ sửa chữa, xây dựng trường lớp.
-- Những trường sẽ công bố điểm chuẩn ngay trong chiều tối nay gồm Trường ĐH Bách khoa, Trường ĐH Kinh tế - Luật (ĐH Quốc gia TP.HCM); ĐH Bách khoa Hà Nội...
-- Sau các vòng lọc ảo tuyển sinh đại học 2025, nhiều trường đại học tại TP.HCM ghi nhận biến động điểm chuẩn đáng chú ý.
-- Chiều 19-8, trong quá trình chạy lọc ảo, cán bộ tuyển sinh tại một trường cao đẳng TP.HCM phát hiện một thí sinh đã đăng ký đến 231 nguyện vọng xét tuyển đại học, cao đẳng năm 2025.
-- GS.TS Nguyễn Khắc Quốc Bảo được Bộ trưởng Bộ Giáo dục và Đào tạo công nhận giữ chức chủ tịch hội đồng Đại học Kinh tế TP.HCM nhiệm kỳ 2025-2030.
-- UBND tỉnh Nghệ An sẽ chi hơn 1,4 tỉ đồng, để thưởng cho 75 học sinh đạt điểm cao tại kỳ thi tốt nghiệp THPT năm 2025.
-- Đó là một trong những nội dung trọng điểm mà ngành giáo dục mầm non TP.HCM sẽ thực hiện trong năm học 2025-2026.
-- Mời khán giả cùng chương trình tìm hiểu các ngành học tại Trường đại học Ngoại ngữ - Tin học TP.HCM (HUFLIT).
-- Bộ Ngoại giao Mỹ hủy hơn 6.000 visa du học trong năm nay, tăng cường siết chặt chính sách với sinh viên quốc tế.
-- Trước biến động không ngừng, người trẻ Việt đang vươn lên với  tinh thần đổi mới và sáng tạo. Tại trường đại học Fulbright Việt Nam, tinh thần ấy được nuôi dưỡng qua môi trường giáo dục khai phóng.
-- Trường ĐH Văn Hiến dành 1 tỉ đồng ủng hộ chương trình học bổng Tiếp sức đến trường của báo Tuổi Trẻ.
-- Trước thềm năm học mới, cả nước thiếu trên 35.000 phòng học các cấp. Tìm giải pháp khắc phục là một nhiệm vụ quan trọng.
-- Kỳ thi Toán học quốc tế lần thứ 25 - VIMC 2025 khép lại tại Đà Nẵng ngày 18-8, với ngôi vô địch toàn đoàn thuộc về đoàn Việt Nam và Singapore.
-- Cuộc thi Hùng biện & Hóa trang hè 2025 với chủ đề ‘Đại sứ văn minh - Hóa thân và tỏa sáng’ đã khép lại mùa hè của hàng trăm học viên VMG English bằng một bữa tiệc ngôn ngữ và văn hóa đầy cảm xúc.
-- Kết thúc thành công của đợt shooting đầu tiên với hàng trăm hồ sơ gửi về, chương trình “Đầu Bếp Nhí - Little Chef” tiếp tục thu hút sự quan tâm từ đông đảo thí sinh nhí và cộng đồng.
-- Tân học sinh lớp 10 Trần Đại Nghĩa trải nghiệm hoạt động chuyên sâu và dự màn ra mắt ấn tượng của 22 câu lạc bộ, dự án.
-- Sinh viên Nguyễn Ngọc Minh Trang vừa tốt nghiệp ngành đồ họa với 7 giải thưởng quốc tế mang đậm phong cách phố cổ Hội An.
-- Nhiều địa phương đã công bố lịch tựu trường cho năm học 2025-2026, chủ yếu diễn ra từ ngày 25 đến 29-8.
-- Nhiều trường THCS, THPT tại TP.HCM sẽ bắt đầu tiết 1 từ 7h30 thay vì 7h hoặc 7h15 như năm học trước, nhằm sắp xếp thời gian hợp lý với yêu cầu chỉ dạy 7 tiết/ngày của Bộ Giáo dục và Đào tạo mới đây.
-- Theo quy định của Bộ GD-ĐT, các trường ĐH phải hoàn tất việc nhập điểm trúng tuyển và kết quả xét tuyển đợt 1 lên hệ thống và có thể bắt đầu công bố điểm chuẩn từ 17h ngày 20-8.
-- Không ngờ là sau 14 năm, vấn đề một hay nhiều bộ sách giáo khoa (SGK) lại được xới lên và trở thành chủ đề nóng trong giáo dục với lý do thuần tính kinh tế: một bộ SGK cho tiết kiệm, anh học xong thì truyền lại cho em, như ngày xửa ngày xưa.
-- Sau ngày lọc ảo đầu tiên, với số lượng nguyện vọng “khủng” thí sinh đăng ký xét tuyển đại học năm nay khiến hệ thống lọc ảo gặp tình trạng "ảo chồng ảo”, nên các trường chưa thể xác định được điểm chuẩn.
-- Đang có những cuộc thi hoa hậu, hoa khôi đa dạng quy mô và cấp độ mà trong đó đối tượng chính tham gia là sinh viên từ các trường đại học, cao đẳng trên cả nước.
-- Sau gần 2 tháng vận hành bộ máy chính quyền 2 cấp ở các xã - phường, trước việc một số người dân gặp khó khăn khi sử dụng thiết bị để làm thủ tục hành chính, TP Đà Nẵng đã điều động 105 sinh viên ngành công nghệ thông tin lên đường.
-- Năm 2024, tân sinh viên Nguyễn Ngọc Như Uyên đã nhận được suất học bổng đặc biệt “Tiếp sức đến trường” do báo Tuổi Trẻ trao tặng, giúp cô hoàn tất học phí học kỳ I. Tuy nhiên, đến kỳ hạn đóng học phí học kỳ II, gia đình cô vẫn không có tiền.
-- Làm gì để ngăn những vụ việc đau lòng như trường hợp bé 14 tháng tuổi bị bảo mẫu ném xuống sàn tử vong do chấn thương sọ não?
-- Hàn Quốc có thể thu hơn 100 tỉ USD nếu thêm 1 triệu sinh viên quốc tế tốt nghiệp đại học, theo nghiên cứu KCCI và giáo sư Kim Duk Pa.
-- Trường đại học Công Thương TP.HCM ghi nhận số nguyện vọng đăng ký xét tuyển cao kỷ lục, với hơn 178.000.
-- Có '2 sẵn sàng' cho học sinh và '2 sẵn sàng' cho phụ huynh. Chuyên gia cho rằng khi đáp ứng đủ '4 sẵn sàng' này là thời điểm thích hợp cho con du học.
-- Thầy hiệu trưởng Trường tiểu học Chính Nghĩa, phường Chợ Lớn (quận 5 cũ), TP.HCM đã trực tiếp nói chuyện với phụ huynh lớp 1 trong cuộc họp đầu năm.
-- Trước ngày khai giảng, những học trò nghèo ở xã Hòa Vang, thành phố Đà Nẵng, háo hức ôm trên tay bộ sách giáo khoa đủ đầy.
-- Ngày 16-8 đã diễn ra lễ trao thưởng Giải Lê Quý Đôn trên ấn phẩm Nhi Đồng TP.HCM lần thứ 30 và trên ấn phẩm Khăn Quàng Đỏ lần thứ 26.
-- Theo báo Mainichi, Chính phủ Nhật Bản dự định thúc đẩy sử dụng trí tuệ nhân tạo tạo sinh (generative AI) và các công nghệ số khác để hỗ trợ việc dạy tiếng Nhật cho trẻ em có gốc nước ngoài.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Đại hội đại biểu Đảng bộ UBND TP.HCM lần thứ I đã khai mạc phiên trù bị, tiến hành bầu đoàn chủ tịch, đoàn thư ký, ban thẩm tra tư cách đại biểu, các đại biểu cũng sẽ thảo luận văn kiện Đại hội Đảng bộ các cấp.
+- Sáng nay 23-8, áp thấp nhiệt đới mạnh lên thành bão số 5 (Kajiki). Dự báo trong hôm nay và ngày mai, cường độ bão sẽ liên tục tăng và có thể đạt cấp 12 (118-133km/h), giật cấp 15.
+- Bộ Nội vụ đang hoàn thiện dự thảo Luật Viên chức (sửa đổi). Có thể nói dự thảo Luật Viên chức (sửa đổi) chạm đúng "điểm nghẽn" kéo dài nhiều năm: chúng ta quản lý viên chức như quản lý công chức.
+- Tin tức đáng chú ý: Bộ Quốc phòng hướng dẫn mức đóng bảo hiểm xã hội bắt buộc cho quân nhân; Chủ tịch trẻ nhất ngành chứng khoán xin từ chức; Khối ngoại bán ròng nghìn tỉ phiên chứng khoán rơi sâu...
+- Hôm nay 23-8, bão số 5 gây sóng gió dữ dội trên biển, đất liền nước ta phía Bắc mưa nhiều, phía nam mưa rào.
+- Liên quan đến vụ một thanh niên quốc tịch Nga chạy xe máy với tốc độ cao, lạng lách, vượt ẩu trên đường phố Nha Trang khiến dư luận bức xúc, cảnh sát giao thông cho biết người này đã xuất cảnh sang Trung Quốc.
+- Đại diện Tuổi Trẻ và Jiji Press đã có cuộc gặp đánh giá quá trình hợp tác, đồng thời thảo luận tiềm năng mở rộng khuôn khổ hợp tác trong tương lai, trong đó có việc tổ chức sự kiện tại cả hai quốc gia.
+- Hai phó giám đốc Sở Văn hóa, Thể thao và Du lịch tỉnh Khánh Hòa vừa có đơn xin nghỉ việc.
+- Bộ Chính trị, Ban Bí thư yêu cầu các tiểu ban tập trung chuẩn bị nội dung tham mưu trình Hội nghị Trung ương 13 theo chương trình đề ra.
+- Ngày 25-8, bão số 5 có thể ảnh hưởng trực tiếp các tỉnh thành miền Trung từ Thanh Hóa đến Huế.
+- Thượng tướng Nguyễn Quang Ngọc, phó tổng tham mưu trưởng Quân đội nhân dân Việt Nam, được Thủ tướng Chính phủ bổ nhiệm giữ chức thứ trưởng Bộ Quốc phòng.
+- Phó chủ tịch UBND TP.HCM, Trưởng Ban Tuyên giáo và Dân vận Thành ủy Nguyễn Mạnh Cường yêu cầu phường Bình Dương cần tạo điều kiện để người dân, nhất là công nhân đang sống, làm việc ở phường được chăm lo, tiếp cận tốt với các dịch vụ giáo dục, y tế.
+- Chiều 22-8, xã Tân Nhựt (TP.HCM) tổ chức Đại hội đại biểu Đảng bộ lần thứ I, nhiệm kỳ 2025 - 2030. Phó bí thư Thành ủy TP.HCM Đặng Minh Thông dự và phát biểu chỉ đạo đại hội.
+- Ngày 22-8, mạng xã hội lan truyền clip ghi cảnh xe ba gác chở ô tô phía sau khiến người đi đường khiếp vía do kích thước ô tô dài, án ngữ con đường nên gây cản trở giao thông, ùn ứ.
+- Chủ tịch UBND TP.HCM Nguyễn Văn Được phát biểu như vậy tại Đại hội Đảng bộ phường Cầu Ông Lãnh lần thứ I, nhiệm kỳ 2025-2030 diễn ra chiều 22-8.
+- Phát biểu chỉ đạo đại hội đảng bộ các phường Phú Lợi, Chánh Hiệp, Phó bí thư Thành ủy, Chủ tịch HĐND TP.HCM Võ Văn Minh đề nghị các phường cần quan tâm quy hoạch, gắn với thu hút đầu tư, mở rộng không gian phát triển.
+- Đó là câu hỏi của rất nhiều bạn đọc Tuổi Trẻ Online suốt thời gian qua khi chứng kiến công trình nút giao An Phú thi công ì ạch, dự kiến phải tới cuối năm 2026 mới xong.
+- Dự báo sau khi vào Biển Đông, áp thấp nhiệt đới sẽ mạnh lên thành bão số 5 (Kajiki) và di chuyển nhanh (15-20km/h) về miền Trung, cường độ cực đại có thể tới cấp 11-12 (103-133km/h), giật cấp 14-15.
+- 100 đảng bộ cơ sở trực thuộc Đảng bộ tỉnh Tây Ninh đã tổ chức đại hội đảng bộ lần thứ I nhiệm kỳ 2025-2030 từ ngày 4 đến 21-8.
+- Đại hội đại biểu Đảng bộ UBND TP.HCM sẽ nghiên cứu, cho ý kiến về 5 công trình trọng điểm, trong đó có đường sắt đô thị, Trung tâm tài chính quốc tế tại TP.HCM, xây dựng cảng Cần Giờ...
+- Đảng bộ UBND tỉnh Bắc Ninh đặt mục tiêu đưa tỉnh này thành thành phố trực thuộc Trung ương trước năm 2030, và tăng trưởng hai con số giai đoạn 2026 - 2030.
+- Ngày 22-8, tại Trụ sở Trung ương Đảng, sau khi xem xét đề nghị của Ủy ban Kiểm tra Trung ương về việc thi hành kỷ luật tổ chức đảng, đảng viên vi phạm, Bộ Chính trị, Ban Bí thư thông tin như sau.
+- Nhiều người dân hốt hoảng tháo chạy khi đám cháy bùng phát dữ dội vào trưa nay 22-8 tại nhà lồng chợ xã Thanh Tùng, tỉnh Cà Mau. Ngọn lửa thiêu rụi 56 ki ốt.
+- Chủ tịch UBND TP Đà Nẵng Lương Nguyễn Minh Triết vừa ký văn bản thông báo gửi các xã, phường về số lượng và mức phụ cấp.
+- Ông Nguyễn Toàn Thắng - thành ủy viên, cán bộ Ban Tổ chức Thành ủy TP.HCM - giữ chức vụ giám đốc Sở Nông nghiệp và Môi trường TP.HCM.
+- Nút giao An Phú - công trình được xem là cấp bách của TP.HCM - tiếp tục gây thất vọng khi dự kiến phải tới cuối 2026 mới hoàn thành.
+- Sau bao năm chờ đợi, dòng điện đầu tiên từ lưới điện quốc gia sẽ được nối ra đặc khu Côn Đảo bằng hệ thống cáp ngầm xuyên biển.
+- Bộ Ngoại giao cùng UBND TP.HCM tổ chức Lễ kỷ niệm 80 năm thành lập ngành ngoại giao Việt Nam và 50 năm thành lập Sở Ngoại vụ TP.HCM.
+- 40 năm trước, cứ 10h sáng mỗi ngày, báo Tuổi Trẻ ra, tôi lại ngóng chiếc xe đi từ bến xe Miền Đông lên vùng kinh tế mới của Sông Bé ngày ấy.
+- Trước dự báo sẽ có một đợt mưa lớn do ảnh hưởng của cơn bão số 5 (Kajiki), thủy điện Bản Vẽ, Nghệ An đang xả nước ngày 22-8.
+- Một vụ cháy bùng phát dữ dội vào trưa nay tại xã Thanh Tùng, tỉnh Cà Mau đã gây thiệt hại hàng chục căn nhà dân.
+- Một trang trại nuôi hơn 600 con heo ở Nghệ An xả thải lúc nửa đêm bị người dân bắt quả tang.
+- Mở rộng điều tra đường dây rửa tiền với số tiền giao dịch hơn 30.000 tỉ đồng, công an xác định có sự tiếp tay của nhiều nhân viên ngân hàng.
+- Áp thấp nhiệt đới đang di chuyển nhanh vào Biển Đông và thành bão số 5 (Kajiki) trong hôm nay, đây là cơn bão rất mạnh và gây mưa gió dữ dội.
+- Chủ tịch UBND thành phố Cần Thơ yêu cầu cơ quan liên quan kiểm tra, xử lý tình trạng người dân tự ý vượt rào lên cầu Đại Ngãi 2.
+- Đây là một trong những mục tiêu mà Đại hội đại biểu Đảng bộ phường Bến Thành đề ra cho nhiệm kỳ 2025-2030.
+- Tuyến đường sắt tốc độ cao từ trung tâm TP.HCM đi Cần Giờ được đề xuất có tốc độ 350km/h, dự kiến khởi công vào cuối năm 2025.
+- Bộ Xây dựng đề nghị UBND các tỉnh, thành phố phối hợp với Cục Đường bộ Việt Nam đề xuất cơ chế thu phí với 10 dự án đường cao tốc.
+- Công an TP Đà Nẵng vừa triệt xóa một tụ điểm đánh bạc với hình thức xóc đĩa giữa rừng keo, tạm giữ 14 người.
+- Sáng 22-8, Đảng bộ phường Phú Định tổ chức Đại hội Đại biểu lần thứ I, nhiệm kỳ 2025-2030.
+- Trong một thời gian dài, câu hỏi 'Báo chí có nên làm kinh tế? Làm kinh tế để làm gì?' đã từng là chủ đề tranh luận sôi nổi.
+- Hàng loạt dự án trọng điểm quốc gia vừa đồng loạt khởi công ở Cà Mau với tổng mức đầu tư gần 100.000 tỉ đồng.
+- Chuyện quá tải việc sao y lại lần nữa được đặt ra khi hiện nay có nơi đang quá tải sao y, chứng thực.
+- Ân tình thể hiện từ lưu ý của bạn đọc trước từng lỗi chính tả, đến đồng hành qua những bài gai góc, những chương trình xã hội của Tuổi Trẻ.
+- Ngày 21-8, lễ kỷ niệm 50 năm ngày thành lập báo Tuổi Trẻ (2-9-1975 - 2-9-2025) diễn ra xúc động, hào hùng, ấm cúng.
 - Tin tức đáng chú ý: Sẽ có 9.000 nhân lực bán dẫn, vi điện tử tại TP.HCM; Khởi công xây dựng Trường đại học Xây dựng Hà Nội phân hiệu tại Hà Nam; Bác sĩ nha khoa Việt Nam bàn cách tiếp cận mới trong nha khoa hiện đại...
 - Hôm nay 22-8, miền Trung nắng nóng, miền Nam và miền Bắc thời tiết vẫn xấu khi mưa dông chiếm ưu thế.
 - Tổng Bí thư Tô Lâm chủ trì buổi làm việc của Bộ Chính trị với Ban Thường vụ Thành ủy TP.HCM và Hà Nội, cho ý kiến vào dự thảo các văn kiện, phương án nhân sự đại hội đảng bộ hai thành phố này.
 - Tập đoàn công nghệ Việt thành lập công ty nghiên cứu và phát triển trí tuệ nhân tạo (AI) với mục tiêu đưa AI Việt Nam phục vụ người Việt.
 - Từ 28-8 đến 7-9, ga metro Bến Thành sẽ biến thành “thiên đường mua sắm dưới lòng đất” với hơn 500 thương hiệu giảm giá lên tới 80%, đây cũng là điểm nhấn mới của chương trình Shopping Season 2025.
-- Việt Nam có khoảng 7 triệu người mắc đái tháo đường, nhưng hơn 50% chưa được chẩn đoán. Điều này tạo ra một “tảng băng chìm”.
-- Tối 21-8, tại quảng trường Ba Đình (Hà Nội), buổi tổng hợp luyện diễu binh, diễu hành lần thứ nhất cho lễ kỷ niệm 80 năm Quốc khánh 2-9 diễn ra với sự tham gia của hàng chục ngàn người cùng khí tài, xe đặc chủng.
-- Ngày 21-8, UBND TP.HCM có văn bản gửi chủ đầu tư cùng các sở ngành liên quan về đẩy nhanh tiến độ hoàn thành dự án nút giao An Phú.
-- Nhiều doanh nghiệp trụ cột của Việt Nam chuyển mình mạnh mẽ, từ "con mồi" trở thành những "thợ săn" toàn cầu, chủ động đi thâu tóm các công ty quốc tế.
-- Một vùng áp thấp ngoài Thái Bình Dương sẽ đi băng qua Philippines, mạnh thành áp thấp nhiệt đới rồi thành bão trong vài ngày tới.
-- Ngày 21-8 tại Hải Phòng, Ban Tuyên giáo và Dân vận Trung ương phối hợp TP Hải Phòng tổ chức Hội nghị tuyên truyền thực hiện Nghị quyết 57-NQ/TW về đột phá phát triển khoa học, công nghệ, đổi mới sáng tạo và chuyển đổi số quốc gia.
-- Công ty cổ phần Vận tải đường sắt Việt Nam vừa có thông báo về kế hoạch vận tải tàu khách dịp nghỉ lễ Quốc khánh 2-9.
-- Nhiều gói thầu, nhà thầu tại nút giao An Phú đang thi công nhỏ giọt, dù lãnh đạo Chính phủ, TP.HCM nhiều lần thị sát, chỉ đạo sát sao với Ban Giao thông.
-- Bộ trưởng Bộ Y tế Đào Hồng Lan dẫn số liệu của Tổ chức Y tế thế giới, ước tính 10% thuốc tại các nước thu nhập thấp hoặc trung bình là kém chất lượng hoặc giả mạo.
-- Sáng 21-8, hàng trăm m³ đá từ trên núi cao bất ngờ sạt xuống lấp kín mặt đường quốc lộ 4G đoạn qua xã Sốp Cộp, tỉnh Sơn La.
-- 8 cán bộ, đảng viên cấp xã, phường ở Quảng Ninh bị xử phạt hành chính vì soạn thảo, lưu giữ tài liệu sai quy định, nguy cơ lộ, mất bí mật nhà nước.
-- Sáng 21-8, các máy bay trực thăng, vận tải của Quân chủng Phòng không - Không quân đã bay khảo sát qua quảng trường Ba Đình, Hà Nội.
-- Mưa lớn suốt đêm khiến nhiều tuyến đường ở Đồng Nai ngập sâu, nước từ sông suối đổ về làm nhiều khu dân cư ngập lụt cục bộ.
-- Trung đoàn trưởng Trung đoàn Đặc nhiệm cho biết đơn vị đã xây dựng kế hoạch, phương án bảo vệ lễ diễu binh, diễu hành 2-9 ở Hà Nội.
-- Theo số liệu thống kê, sau hơn 1 tuần phát động, đến sáng 21-8 đã có trên 358 tỉ đồng nghĩa tình được nhân dân Việt Nam ủng hộ gửi tới Cuba.
-- Toàn văn thư Thủ tướng Chính phủ Phạm Minh Chính gửi chúc mừng lãnh đạo, phóng viên, biên tập viên và cán bộ nhân viên báo Tuổi Trẻ.
-- Từ đêm qua tới sáng nay khắp TP.HCM mưa to, mưa trải đều khắp các tỉnh thành, có nơi mưa đã vượt 100mm và dự báo còn mưa tiếp.
-- Một số tin tức đáng chú ý: Phạt Tập đoàn CIC vì 'mập mờ' nhiều thông tin; 50-80% người cao tuổi mắc tăng huyết áp yếu tố gây đột quỵ, suy tim...
-- Tại phiên họp Thường vụ Quốc hội cho ý kiến dự Luật sửa đổi, bổ sung một số điều Luật Giáo dục, cùng với cơ quan thẩm tra của Quốc hội, có ý kiến đề nghị Bộ GD-ĐT cần biên soạn một bộ sách giáo khoa dùng chung, các SGK khác là tài liệu tham khảo.
-- TP.HCM ngày càng quá tải phương tiện cá nhân. Hạ tầng giao thông dù có phát triển đáng kể vẫn khó theo kịp. Kẹt xe cũng là một trong những điều bức xúc nhất đối với người đô thị, đường đi về mỗi ngày luôn mệt mỏi lo trễ giờ.
-- Hôm nay 21-8, nắng nóng đã quay lại miền Trung. Miền Bắc và miền Nam vẫn còn mưa to đến rất to.
-- Một người nước ngoài chạy xe máy với tốc độ cao, lạng lách, vượt ẩu trên đường phố Nha Trang khiến dư luận bức xúc đề nghị cảnh sát giao thông xử lý nghiêm.
-- Theo báo cáo của Sở Xây dựng, TP.HCM đã thu 8,5 tỉ đồng phí vỉa hè, lòng đường. Khoản thu chủ yếu từ lễ hội, thể thao và bãi giữ ô tô.
-- Trong nhiệm kỳ mới, Ban Chấp hành Đảng bộ phường An Nhơn chú trọng thực hiện các công trình chống ngập, chỉnh trang đô thị và đảm bảo vệ sinh môi trường.
-- Tài xế phóng xe bán tải trên bãi biển Tuy Hòa (Đắk Lắk), liên tục bóp còi lúc đông người đang vui chơi vào dịp Tết Đoan ngọ (ngày 31-5 dương lịch) vừa bị tòa án tuyên phạt 6 tháng tù về tội gây rối trật tự công cộng.
-- Các tổ công tác của Bộ Chính trị làm việc với đại diện ban thường vụ tỉnh ủy các tỉnh Sơn La, Thanh Hóa, Bắc Ninh, Lạng Sơn về chuẩn bị đại hội đảng bộ tỉnh.
-- Khoảng 14h30 ngày 20-8, tại khu vực suối Chà Làm thuộc bản Khằm 2, xã Trung Lý, tỉnh Thanh Hóa xảy ra vụ lũ cuốn trôi hai mẹ con.
-- TP.HCM dự kiến chi gần 3.000 tỉ đồng xây dựng nút giao cao tốc Bến Lức - Long Thành với đường Rừng Sác, dự kiến khởi công giữa năm 2026.
-- Trong nhiệm kỳ mới, Ban Chấp hành Đảng bộ phường Thông Tây Hội sẽ chú trọng đầu tư hạ tầng giao thông, giải quyết triệt để tình trạng ngập cục bộ trên địa bàn, cũng như mở rộng các vùng xanh.
-- Ngày 20-8, UBND TP Hà Nội ban hành công văn số 4686 về việc đảm bảo các điều kiện phục vụ nhân dân, du khách theo dõi các hoạt động kỷ niệm và lễ kỷ niệm, diễu binh, diễu hành 80 năm Cách mạng Tháng Tám thành công và Quốc khánh 2-9.
-- Tỉnh Đồng Nai và các đơn vị liên quan cần sớm hoàn thiện các tuyến đường kết nối sân bay Long Thành bởi tình trạng ùn tắc hiện nay rất lớn.
-- Ngày 20-8, Bộ Quốc phòng đã tổ chức lễ công bố quyết định thành lập Bộ tư lệnh Pháo binh - Tên lửa.
-- Phường Tăng Nhơn Phú xác định khâu đột phá về nhà ở là triển khai quy hoạch chi tiết 1/500 để miễn giấy phép xây dựng cho người dân.
-- Ông Nguyễn Thanh Nghị - ủy viên Trung ương Đảng, phó bí thư thường trực Thành ủy TP - được chỉ định làm bí thư Đảng ủy các cơ quan Đảng TP.HCM nhiệm kỳ 2025 - 2030.
-- Dự kiến chậm nhất trong quý 1-2026 việc thu phí đường cao tốc do nhà nước đầu tư sẽ thực hiện trên 13 đoạn tuyến đường cao tốc Bắc - Nam phía Đông.
-- Các doanh nghiệp quốc tế dồn dập đặt hàng Việt Nam sản xuất vỏ container.
-- Chủ tịch Ủy ban Trung ương MTTQ Việt Nam Đỗ Văn Chiến được chỉ định giữ chức bí thư Đảng ủy Cơ quan Ủy ban Trung ương Mặt trận Tổ quốc Việt Nam.
-- Bạn đọc cho biết đi khám bệnh bảo hiểm y tế thường gặp tình trạng thiếu thuốc, phải 'chạy đôn chạy đáo' mua thuốc bên ngoài.
-- Khối quân nhân lực lượng vũ trang Liên bang Nga đã có mặt tại Hà Nội để tham dự lễ diễu binh, diễu hành kỷ niệm 80 năm Quốc khánh 2-9 (A80).
-- Phó chủ tịch UBND TP.HCM Nguyễn Lộc Hà đề nghị phường Lái Thiêu cần đi đầu trong công tác quy hoạch, thu hút nhiều nhà đầu tư, góp phần đẩy nhanh các công trình trọng điểm…
-- Sáng 20-8, công an hai phường Đông Hòa và Linh Xuân đã ký kết quy chế phối hợp đảm bảo an ninh trật tự cùng Trung tâm Quản lý ký túc xá và khu đô thị Đại học Quốc gia TP.HCM.
-- Sáng 20-8, UBND phường Đại Mỗ (Hà Nội) tổ chức lễ công bố quyết định và gắn biển tên phố Lê Giản và phố Bạch Thành Phong.
-- Phó chủ tịch Quốc hội Vũ Hồng Thanh lưu ý dự án sân bay Long Thành không chỉ làm nhanh, mà còn phải đảm bảo chất lượng khi đưa vào vận hành.
-- Sáng 20-8, các trung đoàn trực thăng của Quân chủng Phòng không - Không quân đã tiến hành bay huấn luyện đội hình treo cờ Đảng, cờ Tổ quốc trong dịp Lễ kỷ niệm 80 năm Quốc khánh 2-9 (A80).
-- Thời gian cấm, tạm cấm và hạn chế xe cộ từ 11h30 ngày 21-8 đến 3h ngày 22-8. So với thông báo trước đó, thời gian thực hiện sẽ sớm hơn 5 tiếng 30 phút.
 ![New](News.png)
 ## Nhịp sống số 
+- Không chỉ nghe, nhìn, nói, AI giờ đây còn có thể “ngửi mùi”. Công nghệ khứu giác số mở ra ứng dụng từ y tế hơi thở, kiểm định thực phẩm, đến tạo ra những hương nước hoa độc bản chỉ trong vài cú nhấp chuột.
 - Apple thông báo sẽ sản xuất toàn bộ dòng sản phẩm iPhone 17 tại các nhà máy đặt tại Ấn Độ, dấu hiệu rõ ràng cho thấy họ đang 'hạn chế' phụ thuộc vào Trung Quốc.
 - Theo OpenAI, ChatGPT Go cho phép người dùng gửi số lượng tin nhắn và tạo hình ảnh gấp 10 lần so với bản miễn phí, đồng thời có tốc độ phản hồi nhanh hơn.
 - Hằng tháng có 280 triệu người dùng ứng dụng chỉnh sửa ảnh AI Meitu, trong đó 98 triệu đến từ các thị trường ngoài Trung Quốc đại lục.
@@ -154,5 +155,4 @@
 - Mạng xã hội đang lan truyền một video bản tin cho biết Chính phủ Nepal ban hành lệnh cấm TikTok từ ngày 17-8-2025. Tuy nhiên qua kiểm chứng, đây là tin giả và video là sản phẩm của trí tuệ nhân tạo (AI).
 - Theo chuyên gia công nghệ, thông qua việc dùng hàng loạt prompt tinh vi, hacker có thể xâm nhập cơ sở dữ liệu 'mật' của doanh nghiệp mà không bị phát hiện.
 - Vào ngày 11-6-2025, Phó Thủ tướng Nguyễn Chí Dũng đã ký Quyết định số 1121/QĐ-TTg phê duyệt Chương trình hành động quốc gia về phát triển và chuyển đổi sang sử dụng nền tảng điện toán đám mây giai đoạn 2025 - 2030.
-- AlphaMath đã thể hiện khả năng tự phân tích bài toán, đặt lại giả định, đưa ra hướng tiếp cận, phản biện lời giải của chính nó y như thí sinh thật.
 ![life](Life.png)
