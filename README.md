@@ -1,6 +1,21 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Việc cộng điểm khuyến khích, quy đổi điểm được đa số trường đại học áp dụng dẫn đến tình trạng điểm thi thấp nhưng điểm chuẩn vẫn tăng vù vù, xô đổ các kỷ lục điểm chuẩn trước đó.
+- Ngày 24-8, gần 100 thí sinh nhí đã hào hứng góp mặt trong vòng casting Đầu Bếp Nhí đợt 2.
+- Tin tức đáng chú ý: Vì sao điểm chuẩn tuyển sinh các ngành y dược, sư phạm lại biến động mạnh?; Bác sĩ cảnh báo vi rút RSV gây bệnh đường hô hấp nguy hiểm ở trẻ nhỏ; Trước 1-1-2026, hoàn thành tổ chức một số đơn vị thuộc Bộ Nông nghiệp và Môi trường.
+- Vụ Giáo dục đại học cho biết từ 8h ngày mai 25-8, thí sinh có thể tra cứu danh sách trúng tuyển các trường đại học, xác nhận nhập học trên cổng tuyển sinh chung của Bộ Giáo dục và Đào tạo.
+- Gần 10 điểm mỗi môn vẫn rớt đại học mong muốn; Nút giao An Phú nguy cơ chậm 12 tháng... là những vấn đề thu hút nhiều bạn đọc phản hồi tuần qua.
+- Để học sinh và giáo viên được an toàn trong bão số 5, tỉnh Quảng Trị đã có công văn cho toàn bộ học sinh, học viên nghỉ học từ ngày 25-8.
+- Xuất sắc vượt qua 13 đội tuyển, đội Nhật Bản đoạt chức vô địch tại vòng chung kết cuộc thi sáng tạo Robocon châu Á - Thái Bình Dương 2025. Đội Việt Nam đoạt giải 3 và giải ABU.
+- Sáng 24-8, Tập đoàn FPT khánh thành tổ hợp giáo dục quy mô 20.000 người học tại khu đô thị An Vân Dương (TP Huế) và đón những học sinh đầu tiên bước vào năm học mới 2025-2026.
+- Trong thời gian ảnh hưởng bởi mưa bão số 5, 67.000 học sinh tại Hà Tĩnh sẽ nghỉ học để đảm bảo an toàn.
+- Trong tổng số hơn 4.200 thí sinh trúng tuyển vào Trường đại học Công nghệ, Đại học Quốc gia Hà Nội, có tới 192 thí sinh đạt điểm 30; 851 thí sinh đạt từ 28 - 29 điểm, và 1.239 thí sinh đạt điểm từ 27 - 28.
+- Thí sinh xét tổ hợp D66 vào Trường đại học Khoa học xã hội và Nhân văn, Đại học Quốc gia Hà Nội cho biết điểm xét cao hơn điểm chuẩn nhưng vẫn trượt vì trường nhầm môn trong tổ hợp xét tuyển.
+- Mùa tuyển sinh đại học năm nay xuất hiện nghịch lý: mặc dù đề thi tốt nghiệp THPT được đánh giá là khó, nhưng điểm chuẩn nhiều ngành 'hot' ở các trường tốp đầu lại tăng vọt, thậm chí phá kỷ lục.
+- Cao Đức Anh tốt nghiệp thủ khoa toàn khóa 2021-2025 với điểm tổng kết 3.9/4.0, mức điểm cao nhất trong lịch sử hơn 40 năm của Trường đại học Luật TP.HCM.
+- Bạn đọc cho rằng có quá nhiều phương thức tuyển sinh gây mất công bằng, đẩy điểm chuẩn phương thức xét điểm thi tốt nghiệp THPT lên cao chót vót.
+- Trước dự báo ảnh hưởng từ cơn bão số 5 (bão Kajiki), nhiều trường học ở Nghệ An đã thông báo hoãn lịch tựu trường sáng 25-8.
 - Sau khi Bộ GD-ĐT công bố phổ điểm các môn thi tốt nghiệp THPT 2025, nhiều trường ĐH dự báo điểm chuẩn năm nay sẽ giảm so với năm trước. Thế nhưng thực tế ngược lại.
 - Sau khi nhận đề thi, học sinh sẽ có 60 phút chuẩn bị và được phép sử dụng tất cả các công cụ sẵn có, bao gồm cả AI tạo sinh. Sau đó, học sinh sẽ thực hiện bài thi trước giám khảo.
 - Hội đồng tuyển sinh trường Đại học CMC thông báo xét tuyển bổ sung 300 chỉ tiêu cho 14 ngành/chương trình đào tạo năm 2025.
@@ -36,73 +51,58 @@
 - Ngành tâm lý học dẫn đầu điểm chuẩn Trường đại học Khoa học xã hội và Nhân văn (Đại học Quốc gia Hà Nội) với 29 điểm, vượt điểm chuẩn ngành quan hệ công chúng và báo chí so với năm ngoái.
 - Trường đại học Luật Hà Nội dùng tổ hợp D01 (toán, văn, tiếng Anh) làm tổ hợp gốc quy đổi, mức điểm chuẩn từ 19,75 đến 25,55.
 - Đa số ngành 'hot' Trường đại học Bách khoa - Đại học Quốc gia TP.HCM có điểm chuẩn tăng, trái với dự đoán giảm trước đó.
-- Ngày 22-8, các trường đại học trên địa bàn tỉnh Khánh Hòa đã công bố điểm chuẩn trúng tuyển đại học chính quy 2025.
-- Một nữ sinh viên ngành sư phạm toán của Trường đại học Khánh Hòa bị phát hiện nộp chứng chỉ tiếng Anh giả để được xét tốt nghiệp.
-- Đại học Kinh tế TP.HCM (UEH) vừa chính thức công bố điểm chuẩn tuyển sinh đại học năm 2025 theo các phương thức xét tuyển.
-- Hai trường đại học thuộc Đại học Quốc gia TP.HCM vừa công bố điểm chuẩn trúng tuyển đại học năm 2025.
-- Trường đại học Giao thông vận tải TP.HCM, Nông Lâm TP.HCM, Mở TP.HCM, Văn Lang… đã công bố điểm chuẩn trúng tuyển đại học 2025.
-- Trường đại học Ngoại thương công bố điểm chuẩn, mức cao nhất là 28,5 với điều kiện điểm thi tốt nghiệp THPT đạt 9,5 điểm/môn.
-- Chiều 22-8, Hội đồng tuyển sinh Trường đại học Cần Thơ đã công bố điểm chuẩn xét tuyển đại học chính quy năm 2025.
-- Chiều 22-8, Hội đồng tuyển sinh Trường đại học Tôn Đức Thắng công bố điểm chuẩn đại học chính quy năm 2025 theo phương thức xét điểm thi tốt nghiệp THPT.
-- Trường đại học Hà Nội công bố điểm chuẩn năm 2025, trong đó ngôn ngữ Trung Quốc dẫn đầu bảng nhóm ngành ngôn ngữ.
-- Hai trường đại học y hàng đầu tại phía Nam công bố điểm chuẩn, dao động từ 17 đến 27,34 điểm.
-- Năm nay, điểm chuẩn trúng tuyển vào Đại học Kinh tế quốc dân dao động từ 23 đến 28,83 điểm, trong khi mức điểm thấp nhất năm ngoái là 26,57 (thang 30) với phương thức xét điểm thi tốt nghiệp THPT.
-- Điểm chuẩn Trường đại học Luật TP.HCM theo phương thức xét điểm thi tốt nghiệp THPT dao động từ 18,12 đến 25,65 điểm.
-- Ban tuyển sinh quân sự (Bộ Quốc phòng) vừa công bố điểm chuẩn vào các trường khối quân sự. Mức điểm chuẩn cao nhất với nữ, lên tới 30 điểm.
-- Nhiều trường thành viên, trực thuộc Đại học Quốc gia Hà Nội đã công bố điểm chuẩn năm 2025, mỗi ngành có duy nhất một mức điểm trúng tuyển.
-- Chiều 22-8, Đại học Bách khoa Hà Nội công bố điểm chuẩn trúng tuyển 65 chương trình đào tạo dựa vào điểm thi tốt nghiệp THPT.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Từ sáng nay tới sáng 26-8, tại TP.HCM sẽ có đợt mưa to do ảnh hưởng từ bão số 5. Dự báo lượng mưa cả đợt có nơi lên tới 110mm.
-- Dự báo tác động của bão số 5 trên biển rất dữ dội, vùng gần tâm bão đi qua cấp 11-13, giật cấp 15, sóng biển cao 5-7m, vùng gần tâm bão có thể có sóng cao đến 9m.
-- Có khoảng 4 gói thầu xây lắp chính ở nút giao An Phú dự kiến trượt tiến độ sang năm 2026, một số gói có sản lượng thực hiện theo hợp đồng còn rất thấp chỉ 12-18%.
-- Trong những ngày cả nước chào mừng kỷ niệm 80 năm Quốc khánh, khi nhiều nữ chiến sĩ quân y Bệnh viện Trung ương Quân đội 108 vinh dự tham gia đội hình diễu binh, diễu hành, thì ở một “mặt trận” khác, những đồng nghiệp của họ vẫn miệt mài cứu người.
-- Khoảng 20h tối nay 24-8, tổng hợp luyện diễu binh, diễu hành cho Lễ kỷ niệm 80 năm Quốc khánh 2-9 lần 2, sẽ diễn ra tại quảng trường Ba Đình, Hà Nội.
-- Dự kiến trưa đến chiều mai 25-8, bão số 5 (Kajiki) đổ bộ vào đất liền các tỉnh Thanh Hóa - Quảng Trị với gió mạnh có thể lên tới cấp 11-12 (103-133km/h), giật tới cấp 13-14, kèm theo đó là mưa đặc biệt lớn.
-- Mỗi cảm nhận và chia sẻ của bạn sẽ lan tỏa lòng yêu nước đến người xem, hướng tới chào mừng kỷ niệm 80 năm Cách mạng tháng Tám thành công và Quốc khánh 2-9.
-- Nhân kỷ niệm 80 năm thành lập ngành ngoại giao, Chủ tịch nước Lương Cường đã có bài viết "Ngoại giao Việt Nam - 80 năm xây dựng, trưởng thành cùng đất nước".
-- Một số tin tức đáng chú ý: Ngân hàng nhỏ đang tụt lại; Cổ phiếu công ty bầu Đức thoát khỏi diện cảnh báo; Hơn 11,4 triệu người ở TP.HCM đã có thẻ bảo hiểm y tế...
-- Hôm nay 24-8, bão số 5 khiến Biển Đông dông gió dữ dội, phần hoàn lưu bão chồm vào đất liền khiến thời tiết mưa to đến rất to.
-- Hà Nội Metro cho biết đơn vị này sẽ tăng cường tần suất vận hành 2 tuyến đường sắt đô thị trong ngày 24-8.
-- Thường trực Ban Bí thư yêu cầu đôn đốc, kiểm tra, ứng phó theo phương châm 4 tại chỗ, không được lơ là chủ quan với cơn bão số 5.
-- Bộ trưởng Phạm Thị Thanh Trà cho hay đã hướng dẫn các cơ quan, địa phương xem xét đúng đối tượng cho nghỉ theo chế độ nghị định 178, 67.
-- Tân giám đốc Bệnh viện Chấn thương chỉnh hình (TP.HCM) cam kết nỗ lực xây dựng bệnh viện hiện đại, chất lượng, thân thiện.
-- Khi đi hái nấm, một số người dân phát hiện bộ xương người đang phân hủy trên vùng núi thôn Thanh Thượng, xã Chư A Thai (Gia Lai).
-- Thủ tướng Phạm Minh Chính yêu cầu thống nhất các công nghệ, hạ tầng, nền tảng trong giải quyết thủ tục hành chính ở cấp xã.
-- Mức độ nguy hiểm của bão số 5 (Kajiki) được đánh giá không kém bão số 3 (Yagi) năm 2024 về gió mạnh và ít nhất bằng, thậm chí có thể mạnh hơn bão số 10 (Doksuri) năm 2017 đổ bộ vào Hà Tĩnh và Quảng Bình (cũ).
-- Cây đa Bà Bút bị ngã, cả tỉnh Quảng Ngãi hợp sức cứu cách đây 4 năm, đang sinh trưởng tốt thì bất ngờ bị cháy.
-- Chính ủy Quân chủng Hải quân đề nghị các đơn vị hải quân chú trọng tuyên truyền kỷ niệm 80 năm Quốc khánh 2-9.
-- Sau ngày 'Ngày thứ bảy tình nguyện', khoảng 1 tấn rác thải nhựa đã được thu gom ở khu vực cảng biển An Thới, Phú Quốc.
-- Chỉ vì mâu thuẫn ghen tuông, một người đàn ông đã châm lửa đốt nhà tại chợ Thanh Tùng (tỉnh Cà Mau), gây thiệt hại hơn 20,6 tỉ đồng.
-- Do bị ông Tr. mời làm việc vì nghi sử dụng ma túy nên khi thấy ông Tr. đang uống cà phê, Chì đã cầm tuýp sắt nhọn đâm ông Tr. rồi bỏ chạy.
-- Bí thư Nguyễn Văn Nên cho rằng Trung ương đã nhìn nhận được tình trạng 'cán bộ vừa thừa vừa thiếu' và đang lấy ý kiến để có quy định.
-- Phó thủ tướng Nguyễn Hòa Bình cho biết theo báo cáo của các địa phương hiện nay còn khoảng 3.000 dự án cần phải tập trung tháo gỡ.
-- Ban tổ chức đã lắp đặt thêm hệ thống khán đài với hơn 25.500 chỗ ngồi, kết cấu được gia cố gấp 5 lần tải trọng thực tế.
-- Ông Hồ Văn Mừng - chủ tịch UBND tỉnh An Giang - nhấn mạnh làm dự án đón APEC là một vinh dự, cần tập trung làm và không đùn đẩy trách nhiệm.
-- Ban Thường vụ Thành ủy TP.HCM chỉ định ông Nguyễn Văn Được làm bí thư Đảng ủy UBND TP.HCM và ông Nguyễn Lộc Hà làm phó bí thư thường trực Đảng ủy UBND TP.HCM nhiệm kỳ 2025-2030.
-- Sở Xây dựng TP.HCM yêu cầu nhanh chóng khắc phục tình trạng cải tạo, nâng cấp vỉa hè làm hư hỏng đèn tín hiệu, biển báo giao thông ở các khu vực trung tâm thành phố.
-- Chiều 23-8, Ủy viên Bộ Chính trị, Bí thư Đảng ủy Chính phủ, Thủ tướng Chính phủ Phạm Minh Chính chủ trì cuộc họp của Ban Thường vụ Đảng ủy Chính phủ và Chính phủ để đánh giá tình hình sau 2 tháng vận hành chính quyền 2 cấp.
-- Thông tư mới của Bộ Quốc phòng hướng dẫn mức đóng bảo hiểm xã hội, chế độ ốm đau khi làm nhiệm vụ phòng chống thiên tai, hỏa hoạn, dịch bệnh hoặc cứu hộ, cứu nạn.
-- Từ trên cao, nhìn nút giao An Phú (cửa ngõ phía đông TP.HCM) ngổn ngang rào chắn, trụ cầu dở dang và dòng xe ken đặc xung quanh.
-- Bão số 5 (Kajiki) là cơn bão rất mạnh, tốc độ di chuyển nhanh, cường độ cực đại có thể đạt cấp 12-13 (118-149km/h), giật cấp 15.
-- Từ ngày 26-8, cầu Bình Triệu 1 (quốc lộ 13, TP.HCM) sẽ bắt đầu được 'kích nâng' toàn bộ kết cấu lên cao thêm 1,08m. Đây là cách để tăng tĩnh không, giúp tàu thuyền qua lại thuận lợi hơn trên sông Sài Gòn.
-- Đây là định hướng mà Đảng bộ UBND TP.HCM nêu ra về nhiệm vụ, phương hướng phát triển TP.HCM giai đoạn 2025-2030.
-- Tại đại hội đảng bộ các cấp, các đại biểu, đảng viên thuộc Đảng bộ UBND TP.HCM đã quyên góp gần 10 tỉ đồng để hỗ trợ đồng bào bị thiên tai, lũ lụt tại miền núi, trung du Bắc Bộ.
-- Phiên chính thức Đại hội đại biểu Đảng bộ UBND TP.HCM lần thứ I đã khai mạc với sự tham dự của Bí thư Thành ủy TP.HCM Nguyễn Văn Nên, Phó bí thư thường trực Thành ủy TP.HCM Nguyễn Thanh Nghị.
-- Bão số 5 (Kajiki) là cơn bão rất mạnh, di chuyển nhanh, gió bão khi đổ bộ có thể đạt cấp 10-12, giật cấp 14-15, vùng ảnh hưởng rộng có thể từ Thanh Hóa đến Quảng Trị và gây mưa rất lớn.
-- UBND xã Thanh Tùng, tỉnh Cà Mau đã có báo cáo vụ cháy làm thiêu rụi 57 ki ốt tại khu vực nhà lồng chợ ấp Cái Ngay. Theo thống kê, thiệt hại ban đầu lên đến hơn 20,6 tỉ đồng.
-- Phòng Cảnh sát hình sự Công an Đà Nẵng vừa phối hợp Công an tỉnh Gia Lai bắt giữ 4 nghi phạm liên quan vụ án mua bán người, cưỡng đoạt tài sản, bắt giữ người trái pháp luật, đồng thời giải cứu thành công nạn nhân.
-- Lượng nước về hồ thủy điện Bản Vẽ lúc 9h sáng 23-8 là 262m³/s. Nghệ An có công văn hỏa tốc lệnh cho giám đốc Công ty thủy điện Bản Vẽ vận hành giảm lũ cho hạ du.
-- Người đàn ông chạy xe máy tốc độ cao tông vào gác chắn rồi ngã xuống đường ray xe lửa, may mắn được nhân viên và người dân giải cứu kịp thời.
-- Đến làm việc với tỉnh Khánh Hòa vào ngày 23-8, Phó thủ tướng thường trực Nguyễn Hòa Bình đã kiểm tra 2 dự án tại Nha Trang có xảy ra sai phạm để nắm bắt thông tin thực tế.
-- Tình trạng kẹt xe trên đèo Bảo Lộc (quốc lộ 20, tỉnh Lâm Đồng) đã kéo dài nhiều tháng qua vì thi công cầu Bảo Lộc 2.
-- Thời gian bắt đầu tổ chức phân luồng giao thông, cấm đường sẽ sớm hơn thông báo trước đó 4 tiếng 30 phút.
-- Cô gái tử vong tại chỗ, nam thanh niên nguy kịch sau cú tông mạnh xe máy vào đuôi container đang đậu trên đường ở TP.HCM.
-- Dù ảnh hưởng gián tiếp bão số 5 nhưng thời tiết Nam Bộ và TP.HCM trong 3 ngày tới sẽ có mưa to đến rất to.
-- Một phụ nữ vừa bị Công an tỉnh Thái Nguyên triệu tập làm việc, khi lên Facebook bình luận xúc phạm lực lượng làm nhiệm vụ bảo vệ hợp luyện A80 tại Hà Nội.
-- Sáng 23-8, Bệnh viện TP Thủ Đức cũ tổ chức lễ công bố đổi tên thành Bệnh viện Đa khoa Thủ Đức và ra mắt bộ nhận diện thương hiệu mới.
-- Mới đây, phường Bình Tân (TP.HCM) thông tin cảnh báo về chiêu trò lừa đảo 'cập nhật thông tin bảo hiểm xã hội' để chiếm đoạt tài sản.
-- Thời gian bắn pháo hoa được UBND tỉnh Tây Ninh dự kiến trong khoảng từ 21h đến 21h30 ngày 2-9-2025, tại phường Long An và phường Tân Ninh.
+- Lúc 9h sáng nay, tâm bão số 5 (bão Kajiki) đang cách Nghệ An khoảng 140km về phía đông đông nam, cách Hà Tĩnh khoảng 120km về phía đông. Sức gió mạnh nhất vùng gần tâm bão mạnh cấp 13-14 (134-166km/h), giật cấp 16.
+- Ông Nguyễn Thanh Nghị - ủy viên Trung ương Đảng, phó bí thư thường trực Thành ủy TP.HCM - được Bộ Chính trị điều động, phân công, bổ nhiệm làm Trưởng Ban Chính sách, chiến lược Trung ương.
+- Lực lượng Cảnh sát phòng cháy chữa cháy và cứu nạn, cứu hộ Công an tỉnh Đắk Lắk đã xuyên đêm giải cứu tài xế mắc kẹt trong cabin sau vụ tai nạn giữa xe tải và xe đầu kéo trên quốc lộ 1.
+- Người đàn ông chạy xe ba gác chở theo chiếc ô tô cũ cồng kềnh bị người dân phản ánh trên mạng xã hội đã bị xử phạt.
+- Trong lúc chằng mái nhà phòng chống bão số 5, một gia đình không may bị điện giật làm một người chết, hai người bị thương.
+- Ông Trần Lưu Quang - Bí thư Trung ương Đảng, Trưởng Ban Chính sách, chiến lược Trung ương - làm Bí thư Thành ủy TP.HCM nhiệm kỳ 2020 - 2025.
+- Ông Nguyễn Văn Nên - ủy viên Bộ Chính trị - được phân công theo dõi, chỉ đạo Đảng bộ TP.HCM cho đến Đại hội XIV của Đảng.
+- Cục Hàng không Việt Nam quyết định tạm dừng khai thác sân bay Thọ Xuân và Đồng Hới trong ngày 25-8 để tránh bão số 5.
+- Lúc 7h sáng nay, tâm bão số 5 (bão Kajiki) đang cách Nghệ An khoảng 160km về phía Đông Đông Nam, cách Hà Tĩnh khoảng 145km về phía Đông. Sức gió mạnh nhất vùng gần tâm bão mạnh cấp 14 (150-166km/h), giật cấp 17.
+- Hôm nay 25-8, dự báo bão số 5 đổ bộ vào đất liền nước ta gây mưa to đến rất to, với thời tiết này cần đề phòng lũ, sạt lở và dông gió dữ dội.
+- Theo thông tin từ Bộ Ngoại giao, nhân kỷ niệm 80 năm thành lập ngành ngoại giao (28-8-1945 - 28-8-2025), Tổng Bí thư Tô Lâm đã có thư chúc mừng.
+- Buổi tổng hợp luyện diễu binh, diễu hành lần 2 cho lễ kỷ niệm 80 năm Quốc khánh 2-9 diễn ra ngày 24-8, tại quảng trường Ba Đình (Hà Nội).
+- Khi bão số 5 đổ bộ, khu vực Nghệ An - bắc Hà Tĩnh khả năng chịu tác động của gió bão mạnh nhất cấp 12-14 (118-166km/h), giật cấp 15-16.
+- Tính đến 17h30 chiều nay 24-8, toàn tỉnh Hà Tĩnh đã sơ tán 3.972 hộ dân với gần 10.000 nhân khẩu đến các địa điểm an toàn để chủ động ứng phó với bão số 5.
+- Đến 19h tối nay, cường độ bão số 5 (Kajiki) đã mạnh lên cấp 14 (150-166km/h), giật cấp 17 và khả năng tiếp tục mạnh lên.
+- Chiều 24-8, gần 400 quân và dân trên đảo Cồn Cỏ (Quảng Trị) đã được di tản vào các hầm trú ẩn an toàn để ứng phó với bão số 5.
+- Chiều 24-8, ông Nguyễn Hoàng Hiệp - thứ trưởng Bộ Nông nghiệp và Môi trường - cùng đoàn công tác của trung ương đã kiểm tra thực tế công tác ứng phó với bão số 5 tại tỉnh Thanh Hóa.
+- Cơn bão số 5 (bão Kajiki) được dự báo là cơn bão mạnh với cấp độ rủi ro thiên tai cấp 4 - mức rất lớn, dự kiến đổ bộ vào đất liền nước ta khoảng trưa, chiều 25-8.
+- Gần 10 điểm mỗi môn vẫn rớt đại học mong muốn; Nút giao An Phú nguy cơ chậm 12 tháng... là những vấn đề thu hút nhiều bạn đọc phản hồi tuần qua.
+- Để học sinh và giáo viên được an toàn trong bão số 5, tỉnh Quảng Trị đã có công văn cho toàn bộ học sinh, học viên nghỉ học từ ngày 25-8.
+- Trong 21 dự án đón APEC 2027 ở Phú Quốc thì có 2 dự án triển khai chậm lại vì liên quan đến quy hoạch là dự án hồ nước Dương Đông 2 và nhà máy xử lý nước hồ này. Sở ngành trong tỉnh đã khẩn trương lập đoàn khảo sát lại vị trí mới làm hồ nước.
+- Du khách lặn biển ở khu vực Hòn Bạc, thuộc vịnh Nha Phu (Khánh Hòa) thấy cảnh tượng cá chết hàng loạt, san hô gãy đổ.
+- Gần 20h30, dàn pháo lễ tại sân vận động quốc gia Mỹ Đình (Hà Nội) đã khai hỏa, bắt đầu buổi tổng hợp luyện lần thứ 2 của các lực lượng vũ trang, quân đội, công an... cho lễ diễu binh, diễu hành mừng đại lễ tại quảng trường Ba Đình.
+- Ngay trước bão số 5, hai người dân tại Quảng Trị chèo thuyền đi đánh cá ở hồ Bàu Sen thì bị chìm thuyền. Một người bơi được vào bờ, người còn lại đã tử vong.
+- Thủ tướng Phạm Minh Chính vừa ký công điện số 144 về việc bảo đảm cắt giảm, đơn giản hóa thủ tục hành chính, điều kiện kinh doanh và thực hiện thủ tục hành chính thông suốt, hiệu quả trong triển khai chính quyền địa phương 2 cấp.
+- Công an xã An Thành (Hải Phòng) đã phát đi thông báo tìm thân nhân của trẻ sơ sinh bị bỏ rơi tại chùa Diên Khánh trên địa bàn.
+- Bão số 5 là một cơn bão rất mạnh, cường độ bão khi ảnh hưởng có thể tương đương với cơn bão số 3 Yagi năm 2024 và mạnh hơn bão số 10 (Doksuri) năm 2017.
+- Thành phố Hải Phòng đã cấm các phương tiện tàu du lịch, tàu, thuyền khai thác thủy sản ra khơi từ 13h ngày 24-8 để phòng chống bão số 5. Trong khi đó, Hà Tĩnh đã đặt Sở Chỉ huy chống bão.
+- Trước diễn biến phức tạp của cơn bão số 5, từ sáng đến trưa 24-8 lượng lượng công an, bộ đội biên phòng, dân quân địa phương đã giúp ngư dân phường Sầm Sơn đưa hàng trăm chiếc thuyền nhỏ lên đường Hồ Xuân Hương tránh trú bão.
+- Trong thời gian ảnh hưởng bởi mưa bão số 5, 67.000 học sinh tại Hà Tĩnh sẽ nghỉ học để đảm bảo an toàn.
+- Sau cơn mưa chiều 24-8, tại khu vực giao cắt đường Chu Văn An - Nguyễn Thái Học - Tôn Đức Thắng, người dân cùng hòa ca bài Nối vòng tay lớn, Như có Bác Hồ trong ngày vui đại thắng, Tiến quân ca… trong lúc chờ đoàn diễu binh.
+- Nhạc sĩ Nguyễn Văn Chung chia sẻ việc thể hiện lòng yêu nước không chỉ bằng đón xem, hưởng ứng các concert quốc gia hay xem diễu binh, diễu hành mà hãy thể hiện bằng chính hành động thiết thực của mình trong tương lai.
+- Bộ Quốc phòng vừa có công điện yêu cầu các đơn vị toàn quân tập trung ứng phó khẩn cấp bão số 5.
+- Lần đầu tiên một bí thư xã ở Đắk Lắk livestream bán sầu riêng cho nông dân và đã thu hút được khá nhiều tương tác.
+- Ứng phó khẩn cấp với bão số 5, nhiều tỉnh, thành của miền Trung đã cấm biển. Trong khi đó, trên những cánh đồng lúa lúc này, nhiều bà con nông dân đang chạy đua thu hoạch để tránh cơn bão được dự đoán rất mạnh này.
+- Dải mây dông trước bão số 5 (Kajiki) bắt đầu vào đất liền, gây mưa dông ở các tỉnh Bắc Ninh, Hưng Yên, Hải Phòng và đang di chuyển và mở rộng sang khu vực thành phố Hà Nội.
+- Ngay từ sáng sớm nay, hàng ngàn người đã xếp hàng, đội nắng, cắm chốt, chọn chỗ đẹp để xem hợp luyện diễu binh, diễu hành kỷ niệm 80 năm Cách mạng tháng Tám và Quốc khánh 2-9.
+- Sáng 24-8, 10 chiếc trực thăng Mi thuộc các Trung đoàn Không quân 916, 917, 930 (Quân chủng Phòng không - Không quân) đã kéo cờ Tổ quốc, cờ Đảng bay qua quảng trường Ba Đình, Hà Nội.
+- Công an xã Phú Lâm, tỉnh Đồng Nai vừa giải cứu một thanh niên bị nhóm lừa đảo gọi điện đe dọa, ‘bắt cóc online’, đòi gia đình nạn nhân chuyển tiền.
+- Chủ tịch nước Lương Cường khẳng định mỗi thắng lợi của dân tộc đều bắt nguồn từ sức mạnh đại đoàn kết, đồng lòng, cống hiến không ngừng nghỉ của các tầng lớp nhân dân dưới sự lãnh đạo của Đảng.
+- Để tránh bờ biển bị sạt lở trước dự báo bão số 5 đổ bộ, chính quyền xã Đan Hải (Hà Tĩnh) đã huy động hàng trăm người tiến hành gia cố bờ biển bằng rọ đá, bao tải cát.
+- Kiểm tra thực tế khu neo đậu tàu thuyền ở xã Nam Cửa Việt, bí thư Tỉnh ủy Quảng Trị yêu cầu địa phương phối hợp chặt chẽ trong công tác ứng phó với bão số 5, sẵn sàng di dời dân, giúp dân thu hoạch mùa vụ ngay sau bão...
+- Dùng Facebook của bạn gái đăng hình và nội dung nói xấu vợ cũ và gia đình vợ, một công dân ở Đồng Nai bị phạt 7,5 triệu đồng.
+- Bạn đọc cho rằng có quá nhiều phương thức tuyển sinh gây mất công bằng, đẩy điểm chuẩn phương thức xét điểm thi tốt nghiệp THPT lên cao chót vót.
+- Do ảnh hưởng bão số 5 (Kajiki), vùng biển An Thới, đặc khu Phú Quốc tỉnh An Giang có gió thổi mạnh, sóng lớn. Các tour ca nô tham quan đảo trong đảo tạm ngưng đón khách ngày 24-8.
+- Hai ngày nay ngư dân Hà Tĩnh và các địa phương lân cận đang gấp rút đưa tàu thuyền vào các khu neo đậu của địa phương để chằng buộc cẩn thận, nhằm giảm thiểu rủi ro khi bão số 5 đổ bộ.
+- Tuần này do ảnh hưởng bão số 5 nên hầu như khắp nơi đều có mưa, sau khi bão tan mưa vẫn duy trì thêm nhiều ngày.
+- Trong lúc đến nhà vận động, sau đó khống chế đưa về trụ sở một nam thanh niên ở Hội An có hành vi chửi bới, đập phá tại nhà riêng, cán bộ công an bị nam thanh niên dùng kéo tấn công bị thương.
+- Sáng 24-8, xe tải thủng bánh đang đậu trên đường Đỗ Mười (phường Tam Bình, TP.HCM) bất ngờ bị xe tải khác tông từ phía sau, lật ngang.
+- Dự báo ngày và đêm nay, bão số 5 (Kajiki) có thể mạnh lên cấp 13-14 (134-166km/h), giật cấp 16. Đây sẽ là một trong những cơn bão mạnh, nguy hiểm nhất sẽ đổ bộ vào Nghệ An đến bắc Quảng Trị.
 ![New](News.png)
 ## Nhịp sống số 
 - Nhiều người dùng tin rằng chatbot AI thông minh hơn khi trả lời bằng tiếng Anh. Nhưng liệu đây có phải là sự thật, hay chỉ là tin đồn nảy sinh từ thói quen sử dụng công nghệ?
