@@ -1,6 +1,14 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Đại học Bách khoa Hà Nội dành 1.200 chỗ ở miễn phí tại ký túc xá cho người dân từ các tỉnh thành xa về Hà Nội tham dự lễ diễu binh, diễu hành.
+- Nhiều phụ huynh bày tỏ lo ngại về những ảnh hưởng khó lường của công cụ trí tuệ nhân tạo với con em mình.
+- Năm học 2025-2026, Thông tư 29 về dạy thêm học thêm tiếp tục được triển khai và sẽ có sửa đổi để phù hợp tình hình thực tế.
+- Do ảnh hưởng của cơn bão số 5, mưa lớn kéo dài gây sạt lở đường khiến xã biên giới Tam Thanh, tỉnh Thanh Hóa giáp với nước bạn Lào đang bị cô lập.
+- Tuổi Trẻ Online trân trọng giới thiệu đến bạn đọc toàn văn Nghị quyết 71 của Bộ Chính trị về đột phá phát triển giáo dục và đào tạo.
+- Theo bác sĩ, có 4 nhóm bệnh thường gặp trong mùa tựu trường phụ huynh cần quan tâm.
+- Trong thời gian xác nhận nhập học đại học theo quy định của Bộ GD-ĐT, nhiều thí sinh quyết định không xác nhận để rẽ hướng theo học cao đẳng.
+- Những vấn đề trên là hệ lụy của hàng loạt đổi mới tuyển sinh mà Bộ GD-ĐT áp dụng trong mùa tuyển sinh năm nay.
 - Do ảnh hưởng của bão số 5, mưa lớn kéo dài, ngày 26-8 tại bản Táo, xã vùng cao Trung Lý, tỉnh Thanh Hóa xuất hiện điểm sạt lở lớn từ trên đồi núi, kéo theo hàng trăm mét khối đất đá đổ xuống cạnh trường học.
 - Bộ Giáo dục và Đào tạo cho biết từ tối ngày 23-8 đến nay, mỗi ngày bộ phận phụ trách tuyển sinh của bộ nhận được và chuyển các trường xử lý khoảng 20 đến 30 phản ánh của thí sinh qua tất cả các kênh về những sai sót.
 - Dù phổ điểm thi tốt nghiệp THPT nhiều môn giảm, nhưng mùa xét tuyển đại học năm nay ghi nhận những câu chuyện điểm chuẩn vượt xa điểm thi, 'mưa' điểm tuyệt đối, khiến thí sinh đạt 30/30 điểm vẫn có thể trượt nguyện vọng.
@@ -43,68 +51,61 @@
 - 'Muốn tự tin khi nói tiếng Anh hay thuyết trình, điều quan trọng là dám bước ra thực hành thay vì sợ sai' - chia sẻ của Thanh Duyên, quán quân một cuộc thi hùng biện tiếng Anh trong buổi trò chuyện với sinh viên tại báo Tuổi Trẻ.
 - 'Trong 12 tháng tới, chúng tôi sẽ tuyển chọn ít nhất 70 tiến sĩ trẻ xuất sắc và 20 giáo sư thỉnh giảng quốc tế theo Chương trình VNU350. Đây sẽ là bước khởi động mạnh mẽ cho hành trình vươn lên top 100 châu Á vào năm 2030'.
 - Sáng 23-8, hàng trăm học sinh, sinh viên cùng nhiều doanh nghiệp và chuyên gia trong lĩnh vực khởi nghiệp trên cả nước tham gia Ngày hội khởi nghiệp đổi mới sáng tạo và chung kết cuộc thi Startup Runway 2025 tại Đà Nẵng.
-- Học viện Báo chí và Tuyên truyền vừa công bố điểm chuẩn các phương thức xét học bạ, xét điểm thi tốt nghiệp THPT và xét kết hợp với 2 thang điểm 30 và 40.
-- Đến nay, hầu hết trường đại học trong cả nước đã công bố điểm chuẩn. Nhận định ban đầu cho thấy dù điểm thi tốt nghiệp THPT năm nay thấp, điểm chuẩn nhiều trường vẫn tăng.
-- Nhiều sinh viên Trường đại học Kinh Bắc (Bắc Ninh) đang hoang mang, không biết việc tổ chức giảng dạy trở lại của trường có hợp pháp hay không.
-- Năm nay, thí sinh trúng tuyển vào Trường đại học Sư phạm Hà Nội ngành sư phạm lịch sử phải đạt 29,06 điểm, tiếp đến là sư phạm địa lý 28,79 điểm.
-- Năm nay điểm chuẩn vào Đại học Đà Nẵng có nhiều biến động, trong đó ngành sư phạm ngữ văn cao nhất với 28,84 điểm. Các trường khác ở Đà Nẵng mức điểm vừa phải.
-- Điểm chuẩn năm nay phá vỡ kỷ lục các năm, nhất là so với năm 2024. Hàng loạt ngành thí sinh đạt gần 10 điểm mỗi môn vẫn rớt.
-- Ngày 23-8, các trường Công an nhân dân đã đồng loạt công bố điểm chuẩn trúng tuyển ở các phương thức xét kết hợp với bài thi đánh giá của Bộ Công an năm 2025, ghi nhận mức điểm chuẩn cao nhất 26,28 điểm.
-- Thí sinh nữ vùng 2 và 3 cần đạt từ hơn 26 điểm mới trúng tuyển ngành nghiệp vụ an ninh của Học viện An ninh nhân dân.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Nhiều người dân ở thôn Phụng Tường 1, xã Phú Hòa 2 (Đắk Lắk) tá hỏa khi phát hiện khu vực phía sau Trường THCS Lương Văn Chánh xuất hiện đám cháy, ngọn lửa bốc cao kèm nhiều tiếng nổ lớn, trong khi năm học mới sắp cận kề.
-- Một số tin tức đáng chú ý: VietinBank rao bán món nợ khủng, tài sản cầm cố là khách sạn Mỹ Khê Đức Long; HoSE cảnh báo khẩn về các tài liệu giả mạo; Chợ Rẫy hướng tới bệnh viện không giấy...
-- Hôm nay 27-8, mưa vẫn xảy ra ở nhiều tỉnh thành cả nước, mưa dai dẳng khiến độ ẩm đất bão hòa, nguy cơ sạt lở rất cao.
-- Dự báo trong đêm nay đến sáng mai, lũ trên sông Thao (sông Hồng, đoạn qua Yên Bái, tỉnh Lào Cai) và sông Mã tiếp tục lên nhanh và sẽ vượt mức báo động 3. Nguy cơ ngập lụt vùng trũng, thấp ven sông.
-- Thủ tướng Phạm Minh Chính đã ký tặng biển kỷ niệm sản xuất chiếc điện thoại di động thứ 2 tỉ của Samsung tại Việt Nam.
-- Tối 26-8, lực lượng chức năng vẫn đang phong tỏa hiện trường vụ nghi cướp tiệm vàng, đồ trang sức xảy ra trên đường Núi Thành (phường Hòa Cường, Đà Nẵng).
-- Bí thư Thành ủy TP.HCM Trần Lưu Quang cùng đoàn đại biểu Thành ủy, HĐND, UBND, Ủy ban Mặt trận Tổ quốc Việt Nam TP.HCM đã dâng hương tưởng nhớ các Anh hùng liệt sĩ tại đặc khu Côn Đảo.
-- Phó thủ tướng Trần Hồng Hà yêu cầu hai bộ báo cáo rõ với Thủ tướng về sự cần thiết, tính khả thi hiện nay trong việc yêu cầu bắt buộc ban hành bộ tiêu chuẩn, quy chuẩn của Việt Nam về đường sắt tốc độ cao.
-- Phó chủ tịch UBND TP.HCM Bùi Minh Thạnh làm trưởng đoàn công tác khảo sát tình hình tổ chức và hoạt động của phường Tân Tạo, trong quá trình vận hành mô hình chính quyền địa phương 2 cấp.
-- Do ảnh hưởng bão số 5 (Kajiki), An Giang có mưa dông làm sạt lở đường, sập và tốc mái 4 căn nhà, đặc biệt một ngư dân ở đặc khu Phú Quốc đi câu mực bị mất tích.
-- Một người đàn ông tại Quảng Trị đã bất ngờ ngất xỉu và tử vong, khi đang tập luyện để chuẩn bị cho giải đua thuyền trên sông Kiến Giang sắp tới.
-- Nhiều vướng mắc về đất đai, thuế được doanh nghiệp nói ra trong buổi đối thoại. Ông Nguyễn Hoàng Giang, chủ tịch UBND tỉnh Quảng Ngãi, 'truy' từng vấn đề và nói 'vì chậm trao đổi, tháo gỡ dẫn đến vướng mắc'.
-- Hội thảo "Kết nối năng lượng thông minh, dẫn lối tương lai xanh" mở ra cơ hội cho ngành công nghiệp Việt Nam bứt phá thông qua các mô hình phát triển bền vững, tiết kiệm năng lượng, giảm phát thải và hướng đến mục tiêu Net Zero vào năm 2050.
-- Bão số 5 vừa tan, hoàn lưu còn gây mưa dữ dội cho Bắc Bộ thì trên Thái Bình Dương lại có áp thấp mới, dự báo lại vào Biển Đông và mạnh lên.
-- Doanh nghiệp được Ngân hàng Nhà nước xem xét cấp giấy phép sản xuất vàng miếng phải có vốn điều lệ từ 1.000 tỉ đồng, còn ngân hàng phải vốn điều lệ từ 50.000 tỉ đồng trở lên.
-- Sở Xây dựng TP.HCM vừa có văn bản gửi 168 phường, xã, đặc khu hướng dẫn rà soát để lên phương án đánh số, điều chỉnh số nhà, tên đường cho thống nhất.
-- Nhiều tấm tôn bay lên trời trước sự ngỡ ngàng của nhiều người dân, trong trận lốc xoáy kinh hoàng hiếm gặp ở thủ phủ công nghiệp Bắc Ninh.
-- Thời gian tổ chức cấm đường, phân luồng giao thông, phục vụ chương trình sơ duyệt bắt đầu từ 12h ngày 27-8 đến 2h ngày 28-8. So với thông báo trước đó, thời gian cấm đường sẽ sớm hơn 5 tiếng.
-- Chủ tịch UBND TP.HCM chỉ đạo Sở Tài chính, Sở Nông nghiệp và Môi trường và đơn vị liên quan thực hiện dự án xây dựng bảng giá đất lần đầu (mới) áp dụng từ 1-1-2026.
-- Với quan điểm "Không để ai bị bỏ lại phía sau, kể cả nơi xa nhất", ngành y tế TP.HCM đã sẵn sàng cử các bác sĩ giỏi bệnh viện đầu ngành luân phiên đến công tác tại đặc khu Côn Đảo.
-- Hơn 10 ngày nay, mạng xã hội lan truyền câu chuyện người đàn ông bán vé số ở khu vực Cù Lao Tây, xã Tân Long, tỉnh Đồng Tháp và 'vợ nhặt' 11 năm thu hút sự quan tâm của dư luận, người dân xóm Cù Lao Tây ngỡ ngàng.
-- Bão số 5 không chỉ tàn phá nhà cửa, hạ tầng mà còn làm hàng trăm tấn thóc tại kho Chương Hà (xã Cổ Đạm, Hà Tĩnh) bị ngập nước. Nhìn tài sản chìm trong dòng nước đục, chủ kho thóc chỉ biết lặng người xót xa.
-- Khoảng 16h45 chiều 26-8, cơ quan chức năng bắt đầu cấm ô tô qua cầu Bình Triệu 1 để thi công nâng tĩnh không cầu này.
-- Với mục tiêu 50% hộ gia đình lắp đặt điện mặt trời áp mái, dự kiến số tiền hỗ trợ trực tiếp có thể lên đến khoảng 42.000 tỉ đồng.
-- Mua, bán vàng có giá trị từ 20 triệu đồng trong ngày trở lên của một khách hàng phải được thực hiện thông qua tài khoản thanh toán của khách hàng và tài khoản thanh toán của doanh nghiệp kinh doanh vàng.
-- VietinBank cùng một số doanh nghiệp khác trên sàn chứng khoán mới nhận quyết định xử phạt hành chính do vi phạm thuế. Trong đó VietinBank phải nộp bổ sung hơn 87,4 tỉ đồng.
-- Tập đoàn THACO đã nghiên cứu, hoàn thiện hồ sơ đề xuất thực hiện dự án đầu tư xây dựng bến cảng Cái Mép Hạ.
-- Chiều 26-8 Ban Chỉ đạo Trung ương kỷ niệm các ngày lễ lớn và sự kiện lịch sử quan trọng của đất nước trong 3 năm (2023-2025) đã khai trương Trung tâm Báo chí Lễ kỷ niệm 80 năm Ngày Quốc khánh nước Cộng hòa xã hội chủ nghĩa Việt Nam.
-- Giám đốc Sở Nông nghiệp và Môi trường TP.HCM vừa ký quyết định phân công lĩnh vực quản lý cụ thể cho ban giám đốc sở này.
-- Bộ Nông nghiệp và Môi trường đề xuất kiểm định khí thải xe máy tham gia giao thông ở Hà Nội, TP.HCM từ ngày 1-7-2027.
-- Ngồi du thuyền ngắm pháo hoa, thưởng thức bánh dân gian, ăn trái cây tại vườn… là những hoạt động hấp dẫn khi du lịch đến Cần Thơ dịp lễ 2-9.
-- Nghề dệt vải thổ cẩm của người Chăm ở xã Châu Phong, tỉnh An Giang hiện 'đổi đời' và làm ra nhiều sản phẩm như túi xách, nón hay trang phục truyền thống, chinh phục du khách trong và ngoài nước.
-- Tại công trình cải tạo cảnh quan vỉa hè bờ sông dọc tuyến đường Thăng Long từ công viên châu Á đến giáp quận Cẩm Lệ (cũ), có cây xanh bật gốc.
-- PGS.TS Nguyễn Mạnh Hùng được Ban Bí thư bổ nhiệm giữ chức phó giám đốc Học viện Chính trị quốc gia Hồ Chí Minh, phó chủ tịch Hội đồng Lý luận Trung ương.
-- Một thanh niên ở Quảng Trị bị bắn tử vong, sau khi dừng xe hỏi chuyện nhóm người lạ đứng bên quốc lộ 9.
-- UBND tỉnh Vĩnh Long vừa quyết định công bố tình huống khẩn cấp sự cố sạt lở tuyến đê bao Bắc rạch Trà Cú chiều dài 100m, với mức độ sạt lở nguy hiểm.
-- Do ảnh hưởng của bão số 5, tại khu vực bắc Quảng Trị xuất hiện mưa lớn khiến nhiều cánh đồng lúa đang vào vụ thu hoạch bị ngập sâu, ngã rạp trong nước.
-- Niềm cảm hứng tự hào, xúc động trào dâng trong những ngày hướng tới kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9.
-- Các dự án liên danh quan tâm gồm: metro số 2 (Bến Thành - Tham Lương), đường sắt Thủ Thiêm - sân bay Long Thành, metro số 1 (TP mới Bình Dương - Suối Tiên)...
-- Lực lượng cảnh sát phòng cháy, chữa cháy và cứu nạn, cứu hộ đã đưa thi thể 2 công nhân nạo vét cống từ dưới cống lên, bàn giao cho lực lượng chức năng.
-- Đó là những đề xuất được các đơn vị, chuyên gia đưa ra tại hội nghị phản biện do Ủy ban Mặt trận Tổ quốc Việt Nam TP.HCM tổ chức sáng 26-8.
-- Trong số 31 chung cư cũ TP.HCM dự kiến cải tạo trong năm 2025, 12 dự án đã có quy hoạch 1/500, phần còn lại đang tháo gỡ vướng mắc.
-- Năm 2025, người cao tuổi (từ 60 tuổi trở lên) tại TP.HCM được thăm khám sức khỏe miễn phí nhằm 'đánh chặn' bệnh tật từ xa.
-- Tính đến 7h ngày 26-8, bão số 5 đã làm 3 người chết (Nghệ An 1 người, Hà Tĩnh 1 người, Ninh Bình 1 người).
-- Công an xã vùng cao Mường Chanh, tỉnh Thanh Hóa vượt mưa lũ, phối hợp cùng nhân viên y tế, người dân đưa sản phụ trú tại bản Lách đến bệnh viện sinh con.
-- Xin cảm ơn bức ảnh xuất thần của báo Tuổi Trẻ, làm tôi cứ nhìn ngẩn ngơ suốt một buổi chiều.
-- Hệ thống thoát nước quá tải là nguyên nhân dẫn tới loạt tuyến phố ở Hà Nội ngập sâu trong nước vào sáng 26-8.
-- Để cắt lũ cho vùng hạ du và đảm bảo an toàn hồ đập, nhiều hồ chứa thủy điện khu vực Bắc Trung Bộ đang xả nước sau cơn bão số 5 (bão Kajiki).
-- Trường đại học Y khoa Phạm Ngọc Thạch - cơ sở 2 nằm tại khu 'campus y tế' đầu tiên của Việt Nam đã chính thức đưa vào hoạt động.
-- Sáng 26-8, phường Dĩ An (TP.HCM) đã phối hợp với các đơn vị phát động chiến dịch phòng bệnh sốt xuất huyết và bệnh Chikungunya trên địa bàn.
+- Sáng 28-8, Ban Quản lý dự án 6 (Bộ Xây dựng) xác nhận tuyến cao tốc Vũng Áng - Bùng (từ Hà Tĩnh vào Quảng Trị) đã chính thức thông xe.
+- Tuổi Trẻ Online trân trọng giới thiệu bài viết của Ủy viên Bộ Chính trị, Thủ tướng Chính phủ Phạm Minh Chính nhân dịp 80 năm Cách mạng tháng Tám thành công và Quốc khánh 2-9.
+- Hôm nay, thời tiết mưa dông vẫn chiếm ưu thế, mưa có giảm so với nhưng ngày trước nhưng vẫn còn tại nhiều nơi với lượng mưa rào đến mưa to.
+- Trong buổi sơ duyệt tối nay 27-8, các lực lượng vũ trang cùng loạt khí tài 'siêu khủng' đã nhận được sự quan tâm của đông đảo người dân.
+- Sân bay Tuy Hòa dự kiến đến năm 2030 có công suất 3 triệu khách/năm, tầm nhìn đến năm 2050 có công suất 5 triệu khách/năm.
+- Do hoàn lưu bão số 5 kết hợp thủy điện xả lũ khiến nước sông Lèn dâng cao làm hàng trăm nhà dân ở xã Hà Trung, tỉnh Thanh Hóa ngập sâu trong nước lũ.
+- UBND TP.HCM kiện toàn ban biên tập xây dựng đề án kinh tế “2 con số” giai đoạn 2026-2030, ông Trương Minh Huy Vũ được giao giữ vai trò trưởng ban.
+- Buổi sơ duyệt cấp Nhà nước diễu binh, diễu hành mừng 80 năm Quốc khánh diễn ra tại Quảng trường Ba Đình tối nay 27-8.
+- Thủ tướng Phạm Minh Chính sẽ dự Hội nghị thượng đỉnh Tổ chức Hợp tác Thượng Hải (SCO) với tư cách khách mời, và làm việc tại Trung Quốc từ 31-8.
+- Năm học 2025-2026, Thông tư 29 về dạy thêm học thêm tiếp tục được triển khai và sẽ có sửa đổi để phù hợp tình hình thực tế.
+- Cựu chiến binh Nguyễn Văn Đại (81 tuổi) từ Nghệ An đi hơn 300km ra Hà Nội xem diễu binh 2-9, cảm ơn đất nước vì ở tuổi này vẫn được chứng kiến những sự kiện trọng đại của dân tộc.
+- Do ảnh hưởng của cơn bão số 5, mưa lớn kéo dài gây sạt lở đường khiến xã biên giới Tam Thanh, tỉnh Thanh Hóa giáp với nước bạn Lào đang bị cô lập.
+- Tuổi Trẻ Online trân trọng giới thiệu đến bạn đọc toàn văn Nghị quyết 71 của Bộ Chính trị về đột phá phát triển giáo dục và đào tạo.
+- Theo kế hoạch, thời gian thi công dự án khoảng 4 năm, mục tiêu đến năm 2029 hoàn thành, chạy thử và đưa vào khai thác thương mại từ 2030.
+- Sau 1 ngày cấm cầu Bình Triệu 1 để thi công nâng tĩnh không cầu, giao thông tương đối ổn định, không quá ùn tắc như dự báo trước đó.
+- Đồng Nai xem xét thay nhà thầu ở hai dự án cao tốc Biên Hòa - Vũng Tàu và vành đai 3 TP.HCM nếu tiến độ thi công vẫn chậm.
+- Đại diện Khu Quản lý đường bộ IV thuộc Cục Đường bộ Việt Nam cho biết đã tạm dừng sửa chữa mặt đường đèo Bảo Lộc, tỉnh Lâm Đồng.
+- UBND tỉnh Đồng Nai vừa có văn bản chấp thuận đề xuất của nhà đầu tư muốn làm dự án metro nối metro Bến Thành - Suối Tiên với phường Trấn Biên và sân bay Long Thành.
+- Tỉnh Quảng Ngãi thống nhất phương án cấp xe phù hợp với điều kiện địa hình: xã miền núi sẽ được nhận xe SUV 2 cầu hoặc bán tải, còn xã đồng bằng nhận xe 1 cầu.
+- Ban Thường vụ Tỉnh ủy An Giang cho ý kiến giải quyết nhanh vụ 57 người thuộc Báo và Phát thanh - Truyền hình An Giang xin cứu xét khi nghỉ theo chế độ 178 chưa thỏa đáng.
+- Bí thư Thành ủy TP.HCM Trần Lưu Quang đề nghị đặc khu Côn Đảo (TP.HCM) cần quan tâm đến tài chính xanh, tín chỉ carbon, taxi điện tại Côn Đảo.
+- Tổng Bí thư Tô Lâm đề nghị Bộ Nội vụ tiếp tục tham mưu cải cách chính sách tiền lương, chính sách bảo hiểm xã hội, để đây thực sự là chỗ dựa an toàn cho người lao động.
+- Các hạng mục trang trí trên cầu chữ Y, một cây cầu ngắm cảnh trên hồ Xuân Hương - Đà Lạt, đã bốc cháy do người dân đốt vàng mã cúng cô hồn.
+- Khoảng bốn con chim cổ rắn, loài chim thuộc danh mục nguy cấp, quý hiếm xuất hiện và kiếm ăn tại hồ Bán Nguyệt, thuộc khu đô thị Phú Mỹ Hưng (quận 7 cũ). Nhiều người thích thú đến chụp ảnh, ghi lại hình ảnh đẹp của loài chim này.
+- Chủ tịch UBND tỉnh Quảng Ngãi vừa ký quyết định cho nghỉ hưu trước tuổi đối với tám phó giám đốc sở và 1 phó chánh Văn phòng UBND tỉnh, thời điểm nghỉ từ 1-9-2025.
+- Chiều 27-8, Tổng Bí thư Tô Lâm đã đến dự lễ kỷ niệm 80 năm ngày thành lập và trao Huân chương Lao động hạng nhất tặng Bộ Nội vụ.
+- Theo một lãnh đạo Sở Y tế tỉnh Bắc Ninh, Bệnh viện Đa khoa Bắc Ninh số 1 đã tạm đình chỉ công tác đối với một điều dưỡng và hai nhân viên hợp đồng khác để xác minh phản ánh tài xế xe cấp cứu thu 21 triệu đồng cho quãng đường 200km.
+- Ông N.V.Đ. bị công an xử lý vì xếp ghế giữ 10 chỗ ngồi, với giá 20.000 đồng/ghế tại vỉa hè đường Nguyễn Thái Học để kiếm lời.
+- Trước giờ sơ duyệt cấp Nhà nước diễu binh, diễu hành mừng Quốc khánh, các chiến sĩ giao lưu, hát vang cùng người dân những bài ca yêu nước.
+- Người dân ở TP Huế bày tỏ sự bức xúc khi mộ của người thân họ bỗng dưng bị cắm cọc tiêu bằng gỗ lên trên một cách thô bạo, chưa có sự xin phép để phục vụ một dự án bảo tồn di tích.
+- Nghi phạm người nước ngoài đi xe máy không biển số, bịt kín mặt để cướp tiệm vàng trong đêm rồi tẩu thoát đã bị Công an Đà Nẵng nhanh chóng bắt giữ vào sáng hôm sau.
+- Theo lãnh đạo Cục Môi trường, nhãn sinh thái giúp doanh nghiệp chuyển đổi từ sản phẩm gây ô nhiễm sang sản phẩm xanh, đồng thời hỗ trợ người tiêu dùng tiếp cận hàng hóa thân thiện, bảo vệ sức khỏe.
+- Tổng cục Hậu cần - Kỹ thuật Bộ Quốc phòng vừa bàn giao 190 mô tô hai bánh cho 95 ban chỉ huy quân sự cấp xã ở Đồng Nai.
+- Dịp Quốc khánh 2-9, nhiều doanh nghiệp không chỉ bố trí cho công nhân nghỉ trọn 3-4 ngày liên tiếp mà còn có khoản tiền thưởng.
+- Clip hiệu trưởng trường tiểu học ở Thanh Hóa đi hát karaoke trong thời gian bão số 5 gây xôn xao dư luận.
+- Để người dân ở xa đến thủ đô có thêm một nơi ở che nắng, che mưa hay những cựu chiến binh có thêm bữa ăn ấm cúng, tiết kiệm chi phí, người dân tại Hà Nội đã cho khách ở miễn phí, nấu bữa cơm 0 đồng tri ân những cựu chiến binh.
+- Vừa đưa vào khánh thành được một tuần lễ, Bệnh viện Ung bướu Nghệ An bị gió bão số 5 (bão Kajiki) làm hư hỏng nhiều cơ sở vật chất.
+- Bố mất đúng những ngày cuối cùng tham gia tập luyện cho lễ diễu binh, diễu hành mừng Quốc khánh, một chiến sĩ tại Quảng Trị đã phải nén nỗi đau, tập luyện để hoàn thành nhiệm vụ, không ảnh hưởng đến đại lễ của đất nước.
+- Thay vì "canh bắt" như trước, chính quyền cơ sở ở Quảng Ngãi được yêu cầu chủ động nắm tình hình, xây dựng phương án đấu tranh ngay từ đầu để ngăn chặn triệt để nạn khai thác cát trái phép.
+- Các đơn vị đề xuất cấm xe tải trên 2,5 tấn và xe khách trên 16 chỗ đi vào làn hỗn hợp đường Đỗ Mười, Lê Đức Anh khung giờ cao điểm. Đây là giải pháp nhằm đảm bảo an toàn, giảm ùn tắc giao thông.
+- Đó là lời nhắn nhủ của PGS.TS Tăng Chí Thượng, giám đốc Sở Y tế TP.HCM, với 7 bác sĩ tham gia luân phiên công tác đến đặc khu Côn Đảo trong đợt đầu tiên.
+- Thành ủy TP.HCM yêu cầu không để xảy ra tình trạng lợi dụng chính sách khi giải quyết hoặc đề xuất cấp có thẩm quyền giải quyết chính sách, chế độ cho cán bộ, công chức, viên chức và người lao động.
+- Đôi vợ chồng trẻ ở Hà Tĩnh vay vốn hàng trăm triệu đồng để mở cửa hàng kinh doanh và làm nơi sinh sống. Thế nhưng bão số 5 càn quét đã cuốn tung mái nhà, toàn bộ tài sản đều hư hỏng, ước tính thiệt hại khoảng 1 tỉ đồng.
+- Chỉ sau một thời gian ngắn xảy ra vụ cướp tiệm vàng trong đêm ở Đà Nẵng, nghi phạm là người nước ngoài đã nhanh chóng bị bắt giữ.
+- Tổng Bí thư Tô Lâm nêu rõ Quốc hội phải đi trước một bước về thể chế; phải dám mở đường, dám sửa đường, dám quyết định những vấn đề khó, những việc mới, những lĩnh vực chưa từng có tiền lệ.
+- Dự báo ngày 27-8, khu vực Bắc Bộ vẫn có mưa vừa, mưa to và dông. Từ đêm nay, mưa lớn ở Bắc Bộ giảm dần.
+- Nghi phạm cướp tiệm vàng trong đêm 26-8 tại Đà Nẵng đã bị Công an Đà Nẵng bắt giữ.
+- 30 hài cốt liệt sĩ hy sinh tại sân bay Lộc Ninh và xã Phước Sơn được truy điệu, an táng tại nghĩa trang liệt sĩ tỉnh Đồng Nai.
+- Phương án tối ưu là biện pháp thi công chủ đạo bằng đường công vụ dọc tuyến, không gây ảnh hưởng đến quá trình khai thác tuyến cao tốc TP.HCM - Long Thành - Dầu Giây hiện hữu.
+- Chỉ trong quý 2-2025, lượng kiều hối về TP.HCM đã đạt 2,82 tỉ USD, tăng 17% so với quý trước. Đây là nguồn lực to lớn. TP.HCM sẽ tạo điều kiện thuận lợi cho kiều bào tham gia đầu tư, sản xuất, kinh doanh và đóng góp vào các lĩnh vực quan trọng khác.
 ![New](News.png)
 ## Nhịp sống số 
+- Diễn ra từ 26, 27-8, triển lãm và diễn đàn quy mô nhất nước chuyên ngành khách sạn, nhà hàng, cà phê, dịch vụ ăn uống HorecFex Việt Nam 2025, không chỉ là không gian gặp gỡ của doanh nghiệp mà còn là sân chơi để phô diễn những xu thế công nghệ mới.
 - Nhiều tin đồn xoay quanh iPhone 17, Apple Watch và AirPods rộ lên khi gần đến thời điểm ra mắt các sản phẩm mới của Apple.
 - Đơn kiện cáo buộc Apple và OpenAI 'thông đồng' để làm giảm sức cạnh tranh trong lĩnh vực trí tuệ nhân tạo (AI).
 - Nhiều người dùng tin rằng chatbot AI thông minh hơn khi trả lời bằng tiếng Anh. Nhưng liệu đây có phải là sự thật, hay chỉ là tin đồn nảy sinh từ thói quen sử dụng công nghệ?
@@ -154,5 +155,4 @@
 - Không chỉ rẻ, mô hình AI mới của Trung Quốc được cung cấp dưới dạng mã nguồn mở, cho phép các nhà phát triển tải xuống và dùng miễn phí.
 - Chuyên gia an ninh mạng cảnh báo làn sóng ứng dụng độc hại trên Android, đe dọa thông tin cá nhân và tài chính của người dùng.
 - Tội phạm mạng dùng mã QR trong chiêu lừa "quishing" để dụ người dùng truy cập web độc hại, đánh cắp thông tin cá nhân.
-- Các nghiên cứu mới cảnh báo ngành công nghiệp trí tuệ nhân tạo (AI): các mô hình AI không chỉ học điều con người dạy, mà còn có thể tự truyền cho nhau hành vi lệch chuẩn qua những 'tín hiệu ngầm' mà chính con người không biết.
 ![life](Life.png)
