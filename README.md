@@ -1,6 +1,15 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Mưa lũ kéo dài sau cơn bão số 5, hàng trăm mét khối đất đá đổ vào phòng học, sân, cổng trường tiểu học, mầm non ở bản Cha Lung, xã biên giới Tam Thanh, tỉnh Thanh Hóa.
+- Dù không được phê duyệt chỉ tiêu lớp 1, Trường tiểu học quốc tế Thăng Long vẫn tuyển sinh, khiến hơn 50 học sinh không có mã số học sinh, không có điểm số trên hệ thống dữ liệu ngành.
+- Sở Giáo dục và Đào tạo TP.HCM vừa công bố các khoản thu trong trường công lập năm học 2025-2026 với từng bậc học.
+- Phòng An ninh chính trị nội bộ Công an TP.HCM vừa xử phạt 4 người có hành vi thi thay tại kỳ thi đánh giá năng lực ngoại ngữ 6 bậc tiếng Anh.
+- Bộ Giáo dục và Đào tạo vừa công bố gia hạn thời gian mở hệ thống hỗ trợ tuyển sinh chung của bộ để thí sinh xác nhận nhập học.
+- Nguyễn Thị Minh Thùy mắc căn bệnh viêm não Nhật Bản với di chứng liệt gần nửa cơ thể tưởng chừng như không thể tiếp tục đi học.
+- Hiện trường chỉ có 22 em học sinh, trong khi số lượng giáo viên là 23 người.
+- Sáng 30-8, Trường đại học Kinh tế - Đại học Đà Nẵng tổ chức lễ kỷ niệm 50 năm xây dựng và phát triển (1975-2025),
+- Sau khi rà soát dữ liệu, Trường đại học Tài chính - Marketing phát hiện sai sót dẫn đến hàng chục thí sinh đậu thành rớt, rớt thành đậu.
 - Sau khi Trường đại học Thái Bình Dương quyết định tặng 100.000 đồng cho toàn thể sinh viên, có thêm hai trường đại học ở TP.HCM cũng lì xì.
 - Nhiều giáo viên ở phường Bình Kiến (tỉnh Đắk Lắk) phản ánh đến đường dây nóng Tuổi Trẻ Online về việc bị chậm lương suốt 2 tháng nay.
 - Hơn 1 năm qua, 79 giáo viên mầm non của hệ thống Trường Pathway Tuệ Đức đã được các chuyên gia âm nhạc đào tạo.
@@ -42,69 +51,62 @@
 - Do ảnh hưởng của bão số 5, mưa lớn kéo dài, ngày 26-8 tại bản Táo, xã vùng cao Trung Lý, tỉnh Thanh Hóa xuất hiện điểm sạt lở lớn từ trên đồi núi, kéo theo hàng trăm mét khối đất đá đổ xuống cạnh trường học.
 - Bộ Giáo dục và Đào tạo cho biết từ tối ngày 23-8 đến nay, mỗi ngày bộ phận phụ trách tuyển sinh của bộ nhận được và chuyển các trường xử lý khoảng 20 đến 30 phản ánh của thí sinh qua tất cả các kênh về những sai sót.
 - Dù phổ điểm thi tốt nghiệp THPT nhiều môn giảm, nhưng mùa xét tuyển đại học năm nay ghi nhận những câu chuyện điểm chuẩn vượt xa điểm thi, 'mưa' điểm tuyệt đối, khiến thí sinh đạt 30/30 điểm vẫn có thể trượt nguyện vọng.
-- Nhiều phụ huynh bày tỏ vui mừng khi Trường tiểu học Lý Tự Trọng (xã Ea Đrăng, tỉnh Đắk Lắk) thông báo dừng triển khai việc mặc ba kiểu đồng phục mỗi tuần.
-- Ở Hà Tĩnh, sau bão số 5, nhiều ngôi trường ngổn ngang đổ nát khiến thầy trò nơi đây lo lắng vì năm học mới đã sắp tới gần.
-- 'Lịch sử Việt Nam có nhiều khía cạnh rất đặc biệt, nhiều câu chuyện ít được biết đến nhưng chứa đựng những bài học lớn về tinh thần độc lập, sự kiên cường... và tôi muốn lan tỏa điều đó ra thế giới'.
-- Trường đại học Y khoa Phạm Ngọc Thạch - cơ sở 2 nằm tại khu 'campus y tế' đầu tiên của Việt Nam đã chính thức đưa vào hoạt động.
-- Trường đại học Ngân hàng TP.HCM vừa có thông báo mới về xét tuyển ngành luật và luật kinh tế theo hướng có lợi cho thí sinh.
-- Kỳ tuyển sinh đại học năm nay có quá nhiều sai sót khiến hàng loạt thí sinh từ đậu thành rớt.
-- Theo quy định, từ tháng 9, các trường đại học xét tuyển bổ sung. Tuy nhiên hiện nay nhiều trường đã nhận hồ sơ xét tuyển, thậm chí kết thúc trước 31-8.
-- Nhiều trường học tại Hà Nội đã thông báo cho học sinh ngừng đến trường, sinh viên chuyển sang học trực tuyến.
-- Những ngày đầu của nước Việt Nam độc lập 80 năm trước, giữa bộn bề khó khăn, Chủ tịch Hồ Chí Minh và Chính phủ đã nhìn ra đường dài cho dân tộc cần làm ngay: diệt giặc dốt.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Người bán đất 21 tỉ đồng khai chỉ 460 triệu đồng để trốn thuế đã bị tòa tuyên án. Vậy người mua đất trong vụ này bị xử lý ra sao?
+- Thêm 6 người dân đi làm keo tràm bị mắc kẹt bên kia sông Hiếu vừa được Công an Quảng Trị giải cứu an toàn.
+- Ga metro Bến Thành, ga metro Ba Son… cùng nhiều tuyến đường ở TP.HCM rực rỡ cờ Tổ quốc, hòa chung không khí cả nước chào mừng kỷ niệm 80 năm Quốc khánh 2-9.
+- Bộ Nội vụ đề xuất từ 1-12-2025 hai nhóm thanh niên xung phong được tăng mức trợ cấp từ 540.000 đồng/người/tháng lên thành 1 triệu đồng.
+- Chưa bao giờ chúng ta thấy nhiều doanh nghiệp tư nhân trong nước đưa ra các đề xuất táo bạo như hiện nay: làm sân bay, bến cảng, tàu điện ngầm...
+- Hôm nay 31-8, thời tiết cả nước duy trì mưa do ảnh hưởng của vùng thấp suy yếu từ áp thấp nhiệt đới.
+- Phần quà 100.000 đồng của Chính phủ tặng nhân dịp kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9 sẽ được Đà Nẵng chi trả từ chiều mai 31-8.
+- Gần vị trí chiếc xe hơi gặp nạn ở khu vực đỉnh Mẫu Sơn, Lạng Sơn, lực lượng chức năng phát hiện một thi thể đang phân hủy.
+- Đến 18h30 tối 30-8, xã Ba Lòng (Quảng Trị) đã phát xong tiền quà Quốc khánh 2-9 đến 5.184 người dân dù trời mưa lớn, đường bị chia cắt.
+- Hai công nhân vệ sinh môi trường Đà Lạt (tỉnh Lâm Đồng) bị hành hung phải nhập viện điều trị trong tình trạng chấn thương vùng đầu, mặt và ngực.
+- Sở Giáo dục và Đào tạo TP.HCM vừa công bố các khoản thu trong trường công lập năm học 2025-2026 với từng bậc học.
+- Sở Xây dựng Hà Nội sẽ phối hợp đơn vị tư vấn và đơn vị quản lý đường rà soát, sớm có đánh giá về mức độ ảnh hưởng tới kết cấu và độ an toàn của cầu Vĩnh Tuy sau vụ cháy.
+- Thay cảnh chen chúc quen thuộc, những ngày đầu lễ 2-9, sân bay bận rộn nhất cả nước Tân Sơn Nhất vận hành thông thoáng nhờ sự "chia lửa" của nhà ga T3 và loạt giải pháp công nghệ mới.
+- Trong chiến lược vươn lên trở thành trung tâm y tế hàng đầu khu vực, TP.HCM cần tập trung phát triển những chuyên khoa mũi nhọn để tạo dấu ấn riêng, thay vì dàn trải.
+- 5 người đi làm rừng tràm tại xã Hiếu Giang bị mắc kẹt gần 2 ngày do nước lũ dâng cao đã được lực lượng công an cứu nạn kịp thời.
+- Ngày đầu tiên của kỳ nghỉ lễ 2-9, các cửa ngõ TP.HCM đông đúc xe cộ.
+- Có khoảng 2.500 công nhân, kỹ sư đăng ký ở lại làm việc tại dự án cao tốc Cần Thơ - Cà Mau dịp lễ 2-9.
+- Theo Phó thủ tướng Hồ Đức Phớc, 2 dự án cầu Cát Lái, đường vành đai 4 TP.HCM là dự án giao thông liên kết vùng nên cần thiết đầu tư để thúc đẩy phát triển kinh tế - xã hội.
+- Theo giám đốc Ban Giao thông, sau khi nhánh cầu N2 và hầm chui HC2 thông xe, sẽ giải quyết được khoảng 80% tình trạng ùn tắc giao thông tại nút giao An Phú.
+- Cơ quan chức năng, đơn vị quản lý đã lên kịch bản phân luồng từ xa và xử lý sự cố trên tuyến để giảm kẹt xe.
+- Theo Trung tâm Dự báo khí tượng thủy văn quốc gia, lúc 16h hôm nay, bão Nongfa (bão số 6) đã đi vào đất liền khu vực bắc Quảng Trị - nam Hà Tĩnh và suy yếu thành áp thấp nhiệt đới.
+- Phúc đã trực tiếp liên hệ, đặt mua tổng cộng 21 tờ hóa đơn giá trị gia tăng khống, không kèm theo hàng hóa hay dịch vụ thực tế.
+- Nhiều dịch vụ, mặt hàng tự phát tăng gấp đôi, gấp ba khiến người dân 'chóng mặt' nhưng vẫn phải bấm bụng chi tiền.
+- Buổi tổng duyệt diễu binh, diễu hành kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9 tại quảng trường Ba Đình, Hà Nội sáng 30-8.
+- Nhân dịp kỷ niệm 80 năm Quốc khánh 2-9, chủ hộ sẽ nhận quà tặng 100.000 đồng của Chính phủ qua ứng dụng VNeID hoặc nhận trực tiếp.
+- Những đoàn quân hùng dũng, hiên ngang diễu binh, diễu hành hay những chiếc máy bay chiến đấu, xe tăng, xe pháo với màn trình diễn mãn nhãn.
+- Sáng 30-8, Trường đại học Kinh tế - Đại học Đà Nẵng tổ chức lễ kỷ niệm 50 năm xây dựng và phát triển (1975-2025),
+- Buổi tổng duyệt cấp nhà nước lễ diễu binh, diễu hành sáng 30-8 có hơn 40.000 người tham gia, trong đó có 4 khối quân đội nước ngoài.
+- Chủ tịch UBND TP.HCM vừa có quyết định phân công công tác chủ tịch, phó chủ tịch UBND TP.HCM và các ủy viên UBND TP.HCM nhiệm kỳ 2021-2026.
+- Phó bí thư Thành ủy TP.HCM Nguyễn Phước Lộc cùng đoàn công tác đã đến dâng hương, dâng hoa tri ân các anh hùng liệt sĩ.
+- Mưa to suốt đêm qua đến sáng nay 30-8, nhiều thôn bản vùng sâu ở Quảng Trị bị chia cắt cục bộ.
+- Quyết định tiếp nhận và giao ông Lê Hoài Trung làm quyền Bộ trưởng Bộ Ngoại giao được Thủ tướng Phạm Minh Chính trao sáng 30-8.
+- Để đảm bảo an toàn cho ngư dân và tàu thuyền trước cơn bão Nongfa (bão số 6), tỉnh Nghệ An đã cấm biển sáng 30-8.
+- Không phải tâm điểm tổ chức đại lễ mừng 80 năm Quốc khánh nhưng TP.HCM những ngày tháng Tám này vẫn rộn ràng, vẫn xốn xang.
+- Đà Nẵng công bố danh mục 1.160 thủ tục hành chính thực hiện không phụ thuộc vào địa giới hành chính.
+- Trưa nay bão Nongfa (bão số 6) ở trên vùng biển Hà Tĩnh đến Huế, cách khu vực phía bắc Quảng Trị khoảng 120km về phía Đông.
+- Nút giao An Phú (cửa ngõ phía đông TP.HCM) ngổn ngang rào chắn, trụ cầu dở dang và dòng xe ken đặc xung quanh.
+- Kiểm tra xe khách 24 chỗ, lực lượng cảnh sát giao thông Đồng Nai phát hiện trên xe chở đến 46 hành khách.
+- Nhìn lại chặng đường vừa qua, có thể thấy đất nước đã có sự thay đổi, phát triển rất mạnh mẽ.
+- Bí thư Thành ủy TP.HCM Trần Lưu Quang đến viếng và dâng hoa, dâng hương tưởng nhớ Chủ tịch Hồ Chí Minh, Chủ tịch Tôn Đức Thắng.
+- Sáng 30-8, người dân, du khách mãn nhãn trước màn biểu diễn của các trực thăng, tiêm kích mở đầu cuộc tổng duyệt diễu binh, diễu hành 2-9.
+- Sáng 30-8, ghi nhận tại đây ùn ứ nhẹ vào ngày đầu tiên nghỉ lễ 2-9, không khí khác hẳn so với những lúc kẹt xe căng thẳng.
+- Kho bạc Nhà nước cho biết đã bố trí cán bộ làm việc xuyên kỳ nghỉ lễ để tặng quà 2-9 cho người dân cả nước từ ngày 30-8 đến 2-9.
+- Nhiều phạm nhân có tên trong danh sách được đề nghị đặc xá dịp Quốc khánh 2-9 đang đếm từng ngày từng giờ chờ đợi tin vui.
+- Sáng 30-8 diễn ra chương trình tổng duyệt diễu binh, diễu hành kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9.
+- Sáng nay áp thấp nhiệt đới đã mạnh thành bão Nongfa di chuyển về hướng đất liền Hà Tĩnh đến Quảng Trị, dự báo hôm nay mưa to đến rất to.
 - Nhiều bạn đọc Tuổi Trẻ mong muốn TP.HCM có thể nghiên cứu khôi phục lại lộ trình tuyến xe buýt 150 phục vụ người dân đi lại.
 - Nhiều người dân TP.HCM phản ánh khi đến phường, xã hỏi về chính sách hỗ trợ cho phụ nữ sinh đủ 2 con trước 35 tuổi thì được trả lời 'chưa triển khai'.
 - Khoảng 3h30 sáng, dàn khí tài quân sự hiện đại gồm xe tăng, thiết giáp... tiến về quảng trường Ba Đình (Hà Nội), sẵn sàng tham gia buổi tổng duyệt diễu binh, diễu hành mừng 80 năm Quốc khánh.
 - Do ảnh hưởng áp thấp nhiệt đới mạnh thành bão nên thời tiết nước ta hôm nay mưa to đến rất to, đề phòng lũ, sạt lở nguy hiểm do mưa nhiều trong thời gian ngắn.
-- Quyết định chuyển nhượng 88 triệu cổ phiếu PDR của chủ tịch HĐQT Công ty cổ phần phát triển bất động sản Phát Đạt đang gây chú ý trên thị trường.
-- Sáng 30-8, thời tiết tại khu vực Quảng trường Ba Đình trời đã hửng nắng không còn mưa, khá thuận lợi cho buổi tổng duyệt.
-- Bộ Chính trị, Ban Bí thư đồng ý sẽ sửa đổi, ban hành các quy định mới về tiêu chuẩn chức danh cán bộ và đánh giá cán bộ.
-- Nhằm kịp thời tặng quà người dân nhân dịp Quốc khánh 2-9, Ngân hàng Nhà nước đề nghị các ngân hàng đảm bảo hệ thống thanh toán thông suốt.
-- Hiện nay nhiều loại bánh trung thu thủ công được quảng bá trên mạng với mẫu mã bắt mắt, giá thành rẻ nhưng tiềm ẩn nhiều nguy cơ về an toàn thực phẩm.
-- Hòa chung niềm vui lớn của cả dân tộc dịp Tết Độc lập, phường Xuân Hòa tưng bừng tổ chức chương trình văn nghệ đặc biệt rợp sắc cờ hoa.
-- Bộ Chính trị, Ban Bí thư yêu cầu Đảng ủy Chính phủ chỉ đạo Bộ Nội vụ khẩn trương ban hành quy định về tiêu chí và trình tự, thủ tục sắp xếp thôn, tổ dân phố.
-- Tối nay (29-8), vùng mây dông từ Bắc Ninh đang di chuyển về gây mưa dông cho thủ đô Hà Nội.
-- Chủ tịch nước Lương Cường sẽ tham dự lễ kỷ niệm 80 năm chiến thắng phát xít của nhân dân thế giới, và làm việc tại Trung Quốc từ ngày 2-9.
-- Bộ Chính trị đã quyết định bổ nhiệm ông Phạm Gia Túc giữ chức chánh Văn phòng Trung ương Đảng thay ông Lê Hoài Trung.
-- Thượng tướng Hoàng Xuân Chiến đã gặp mặt quân nhân của 4 đoàn quân đội Trung Quốc, Nga, Lào và Campuchia tham gia diễu binh Quốc khánh 2-9.
-- Buổi tổng duyệt cấp Nhà nước diễu binh, diễu hành kỷ niệm 80 năm Cách mạng tháng Tám và Quốc khánh 2-9 sẽ diễn ra tại quảng trường Ba Đình, Hà Nội.
-- Đoạn cao tốc Vũng Áng - Bùng đã thông báo tạm thời cấm xe tải trên 10 tấn lưu thông ngay sau khi thông xe đúng một ngày.
-- Dù còn ở xa bờ nhưng áp thấp nhiệt đới khiến gió tây nam hoạt động mạnh, mang ẩm từ biển vào gây mưa to cho TP.HCM đêm nay.
-- Người phụ nữ chở con trên quốc lộ 26 đoạn qua địa phận tỉnh Khánh Hòa thì xảy ra va chạm với xe tải chạy cùng chiều, 2 mẹ con tử vong tại chỗ.
-- Chiều 29-8, nhiều tuyến đường, phố huyết mạch, các tuyến đường hướng tâm và nội đô Hà Nội đã xảy ra tình trạng ùn tắc nghiêm trọng.
-- Công an tỉnh Lâm Đồng phát hiện nhiều cơ sở, trung tâm dạy lái xe đào tạo học viên thực hành lái trên đường theo kiểu đối phó, cho đủ chỉ tiêu.
-- Dự án nâng cấp, mở rộng đường Lê Khả Phiêu theo hình thức BOT có tổng mức đầu tư 16.270 tỉ đồng.
-- Từ khi nâng tĩnh không cầu Bình Triệu 1 (TP.HCM), giao thông khu vực thường xuyên ùn ứ giờ cao điểm. Cơ quan chức năng đã tăng cường phân luồng, thông báo từ xa để người dân đi lại thuận tiện hơn.
-- Nhiều bạn đọc thắc mắc: phụ nữ sinh con trong khoảng thời gian nào thì được hưởng chính sách hỗ trợ 5 triệu đồng?
-- Phòng kiểm tra chuyên ngành Sở Xây dựng TP.HCM vào cuộc phối hợp xử lý vi phạm đối với dãy nhà xây lụi, số lụi, nhà không số ở phường Thới An sau phản ánh của Tuổi Trẻ Online.
-- Chủ tịch Quốc hội ký ban hành nghị quyết của Ủy ban Thường vụ Quốc hội về chuyển sinh hoạt Đoàn đại biểu Quốc hội với ông Trần Lưu Quang.
-- Phát hiện một con chim công xuất hiện tại ban công căn hộ tầng 6 chung cư Minh Thành (TP.HCM), cư dân mau chóng thông báo cho bảo vệ.
-- Vietjet vừa chính thức mở bán vé Tết Nguyên đán 2026, trở thành hãng hàng không đầu tiên tung vé ra thị trường dịp cao điểm đoàn viên.
-- Công tác giải phóng mặt bằng để làm dự án đón APEC 2027 ở Phú Quốc còn gặp khó, địa phương có giải pháp gì?
-- Theo báo cáo tại hội thảo do Trường đại học Tài nguyên và Môi trường tổ chức ngày 29-8, tốc độ sụt lún của TP.HCM có thể lên đến 8cm mỗi năm.
-- Phó bí thư thường trực Tỉnh ủy Bắc Ninh Nguyễn Thị Hương nhấn mạnh tỉnh định hướng phát triển đồng bộ công nghiệp - nông nghiệp - dịch vụ - du lịch, hướng tới mục tiêu trở thành thành phố trực thuộc Trung ương trước năm 2030.
-- Tỉ lệ bác sĩ đăng ký về y tế cơ sở sau ngày hội việc làm do Sở Y tế TP.HCM tổ chức tăng từ 21% (năm 2024) lên 37% (năm 2025).
-- Cán bộ, công chức, viên chức, người lao động ở Hậu Giang, Sóc Trăng về Cần Thơ công tác sau hợp nhất chính thức được hỗ trợ 5 triệu đồng/tháng/người trong 2 năm.
-- Chủ tịch Quốc hội New Zealand Gerry Brownlee đã vào bếp, tự tay làm món thịt bò cuốn lá lốt tại một doanh nghiệp xã hội phi lợi nhuận Việt Nam.
-- ‘Ta đi trong muôn ánh sao vàng rực cờ tung bay…’ câu hát vừa cất lên là những tràng pháo tay không ngớt, những giọt nước mắt hạnh phúc lăn dài trên má khi sống lại từng chiến dịch trên hành trình ‘Độc lập - Tự do - Hạnh phúc’ của dân tộc.
-- Thứ trưởng Bộ Công an Lê Văn Tuyến nêu rõ nếu tính tổng cả hai đợt, năm 2025 là năm có số lượng phạm nhân được đặc xá lớn nhất từ trước đến nay.
-- Sau khi báo chí phản ánh, Tỉnh ủy An Giang đã chỉ đạo ban hành quyết định giải quyết cho 56 cán bộ của Báo và Phát thanh - Truyền hình tỉnh xin nghỉ theo chế độ 178, với tổng số tiền gần 53 tỉ đồng.
-- Nhiều doanh nghiệp đang chạy đua đào tạo và tuyển dụng nhân lực đường sắt tốc độ cao, đường sắt đô thị.
-- Ngày 29-8, Phòng Cảnh sát giao thông (PC08) Công an TP.HCM tổ chức cung cấp thông tin công tác đảm bảo trật tự an toàn giao thông dịp lễ 2-9.
-- Đó là tổng số tiền mà ngân sách trung ương bố trí để chi tặng quà cho người dân với mức 100.000 đồng/người nhân dịp Quốc khánh 2-9.
-- Chủ tịch nước quyết định đặc xá cho 13.915 phạm nhân đang chấp hành án phạt tù và 5 người đang được tạm đình chỉ chấp hành án phạt tù, có đủ điều kiện dịp 80 năm Quốc khánh.
-- Dự báo khoảng chiều đến tối 30-8, bão hoặc áp thấp nhiệt đới đổ bộ vào khu vực các tỉnh từ Nghệ An đến Huế. Từ đêm 29-8, miền Trung mưa lớn, sau đó mở rộng ra Bắc Bộ.
-- Thời gian qua, Tổng liên đoàn Lao động Việt Nam đã sắp xếp tinh gọn bộ máy, giảm đoàn phí, hoàn thiện AI phục vụ người lao động, hướng đến tăng ít nhất 800.000 đoàn viên mỗi năm.
-- Phó chủ tịch UBND tỉnh Khánh Hòa đề nghị các sở, ngành và lãnh đạo 2 xã Phước Dinh, Vĩnh Hải phải xác định việc di dân tái định cư, giải phóng mặt bằng để thực hiện 2 dự án nhà máy điện hạt nhân là nhiệm vụ cấp bách, chiến lược.
-- Ngày 29-8, tại Bảo tàng Lịch sử quân sự Việt Nam (Hà Nội), Bộ Quốc phòng tổ chức lễ gắn biển cụm tượng chuyên gia quân sự Liên Xô, Cuba và đặt đá tượng trưng cụm tượng chuyên gia quân sự Trung Quốc, chiến sĩ quốc tế Lào, Campuchia.
-- Bốn thi thể chưa rõ danh tính được phát hiện ở hồ thủy điện Hủa Na, tỉnh Nghệ An sau cơn bão Kajiki (bão số 5).
-- Tại hội nghị đối thoại với doanh nghiệp năm 2025, ông Hồ Văn Mười - chủ tịch UBND tỉnh Lâm Đồng - đề nghị các sở, ngành phải xem việc của doanh nghiệp như việc của chính mình.
-- Trưa 29-8, khoảng 120 cán bộ, chiến sĩ Quân Giải phóng nhân dân Trung Quốc (PLA) đến sân bay Nội Bài (Hà Nội) để chuẩn bị tham gia cuộc diễu binh kỷ niệm 80 năm Quốc khánh Việt Nam.
-- Kỳ nghỉ lễ Quốc khánh 2-9 năm nay kéo dài bốn ngày, dự báo người dân đi lại bằng đường bộ, đường hàng không, đường sắt và đường thủy tại TP.HCM đều tăng.
-- Nhiều phó giám đốc sở ở Cà Mau, trong đó có người nguyên là giám đốc, chánh thanh tra cấp tỉnh ở Bạc Liêu (cũ) xin nghỉ hưu trước tuổi và xin nghỉ việc theo nguyện vọng để hưởng chính sách, chế độ.
 ![New](News.png)
 ## Nhịp sống số 
+- Khu trưng bày ngành game, ngành điện ảnh và ngành thủ công mỹ nghệ trở thành tâm điểm thu hút giới trẻ ở Triển lãm thành tựu đất nước.
+- Microsoft vừa công bố hai mô hình AI đầu tiên do chính tập đoàn phát triển, trong đó có mô hình tạo 1 phút âm thanh chỉ trong 1 giây.
 - Việc TP Đà Nẵng thí điểm dự án chuyển đổi tài sản mã hóa đang thu hút nhiều quan tâm. Chủ tịch Tập đoàn Công nghệ Kogi, nguyên chủ tịch Hiệp hội Doanh nhân Việt Nam tại nước ngoài Peter Hồng (Nguyễn Hồng Huệ) nói "thế giới đã đánh hơi được".
 - Cơ quan Cảnh sát Quốc gia Nhật Bản mới đây xác nhận sẽ đưa ứng dụng trí tuệ nhân tạo (AI) vào việc phân tích thông tin nhằm truy bắt các đối tượng cầm đầu của nhóm tội phạm ẩn danh và lưu động xuyên quốc gia.
 - Một số video trên YouTube bỗng hiển thị khác với bản gốc, từ màu sắc đến độ nét đều được tự động thay đổi. Vì sao có chuyện này, và liệu người sáng tạo có thể kiểm soát?
@@ -153,6 +155,4 @@
 - Google đang định hình lại cách tìm kiếm thông tin bằng AI với 'Web Guide', một tính năng thử nghiệm giúp sắp xếp kết quả thành các chủ đề, mang lại trải nghiệm trực quan và hiệu quả hơn.
 - Mạng xã hội xuất hiện một đoạn âm thanh dài hơn 23 phút, được cho là của tỉ phú Elon Musk khen ngợi sự phát triển của Ấn Độ. Tuy nhiên kiểm chứng cho thấy đây là sản phẩm của AI.
 - Từ phòng nghiên cứu ở Mỹ đến dự án thử nghiệm của các công ty công nghệ, những chiếc tai nghe thông minh đang học cách nhận biết trầm cảm và lo âu thông qua cảm biến sinh học và trí tuệ nhân tạo.
-- Khi bạn bước vào siêu thị, AI đã biết bạn muốn gì. Với 'Store of Tomorrow', quá trình mua sắm gần như tự động hóa, cá nhân hóa, không cần tương tác trực tiếp.
-- Ngày 31-7, Tổng thống Nga Vladimir Putin đã ký ban hành một đạo luật mới, quy định xử phạt tài chính đối với người dùng Internet tìm kiếm các nội dung bị coi là 'tài liệu cực đoan'.
 ![life](Life.png)
