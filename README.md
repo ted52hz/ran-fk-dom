@@ -1,6 +1,12 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Khi đến làm thủ tục nhập học, tân sinh viên mới biết mình không được tự do lựa chọn ngành mà phải tham gia vào một quy trình phân bổ dựa trên nguyện vọng và điểm số của trường.
+- 100 học sinh của đoàn nhạc kèn học sinh Trường THCS Võ Thành Trang (TP.HCM) đã vượt 1.700km ra Hà Nội để thể hiện màn biểu diễn giàu cảm xúc tại khu vực Tượng đài vua Lý Thái Tổ (Hà Nội) nhân dịp Quốc khánh 2-9 trong sáng 31-8.
+- Mỗi mùa thu, Trường đại học Công nghệ TP.HCM (HUTECH) lại chào đón hàng nghìn tân sinh viên từ khắp mọi miền đất nước, mang theo những câu chuyện rất riêng - xúc động, truyền cảm hứng và đầy nghị lực.
+- Dưới đây là lời khuyên của bác sĩ dành cho các bậc phụ huynh để con cái mình có một năm học như mong muốn.
+- Sinh viên, học viên và nghiên cứu sinh có cơ hội vay vốn ưu đãi với lãi suất 4,8%/năm để trang trải học phí, sinh hoạt phí và chi phí học tập theo quy định mới của Chính phủ.
+- Hơn 1.800 học sinh Trường tiểu học, THCS và THPT Hoàng Việt (phường Buôn Ma Thuột, tỉnh Đắk Lắk) trong đồng phục, tay cầm cờ đỏ sao vàng đã tạo nên màn xếp hình bản đồ Việt Nam chào mừng Quốc khánh 2-9.
 - Mưa lũ kéo dài sau cơn bão số 5, hàng trăm mét khối đất đá đổ vào phòng học, sân, cổng trường tiểu học, mầm non ở bản Cha Lung, xã biên giới Tam Thanh, tỉnh Thanh Hóa.
 - Dù không được phê duyệt chỉ tiêu lớp 1, Trường tiểu học quốc tế Thăng Long vẫn tuyển sinh, khiến hơn 50 học sinh không có mã số học sinh, không có điểm số trên hệ thống dữ liệu ngành.
 - Sở Giáo dục và Đào tạo TP.HCM vừa công bố các khoản thu trong trường công lập năm học 2025-2026 với từng bậc học.
@@ -45,64 +51,58 @@
 - Năm học 2025-2026, Thông tư 29 về dạy thêm học thêm tiếp tục được triển khai và sẽ có sửa đổi để phù hợp tình hình thực tế.
 - Do ảnh hưởng của cơn bão số 5, mưa lớn kéo dài gây sạt lở đường khiến xã biên giới Tam Thanh, tỉnh Thanh Hóa giáp với nước bạn Lào đang bị cô lập.
 - Tuổi Trẻ Online trân trọng giới thiệu đến bạn đọc toàn văn Nghị quyết 71 của Bộ Chính trị về đột phá phát triển giáo dục và đào tạo.
-- Theo bác sĩ, có 4 nhóm bệnh thường gặp trong mùa tựu trường phụ huynh cần quan tâm.
-- Trong thời gian xác nhận nhập học đại học theo quy định của Bộ GD-ĐT, nhiều thí sinh quyết định không xác nhận để rẽ hướng theo học cao đẳng.
-- Những vấn đề trên là hệ lụy của hàng loạt đổi mới tuyển sinh mà Bộ GD-ĐT áp dụng trong mùa tuyển sinh năm nay.
-- Do ảnh hưởng của bão số 5, mưa lớn kéo dài, ngày 26-8 tại bản Táo, xã vùng cao Trung Lý, tỉnh Thanh Hóa xuất hiện điểm sạt lở lớn từ trên đồi núi, kéo theo hàng trăm mét khối đất đá đổ xuống cạnh trường học.
-- Bộ Giáo dục và Đào tạo cho biết từ tối ngày 23-8 đến nay, mỗi ngày bộ phận phụ trách tuyển sinh của bộ nhận được và chuyển các trường xử lý khoảng 20 đến 30 phản ánh của thí sinh qua tất cả các kênh về những sai sót.
-- Dù phổ điểm thi tốt nghiệp THPT nhiều môn giảm, nhưng mùa xét tuyển đại học năm nay ghi nhận những câu chuyện điểm chuẩn vượt xa điểm thi, 'mưa' điểm tuyệt đối, khiến thí sinh đạt 30/30 điểm vẫn có thể trượt nguyện vọng.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Đoàn lãnh đạo, nguyên lãnh đạo Đảng, Nhà nước đã đặt vòng hoa, vào Lăng viếng Chủ tịch Hồ Chí Minh và dâng hương, tưởng niệm các Anh hùng liệt sĩ nhân dịp 80 năm Quốc khánh.
+- Ngày 31-8, chủ tịch UBND tỉnh Thanh Hóa ban hành quyết định số 2952 công bố tình huống khẩn cấp về thiên tai trên địa bàn hai xã Yên Nhân, Bát Mọt để khắc phục hậu quả do bão số 5 và mưa lũ sau bão gây ra.
+- Liên quan vụ 5 du khách tắm biển ở khu phố 7 Dương Đông (Phú Quốc, An Giang), hiện có 1 nạn nhân nguy kịch, công an đang xác minh danh tính các nạn nhân.
+- Đất nước bước vào mùa thu đặc biệt, mùa thu của 80 năm Dân chủ cộng hòa. Trong gia đình tôi, ngày 2-9-1945 được gọi là Ngày Độc Lập. Vì đó là ngày cha mẹ chú bác tôi lên đường đi theo "tiếng kêu sơn hà nguy biến" giành nền độc lập cho Tổ quốc.
+- Trong những nấc thang phát triển của mỗi quốc gia, để vươn lên trở thành quốc gia có thu nhập cao như mục tiêu chúng ta đặt ra vào năm 2045, không thể nói đến chặng đường chông gai nhất, đó là vượt qua được "bẫy thu nhập trung bình".
+- Người lao động đi làm dịp Quốc khánh 2-9 sẽ được tính tiền lương cao hơn ngày bình thường, tối đa lên đến 400%.
+- Hôm nay 1-9, thời tiết cả nước có sự chuyển biến rõ khi Bắc Bộ giảm hẳn mưa, trời có nắng. Nam Bộ mưa dông từ trưa về chiều tối.
+- Thủ tướng Phạm Minh Chính khẳng định thông điệp trên khi hội kiến Tổng Bí thư, Chủ tịch nước Trung Quốc Tập Cận Bình ngày 31-8 tại Thiên Tân.
+- Xã Xuân Hòa, tỉnh Đồng Nai hoàn thành việc chuyển quà Quốc khánh của Thủ tướng cho người dân qua ứng dụng VNeID.
+- Bất ngờ gặp Bí thư thứ nhất, Chủ tịch nước Cuba, nhiều người dân Việt Nam hô vang "Viva Cuba! Viva Việt Nam" tại Bảo tàng Lịch sử quân sự chiều 31-8.
+- Bé trai chào đời vào lúc 17h40 chiều 31-8 thì chỉ khoảng 1 tiếng sau đã được lãnh đạo xã đích thân tặng quà Quốc khánh. Cảm động trước tình cảm và sự tận tâm này, bố mẹ cháu quyết định đặt tên con là Quốc Khánh.
+- Ngay trong đêm, nhiều người dân tại TP.HCM bất ngờ khi nhận được thông báo và những người đầu tiên đã nhận được 100.000 đồng quà Quốc khánh 2-9.
+- Kho bạc Nhà nước cho biết tính đến đầu giờ chiều 31-8 có 1.929 xã đã tiếp nhận kinh phí, và tổ chức trao quà tặng Tết Độc lập cho người dân.
+- Ngày 31-8, Phòng Cảnh sát giao thông Công an TP.HCM có hướng dẫn lộ trình thay thế để người dân sau kỳ nghỉ lễ 2-9 quay lại TP.HCM tránh kẹt xe.
+- Nhiều địa phương tổ chức cho người dân đi nhận tiền mừng 100.000 đồng nhân dịp Quốc khánh 2-9, trong đó một số nơi như Nha Trang có số lượng người dân đến nhận rất đông, chính quyền đã nỗ lực để dân nhận tiền nhanh, thuận lợi.
+- Lễ 2-9 kéo dài 4 ngày liên tiếp, du khách đến An Giang sẽ thuận tiện để tự túc khám phá cảnh núi rừng, biển đảo, đặc biệt chụp ảnh bên cánh đồng thốt nốt xanh mướt bạt ngàn và nhiều hang động độc nhất vô nhị ở miền Tây.
+- Sau cơn bão Kajiki (bão số 5), hàng ngàn cây xanh cùng nhiều hạng mục ở Khu di tích quốc gia đặc biệt Kim Liên, Nghệ An bị ảnh hưởng.
+- Ban Quản lý dự án đầu tư xây dựng các công trình giao thông TP.HCM kiến nghị UBND TP.HCM sớm bổ sung một phó giám đốc để trực tiếp phụ trách dự án nút giao An Phú.
+- Nhà Quốc hội (số 1 đường Độc Lập) mở cửa cho nhân dân vào tham quan, chụp ảnh, giải quyết nhu cầu cá nhân và trú mưa từ 28-8 đến hết 2-9.
+- Trong loạt 6 dự án trọng điểm tại Đà Nẵng khởi công chào mừng kỷ niệm 80 năm ngày Quốc khánh có siêu dự án Da Nang Downtown với quy mô đầu tư đến gần 80.000 tỉ đồng và tòa tháp cao thứ 2 tại Việt Nam chỉ sau Landmark.
+- Công trình giếng khoan mà Bí thư Thành ủy TP.HCM Trần Lưu Quang tặng, đưa vào sử dụng đã xóa cảnh thiếu nước sinh hoạt dai dẳng cho cán bộ trạm quản lý bảo vệ rừng Ya Krei - Vườn quốc gia Chư Mom Ray, Quảng Ngãi.
+- Ngày thứ hai của dịp lễ 2-9, lượng xe trên cao tốc  Vĩnh Hảo - Phan Thiết, Phan Thiết - Dầu Giây đã tạm ổn định. Tuy nhiên, VECE cảnh báo vào ngày cuối khi người dân đồng loạt trở về TP.HCM, nguy cơ ùn ứ sẽ tăng cao.
+- Sáng 31-8, hàng trăm ngàn người đã đổ về Trung tâm Hội trợ triển lãm quốc gia, xã Đông Anh, Hà Nội, để tham quan triển lãm thành tựu đất nước 80 năm.
+- Thời gian tổ chức cấm triệt để, tạm cấm, hạn chế phương tiện lưu thông trên một số đường, bắt đầu từ 22h ngày 1-9 đến 13h ngày 2-9.
+- Tổng Bí thư Tô Lâm đã trao danh hiệu Anh hùng lực lượng vũ trang nhân dân cho gia đình cố Thượng tướng Bùi Thiện Ngộ, nguyên Bộ trưởng Bộ Nội vụ, nay là Bộ Công an.
+- Nhóm tình nguyện viên tại Quảng Trị gắn gần 2.000 nhành phong lan rừng Trường Sơn lên cây xanh tại Nghĩa trang liệt sĩ quốc gia Đường 9 và Trường Sơn như một lời tri ân anh hùng liệt sĩ.
+- Trong quá trình xử lý vụ nổ xảy ra tại căn nhà cho thuê tại xã Gia Hiệp (tỉnh Lâm Đồng), cơ quan chức năng phát hiện nhiều xác pháo.
+- Toàn dân được tặng 100.000 đồng ăn Tết Độc lập; Thẩm phán nói không với 'quà cảm ơn' 100 triệu đồng... là những thông tin thu hút sự quan tâm tuần qua.
+- Dưới đây là lời khuyên của bác sĩ dành cho các bậc phụ huynh để con cái mình có một năm học như mong muốn.
+- Từ hôm nay tới hết lễ 2-9, thời tiết TP.HCM và các tỉnh Nam Bộ mưa diện rộng, mưa xảy ra từ trưa đến chiều tối, các hoạt động lễ hội cần chú ý.
+- Hàng nghìn xe cộ ùn ứ trên tuyến đường Trường Sa, cầu Đông Trù - hướng về Trung tâm Hội chợ triển lãm quốc gia ở Đông Anh (Hà Nội), sáng 31-8.
+- Nếu chưa kịp nhận quà 100.000 đồng trước 2-9, người dân có lý do khách quan vẫn có thể được nhận nhưng phải tuân thủ quy trình, xuất trình các giấy tờ hợp lệ và không muộn hơn ngày 15-9.
+- Tổng Bí thư Tô Lâm đã đến dâng hương tưởng niệm Chủ tịch Hồ Chí Minh tại Di tích nhà số 48 phố Hàng Ngang (phường Hoàn Kiếm, Hà Nội) nhân dịp kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9 vào sáng 31-8.
+- Bí thư thứ nhất, Chủ tịch nước Cuba Miguel Díaz-Canel Bermúdez cùng Phu nhân tới Hà Nội sáng 31-8, bắt đầu chuyến thăm cấp nhà nước và dự lễ kỷ niệm 80 năm Quốc khánh Việt Nam.
+- Sáng 31-8, quân nhân ba nước Nga, Lào, Campuchia sang tham gia diễu binh, diễu hành dịp 80 năm Quốc khánh 2-9, đã vào lăng viếng Chủ tịch Hồ Chí Minh và tham quan triển lãm thành tựu 80 năm tại Trung tâm Hội trợ triển lãm quốc gia.
+- Sáng 31-8, hàng ngàn người dân và du khách đã đổ về hai bên bờ sông Hàn (TP Đà Nẵng) để xem Giải đua thuyền truyền thống TP Đà Nẵng mở rộng năm 2025 chào mừng 80 năm Quốc khánh 2-9.
+- Tuần này tuy mưa dông đã giảm so với cao điểm mưa bão tuần cuối tháng 8, nhưng thời tiết mưa vẫn chiếm ưu thế.
+- Sáng nay 31-8, cơ quan chức năng đã tìm thấy thi thể người đàn ông đi xe máy rơi xuống kênh thủy lợi ở xã Tây Hòa, Đắk Lắk từ tối qua.
+- Ông Lương Minh Phúc, giám đốc Ban Quản lý dự án đầu tư xây dựng các công trình giao thông TP.HCM cho biết sẽ xử lý những nhà thầu chậm trễ dự án nút giao An Phú, và tổ chức làm “3 ca, 4 kíp” để kịp tiến độ.
+- Cơ quan chức năng tỉnh Gia Lai và chính quyền 135 xã, phường tỉnh này xác định làm việc xuyên lễ, không có ngày nghỉ để chi sớm nhất quà tặng 100.000 đồng/người của Chính phủ cho nhân dân dịp Quốc khánh 2-9.
+- Phòng Cảnh sát quản lý hành chính về trật tự xã hội (PC06) Công an TP.HCM thông tin người dân có thể đến trực tiếp UBND cấp xã (theo địa điểm UBND cấp xã thông báo) để nhận 100.000 đồng quà Quốc khánh 2-9.
+- Nhiều chính sách mới có hiệu lực, nổi bật là các chính sách liên quan đến ưu đãi đối với dự án công nghiệp; dạy ngoại ngữ trong trường học...
+- Một phụ nữ bị thương nặng do tai nạn trên đường đã được nhóm cán bộ Công an tỉnh Đắk Lắk đi công tác thiện nguyện về kịp thời sơ cứu, dùng xe đơn vị đưa đến trung tâm y tế.
 - Người bán đất 21 tỉ đồng khai chỉ 460 triệu đồng để trốn thuế đã bị tòa tuyên án. Vậy người mua đất trong vụ này bị xử lý ra sao?
-- Thêm 6 người dân đi làm keo tràm bị mắc kẹt bên kia sông Hiếu vừa được Công an Quảng Trị giải cứu an toàn.
+- Thêm 6 người dân đi làm keo tràm bị mắc kẹt bên kia sông Hiếu vừa được Công an tỉnh Quảng Trị giải cứu an toàn.
 - Ga metro Bến Thành, ga metro Ba Son… cùng nhiều tuyến đường ở TP.HCM rực rỡ cờ Tổ quốc, hòa chung không khí cả nước chào mừng kỷ niệm 80 năm Quốc khánh 2-9.
 - Bộ Nội vụ đề xuất từ 1-12-2025 hai nhóm thanh niên xung phong được tăng mức trợ cấp từ 540.000 đồng/người/tháng lên thành 1 triệu đồng.
 - Chưa bao giờ chúng ta thấy nhiều doanh nghiệp tư nhân trong nước đưa ra các đề xuất táo bạo như hiện nay: làm sân bay, bến cảng, tàu điện ngầm...
 - Hôm nay 31-8, thời tiết cả nước duy trì mưa do ảnh hưởng của vùng thấp suy yếu từ áp thấp nhiệt đới.
 - Phần quà 100.000 đồng của Chính phủ tặng nhân dịp kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9 sẽ được Đà Nẵng chi trả từ chiều mai 31-8.
-- Gần vị trí chiếc xe hơi gặp nạn ở khu vực đỉnh Mẫu Sơn, Lạng Sơn, lực lượng chức năng phát hiện một thi thể đang phân hủy.
-- Đến 18h30 tối 30-8, xã Ba Lòng (Quảng Trị) đã phát xong tiền quà Quốc khánh 2-9 đến 5.184 người dân dù trời mưa lớn, đường bị chia cắt.
-- Hai công nhân vệ sinh môi trường Đà Lạt (tỉnh Lâm Đồng) bị hành hung phải nhập viện điều trị trong tình trạng chấn thương vùng đầu, mặt và ngực.
-- Sở Giáo dục và Đào tạo TP.HCM vừa công bố các khoản thu trong trường công lập năm học 2025-2026 với từng bậc học.
-- Sở Xây dựng Hà Nội sẽ phối hợp đơn vị tư vấn và đơn vị quản lý đường rà soát, sớm có đánh giá về mức độ ảnh hưởng tới kết cấu và độ an toàn của cầu Vĩnh Tuy sau vụ cháy.
-- Thay cảnh chen chúc quen thuộc, những ngày đầu lễ 2-9, sân bay bận rộn nhất cả nước Tân Sơn Nhất vận hành thông thoáng nhờ sự "chia lửa" của nhà ga T3 và loạt giải pháp công nghệ mới.
-- Trong chiến lược vươn lên trở thành trung tâm y tế hàng đầu khu vực, TP.HCM cần tập trung phát triển những chuyên khoa mũi nhọn để tạo dấu ấn riêng, thay vì dàn trải.
-- 5 người đi làm rừng tràm tại xã Hiếu Giang bị mắc kẹt gần 2 ngày do nước lũ dâng cao đã được lực lượng công an cứu nạn kịp thời.
-- Ngày đầu tiên của kỳ nghỉ lễ 2-9, các cửa ngõ TP.HCM đông đúc xe cộ.
-- Có khoảng 2.500 công nhân, kỹ sư đăng ký ở lại làm việc tại dự án cao tốc Cần Thơ - Cà Mau dịp lễ 2-9.
-- Theo Phó thủ tướng Hồ Đức Phớc, 2 dự án cầu Cát Lái, đường vành đai 4 TP.HCM là dự án giao thông liên kết vùng nên cần thiết đầu tư để thúc đẩy phát triển kinh tế - xã hội.
-- Theo giám đốc Ban Giao thông, sau khi nhánh cầu N2 và hầm chui HC2 thông xe, sẽ giải quyết được khoảng 80% tình trạng ùn tắc giao thông tại nút giao An Phú.
-- Cơ quan chức năng, đơn vị quản lý đã lên kịch bản phân luồng từ xa và xử lý sự cố trên tuyến để giảm kẹt xe.
-- Theo Trung tâm Dự báo khí tượng thủy văn quốc gia, lúc 16h hôm nay, bão Nongfa (bão số 6) đã đi vào đất liền khu vực bắc Quảng Trị - nam Hà Tĩnh và suy yếu thành áp thấp nhiệt đới.
-- Phúc đã trực tiếp liên hệ, đặt mua tổng cộng 21 tờ hóa đơn giá trị gia tăng khống, không kèm theo hàng hóa hay dịch vụ thực tế.
-- Nhiều dịch vụ, mặt hàng tự phát tăng gấp đôi, gấp ba khiến người dân 'chóng mặt' nhưng vẫn phải bấm bụng chi tiền.
-- Buổi tổng duyệt diễu binh, diễu hành kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9 tại quảng trường Ba Đình, Hà Nội sáng 30-8.
-- Nhân dịp kỷ niệm 80 năm Quốc khánh 2-9, chủ hộ sẽ nhận quà tặng 100.000 đồng của Chính phủ qua ứng dụng VNeID hoặc nhận trực tiếp.
-- Những đoàn quân hùng dũng, hiên ngang diễu binh, diễu hành hay những chiếc máy bay chiến đấu, xe tăng, xe pháo với màn trình diễn mãn nhãn.
-- Sáng 30-8, Trường đại học Kinh tế - Đại học Đà Nẵng tổ chức lễ kỷ niệm 50 năm xây dựng và phát triển (1975-2025),
-- Buổi tổng duyệt cấp nhà nước lễ diễu binh, diễu hành sáng 30-8 có hơn 40.000 người tham gia, trong đó có 4 khối quân đội nước ngoài.
-- Chủ tịch UBND TP.HCM vừa có quyết định phân công công tác chủ tịch, phó chủ tịch UBND TP.HCM và các ủy viên UBND TP.HCM nhiệm kỳ 2021-2026.
-- Phó bí thư Thành ủy TP.HCM Nguyễn Phước Lộc cùng đoàn công tác đã đến dâng hương, dâng hoa tri ân các anh hùng liệt sĩ.
-- Mưa to suốt đêm qua đến sáng nay 30-8, nhiều thôn bản vùng sâu ở Quảng Trị bị chia cắt cục bộ.
-- Quyết định tiếp nhận và giao ông Lê Hoài Trung làm quyền Bộ trưởng Bộ Ngoại giao được Thủ tướng Phạm Minh Chính trao sáng 30-8.
-- Để đảm bảo an toàn cho ngư dân và tàu thuyền trước cơn bão Nongfa (bão số 6), tỉnh Nghệ An đã cấm biển sáng 30-8.
-- Không phải tâm điểm tổ chức đại lễ mừng 80 năm Quốc khánh nhưng TP.HCM những ngày tháng Tám này vẫn rộn ràng, vẫn xốn xang.
-- Đà Nẵng công bố danh mục 1.160 thủ tục hành chính thực hiện không phụ thuộc vào địa giới hành chính.
-- Trưa nay bão Nongfa (bão số 6) ở trên vùng biển Hà Tĩnh đến Huế, cách khu vực phía bắc Quảng Trị khoảng 120km về phía Đông.
-- Nút giao An Phú (cửa ngõ phía đông TP.HCM) ngổn ngang rào chắn, trụ cầu dở dang và dòng xe ken đặc xung quanh.
-- Kiểm tra xe khách 24 chỗ, lực lượng cảnh sát giao thông Đồng Nai phát hiện trên xe chở đến 46 hành khách.
-- Nhìn lại chặng đường vừa qua, có thể thấy đất nước đã có sự thay đổi, phát triển rất mạnh mẽ.
-- Bí thư Thành ủy TP.HCM Trần Lưu Quang đến viếng và dâng hoa, dâng hương tưởng nhớ Chủ tịch Hồ Chí Minh, Chủ tịch Tôn Đức Thắng.
-- Sáng 30-8, người dân, du khách mãn nhãn trước màn biểu diễn của các trực thăng, tiêm kích mở đầu cuộc tổng duyệt diễu binh, diễu hành 2-9.
-- Sáng 30-8, ghi nhận tại đây ùn ứ nhẹ vào ngày đầu tiên nghỉ lễ 2-9, không khí khác hẳn so với những lúc kẹt xe căng thẳng.
-- Kho bạc Nhà nước cho biết đã bố trí cán bộ làm việc xuyên kỳ nghỉ lễ để tặng quà 2-9 cho người dân cả nước từ ngày 30-8 đến 2-9.
-- Nhiều phạm nhân có tên trong danh sách được đề nghị đặc xá dịp Quốc khánh 2-9 đang đếm từng ngày từng giờ chờ đợi tin vui.
-- Sáng 30-8 diễn ra chương trình tổng duyệt diễu binh, diễu hành kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9.
-- Sáng nay áp thấp nhiệt đới đã mạnh thành bão Nongfa di chuyển về hướng đất liền Hà Tĩnh đến Quảng Trị, dự báo hôm nay mưa to đến rất to.
-- Nhiều bạn đọc Tuổi Trẻ mong muốn TP.HCM có thể nghiên cứu khôi phục lại lộ trình tuyến xe buýt 150 phục vụ người dân đi lại.
-- Nhiều người dân TP.HCM phản ánh khi đến phường, xã hỏi về chính sách hỗ trợ cho phụ nữ sinh đủ 2 con trước 35 tuổi thì được trả lời 'chưa triển khai'.
-- Khoảng 3h30 sáng, dàn khí tài quân sự hiện đại gồm xe tăng, thiết giáp... tiến về quảng trường Ba Đình (Hà Nội), sẵn sàng tham gia buổi tổng duyệt diễu binh, diễu hành mừng 80 năm Quốc khánh.
-- Do ảnh hưởng áp thấp nhiệt đới mạnh thành bão nên thời tiết nước ta hôm nay mưa to đến rất to, đề phòng lũ, sạt lở nguy hiểm do mưa nhiều trong thời gian ngắn.
 ![New](News.png)
 ## Nhịp sống số 
 - Khu trưng bày ngành game, ngành điện ảnh và ngành thủ công mỹ nghệ trở thành tâm điểm thu hút giới trẻ ở Triển lãm thành tựu đất nước.
