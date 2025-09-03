@@ -1,6 +1,8 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Hơn ba năm sau khi xung đột Nga - Ukraine bùng nổ, các bậc phụ huynh tại Kharkov đã đưa con em mình tới những ngôi trường đặc biệt nằm dưới lòng đất để bắt đầu năm học mới.
+- 15m², 11 năm, hàng trăm đứa trẻ cơ nhỡ có con chữ đã gặp nhau ở một lớp học, với tình yêu thương của những người thầm lặng.
 - Nhiều ý kiến cho rằng việc Trường đại học Quốc tế (Đại học Quốc gia TP.HCM) phân bổ theo nhóm ngành sau khi trúng tuyển dẫn đến tình trạng thí sinh trúng tuyển nhưng không biết chắc mình sẽ học ngành nào là không thể chấp nhận.
 - Hình ảnh Việt Nam giai đoạn 1930-1940 hiện lên sống động và chân thực thông qua những bức ảnh của Sofia Yablonska. Những bức ảnh ấy đã được ông Roby Bellemans (người Hà Lan) sưu tầm, trưng bày, giới thiệu đến trẻ em đang sinh sống ở TP Đà Nẵng.
 - Khi đến làm thủ tục nhập học, tân sinh viên mới biết mình không được tự do lựa chọn ngành mà phải tham gia vào một quy trình phân bổ dựa trên nguyện vọng và điểm số của trường.
@@ -49,10 +51,38 @@
 - Nguyễn Nguyễn Thái Bảo giờ là tiến sĩ, phó giám đốc Trung tâm Chấn thương chỉnh hình - Phẫu thuật tạo hình Bệnh viện Trung ương Huế.
 - Bộ Chính trị vừa ban hành nghị quyết 71 về đột phá phát triển giáo dục và đào tạo.
 - Đại học Bách khoa Hà Nội dành 1.200 chỗ ở miễn phí tại ký túc xá cho người dân từ các tỉnh thành xa về Hà Nội tham dự lễ diễu binh, diễu hành.
-- Nhiều phụ huynh bày tỏ lo ngại về những ảnh hưởng khó lường của công cụ trí tuệ nhân tạo với con em mình.
-- Năm học 2025-2026, Thông tư 29 về dạy thêm học thêm tiếp tục được triển khai và sẽ có sửa đổi để phù hợp tình hình thực tế.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Một số tin tức đáng chú ý: Hai ái nữ sếp VPBank chi xong nghìn tỉ mua cổ phiếu; Hải Phát lùi ngày đáo hạn lô trái phiếu 500 tỉ đồng; TP.HCM kiến nghị thuận chủ trương giải ngân dự án thành phần vành đai 3, 4...
+- Hôm nay 3-9, thời tiết Bắc Bộ nắng sau nhiều ngày mưa dông. Nam Bộ mưa rào, chiều tối có nơi mưa to đến rất to.
+- Trong thư khen gửi công an các đơn vị, địa phương, Bộ trưởng Lương Tam Quang biểu dương tinh thần, nỗ lực bảo đảm tuyệt đối an ninh, an toàn chuỗi sự kiện kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9.
+- Tối 2-9, hàng ngàn người dân đổ về trung tâm thành phố Hà Nội để ngắm pháo hoa tầm cao kết hợp tầm thấp sáng rực bầu trời nhân kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9.
+- Bộ Xây dựng vừa yêu cầu kiểm định, đánh giá chất lượng và khả năng khai thác công trình cầu Vĩnh Tuy sau vụ cháy bãi gửi xe dưới gầm cầu làm bong vỡ bê tông, lộ cốt thép cầu.
+- Dự báo trong tháng 9, có thể có 2-3 cơn bão hoặc áp thấp nhiệt đới hoạt động trên Biển Đông và không loại trừ có xoáy thuận nhiệt đới ảnh hưởng đến đất liền nước ta.
+- Xe cộ dồn dập về TP.HCM chiều cuối ngày 2-9, cao tốc ùn ứ một vài lúc. Trong khi đó, đường dẫn cao tốc và một số điểm cửa ngõ vào TP không bị kẹt xe kéo dài như mọi năm.
+- Chiều 2-9, Phó thủ tướng Mai Văn Chính đã đón Tổng Bí thư, Chủ tịch nước Cộng hòa dân chủ nhân dân Lào Thongloun Sisoulith và Chủ tịch Đảng Nhân dân Campuchia, Chủ tịch Thượng viện Hun Sen thăm Trung tâm Triển lãm quốc gia.
+- Chiều 2-9, dòng xe từ các tỉnh miền Trung hướng về TP.HCM trên cao tốc Phan Thiết - Dầu Giây tiếp tục tăng đột biến, sau kỳ nghỉ lễ dài ngày.
+- Chiều 2-9, Chủ tịch nước Lương Cường dẫn đầu đoàn đại biểu cấp cao Việt Nam rời Hà Nội, để dự lễ kỷ niệm 80 năm chiến thắng phát xít và làm việc tại Trung Quốc.
+- Chiều 2-9, các lực lượng thuộc Công an tỉnh Đồng Nai đã tham gia khắc phục xong vụ sạt lở trên quốc lộ 14C. Trước đó, sự cố sạt lở đã gây ùn tắc giao thông trong nhiều giờ.
+- Không còn cảnh chen chúc, mỏi mòn chờ taxi như những dịp cao điểm trước, lễ 2-9 năm nay hành khách tại Tân Sơn Nhất vừa bước ra cửa ga đã có taxi và xe công nghệ xếp hàng sẵn chờ đón.
+- Dù giảm mưa so với những ngày vừa qua, nhưng thời tiết TP.HCM vẫn mưa cả 100mm trong những ngày tới.
+- Dưới cái nắng thu vàng ngày 2-9, những khối diễu binh, diễu hành nghiêm trang đi qua lễ đài, trong niềm tự hào, xúc động của hàng triệu người dân Việt Nam.
+- Tại xã Tân Hiệp, tỉnh An Giang, một số người dân đã tận dụng bình nhựa đựng dầu ăn, nước ngọt... để làm 'bẫy' bắt cá linh khi mực nước kênh rạch dâng cao.
+- Chiều 2-9, hàng ngàn xe từ các nơi đổ về cao tốc Phan Thiết - Dầu Giây và TP.HCM - Long Thành - Dầu Giây, khiến cao tốc rơi vào cảnh kẹt xe kéo dài.
+- Bộ Y tế ghi nhận hơn 1.300 người được hỗ trợ y tế khi đi xem diễu binh, diễu hành Ngày Quốc khánh 2-9.
+- Mỗi vị khách khi lên xe buýt ngày 2-9 đều nhận được một lá cờ Tổ quốc. Nhiều hành khách chia sẻ niềm tự hào vì được hòa mình vào ngày vui của đất nước.
+- Do ảnh hưởng thời tiết xấu, rơi vào cận ngày tựu trường... nên du khách đến Phú Quốc và vùng bảy núi An Giang chỉ tăng nhẹ
+- Nhiều người dân vui và xúc động khi nhận được món quà ý nghĩa 100.000 đồng từ Chính phủ thông qua ứng dụng VNeID.
+- Tối nay 2-9, TP.HCM bắn pháo hoa mừng 80 năm Quốc khánh với 3 trận địa tầm cao và 1 trận địa tầm thấp.
+- Ngày 2-9, tại khu đô thị Phú Mỹ An (Đà Nẵng), khu phức hợp hạng sang Regal Complex vừa được khởi công với tổng vốn đầu tư hơn 1.520 tỉ đồng.
+- Hôm nay 2-9, Tuổi Trẻ Online chính thức ra mắt chuyên trang "Cùng luận bàn".
+- Cùng tham gia diễu binh, diễu hành tại Lễ kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9 có quân đội bốn nước: Trung Quốc, Nga, Lào và Campuchia.
+- Mẹ Việt Nam Anh hùng Trần Thị Huyến, ở phường Trần Phú, tỉnh Hà Tĩnh, được trân trọng mời dự và ngồi trên khán đài bên cạnh Tổng Bí thư Tô Lâm tham dự lễ diễu binh, diễu hành mừng Quốc khánh 2-9.
+- Tuổi Trẻ là người thân, vì chỉ có người thân mình mới có thể trút trao nhiều nỗi niềm và lắng nghe nhiều từ họ, để rồi thương và biết ơn không gì tả nổi.
+- Trong thời gian xây dựng, nhiều hướng qua nút giao An Phú liên tục ùn ứ. Ban Quản lý dự án đầu tư xây dựng các công trình giao thông TP.HCM nêu các cách để giảm kẹt xe và đẩy nhanh tiến độ công trình.
+- Sau khi đi qua lễ đài tại quảng trường Ba Đình, các khối diễu binh, diễu hành đã chia làm các hướng, đi qua các tuyến phố trung tâm.
+- Lễ diễu binh, diễu hành kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9 khép lại, nhưng trong lòng những chiến sĩ trẻ, dư âm của những bước chân trên quảng trường Ba Đình sẽ còn ngân vang mãi.
+- UBND TP Hà Nội cho biết để chào mừng 80 năm Quốc khánh, trong tối 2-9, thành phố sẽ tổ chức bắn pháo hoa tại 6 trận địa để phục vụ người dân.
 - Tuổi Trẻ Online đăng toàn văn bài phát biểu của Tổng Bí thư Tô Lâm  tại lễ diễu binh, diễu hành kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9.
 - Việt Nam không chỉ được biết gắn liền với tên của một cuộc chiến tranh khốc liệt trong thế kỷ 20 dưới mắt nhiều người phương Tây, mà giờ đây còn gắn liền với câu chuyện của một dân tộc vươn mình.
 - Hình ảnh Trung tướng Nguyễn Đức Soát cao lớn, uy nghi đĩnh đạc thắp sáng đài lửa truyền thống cách mạng tại lễ diễu binh, diễu hành mừng 80 năm Quốc khánh 2-9 làm triệu trái tim người Việt xúc động.
@@ -73,38 +103,10 @@
 - Xe tải tông vào đuôi xe khách trên cao tốc Vân Phong - Nha Trang gây ra tai nạn.
 - Chủ tịch nước khẳng định với ý chí, khát vọng cháy bỏng xây dựng đất nước hùng cường, cùng trí tuệ và bản lĩnh kiên cường, dân tộc Việt Nam sẽ tiếp tục chinh phục những đỉnh cao mới.
 - Chiều 1-9, cao tốc Phan Thiết - Dầu Giây ùn ứ xe cộ, CSGT phân luồng quốc lộ 1 khi người dân từ các tỉnh về TP.HCM, Đồng Nai.
-- Ngày Quốc khánh 2-9, Đồng Nai dựng 3 màn hình lớn, phát trực tiếp diễu binh, tổ chức nghệ thuật và bắn pháo hoa phục vụ người dân.
-- Đến 11h trưa 1-9, hơn 93% xã, phường trên cả nước đã hoàn tất rút kinh phí, bảo đảm tiến độ chi quà tặng 100.000 đồng của Chính phủ cho dân.
-- Vụ một người bán đất 21 tỉ đồng nhưng khai chỉ 460 triệu đồng để trốn thuế đang được nhiều người quan tâm. Trong vụ án này, văn phòng công chứng có trách nhiệm gì không?
-- Tại cuộc hội kiến Chủ tịch nước Lương Cường, Bí thư thứ nhất, Chủ tịch nước Cuba Miguel Díaz-Canel Bermúdez đã bày tỏ xúc động, chân thành cảm ơn những món quà của Việt Nam.
-- Cuối giờ chiều, dọc các tuyến đường Đinh Tiên Hoàng, Hàng Bài, Tràng Tiền, Hàng Khay đã kín hết các vị trí ngồi chờ xem diễu binh, diễu hành sáng mai (2-9).
-- Sông Tô Lịch trong ngày 1-9 đổi màu trong xanh hơn, mùi hôi cũng giảm đáng kể so với trước, vì sao?
-- Ngày 1-9, trại giam Thanh Cẩm và trại giam Thanh Phong đóng tại Thanh Hóa công bố quyết định đặc xá của Chủ tịch nước cho 484 phạm nhân.
-- Thông điệp được Tổng Bí thư Tô Lâm khẳng định trong cuộc hội đàm với Bí thư thứ nhất, Chủ tịch nước Cuba Miguel Díaz-Canel Bermúdez tại trụ sở Trung ương Đảng ngày 1-9.
-- Liên quan tới vụ cháy bãi trông giữ xe dưới chân cầu Vĩnh Tuy ngày 30-8, Sở Xây dựng Hà Nội cho biết vụ cháy đã khiến bê tông bảo vệ đáy dầm nhịp N1 bị bong vỡ, lộ cốt thép đai ngang và một số thanh cốt thép dọc.
-- Sáng 1-9, Phó thủ tướng thường trực Chính phủ Nguyễn Hòa Bình, chủ tịch Hội đồng tư vấn đặc xá, dự lễ công bố quyết định đặc xá năm 2025 (đợt 2, dịp 2-9) của Chủ tịch nước tại trại giam Phú Sơn 4 (Thái Nguyên).
-- Ngày 1-9 tại Thiên Tân (Trung Quốc), Thủ tướng Phạm Minh Chính đã có cuộc gặp với thủ tướng các nước Campuchia, Malaysia, Ấn Độ, các tổng thư ký Liên hợp quốc, ASEAN.
-- Gặp lại Phu nhân Lis Cuesta Peraza, Phu nhân Ngô Phương Ly bày tỏ xúc động khi thấm thoát đã gần một năm trôi qua kể từ lần đầu tiên hai bên gặp gỡ.
-- Cùng với cả nước, sáng 1-9 nhiều địa phương ở Nghệ An đồng loạt tổ chức phát quà Quốc khánh cho người dân. Với bà con vùng lũ, vùng biên giới, niềm vui nhận quà càng lớn hơn.
-- Dù ngày nghỉ lễ nhưng chính quyền các xã, phường và công an cơ sở ở tỉnh Đồng Nai đồng loạt phát quà của Chính phủ để người dân chi tiêu, vui chơi dịp lễ Quốc khánh 2-9.
-- 210 phạm nhân tại Trại giam Xuân Phước (thuộc Bộ Công an, đóng tại xã Xuân Phước, Đắk Lắk) được Chủ tịch nước đặc xá trước thời hạn.
-- Nhân dịp Quốc khánh 2-9, 440 phạm nhân ở trại giam Xuân Lộc (Bộ Công an) và trại tạm giam số 1 (Công an tỉnh Đồng Nai) đã được trao quyết định đặc xá.
-- Nhiều xã, phường ở Đà Nẵng làm việc xuyên đêm, không có ngày nghỉ để kịp trao phần quà 100.000 đồng/người đến tay người dân trước ngày Quốc khánh 2-9.
-- Người dân và du khách đến Buôn Ma Thuột (Đắk Lắk) dịp Quốc khánh 2-9 sẽ có trải nghiệm thú vị khi trên nhiều bảng tên đường đã được gắn để quét mã QR để tra cứu lịch sử, chỉ đường.
-- Trong lúc các con bạc đang sát phạt nhau bằng hình thức đá gà ăn tiền thì lực lượng cảnh sát tại An Giang đã ập vào vây bắt được 50 con bạc tại trường gà, tang vật thu giữ trên 87 triệu đồng.
-- Phòng Cảnh sát giao thông (PC08) Công an TP.HCM thông báo cấm nhiều tuyến đường, đồng thời điều chỉnh phân luồng ở khu vực trung tâm phục vụ chương trình pháo hoa dịp lễ 2-9.
-- Sáng 1-9, Trại giam Thủ Đức (đóng ở xã Tân Minh, tỉnh Lâm Đồng) tổ chức lễ công bố quyết định đặc xá của Chủ tịch nước đợt 2 năm 2025 cho hơn 550 phạm nhân.
-- Hòa trong không khí hân hoan kỷ niệm 80 năm Quốc khánh 2-9, sáng nay 1-9, đông đảo người dân đã vui mừng, phấn khởi đến UBND các phường tại TP.HCM nhận phần quà 100.000 đồng.
-- Mặc dù bắt đầu vào dịp nghỉ lễ dài ngày nhưng nhiều nơi ở Đà Nẵng, các cán bộ ở thôn, khối phố, xã, phường "xuyên lễ" nỗ lực trao tiền quà Quốc khánh 2-9 trực tiếp cho người dân.
-- Tổng Bí thư Tô Lâm và Phu nhân đích thân chủ trì lễ đón cấp nhà nước Bí thư thứ nhất, Chủ tịch nước Cuba Miguel Díaz-Canel Bermúdez và Phu nhân tại Phủ Chủ tịch vào sáng 1-9.
-- Sáng 1-9, cận thời điểm lễ diễu binh diễu hành Quốc khánh 2-9 diễn ra, nhiều người dân đã đổ ra các tuyến phố có đoàn diễu hành và khí tài đi qua để "cắm chốt" dành vị trí đẹp để được tận mắt chứng kiến.
-- Hàng triệu người dân từ miền núi đến đồng bằng, miền biển các tỉnh Đắk Lắk, Lâm Đồng, Khánh Hòa, Gia Lai nô nức đi nhận quà Tết Độc lập.
-- Em T.Q.V. (phường Sông Cầu, Đắk Lắk) sử dụng điện thoại di động đang cắm sạc vào lúc trời có mưa lớn, sấm sét. Sau đó người nhà phát hiện V. nằm bất động, sùi bọt mép, đưa đi cấp cứu thì không kịp.
-- Tám thập kỷ kể từ 1945, kinh tế Việt Nam trải qua hành trình biến động, phản ánh tác động đan xen của lịch sử, chính sách và bối cảnh quốc tế.
-- Đoàn lãnh đạo, nguyên lãnh đạo Đảng, Nhà nước đã đặt vòng hoa, vào lăng viếng Chủ tịch Hồ Chí Minh và dâng hương tưởng niệm các anh hùng liệt sĩ nhân dịp 80 năm Quốc khánh.
-- Ngày 31-8, chủ tịch UBND tỉnh Thanh Hóa ban hành quyết định số 2952 công bố tình huống khẩn cấp về thiên tai trên địa bàn hai xã Yên Nhân, Bát Mọt để khắc phục hậu quả do bão số 5 và mưa lũ sau bão gây ra.
 ![New](News.png)
 ## Nhịp sống số 
+- Google bác bỏ tin đồn trên mạng xã hội cho rằng hãng đã gửi cảnh báo khẩn đến 2,5 tỉ người dùng Gmail sau một vụ rò rỉ dữ liệu.
+- Việc Meta đàm phán sử dụng các mô hình AI của Google và OpenAI là dấu hiệu rõ ràng về sự thay đổi lớn trong chiến lược của những 'gã khổng lồ' công nghệ.
 - Microsoft và hãng sản xuất bộ điều khiển SSD Phison bác bỏ tin đồn lan truyền trên mạng xã hội hồi tháng 8 cho rằng các bản cập nhật Windows 11 đã gây lỗi nghiêm trọng, làm hỏng ổ SSD.
 - Khu trưng bày ngành game, ngành điện ảnh và ngành thủ công mỹ nghệ trở thành tâm điểm thu hút giới trẻ ở Triển lãm thành tựu đất nước.
 - Microsoft vừa công bố hai mô hình AI đầu tiên do chính tập đoàn phát triển, trong đó có mô hình tạo 1 phút âm thanh chỉ trong 1 giây.
@@ -153,6 +155,4 @@
 - Rò rỉ thông tin iPhone 17 Air cho thấy đây sẽ là phiên bản có thiết kế cực kỳ mỏng, chỉ khoảng 5,5mm.
 - Mô hình AI này chuyển đổi dữ liệu vệ tinh - như màu sắc, mây, địa hình - thành các dạng biểu diễn số, giúp người dùng dễ dàng tìm kiếm các đặc điểm như loại cây, tòa nhà hay mạch nước ngầm.
 - Nhiều vụ “bắt cóc online” học sinh, sinh viên gây lo ngại khi kẻ xấu điều khiển nạn nhân từ xa, không cần tiếp xúc trực tiếp.
-- Google đang định hình lại cách tìm kiếm thông tin bằng AI với 'Web Guide', một tính năng thử nghiệm giúp sắp xếp kết quả thành các chủ đề, mang lại trải nghiệm trực quan và hiệu quả hơn.
-- Mạng xã hội xuất hiện một đoạn âm thanh dài hơn 23 phút, được cho là của tỉ phú Elon Musk khen ngợi sự phát triển của Ấn Độ. Tuy nhiên kiểm chứng cho thấy đây là sản phẩm của AI.
 ![life](Life.png)
