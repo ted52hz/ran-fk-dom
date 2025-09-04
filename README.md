@@ -1,6 +1,18 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Năm học mới, Hà Nội dự kiến dành hơn 3.000 tỉ đồng hỗ trợ bữa ăn bán trú cho học sinh tiểu học.
+- Nhân dịp khai giảng năm học mới 2025-2026, cũng là dịp kỷ niệm 80 năm truyền thống ngành giáo dục, Chủ tịch nước Lương Cường có thư gửi ngành giáo dục, thầy trò trên cả nước.
+- Dự báo trong dịp khai giảng năm học 2025-2026 (ngày 4 và 5-9), thời tiết trên cả nước phổ biến ít mưa vào ban ngày.
+- Đến nay đã có gần 50 trường đại học trên cả nước công bố xét tuyển bổ sung năm 2025, trong đó có nhiều trường tốp đầu, ngành hot.
+- Ngày 3-9, Sở Giáo dục và Đào tạo TP.HCM đã có công văn gởi các cơ sở giáo dục và các sở, ban ngành, đoàn thể, tổ chức, doanh nghiệp,… về lễ khai giảng năm học mới.
+- Thủ tướng Chính phủ vừa có quyết định điều động, bổ nhiệm ông Lê Quân, chủ tịch hội đồng, giám đốc Đại học Quốc gia Hà Nội, giữ chức thứ trưởng Bộ Giáo dục và Đào tạo.
+- Giám đốc Sở Giáo dục và Đào tạo TP.HCM cho biết kinh phí đào tạo giáo viên được lấy từ nguồn ngân sách thành phố.
+- PGS.TS Vũ Hải Quân - giám đốc Đại học Quốc gia TP.HCM - vừa được điều động, bổ nhiệm làm thứ trưởng thường trực Bộ Khoa học và Công nghệ.
+- Các hình ảnh thiếu ý thức, từ leo trèo, chen lấn đến xả rác bừa bãi đang ảnh hưởng đến sự trang nghiêm trong các sự kiện.
+- Sáng 3-9, Trường tiểu học Nguyễn Bỉnh Khiêm, phường Sài Gòn, TP.HCM đã khánh thành phòng học kỹ năng công dân số.
+- Lễ khai giảng năm học 2025-2026 cũng là dịp kỷ niệm 80 năm thành lập Bộ Quốc gia giáo dục (nay là Bộ GD-ĐT), được tổ chức khác biệt so với các năm trước.
+- Dù là những ngày nghỉ lễ Quốc khánh 2-9, ký túc xá Đại học Quốc gia TP.HCM vẫn mở cửa đón hàng ngàn tân sinh viên đến làm thủ tục nhập ở, khiến nhiều người bất ngờ, xúc động.
 - Hơn ba năm sau khi xung đột Nga - Ukraine bùng nổ, các bậc phụ huynh tại Kharkov đã đưa con em mình tới những ngôi trường đặc biệt nằm dưới lòng đất để bắt đầu năm học mới.
 - 15m², 11 năm, hàng trăm đứa trẻ cơ nhỡ có con chữ đã gặp nhau ở một lớp học, với tình yêu thương của những người thầm lặng.
 - Nhiều ý kiến cho rằng việc Trường đại học Quốc tế (Đại học Quốc gia TP.HCM) phân bổ theo nhóm ngành sau khi trúng tuyển dẫn đến tình trạng thí sinh trúng tuyển nhưng không biết chắc mình sẽ học ngành nào là không thể chấp nhận.
@@ -39,70 +51,58 @@
 - Chiều ngày 28-8, tại Trường đại học Tôn Đức Thắng diễn ra Gala chung kết cuộc thi "Sinh viên Việt Nam với hiểu biết tài chính - Investment Challenge 2025".
 - Tỉ lệ nữ tham gia nghiên cứu khoa học ở Việt Nam là khoảng 45%, trong khi đó Nhật Bản khoảng 17%, Hàn Quốc 20-25%, Trung Quốc khoảng 28%...
 - Do ảnh hưởng của bão số 5, ba ngày qua ở xã biên giới Yên Khương, tỉnh Thanh Hóa có mưa lớn kéo dài. Lũ ống cuốn hàng trăm mét khối đất đá đổ vào điểm trường ở bản Xắng Hằng.
-- Mức trợ cấp cho trẻ mầm non là con công nhân, người lao động làm việc tại khu công nghiệp, nơi có nhiều lao động tăng từ 160.000 đồng lên 240.000 đồng/tháng.
-- Bộ An ninh nội địa Mỹ thông báo sẽ công bố một quy định dự thảo nhằm giới hạn thời gian lưu trú của sinh viên nước ngoài tại Mỹ.
-- PGS.TS Nguyễn Tấn Vinh - phó giám đốc Học viện Chính trị khu vực II - giữ chức giám đốc Học viện thay cho PGS.TS Nguyễn Quốc Dũng nghỉ hưu.
-- Nhiều trường phổ thông ở TP.HCM gửi thư ngỏ xin không nhận hoa chúc mừng lễ khai giảng năm học mới.
-- Năm học mới đến, bên cạnh nhiều nỗi lo, phụ huynh chúng tôi còn canh cánh nỗi niềm về đồng phục học sinh.
-- Sinh viên phản ánh đến nay nhà trường vẫn chưa trả chênh lệch học phí cho sinh viên theo chỉ đạo UBND TP.HCM.
-- Một số trường đại học tại TP.HCM vừa thông báo xét tuyển bổ sung cả ngàn chỉ tiêu.
-- Học sinh ở Hàn Quốc sẽ bị cấm sử dụng điện thoại thông minh và thiết bị thông minh trong giờ học, theo luật mới được Quốc hội thông qua.
-- Đây là khẳng định của Vụ Giáo dục đại học, Bộ Giáo dục và Đào tạo khi trả lời Tuổi Trẻ Online.
-- Nguyễn Nguyễn Thái Bảo giờ là tiến sĩ, phó giám đốc Trung tâm Chấn thương chỉnh hình - Phẫu thuật tạo hình Bệnh viện Trung ương Huế.
-- Bộ Chính trị vừa ban hành nghị quyết 71 về đột phá phát triển giáo dục và đào tạo.
-- Đại học Bách khoa Hà Nội dành 1.200 chỗ ở miễn phí tại ký túc xá cho người dân từ các tỉnh thành xa về Hà Nội tham dự lễ diễu binh, diễu hành.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Chính phủ vừa ban hành Nghị quyết 268 về tình hình triển khai thực hiện và vận hành mô hình chính quyền địa phương 2 cấp.
+- Cảnh sát cứu hộ thành công hai du khách quốc tịch Nga bị kiệt sức, mất phương hướng khi leo núi Cô Tiên, tỉnh Khánh Hòa.
+- Nhân dịp khai giảng năm học mới 2025-2026, cũng là dịp kỷ niệm 80 năm truyền thống ngành giáo dục, Chủ tịch nước Lương Cường có thư gửi ngành giáo dục, thầy trò trên cả nước.
+- Hôm nay 4-9, thời tiết Bắc Bộ ngày nắng, có nơi nắng nóng. Nam Bộ mưa rào, chiều tối mưa to.
+- Tin tức đáng chú ý: Giảm 30% phí, lệ phí đăng ký xe, rút ngắn thời gian cấp, cấp lại và đổi giấy phép lái xe; Có website giả giải chạy hỗ trợ bệnh nhân ung thư; 7 bác sĩ chuyên khoa đầu ngành tại TP.HCM đã đến đặc khu Côn Đảo...
+- Tổ công tác của Bộ Chính trị làm việc với các tỉnh Ninh Bình, Đắk Lắk, Lào Cai để cho ý kiến chuẩn bị đại hội, phương hướng nhân sự nhiệm kỳ 2025 - 2030.
+- Chiều 3-9, Đại tướng Phan Văn Giang, bộ trưởng Bộ Quốc phòng, đã gửi thư tới các cơ quan báo chí trong và ngoài quân đội, ghi nhận và cảm ơn những đóng góp “vượt nắng, thắng mưa” trong đưa tin, tuyên truyền về diễu binh, diễu hành A80.
+- Chiều 3-9, Công an xã Gio Linh (Quảng Trị) xác nhận trên địa bàn vừa xảy ra vụ tai nạn đuối nước khiến  hai em nhỏ tử vong.
+- Tối 3-9, ông Lương Minh Phúc, giám đốc Ban Quản lý dự án đầu tư xây dựng các công trình giao thông (chủ đầu tư), thông tin ban đầu về tai nạn lao động tại công trường thi công dự án vành đai 3 TP.HCM.
+- Trung tâm Quản lý hạ tầng giao thông đường bộ (Sở Xây dựng TP.HCM) cho biết sẽ điều chỉnh tổ chức giao thông trên đường Võ Chí Công (từ cầu Phú Mỹ đến nút giao Mỹ Thủy), phường Cát Lái.
+- Trong 11 đề nghị của UBND tỉnh Tây Ninh gửi đến UBND TP.HCM về các tuyến giao thông chính kết nối với TP.HCM, có 9 đề nghị về các dự án đường bộ, 1 đề nghị bổ sung tuyến đường sắt và 1 đề nghị nạo vét đường thủy.
+- Ban Chỉ đạo Trung ương kỷ niệm các ngày lễ lớn và sự kiện lịch sử quan trọng của đất nước trong 3 năm 2023 - 2025 đã gửi thư cảm ơn tới đồng bào, chiến sĩ, các lão thành cách mạng, các ban ngành...
+- Chuyên gia cho rằng thực trạng thời gian qua TP.HCM chưa thu hút được nhà đầu tư chiến lược nào, và đề ra các giải pháp để thu hút nhà đầu tư chiến lược vào hạ tầng đô thị, nhất là đường sắt.
+- Ngày 3-9, Công an tỉnh Đồng Tháp cho biết liên tục trong những ngày cuối tháng 8, đầu tháng 9-2025 Công an phường Thới Sơn đã phát hiện, xử phạt liên tiếp nhiều "cát tặc" trên địa bàn.
+- Nghị quyết của Bộ Chính trị yêu cầu khẩn trương triển khai các dự án điện hạt nhân Ninh Thuận 1 và Ninh Thuận 2 với các đối tác phù hợp, bảo đảm lợi ích cao nhất của Việt Nam.
+- Chiều 3-9, một vụ tai nạn lao động nghiêm trọng đã xảy ra tại công trường xây dựng vành đai 3 (đoạn qua phường Long Bình, TP.HCM) khiến 1 công nhân tử vong và 1 người bị thương được đưa đi cấp cứu.
+- Ngã tư Đồng Tâm là điểm đầu cầu Rạch Miễu 2 đã bị ùn ứ trong hai ngày liên tiếp đầu tháng 8, sau nửa tháng thông xe. Để giải quyết bài toán này, nên làm cầu vượt, hầm chui hay đơn giản chỉ điều chỉnh pha đèn hoặc phân luồng giao thông?
+- Thủ tướng Phạm Minh Chính chủ trì buổi làm việc của Bộ Chính trị với Ban Thường vụ Tỉnh ủy An Giang và Lâm Đồng, cho ý kiến vào dự thảo các văn kiện, phương án nhân sự đại hội đảng bộ.
+- Bạn đọc phản ánh cơ quan chức năng cấp đất của mình cho một người khác. Vậy phải làm thế nào để 'trả' thửa đất đó lại cho chủ cũ?
+- Bộ Nội vụ đề xuất các tiêu chí, điều kiện tổ chức lại, giải thể đơn vị sự nghiệp công lập.
+- Ngày 3-9, tàu SE67 xuất phát từ ga Hà Nội đã lăn bánh, đưa các chiến sĩ Quân khu 5, Quân đoàn 34 về đơn vị sau khi hoàn thành nhiệm vụ A80.
+- Khu di tích nơi có đền thờ và phần mộ cụ Phó bảng Nguyễn Sinh Sắc (phường Cao Lãnh, tỉnh Đồng Tháp) được tỉnh Đồng Tháp đầu tư tôn tạo, tu bổ với kinh phí hơn 145 tỉ đồng.
+- Cơn mưa lớn đêm 2-9 khiến đất cát theo nước tràn xuống ngập mặt đường, giao thông trên cao tốc Vĩnh Hảo - Phan Thiết phải gián đoạn một thời gian.
+- Ngày 3-9, Sở Xây dựng Hà Nội vừa có thông báo về việc điều chỉnh tổ chức giao thông trên nhánh Ramp CV1C hướng các phương tiện từ cầu Vĩnh Tuy rẽ phải đi đường Nguyễn Khoái, sau vụ cháy bãi trông giữ xe dưới chân cầu ngày 30-8 làm lộ cốt thép.
+- Sở Y tế tỉnh An Giang đã ký quyết định tạm đình chỉ công tác đối với giám đốc Trung tâm y tế An Phú 90 ngày, để phục vụ công tác của đoàn kiểm tra liên quan đến quy định pháp luật về tài chính.
+- Nhóm nghi phạm từ các tỉnh phía Bắc vào Quảng Trị hoạt động cho vay lãi nặng tổng số tiền 25 tỉ đồng, thu lãi 10 tỉ đồng. Tức mức lãi cao nhất lên đến 644%/năm.
+- Nội dung 'Vợ hoặc chồng đi nhậu quá 20 giờ có thể bị xử phạt nghiêm, mức phạt dự kiến lên đến 30 triệu đồng' phát tán trên mạng xã hội cùng hình ảnh đại biểu Quốc hội là gán ghép và Công an tỉnh Lâm Đồng đang làm rõ.
+- Ông Vũ Mạnh Hà, phó bí thư thường trực Tỉnh ủy Lai Châu được bổ nhiệm giữ chức thứ trưởng thường trực Bộ Y tế.
+- Thủ tướng Chính phủ vừa có quyết định tiếp nhận, bổ nhiệm ông Nguyễn Văn Quảng, bí thư Thành ủy Đà Nẵng giữ chức phó tổng thanh tra thường trực Thanh tra Chính phủ.
+- Ngày 3-9, đại diện Phòng Cảnh sát giao thông Công an TP.HCM cho biết dịp lễ 2-9 đã xử lý hơn 9.500 trường hợp vi phạm, trong đó có 2.200 người vi phạm nồng độ cồn.
+- Thủ tướng Chính phủ vừa có quyết định điều động, bổ nhiệm ông Lê Quân, chủ tịch hội đồng, giám đốc Đại học Quốc gia Hà Nội, giữ chức thứ trưởng Bộ Giáo dục và Đào tạo.
+- Trưa 3-9, lực lượng Công an TP.HCM vẫn đang phối hợp các đơn vị liên quan điều tra nguyên nhân 2 vụ tai nạn giao thông làm 3 người chết xảy ra trong một buổi sáng nay.
+- TS Nguyễn Viết Chức đánh giá sự kiện kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9 tiếp tục cho thấy dưới sự lãnh đạo tuyệt đối, sáng suốt của Đảng và sự đoàn kết toàn dân có thể nhấn chìm mọi kẻ xâm lược, cuốn phăng mọi trở lực.
+- Sáng 3-9, tại Hà Nội, Thượng tướng Hoàng Xuân Chiến và Thượng tướng Alexander Vasilyevich Fomin  đã đồng chủ trì Đối thoại chiến lược quốc phòng lần thứ 8.
+- Bộ Xây dựng đang lấy ý kiến dự thảo Luật Xây dựng sửa đổi theo hướng rút ngắn thời gian cấp phép xây dựng công trình xuống còn 7 ngày, và tăng nhóm công trình xây dựng được miễn cấp phép.
+- Đà Nẵng thành lập tổ công tác kiểm tra, rà soát và thúc đẩy tiến độ loạt dự án bất động sản bị “đứng bánh” nhiều năm qua. Đây là các dự án do Bách Đạt An, Dana Homeland và Chí Thành làm chủ đầu tư - khiến hàng ngàn khách hàng mòn mỏi chờ sổ đỏ.
+- Đó là khẳng định của Thượng tướng Álvaro López Miera, bộ trưởng Bộ Các lực lượng vũ trang cách mạng Cuba, tại buổi hội đàm cùng với Đại tướng Phan Văn Giang sáng nay 3-9, tại trụ sở Bộ Quốc phòng.
+- Ngay sau khi TP.HCM công bố chính sách hỗ trợ 5 triệu cho phụ nữ sinh đủ 2 con trước 35 tuổi, hàng trăm ý kiến của bạn đọc đã gửi về báo Tuổi Trẻ Online.
+- TP Huế hiện là một trong những địa phương đứng top đầu trong việc trao ‘lì xì’ Tết Độc lập của Chính phủ cho người dân.
+- Sáng 3-9, Cơ quan cảnh sát điều tra Công an tỉnh An Giang cho biết sau thời gian điều tra, xác minh đã ra quyết định khởi tố vụ án, khởi tố 13 người về tội tổ chức sử dụng trái phép chất ma túy tại quán karaoke ở Phú Quốc.
+- Hôm qua (2-9), lễ diễu binh diễu hành kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9 đã được tổ chức trọng thể tại quảng trường Ba Đình (Hà Nội).
+- Chính phủ vừa ban hành Nghị định số 237 sửa đổi, bổ sung một số điều của Nghị định số 105/2012 ngày 17-12-2012 của Chính phủ về tổ chức lễ tang cán bộ, công chức, viên chức.
+- Cục Xe máy - Vận tải đã phối hợp các đơn vị lên kế hoạch chi tiết đưa, đón các cán bộ, chiến sĩ thuộc các khối diễu binh, diễu hành trở về đơn vị đang công tác, bảo đảm chu đáo, an toàn.
+- Sáng 3-9, ngày đầu đi làm lại sau kỳ nghỉ lễ 2-9, hàng ngàn xe ùn ứ nghiêm trọng tại vòng xoay cầu Bình Lợi (phường Hiệp Bình, TP.HCM), lực lượng cảnh sát giao thông căng mình điều tiết.
 - Một số tin tức đáng chú ý: Hai ái nữ sếp VPBank chi xong nghìn tỉ mua cổ phiếu; Hải Phát lùi ngày đáo hạn lô trái phiếu 500 tỉ đồng; TP.HCM kiến nghị thuận chủ trương giải ngân dự án thành phần vành đai 3, 4...
 - Hôm nay 3-9, thời tiết Bắc Bộ nắng sau nhiều ngày mưa dông. Nam Bộ mưa rào, chiều tối có nơi mưa to đến rất to.
 - Trong thư khen gửi công an các đơn vị, địa phương, Bộ trưởng Lương Tam Quang biểu dương tinh thần, nỗ lực bảo đảm tuyệt đối an ninh, an toàn chuỗi sự kiện kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9.
 - Tối 2-9, hàng ngàn người dân đổ về trung tâm thành phố Hà Nội để ngắm pháo hoa tầm cao kết hợp tầm thấp sáng rực bầu trời nhân kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9.
 - Bộ Xây dựng vừa yêu cầu kiểm định, đánh giá chất lượng và khả năng khai thác công trình cầu Vĩnh Tuy sau vụ cháy bãi gửi xe dưới gầm cầu làm bong vỡ bê tông, lộ cốt thép cầu.
 - Dự báo trong tháng 9, có thể có 2-3 cơn bão hoặc áp thấp nhiệt đới hoạt động trên Biển Đông và không loại trừ có xoáy thuận nhiệt đới ảnh hưởng đến đất liền nước ta.
-- Xe cộ dồn dập về TP.HCM chiều cuối ngày 2-9, cao tốc ùn ứ một vài lúc. Trong khi đó, đường dẫn cao tốc và một số điểm cửa ngõ vào TP không bị kẹt xe kéo dài như mọi năm.
-- Chiều 2-9, Phó thủ tướng Mai Văn Chính đã đón Tổng Bí thư, Chủ tịch nước Cộng hòa dân chủ nhân dân Lào Thongloun Sisoulith và Chủ tịch Đảng Nhân dân Campuchia, Chủ tịch Thượng viện Hun Sen thăm Trung tâm Triển lãm quốc gia.
-- Chiều 2-9, dòng xe từ các tỉnh miền Trung hướng về TP.HCM trên cao tốc Phan Thiết - Dầu Giây tiếp tục tăng đột biến, sau kỳ nghỉ lễ dài ngày.
-- Chiều 2-9, Chủ tịch nước Lương Cường dẫn đầu đoàn đại biểu cấp cao Việt Nam rời Hà Nội, để dự lễ kỷ niệm 80 năm chiến thắng phát xít và làm việc tại Trung Quốc.
-- Chiều 2-9, các lực lượng thuộc Công an tỉnh Đồng Nai đã tham gia khắc phục xong vụ sạt lở trên quốc lộ 14C. Trước đó, sự cố sạt lở đã gây ùn tắc giao thông trong nhiều giờ.
-- Không còn cảnh chen chúc, mỏi mòn chờ taxi như những dịp cao điểm trước, lễ 2-9 năm nay hành khách tại Tân Sơn Nhất vừa bước ra cửa ga đã có taxi và xe công nghệ xếp hàng sẵn chờ đón.
-- Dù giảm mưa so với những ngày vừa qua, nhưng thời tiết TP.HCM vẫn mưa cả 100mm trong những ngày tới.
-- Dưới cái nắng thu vàng ngày 2-9, những khối diễu binh, diễu hành nghiêm trang đi qua lễ đài, trong niềm tự hào, xúc động của hàng triệu người dân Việt Nam.
-- Tại xã Tân Hiệp, tỉnh An Giang, một số người dân đã tận dụng bình nhựa đựng dầu ăn, nước ngọt... để làm 'bẫy' bắt cá linh khi mực nước kênh rạch dâng cao.
-- Chiều 2-9, hàng ngàn xe từ các nơi đổ về cao tốc Phan Thiết - Dầu Giây và TP.HCM - Long Thành - Dầu Giây, khiến cao tốc rơi vào cảnh kẹt xe kéo dài.
-- Bộ Y tế ghi nhận hơn 1.300 người được hỗ trợ y tế khi đi xem diễu binh, diễu hành Ngày Quốc khánh 2-9.
-- Mỗi vị khách khi lên xe buýt ngày 2-9 đều nhận được một lá cờ Tổ quốc. Nhiều hành khách chia sẻ niềm tự hào vì được hòa mình vào ngày vui của đất nước.
-- Do ảnh hưởng thời tiết xấu, rơi vào cận ngày tựu trường... nên du khách đến Phú Quốc và vùng bảy núi An Giang chỉ tăng nhẹ
-- Nhiều người dân vui và xúc động khi nhận được món quà ý nghĩa 100.000 đồng từ Chính phủ thông qua ứng dụng VNeID.
-- Tối nay 2-9, TP.HCM bắn pháo hoa mừng 80 năm Quốc khánh với 3 trận địa tầm cao và 1 trận địa tầm thấp.
-- Ngày 2-9, tại khu đô thị Phú Mỹ An (Đà Nẵng), khu phức hợp hạng sang Regal Complex vừa được khởi công với tổng vốn đầu tư hơn 1.520 tỉ đồng.
-- Hôm nay 2-9, Tuổi Trẻ Online chính thức ra mắt chuyên trang "Cùng luận bàn".
-- Cùng tham gia diễu binh, diễu hành tại Lễ kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9 có quân đội bốn nước: Trung Quốc, Nga, Lào và Campuchia.
-- Mẹ Việt Nam Anh hùng Trần Thị Huyến, ở phường Trần Phú, tỉnh Hà Tĩnh, được trân trọng mời dự và ngồi trên khán đài bên cạnh Tổng Bí thư Tô Lâm tham dự lễ diễu binh, diễu hành mừng Quốc khánh 2-9.
-- Tuổi Trẻ là người thân, vì chỉ có người thân mình mới có thể trút trao nhiều nỗi niềm và lắng nghe nhiều từ họ, để rồi thương và biết ơn không gì tả nổi.
-- Trong thời gian xây dựng, nhiều hướng qua nút giao An Phú liên tục ùn ứ. Ban Quản lý dự án đầu tư xây dựng các công trình giao thông TP.HCM nêu các cách để giảm kẹt xe và đẩy nhanh tiến độ công trình.
-- Sau khi đi qua lễ đài tại quảng trường Ba Đình, các khối diễu binh, diễu hành đã chia làm các hướng, đi qua các tuyến phố trung tâm.
-- Lễ diễu binh, diễu hành kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9 khép lại, nhưng trong lòng những chiến sĩ trẻ, dư âm của những bước chân trên quảng trường Ba Đình sẽ còn ngân vang mãi.
-- UBND TP Hà Nội cho biết để chào mừng 80 năm Quốc khánh, trong tối 2-9, thành phố sẽ tổ chức bắn pháo hoa tại 6 trận địa để phục vụ người dân.
-- Tuổi Trẻ Online đăng toàn văn bài phát biểu của Tổng Bí thư Tô Lâm  tại lễ diễu binh, diễu hành kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9.
-- Việt Nam không chỉ được biết gắn liền với tên của một cuộc chiến tranh khốc liệt trong thế kỷ 20 dưới mắt nhiều người phương Tây, mà giờ đây còn gắn liền với câu chuyện của một dân tộc vươn mình.
-- Hình ảnh Trung tướng Nguyễn Đức Soát cao lớn, uy nghi đĩnh đạc thắp sáng đài lửa truyền thống cách mạng tại lễ diễu binh, diễu hành mừng 80 năm Quốc khánh 2-9 làm triệu trái tim người Việt xúc động.
-- Tuổi Trẻ Online xin gửi tới độc giả những hình ảnh ấn tượng, hùng tráng, thể hiện sức mạnh của lực lượng vũ trang trên biển tham gia trong lễ diễu binh A80.
-- Chưa bao giờ chúng ta thấy nhiều doanh nghiệp tư nhân trong nước đưa ra các đề xuất táo bạo như hiện nay: làm sân bay, bến cảng, tàu điện ngầm...
-- Lễ diễu binh, diễu hành kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9 diễn ra tại quảng trường Ba Đình, Hà Nội sáng nay 2-9 đầy tự hào và kiêu hãnh.
-- Sáng nay 2-9, thời tiết Hà Nội được dự báo đẹp, khả năng cao không mưa. Xác suất mưa dưới 20%, lượng nhỏ và nhanh kết thúc.
-- Nếu như trước đây các doanh nghiệp tư nhân thường chỉ đóng vai 'kép phụ' trong những siêu dự án, thì nay họ đã bắt đầu có những đề xuất táo bạo chưa từng có, tạo nên một làn sóng mới trong đầu tư phát triển hạ tầng.
-- Khoảng 3h sáng 2-9, dàn khí tài quân sự hiện đại gồm xe tăng, thiết giáp, tên lửa... đi qua nhiều tuyến phố, hướng về quảng trường Ba Đình (Hà Nội), sẵn sàng tham gia lễ diễu binh, diễu hành mừng 80 năm Quốc khánh.
-- Từ hơn 3h ngày 2-9, dàn khí tài quân sự đã rời khu vực tập kết ở Mỹ Đình để tiến vào khu vực trung tâm thành phố, sẵn sàng cho lễ diễu binh, diễu hành lúc 6h30.
-- Đất nước bước vào mùa thu đặc biệt, mùa thu của 80 năm Dân chủ cộng hòa. Trong gia đình tôi, ngày 2-9-1945 được gọi là Ngày Độc Lập. Vì đó là ngày cha mẹ chú bác tôi lên đường đi theo "tiếng kêu sơn hà nguy biến" giành nền độc lập cho Tổ quốc.
-- 55 kiều bào tiêu biểu từ 18 quốc gia và vùng lãnh thổ đã trở về quê hương để tham gia diễu hành kỷ niệm 80 năm Cách mạng Tháng Tám thành công và Quốc khánh 2-9.
-- Nhìn lại gần 40 năm Đổi mới của Việt Nam, TS Jonathan Pincus - giám đốc Trường Chính sách công và quản lý Fulbright và nguyên kinh tế trưởng của UNDP tại Việt Nam - chia sẻ góc nhìn và đề xuất cho sự phát triển của Việt Nam.
-- Trung tâm Huấn luyện và sử dụng động vật nghiệp vụ cử hàng chục cán bộ, chiến sĩ sử dụng chó nghiệp vụ tham gia đảm bảo an ninh, trật tự các hoạt động, sự kiện kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9.
-- Lễ diễu binh, diễu hành kỷ niệm 80 năm Quốc khánh sẽ diễn ra sáng mai 2-9, tại quảng trường Ba Đình.
-- Tối 1-9, nhiều cán bộ, công chức xã, phường ở Đồng Nai vẫn tiếp tục “đi từng ngõ, gõ từng nhà” để phát quà Quốc khánh cho người dân.
-- Trung tâm Dự báo khí tượng thủy văn quốc gia cho biết tối 1-9, Hà Nội từ 18h-22h không mưa, suốt đêm khả năng mưa thấp.
-- Xe tải tông vào đuôi xe khách trên cao tốc Vân Phong - Nha Trang gây ra tai nạn.
-- Chủ tịch nước khẳng định với ý chí, khát vọng cháy bỏng xây dựng đất nước hùng cường, cùng trí tuệ và bản lĩnh kiên cường, dân tộc Việt Nam sẽ tiếp tục chinh phục những đỉnh cao mới.
-- Chiều 1-9, cao tốc Phan Thiết - Dầu Giây ùn ứ xe cộ, CSGT phân luồng quốc lộ 1 khi người dân từ các tỉnh về TP.HCM, Đồng Nai.
 ![New](News.png)
 ## Nhịp sống số 
 - Google bác bỏ tin đồn trên mạng xã hội cho rằng hãng đã gửi cảnh báo khẩn đến 2,5 tỉ người dùng Gmail sau một vụ rò rỉ dữ liệu.
