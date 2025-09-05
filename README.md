@@ -1,6 +1,27 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Năm nay là năm đầu tiên cả nước đồng loạt tổ chức lễ khai giảng: cùng thời gian, cùng nghi thức đối với tất cả các cấp học.
+- Năm học này, Bộ Giáo dục và Đào tạo sẽ đánh giá toàn diện chương trình giáo dục phổ thông mới để có những điều chỉnh phù hợp; siết quản lý dạy thêm; khẩn trương xây trường cho các xã biên giới...
+- Sáng nay 5-9, gần 26 triệu học sinh, sinh viên và gần 1,7 triệu thầy, cô giáo trên cả nước bước vào năm học mới với lễ khai trường đặc biệt.
+- Khai giảng ngày 4-9 tại Bệnh viện Ung bướu TP.HCM, lớp học đặc biệt gây xúc động mạnh cho những người dõi theo các bé.
+- Công văn “không nhận hoa chúc mừng dưới mọi hình thức” tại lễ khai giảng của Sở Giáo dục và Đào tạo TP.HCM đang tạo nên làn sóng tranh luận trái chiều.
+- "Năm học mới em có cặp sách mới, vở mới và tiền mua quần áo mới. Em hứa sẽ học tập tốt, cuối năm có giấy khen".
+- Cô trò điểm trường Tăk Pổ, ngôi trường từng "gây bão" trên mạng xã hội với lễ khai giảng mộc mạc, đơn sơ năm 2019, đang tất bật trang trí trường lớp chuẩn bị cho lễ khai giảng.
+- Hòa chung không khí chuẩn bị lễ khai giảng đặc biệt năm học mới 2025-2026, ngày 4-9 trường học tại các xã vùng biên giới Việt - Lào của tỉnh Thanh Hóa tất bật chuẩn bị cơ sở vật chất, hướng dẫn học sinh các trò chơi vui tươi bước vào năm học mới.
+- Hàng ngàn học sinh, phụ huynh ở Hà Nội vừa được chui địa đạo và trải nghiệm các không gian hiểu biết, tử tế, trưởng thành, biết ơn, hạnh phúc và tỉnh thức, nhân dịp khai giảng năm học mới.
+- Ngày Võ Mộng Hoài Tâm biết tin mình đạt danh hiệu thủ khoa tốt nghiệp của Trường đại học Công nghiệp TP.HCM, cô gái nhỏ đến từ vùng đất biên giới Tân Hưng (Long An cũ) đã xúc động đến rơi nước mắt.
+- Ngày 4-9, TP.HCM khánh thành 5 ngôi trường mới ở nhiều xã vùng ven của TP với kinh phí mỗi ngôi trường lên đến hàng trăm tỉ đồng.
+- Sở Giáo dục và Đào tạo TP.HCM ra công văn “không nhận hoa chúc mừng dưới mọi hình thức” tại lễ khai giảng, Hiệp hội Hoa Đà Lạt kiến nghị vì cho rằng gây thiệt hại cho ngành hoa.
+- Trường vùng biên giới Đắk Lắk đang tập trung mọi nguồn lực chuẩn bị cho lễ khai giảng đặc biệt nhân dịp 80 năm ngày thành lập Bộ Quốc gia giáo dục.
+- Sau gần 1/4 thế kỷ bị gián đoạn việc học bởi cơm áo gạo tiền và những biến cố, nghệ sĩ cải lương Kim Hiền đã viết nên câu chuyện cổ tích của chính mình.
+- Trước thềm năm học mới, nhiều phụ huynh phản ánh tỉnh Lâm Đồng sẽ dừng dạy tiếng Anh cho học sinh lớp 1 và lớp 2.
+- Năm nay, các sản phẩm ứng dụng trí tuệ nhân tạo, công nghệ điện toán đám mây, công nghệ robot và tự động hóa, công nghệ chíp bán dẫn sẽ được đưa vào hạng mục trao giải thưởng.
+- Giữa những dãy phòng bệnh tại Bệnh viện Ung bướu TP.HCM, một lớp học nhỏ nhưng tràn ngập tiếng cười đã khai giảng trong dịp đầu năm học mới.
+- Đầu tư cho cơ sở vật chất, nâng cao chất lượng giảng dạy đến giữ ổn định kỳ thi tốt nghiệp THPT, xét tuyển đại học... là những kỳ vọng của học sinh, phụ huynh, nhà giáo trong năm học mới.
+- Sở Giáo dục và Đào tạo TP.HCM vừa có văn bản về việc thi chọn đội tuyển học sinh giỏi năm học 2025-2026.
+- Nguyễn Nguyệt Linh và bức tâm thư về môi trường cách đây 6 năm dịp lễ khai giảng từng mang đến những đổi thay tích cực, ai còn nhớ chăng?
+- Sở Giáo dục và Đào tạo tỉnh Lâm Đồng khẳng định không có chủ trương dừng bán trú ở các trường học.
 - Năm học mới, Hà Nội dự kiến dành hơn 3.000 tỉ đồng hỗ trợ bữa ăn bán trú cho học sinh tiểu học.
 - Nhân dịp khai giảng năm học mới 2025-2026, cũng là dịp kỷ niệm 80 năm truyền thống ngành giáo dục, Chủ tịch nước Lương Cường có thư gửi ngành giáo dục, thầy trò trên cả nước.
 - Dự báo trong dịp khai giảng năm học 2025-2026 (ngày 4 và 5-9), thời tiết trên cả nước phổ biến ít mưa vào ban ngày.
@@ -30,29 +51,40 @@
 - Bộ Giáo dục và Đào tạo vừa công bố gia hạn thời gian mở hệ thống hỗ trợ tuyển sinh chung của bộ để thí sinh xác nhận nhập học.
 - Nguyễn Thị Minh Thùy mắc căn bệnh viêm não Nhật Bản với di chứng liệt gần nửa cơ thể tưởng chừng như không thể tiếp tục đi học.
 - Hiện trường chỉ có 22 em học sinh, trong khi số lượng giáo viên là 23 người.
-- Sáng 30-8, Trường đại học Kinh tế - Đại học Đà Nẵng tổ chức lễ kỷ niệm 50 năm xây dựng và phát triển (1975-2025),
-- Sau khi rà soát dữ liệu, Trường đại học Tài chính - Marketing phát hiện sai sót dẫn đến hàng chục thí sinh đậu thành rớt, rớt thành đậu.
-- Sau khi Trường đại học Thái Bình Dương quyết định tặng 100.000 đồng cho toàn thể sinh viên, có thêm hai trường đại học ở TP.HCM cũng lì xì.
-- Nhiều giáo viên ở phường Bình Kiến (tỉnh Đắk Lắk) phản ánh đến đường dây nóng Tuổi Trẻ Online về việc bị chậm lương suốt 2 tháng nay.
-- Hơn 1 năm qua, 79 giáo viên mầm non của hệ thống Trường Pathway Tuệ Đức đã được các chuyên gia âm nhạc đào tạo.
-- Sau khi Trường đại học Ngân hàng TP.HCM thông báo bổ sung danh sách trúng tuyển do lỗi kỹ thuật, nhiều thí sinh rơi vào tình huống "tiến thoái lưỡng nan" vì đã xác nhận nhập học ở trường khác theo hệ thống của Bộ Giáo dục và Đào tạo.
-- Nhiều doanh nghiệp đang chạy đua đào tạo và tuyển dụng nhân lực đường sắt tốc độ cao, đường sắt đô thị.
-- Xã Củ Chi - xã có dân số đông nhất trong 7 xã sau sáp nhập tại huyện Củ Chi cũ - đã khánh thành Trường tiểu học Tân Thông Hội vào sáng 29-8.
-- Chỉ tính riêng ngành y khoa ở Trường đại học Y Hà Nội và Trường đại học Y Dược TP.HCM, số thí sinh được cộng điểm chiếm số lượng áp đảo, nhiều thí sinh có tổng điểm vượt 30.
-- Thí sinh trúng tuyển đại học cần phải xác nhận nhập học trên hệ thống xét tuyển chung của Bộ Giáo dục và Đào tạo trong thời hạn quy định, nếu không sẽ bị hủy kết quả.
-- Kỳ tuyển sinh 2025 khép lại với nhiều nghịch lý: điểm chuẩn 29 - 30 lan rộng, có em dư điểm vẫn rớt, hệ thống tra cứu - lọc ảo trục trặc.
-- Sau sáp nhập, ngành giáo dục TP.HCM trở thành 'siêu đô thị' về giáo dục với quy mô lớn nhất cả nước.
-- Trường đại học Thái Bình Dương (trụ sở tại tỉnh Khánh Hòa) quyết định tặng 100.000 đồng cho toàn thể học viên, sinh viên và tân sinh viên.
-- Trước thềm năm học mới, phụ huynh phản ánh nhiều trường học tại tỉnh Đắk Lắk cho học sinh mặc nhiều kiểu đồng phục mỗi tuần.
-- Sau hợp nhất, UBND tỉnh Đắk Lắk đã có quyết định "trả lại tên" cho 14 trường THPT ở tỉnh Phú Yên trước đây.
-- Sinh viên có khởi đầu thuận lợi tại Việt Nam, đồng thời có cơ hội tiếp xúc quốc tế tại các trường xếp hạng cao ở nước ngoài trong tương lai.
-- Từ một cú click chuột trên Google, Garnier Pierrick - sinh viên ngành kỹ thuật điện tại Trường kỹ thuật CESI, Đại học Nantes (Pháp) - đã quyết định chọn Trường đại học Công nghiệp TP.HCM là điểm đến thực tập quốc tế trong bốn tháng.
-- Cùng công tác tại một đại học, cùng đoạt giải Quả cầu vàng khoa học công nghệ, cùng là gương mặt trẻ Việt Nam tiêu biểu. Mới đây nhất, cả hai nhà khoa học trẻ này cùng hiện diện trong khối tri thức thuộc lễ diễu binh, diễu hành dịp 2-9.
-- Chiều ngày 28-8, tại Trường đại học Tôn Đức Thắng diễn ra Gala chung kết cuộc thi "Sinh viên Việt Nam với hiểu biết tài chính - Investment Challenge 2025".
-- Tỉ lệ nữ tham gia nghiên cứu khoa học ở Việt Nam là khoảng 45%, trong khi đó Nhật Bản khoảng 17%, Hàn Quốc 20-25%, Trung Quốc khoảng 28%...
-- Do ảnh hưởng của bão số 5, ba ngày qua ở xã biên giới Yên Khương, tỉnh Thanh Hóa có mưa lớn kéo dài. Lũ ống cuốn hàng trăm mét khối đất đá đổ vào điểm trường ở bản Xắng Hằng.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Chủ tịch Quốc hội Trần Thanh Mẫn nêu dứt khoát phải thông qua bằng được Luật Đất đai sửa đổi, Luật Quy hoạch sửa đổi tại kỳ họp thứ 10.
+- Ủy ban Kiểm tra Tỉnh ủy Đắk Lắk đã có quyết định khai trừ khỏi Đảng đối với 6 đảng viên nguyên là cán bộ các địa phương, các ngành do vi phạm về phòng chống tham nhũng.
+- Sau một thời gian chuẩn bị và thực hiện các thủ tục cần thiết, dự kiến dự án mở rộng cao tốc TP.HCM - Trung Lương - Mỹ Thuận sẽ được khởi công vào tháng 12-2025, hoàn thành trong năm 2028.
+- Tin tức đáng chú ý: Khai mạc phiên họp 49 Ủy ban Thường vụ Quốc hội; Người dân TP.HCM có thể đăng ký khám chữa bệnh BHYT tại hơn 500 cơ sở y tế.
+- Sáng nay 5-9, gần 26 triệu học sinh, sinh viên và gần 1,7 triệu thầy, cô giáo trên cả nước bước vào năm học mới với lễ khai trường đặc biệt.
+- Cảnh sát hình sự đã bắt ba nghi phạm gây ra hàng loạt vụ cướp giật tài sản của du khách đang du lịch tại Đà Nẵng.
+- Việc đền bù, hỗ trợ, tái định cư, hỗ trợ việc làm ở dự án sân bay Long Thành có nhiều sai phạm từ cấp chính quyền cơ sở khi thẩm định hồ sơ.
+- Hôm nay 5-9, thời tiết Bắc Bộ nắng nóng, Thanh Hóa tới Nam Bộ mưa rào, có nơi mưa to.
+- Tai nạn liên hoàn, xe máy va chạm xe đạp rồi mất lái tông trực diện vào xe khách chạy chiều đối diện. Hậu quả, hai người tử vong, một người bị thương được đưa đi cấp cứu.
+- Đến nay có 5/21 dự án đón APEC 2027 ở Phú Quốc đạt tiến độ, 16 dự án còn lại chưa đảm bảo tiến độ và lãnh đạo tỉnh An Giang có giải pháp nào để tháo gỡ khó khăn trên. UBND đặc khu Phú Quốc cần đẩy mạnh cưỡng chế, thu hồi đất làm dự án đón APEC.
+- Tổng Bí thư nhấn mạnh phải xác định phát triển năng lượng nguyên tử là mục tiêu chiến lược lâu dài, có tầm quan trọng, cốt yếu trong phát triển kinh tế - xã hội, đảm bảo quốc phòng, an ninh.
+- Chiều 4-9, Thủ tướng Phạm Minh Chính dự lễ công bố quyết định của Thủ tướng Chính phủ về công tác cán bộ.
+- Văn phòng UBND TP.HCM vừa có thông báo kết luận của Phó chủ tịch UBND TP Bùi Xuân Cường tại cuộc họp giao ban tiến độ các dự án đường sắt đô thị.
+- Các tổ công tác của Bộ Chính trị đã làm việc, cho ý kiến vào các dự thảo văn kiện và phương án nhân sự trình đại hội đảng bộ TP Cần Thơ, tỉnh Lai Châu, Hà Tĩnh.
+- Chính phủ ban hành Nghị định số 238 quy định về chính sách học phí, miễn, giảm, hỗ trợ học phí, hỗ trợ chi phí học tập và giá dịch vụ trong lĩnh vực giáo dục, đào tạo.
+- Cục Cảnh sát giao thông đề nghị nâng tốc độ tối đa làn 1 đường Võ Nguyên Giáp (đoạn cầu Sông Thiếp đến sân bay Nội Bài) lên 100km/h, thay vì 90km/h.
+- Chiều 4-9, tại Hà Nội, Đại tướng Phan Văn Giang đã có buổi hội đàm với Bộ trưởng Bộ Quốc phòng Azerbaijan - Thượng tướng Zakir Hasanov.
+- Bộ Tư lệnh TP.HCM được Chủ tịch nước tặng Huân chương Quân công hạng ba vì đã có thành tích đặc biệt xuất sắc trong huấn luyện, sẵn sàng chiến đấu...
+- Ngày 4-9, sau thời gian "hồi sinh" trong xanh ngắn ngủi, nước sông Tô Lịch bắt đầu chuyển đen, tái diễn tình trạng ô nhiễm sau khi ngừng tiếp nhận nước từ hồ Tây.
+- Từ lâu, đường Tầm Vu, phường Bình Thạnh, TP.HCM đã xảy ra tình trạng lấn chiếm lòng, lề đường để bán hàng rong. Chính quyền đã chấn chỉnh nhưng vẫn tái diễn.
+- Trường vùng biên giới Đắk Lắk đang tập trung mọi nguồn lực chuẩn bị cho lễ khai giảng đặc biệt nhân dịp 80 năm ngày thành lập Bộ Quốc gia giáo dục.
+- Trường hợp chủ hộ không đăng ký qua ứng dụng VNeID để nhận quà 100.000 đồng hoặc không nhận giúp trực tiếp thì những người trong gia đình phải làm sao?
+- Một đoạn sạt lở bờ sông Hậu kéo dài 100m, ăn sâu vào đất liền 25m đã làm 2 căn nhà sụp hoàn toàn xuống sông. Chính quyền khẩn trương di dời 9 hộ dân lân cận đến nơi an toàn.
+- Tỉnh Quảng Trị đã tổ chức lễ đón đoàn tàu chở các chiến sĩ tham gia diễu binh, diễu hành A80 trên đường trở về tại ga Đồng Hới. Đoàn tàu này có thượng úy Lê Hoàng Hiệp, nhưng người này không xuất hiện khiến nhiều người tiếc nuối.
+- Bộ Chính trị điều động, chỉ định ông Nguyễn Long Hải tham gia Ban Chấp hành, Ban Thường vụ, giữ chức Phó bí thư Đảng ủy các cơ quan Đảng Trung ương nhiệm kỳ 2020-2025.
+- Trong khoảng hai tuần, hai người dân nhà đối diện nhau ở xã Củ Chi (TP.HCM) đã tự nguyện chuyển giao hai con vượn má vàng quý hiếm cho cơ quan kiểm lâm chăm sóc và thả về môi trường tự nhiên.
+- Sáng 4-9, trong khuôn khổ chuyến công tác Trung Quốc, Chủ tịch nước Lương Cường đã có cuộc hội đàm với Tổng Bí thư, Chủ tịch nước Trung Quốc Tập Cận Bình.
+- Sáng 4-9, Tổng Bí thư Tô Lâm chủ trì cuộc làm việc của Bộ Chính trị với Ban Thường vụ Đảng ủy Mặt trận Tổ quốc Việt Nam, các đoàn thể Trung ương về công tác chuẩn bị đại hội Đảng.
+- Tuyến đường sắt Bắc - Nam qua Quảng Trị tạm thời bị chia cắt vì một vụ sạt lở đá khiến đường ray bị xô lệch, tắc nghẽn hơn 4 giờ.
+- Nguyễn Nguyệt Linh và bức tâm thư về môi trường cách đây 6 năm dịp lễ khai giảng từng mang đến những đổi thay tích cực, ai còn nhớ chăng?
+- Lực lượng chức năng đã tìm thấy thi thể 3 nạn nhân mất tích ở hồ Đá Xanh tại xã Ea Wer (Đắk Lắk).
+- Tỉnh chưa bàn giao một mét vuông mặt bằng nào khiến hạng mục cầu vượt quốc lộ 1 kết nối với nút giao Ba Bàu cao tốc Phan Thiết - Dầu Giây gặp khó khăn, nguy cơ dừng triển khai.
 - Chính phủ vừa ban hành Nghị quyết 268 về tình hình triển khai thực hiện và vận hành mô hình chính quyền địa phương 2 cấp.
 - Cảnh sát cứu hộ thành công hai du khách quốc tịch Nga bị kiệt sức, mất phương hướng khi leo núi Cô Tiên, tỉnh Khánh Hòa.
 - Nhân dịp khai giảng năm học mới 2025-2026, cũng là dịp kỷ niệm 80 năm truyền thống ngành giáo dục, Chủ tịch nước Lương Cường có thư gửi ngành giáo dục, thầy trò trên cả nước.
@@ -71,40 +103,11 @@
 - Chiều 3-9, một vụ tai nạn lao động nghiêm trọng đã xảy ra tại công trường xây dựng vành đai 3 (đoạn qua phường Long Bình, TP.HCM) khiến 1 công nhân tử vong và 1 người bị thương được đưa đi cấp cứu.
 - Ngã tư Đồng Tâm là điểm đầu cầu Rạch Miễu 2 đã bị ùn ứ trong hai ngày liên tiếp đầu tháng 8, sau nửa tháng thông xe. Để giải quyết bài toán này, nên làm cầu vượt, hầm chui hay đơn giản chỉ điều chỉnh pha đèn hoặc phân luồng giao thông?
 - Thủ tướng Phạm Minh Chính chủ trì buổi làm việc của Bộ Chính trị với Ban Thường vụ Tỉnh ủy An Giang và Lâm Đồng, cho ý kiến vào dự thảo các văn kiện, phương án nhân sự đại hội đảng bộ.
-- Bạn đọc phản ánh cơ quan chức năng cấp đất của mình cho một người khác. Vậy phải làm thế nào để 'trả' thửa đất đó lại cho chủ cũ?
-- Bộ Nội vụ đề xuất các tiêu chí, điều kiện tổ chức lại, giải thể đơn vị sự nghiệp công lập.
-- Ngày 3-9, tàu SE67 xuất phát từ ga Hà Nội đã lăn bánh, đưa các chiến sĩ Quân khu 5, Quân đoàn 34 về đơn vị sau khi hoàn thành nhiệm vụ A80.
-- Khu di tích nơi có đền thờ và phần mộ cụ Phó bảng Nguyễn Sinh Sắc (phường Cao Lãnh, tỉnh Đồng Tháp) được tỉnh Đồng Tháp đầu tư tôn tạo, tu bổ với kinh phí hơn 145 tỉ đồng.
-- Cơn mưa lớn đêm 2-9 khiến đất cát theo nước tràn xuống ngập mặt đường, giao thông trên cao tốc Vĩnh Hảo - Phan Thiết phải gián đoạn một thời gian.
-- Ngày 3-9, Sở Xây dựng Hà Nội vừa có thông báo về việc điều chỉnh tổ chức giao thông trên nhánh Ramp CV1C hướng các phương tiện từ cầu Vĩnh Tuy rẽ phải đi đường Nguyễn Khoái, sau vụ cháy bãi trông giữ xe dưới chân cầu ngày 30-8 làm lộ cốt thép.
-- Sở Y tế tỉnh An Giang đã ký quyết định tạm đình chỉ công tác đối với giám đốc Trung tâm y tế An Phú 90 ngày, để phục vụ công tác của đoàn kiểm tra liên quan đến quy định pháp luật về tài chính.
-- Nhóm nghi phạm từ các tỉnh phía Bắc vào Quảng Trị hoạt động cho vay lãi nặng tổng số tiền 25 tỉ đồng, thu lãi 10 tỉ đồng. Tức mức lãi cao nhất lên đến 644%/năm.
-- Nội dung 'Vợ hoặc chồng đi nhậu quá 20 giờ có thể bị xử phạt nghiêm, mức phạt dự kiến lên đến 30 triệu đồng' phát tán trên mạng xã hội cùng hình ảnh đại biểu Quốc hội là gán ghép và Công an tỉnh Lâm Đồng đang làm rõ.
-- Ông Vũ Mạnh Hà, phó bí thư thường trực Tỉnh ủy Lai Châu được bổ nhiệm giữ chức thứ trưởng thường trực Bộ Y tế.
-- Thủ tướng Chính phủ vừa có quyết định tiếp nhận, bổ nhiệm ông Nguyễn Văn Quảng, bí thư Thành ủy Đà Nẵng giữ chức phó tổng thanh tra thường trực Thanh tra Chính phủ.
-- Ngày 3-9, đại diện Phòng Cảnh sát giao thông Công an TP.HCM cho biết dịp lễ 2-9 đã xử lý hơn 9.500 trường hợp vi phạm, trong đó có 2.200 người vi phạm nồng độ cồn.
-- Thủ tướng Chính phủ vừa có quyết định điều động, bổ nhiệm ông Lê Quân, chủ tịch hội đồng, giám đốc Đại học Quốc gia Hà Nội, giữ chức thứ trưởng Bộ Giáo dục và Đào tạo.
-- Trưa 3-9, lực lượng Công an TP.HCM vẫn đang phối hợp các đơn vị liên quan điều tra nguyên nhân 2 vụ tai nạn giao thông làm 3 người chết xảy ra trong một buổi sáng nay.
-- TS Nguyễn Viết Chức đánh giá sự kiện kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9 tiếp tục cho thấy dưới sự lãnh đạo tuyệt đối, sáng suốt của Đảng và sự đoàn kết toàn dân có thể nhấn chìm mọi kẻ xâm lược, cuốn phăng mọi trở lực.
-- Sáng 3-9, tại Hà Nội, Thượng tướng Hoàng Xuân Chiến và Thượng tướng Alexander Vasilyevich Fomin  đã đồng chủ trì Đối thoại chiến lược quốc phòng lần thứ 8.
-- Bộ Xây dựng đang lấy ý kiến dự thảo Luật Xây dựng sửa đổi theo hướng rút ngắn thời gian cấp phép xây dựng công trình xuống còn 7 ngày, và tăng nhóm công trình xây dựng được miễn cấp phép.
-- Đà Nẵng thành lập tổ công tác kiểm tra, rà soát và thúc đẩy tiến độ loạt dự án bất động sản bị “đứng bánh” nhiều năm qua. Đây là các dự án do Bách Đạt An, Dana Homeland và Chí Thành làm chủ đầu tư - khiến hàng ngàn khách hàng mòn mỏi chờ sổ đỏ.
-- Đó là khẳng định của Thượng tướng Álvaro López Miera, bộ trưởng Bộ Các lực lượng vũ trang cách mạng Cuba, tại buổi hội đàm cùng với Đại tướng Phan Văn Giang sáng nay 3-9, tại trụ sở Bộ Quốc phòng.
-- Ngay sau khi TP.HCM công bố chính sách hỗ trợ 5 triệu cho phụ nữ sinh đủ 2 con trước 35 tuổi, hàng trăm ý kiến của bạn đọc đã gửi về báo Tuổi Trẻ Online.
-- TP Huế hiện là một trong những địa phương đứng top đầu trong việc trao ‘lì xì’ Tết Độc lập của Chính phủ cho người dân.
-- Sáng 3-9, Cơ quan cảnh sát điều tra Công an tỉnh An Giang cho biết sau thời gian điều tra, xác minh đã ra quyết định khởi tố vụ án, khởi tố 13 người về tội tổ chức sử dụng trái phép chất ma túy tại quán karaoke ở Phú Quốc.
-- Hôm qua (2-9), lễ diễu binh diễu hành kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9 đã được tổ chức trọng thể tại quảng trường Ba Đình (Hà Nội).
-- Chính phủ vừa ban hành Nghị định số 237 sửa đổi, bổ sung một số điều của Nghị định số 105/2012 ngày 17-12-2012 của Chính phủ về tổ chức lễ tang cán bộ, công chức, viên chức.
-- Cục Xe máy - Vận tải đã phối hợp các đơn vị lên kế hoạch chi tiết đưa, đón các cán bộ, chiến sĩ thuộc các khối diễu binh, diễu hành trở về đơn vị đang công tác, bảo đảm chu đáo, an toàn.
-- Sáng 3-9, ngày đầu đi làm lại sau kỳ nghỉ lễ 2-9, hàng ngàn xe ùn ứ nghiêm trọng tại vòng xoay cầu Bình Lợi (phường Hiệp Bình, TP.HCM), lực lượng cảnh sát giao thông căng mình điều tiết.
-- Một số tin tức đáng chú ý: Hai ái nữ sếp VPBank chi xong nghìn tỉ mua cổ phiếu; Hải Phát lùi ngày đáo hạn lô trái phiếu 500 tỉ đồng; TP.HCM kiến nghị thuận chủ trương giải ngân dự án thành phần vành đai 3, 4...
-- Hôm nay 3-9, thời tiết Bắc Bộ nắng sau nhiều ngày mưa dông. Nam Bộ mưa rào, chiều tối có nơi mưa to đến rất to.
-- Trong thư khen gửi công an các đơn vị, địa phương, Bộ trưởng Lương Tam Quang biểu dương tinh thần, nỗ lực bảo đảm tuyệt đối an ninh, an toàn chuỗi sự kiện kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9.
-- Tối 2-9, hàng ngàn người dân đổ về trung tâm thành phố Hà Nội để ngắm pháo hoa tầm cao kết hợp tầm thấp sáng rực bầu trời nhân kỷ niệm 80 năm Cách mạng Tháng Tám và Quốc khánh 2-9.
-- Bộ Xây dựng vừa yêu cầu kiểm định, đánh giá chất lượng và khả năng khai thác công trình cầu Vĩnh Tuy sau vụ cháy bãi gửi xe dưới gầm cầu làm bong vỡ bê tông, lộ cốt thép cầu.
-- Dự báo trong tháng 9, có thể có 2-3 cơn bão hoặc áp thấp nhiệt đới hoạt động trên Biển Đông và không loại trừ có xoáy thuận nhiệt đới ảnh hưởng đến đất liền nước ta.
 ![New](News.png)
 ## Nhịp sống số 
+- Sau nhiều tranh cãi về độ an toàn của trí tuệ nhân tạo với trẻ vị thành niên, OpenAI chính thức bổ sung công cụ kiểm soát trẻ trên ChatGPT.
+- Mức phạt đối với Google là 325 triệu euro (379 triệu USD), trong khi Shein bị phạt 150 triệu euro (175 triệu USD).
+- Trong bối cảnh Apple sắp ra mắt dòng iPhone 17 mới, xuất hiện nhiều dự báo về giá cả khiến cộng đồng công nghệ bất ngờ.
 - Google bác bỏ tin đồn trên mạng xã hội cho rằng hãng đã gửi cảnh báo khẩn đến 2,5 tỉ người dùng Gmail sau một vụ rò rỉ dữ liệu.
 - Việc Meta đàm phán sử dụng các mô hình AI của Google và OpenAI là dấu hiệu rõ ràng về sự thay đổi lớn trong chiến lược của những 'gã khổng lồ' công nghệ.
 - Microsoft và hãng sản xuất bộ điều khiển SSD Phison bác bỏ tin đồn lan truyền trên mạng xã hội hồi tháng 8 cho rằng các bản cập nhật Windows 11 đã gây lỗi nghiêm trọng, làm hỏng ổ SSD.
@@ -152,7 +155,4 @@
 - Từ vụ hàng ngàn cuộc trò chuyện của người dùng trên ChatGPT bị lộ trên Google, chuyên gia bảo mật cảnh báo: AI là công cụ hỗ trợ hữu ích, nhưng không phải là 'hộp đen an toàn'.
 - Theo dự thảo Dự luật Cấm thông tin sai lệch và tin giả Karnataka 2025 (Ấn Độ), người đăng tin giả có thể bị phạt tù.
 - Meta dùng “Community Notes” thay thế các tổ chức kiểm chứng chuyên nghiệp, nhưng hệ thống này bị đánh giá là kém hiệu quả.
-- Rò rỉ thông tin iPhone 17 Air cho thấy đây sẽ là phiên bản có thiết kế cực kỳ mỏng, chỉ khoảng 5,5mm.
-- Mô hình AI này chuyển đổi dữ liệu vệ tinh - như màu sắc, mây, địa hình - thành các dạng biểu diễn số, giúp người dùng dễ dàng tìm kiếm các đặc điểm như loại cây, tòa nhà hay mạch nước ngầm.
-- Nhiều vụ “bắt cóc online” học sinh, sinh viên gây lo ngại khi kẻ xấu điều khiển nạn nhân từ xa, không cần tiếp xúc trực tiếp.
 ![life](Life.png)
