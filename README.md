@@ -1,6 +1,13 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Học sinh, sinh viên không chỉ được hỗ trợ tối thiểu 50% mức đóng mà còn hưởng nhiều quyền lợi khi chữa bệnh, có người được chi trả cả tỉ đồng.
+- Thông tin này được TS Bùi Hồng Quân - trưởng khoa giáo dục mầm non (Trường ĐH Sư phạm TP.HCM) - trả lời phóng viên báo Tuổi Trẻ tại buổi đón sinh viên K51 do khoa này tổ chức, chiều 7-9.
+- Sau hơn một tháng xét tuyển, ký túc xá Cỏ May (TP.HCM) vừa chính thức công bố danh sách 107 tân sinh viên có hoàn cảnh khó khăn được tiếp nhận hỗ trợ lưu trú và học tập trong năm học 2025-2026.
+- Tiến sĩ Bùi Thị Hồng Tiến - Giám đốc Quỹ Khuyến học - khuyến tài tỉnh Khánh Hòa - đã hàng chục năm vận động giúp đỡ học sinh, sinh viên khó khăn, tiếp thêm động lực để các bạn xây tiếp ước mơ.
+- Nội dung giáo dục giới tính, phòng chống xâm hại trẻ em đã bị một số TikToker biến thành trào lưu giải trí phản cảm.
+- Thực tế diễn ra trong kỳ tuyển sinh đại học 2025 là minh chứng rõ ràng rằng một cuộc đổi mới nếu thiếu chuẩn bị và thực tiễn có thể dẫn đến thất bại toàn diện.
+- Cùng với từng bước thăng trầm của dân tộc, giáo dục Việt Nam luôn là điểm tựa để giữ lửa tri thức, hun đúc ý chí và kiến tạo tương lai.
 - Chiều 6-9, Công viên APEC (Đà Nẵng) sôi động với hàng trăm bạn trẻ và phụ huynh tham gia Ngày hội du học Nhật Bản tại Đà Nẵng.
 - Đổi mới giáo dục không chỉ là cải cách, chỉnh sửa mà phải có tính đột phá - Thứ trưởng Bộ Giáo dục và Đào tạo chia sẻ.
 - Hình ảnh danh sách học sinh khó khăn được nhận quà được trình chiếu công khai trong lễ khai trường 5-9 khiến nhiều phụ huynh bức xúc.
@@ -44,15 +51,30 @@
 - Khai giảng ngày 4-9 tại Bệnh viện Ung bướu TP.HCM, lớp học đặc biệt gây xúc động mạnh cho những người dõi theo các bé.
 - Công văn “không nhận hoa chúc mừng dưới mọi hình thức” tại lễ khai giảng của Sở Giáo dục và Đào tạo TP.HCM đang tạo nên làn sóng tranh luận trái chiều.
 - "Năm học mới em có cặp sách mới, vở mới và tiền mua quần áo mới. Em hứa sẽ học tập tốt, cuối năm có giấy khen".
-- Cô trò điểm trường Tăk Pổ, ngôi trường từng "gây bão" trên mạng xã hội với lễ khai giảng mộc mạc, đơn sơ năm 2019, đang tất bật trang trí trường lớp chuẩn bị cho lễ khai giảng.
-- Hòa chung không khí chuẩn bị lễ khai giảng đặc biệt năm học mới 2025-2026, ngày 4-9 trường học tại các xã vùng biên giới Việt - Lào của tỉnh Thanh Hóa tất bật chuẩn bị cơ sở vật chất, hướng dẫn học sinh các trò chơi vui tươi bước vào năm học mới.
-- Hàng ngàn học sinh, phụ huynh ở Hà Nội vừa được chui địa đạo và trải nghiệm các không gian hiểu biết, tử tế, trưởng thành, biết ơn, hạnh phúc và tỉnh thức, nhân dịp khai giảng năm học mới.
-- Ngày Võ Mộng Hoài Tâm biết tin mình đạt danh hiệu thủ khoa tốt nghiệp của Trường đại học Công nghiệp TP.HCM, cô gái nhỏ đến từ vùng đất biên giới Tân Hưng (Long An cũ) đã xúc động đến rơi nước mắt.
-- Ngày 4-9, TP.HCM khánh thành 5 ngôi trường mới ở nhiều xã vùng ven của TP với kinh phí mỗi ngôi trường lên đến hàng trăm tỉ đồng.
-- Sở Giáo dục và Đào tạo TP.HCM ra công văn “không nhận hoa chúc mừng dưới mọi hình thức” tại lễ khai giảng, Hiệp hội Hoa Đà Lạt kiến nghị vì cho rằng gây thiệt hại cho ngành hoa.
-- Trường vùng biên giới Đắk Lắk đang tập trung mọi nguồn lực chuẩn bị cho lễ khai giảng đặc biệt nhân dịp 80 năm ngày thành lập Bộ Quốc gia giáo dục.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Rạng sáng 8-9, cường độ bão số 7 (Tapah) tiếp tục mạnh lên đầu cấp 11, giật cấp 13. Dự báo ngày hôm nay, bão đổ bộ vào Trung Quốc. Từ ngày mai, trung du và miền núi Bắc Bộ mưa lớn do hoàn lưu sau bão.
+- Gần 80.000 người nghỉ việc đã được thanh toán chế độ theo nghị định 178; Doanh nghiệp liên quan bà Trương Mỹ Lan tiếp đà lỗ lớn...
+- Hôm nay 8-9, thời tiết Bắc Bộ ngày nắng nhưng từ chiều tối mưa do ảnh hưởng bão số 7. Nam Bộ duy trì mưa rào, có nơi mưa to.
+- Clip cán bộ cảnh sát giao thông Công an TP.HCM hỗ trợ mở đường để xe chở thai phụ vỡ ối kịp đến bệnh viện lan truyền trên mạng xã hội nhận "cơn mưa lời khen".
+- Mạng xã hội đang lan truyền một đoạn clip người phụ nữ mặc áo blouse trắng tấn công khách hàng tại một phòng khám nha khoa (TP.HCM).
+- Nhiều nước đang áp dụng công nghệ theo dõi GPS để quản lý trẻ vị thành niên phạm pháp thay vì giam giữ, nhưng biện pháp này đang gây tranh cãi về hiệu quả và tác động tâm lý.
+- Theo kế hoạch, ngày 25-9 tới các đơn vị sẽ tổ chức bay hiệu chuẩn đường băng số 1 sân bay Long Thành, chuẩn bị cho chuyến bay kỹ thuật vào ngày 19-12 tới.
+- Mưa lớn nhiều ngày qua khiến nhiều khu vực tại tỉnh Đắk Lắk ngập sâu. Chính quyền địa phương, bộ đội lên phương án ứng phó để giảm nhẹ thiệt hại.
+- Mặc dù thời tiết không có mưa, song nước suối ở Nghệ An bỗng đổi màu vàng đục chưa rõ nguyên nhân khiến người dân lo lắng.
+- Nhân chứng cho hay chiếc ô tô con màu trắng, biển số Hà Nội sau vụ tai nạn liên hoàn đã bị kẹp giữa xe container và xe khách. Chiếc xe này bị "vò nát", biến dạng.
+- Tại dự thảo nghị định, Bộ Công an đã đề xuất các trường hợp cụ thể có thể áp dụng biện pháp giám sát điện tử.
+- Do ảnh hưởng của rìa xa hoàn lưu bão Tapah (bão số 7), ở vịnh Bắc Bộ và vùng biển phía đông của Bắc Bộ có thể xuất hiện dông, lốc và gió giật mạnh.
+- Hạn chế trang trí hoa tươi trong lễ khai giảng; Nhiều thắc mắc về cách nhận quà 100.000 đồng... đã thu hút nhiều bạn đọc phản hồi tuần qua.
+- Cát lại tràn xuống mặt đường gây khó khăn trong lưu thông trên cao tốc Vĩnh Hảo - Phan Thiết, đoạn qua xã Hàm Liêm, tỉnh Lâm Đồng.
+- Kể từ 1-9-2025, chính sách hỗ trợ phụ nữ sinh đủ 2 con trước 35 tuổi bước sang giai đoạn mới với mức hỗ trợ tăng lên 5 triệu đồng.
+- Ngày 7-9, tại Hà Nội, Đài Tiếng nói Việt Nam (VOV) long trọng tổ chức Lễ kỷ niệm 80 năm ngày thành lập đài.
+- Cơ hội chưa từng có nhưng thách thức lớn, đòi hỏi TP.HCM phải quyết đoán chọn nhà đầu tư, chọn đội ngũ cán bộ.
+- Trưa nay mây dông phát triển mạnh tại TP.HCM, bầu trời đen kịt, trời sắp đổ mưa to.
+- Nữ công chức Trung tâm phục vụ hành chính công phường B'Lao (tỉnh Lâm Đồng) bị đình chỉ công tác vì hành hung người đi đường.
+- Sau phản ảnh của Tuổi Trẻ về bãi rác lớn trước lối ra nhà ga T3 Tân Sơn Nhất, ngay sau đó nhà ga T3 đã dọn sạch. Nhưng nay rác lại xuất hiện.
+- Sau một vài ngày bớt mưa, trời nắng, tuần này thời tiết cả nước lại mưa dông, có nơi mưa to.
+- Dù dự báo bão Tapah đổ bộ vào Trung Quốc song cơ quan khí tượng cảnh báo hoàn lưu bão có thể gây ra một đợt mưa lớn diện rộng ở Bắc bộ.
 - Bộ Nội vụ đã có định hướng chi tiết 36 vị trí việc làm ở cấp xã gồm 8 vị trí lãnh đạo, quản lý và 28 vị trí chuyên môn, nghiệp vụ.
 - Tài xế xe container chạy sai làn đường, vượt đèn đỏ trên quốc lộ 13 bị camera người đi đường ghi lại đã bị xử phạt.
 - Tin tức đáng chú ý: Khởi tố điều tra vụ cơ sở không phép ở TP.HCM hút mỡ cho hơn 500 khách hàng; Tháng 10 xem xét lựa chọn phương thức đầu tư, nhà đầu tư đường sắt cao tốc; Phẫu thuật thành công ca nội soi đầu tiên tại đặc khu Côn Đảo - TP.HCM...
@@ -81,30 +103,9 @@
 - Ông Phạm Đức Ấn, chủ tịch UBND tỉnh Quảng Ninh, được điều động, chỉ định làm Phó bí thư Thành ủy Đà Nẵng để giới thiệu bầu làm Chủ tịch UBND TP Đà Nẵng.
 - Ông Lương Nguyễn Minh Triết - phó bí thư Thành ủy Đà Nẵng, chủ tịch UBND TP Đà Nẵng - được chỉ định giữ chức Bí thư Thành ủy Đà Nẵng.
 - Do gần với dải hội tụ nhiệt đới nối với áp thấp nhiệt đới trên Biển Đông, nên hôm nay các tỉnh Đông Nam Bộ, TP.HCM có mưa to nhiều hơn miền Tây.
-- Thứ trưởng Bộ Nông nghiệp và Môi trường Lê Minh Ngân được Ban Bí thư điều động, chỉ định giữ chức Phó bí thư thường trực Tỉnh ủy Lai Châu.
-- Lũ lớn từ thượng nguồn đổ về đột ngột làm chết hàng chục con trâu, bò người dân cột ven con suối ở xã Tây Sơn, tỉnh Đắk Lắk.
-- Nhiều bạn đọc bức xúc trước cảnh lòng đường, vỉa hè bị biến thành chợ khiến giao thông hỗn loạn, phố xá nhếch nhác.
-- UBND TP.HCM đã có quyết định thành lập Trung tâm Phát triển quỹ đất TP.HCM, là đơn vị sự nghiệp trực thuộc UBND TP.HCM.
-- Dự báo tối 6-9, áp thấp nhiệt đới trên Biển Đông sẽ mạnh lên thành bão Tapah (bão số 7) và cường độ cực đại của bão trên biển có thể đạt cấp 10, giật cấp 13.
-- Công ty chuyên sản xuất bao bì trên đường Phạm Văn Sáng, xã Bà Điểm (TP.HCM) bất ngờ bốc cháy, nhiều tài sản bị thiêu rụi.
-- Ngày 6-9, Chi cục Kiểm lâm TP.HCM đã phối hợp địa phương và người dân bắt được con vượn quý hiếm xuất hiện tại khu vực phía sau nhà người dân ở ấp 38, xã Tân Nhựt, TP.HCM.
-- Một bé trai 4 tuổi ở Nghệ An thấy em họ ngã xuống mương nước đã nhanh trí chạy vào nhà thông báo cho người thân ra cứu.
-- Dự án thành phần 3 (đường cao tốc) thuộc dự án đường vành đai 4 - vùng thủ đô sẽ góp phần giảm tải phương tiện liên tỉnh đi qua nội đô, nhất là trên tuyến vành đai 3 vốn đã quá tải.
-- Tổng Bí thư Tô Lâm yêu cầu vận dụng sáng tạo khoa học công nghệ quân sự tiên tiến trên thế giới, đưa nền khoa học và nghệ thuật quân sự Việt Nam phát triển lên tầm cao mới.
-- Hàng chục dự án nhà ở xã hội vừa được khởi công xây dựng, mở bán tại Hà Nội đang mở cơ hội tiếp cận nhà ở cho người thu nhập thấp, giúp họ sớm hoàn thành giấc mơ an cư.
-- Sáng 6-9, tại Hà Nội, Quân ủy Trung ương - Bộ Quốc phòng tổ chức trọng thể Lễ kỷ niệm 80 năm Ngày truyền thống và đón nhận danh hiệu Anh hùng Lực lượng vũ trang nhân dân.
-- Sáng nay 6-9, áp thấp nhiệt đới mạnh lên cấp 7 (50-61km/h), giật cấp 9. Dự báo ngày và đêm nay (6-9), áp thấp nhiệt đới có khả năng mạnh lên thành bão số 7.
-- Sáng 6-9, cơ quan chức năng phường Thạnh Mỹ Tây (thuộc quận Bình Thạnh cũ, TP.HCM) kiểm tra bất ngờ hai tuyến đường Ung Văn Khiêm, Nguyễn Gia Trí, xử phạt hàng chục trường hợp lấn chiếm vỉa hè.
-- Đó là chỉ đạo của Thủ tướng Phạm Minh Chính khi chủ trì phiên họp Chính phủ thường kỳ tháng 8 ngày 6-9.
-- Trận mưa lớn trong đêm đã khiến hàng trăm hộ dân ở vùng Đức Trọng - Lâm Đồng ngập lụt nặng.
-- Bộ trưởng Bộ Tư pháp Nguyễn Hải Ninh cho biết năm 2025, một số đại án chưa có tiền lệ được đưa ra xét xử và có hiệu lực thi hành như vụ Vạn Thịnh Phát, FLC.
-- Công ty TNHH Dự án Hồ Tràm và Masterise Group đều đã có văn bản đề xuất UBND TP.HCM làm dự án cao tốc Hồ Tràm - sân bay Long Thành dài 42km, với tổng mức đầu tư khoảng 20.000 tỉ đồng.
-- Bộ Nội vụ đề nghị các bộ, ban, ngành, địa phương báo cáo kết quả thực hiện chính sách, chế độ đối với cán bộ, công chức theo nghị định 178, 67.
-- Hàng chục hộ dân tại một khu gia đình quân nhân ở Đà Nẵng thấp thỏm vì nguy cơ phải nộp tiền sử dụng đất gấp sáu lần do bị áp giá theo thời điểm giá cao, chưa kể tiền phạt chậm nộp.
-- Hôm nay 6-9, thời tiết cả nước đã giảm mưa, nhiều nơi nắng nóng. Biển Đông có vùng áp thấp khả năng thành áp thấp nhiệt đới.
-- Một số tin tức đáng chú ý: Có 52 doanh nghiệp có vốn hóa hơn 1 tỉ USD trên HoSE; Gần 124 triệu hồ sơ khách hàng cá nhân đã đối chiếu khuôn mặt; Xuất siêu 8 tháng gần 14 tỉ USD; Thu hồi 74 số công bố tiêu chuẩn thiết bị y tế loại A, B...
 ![New](News.png)
 ## Nhịp sống số 
+- Các chương trình AI đạt được nhiều thành tựu ấn tượng, song nghiên cứu mới nhấn mạnh không nên cường điệu khả năng suy luận của AI.
 - Tội phạm mạng tại Hải Phòng đang diễn biến phức tạp, 8 tháng đầu năm lực lượng chức năng đã xử lý 122 vụ lừa đảo công nghệ cao.
 - Đối với nhiều website, đặc biệt là các trang sản phẩm, e-commerce, hình ảnh thường được người dùng yêu cầu nhiều nhất và chiếm nhiều băng thông hơn bất kỳ tài nguyên nào khác.
 - Big Tech đang tiếp tục rót hàng trăm tỉ USD vào trí tuệ nhân tạo, biến AI thành cuộc chơi lên đến nghìn tỉ đô. Người dùng sẽ thực sự được gì?
@@ -154,5 +155,4 @@
 - Nhiều người thường nhầm lẫn Deep Web với Dark Web, nhưng hai khái niệm này hoàn toàn khác nhau.
 - Trong thời đại số, mật khẩu chính là 'chìa khóa' bảo vệ cuộc sống trực tuyến. Nhưng đặt mật khẩu thế nào để không bị đoán ra? Dưới đây là những nguyên tắc quan trọng giúp bạn tự tạo 'mật khẩu an toàn nhất thế giới'.
 - Ngày 5-8, Công ty OpenAI đã ra mắt 2 mô hình trí tuệ nhân tạo (AI) mới cho phép người dùng tải về miễn phí và tùy chỉnh công nghệ, nhằm cạnh tranh với các sản phẩm tương tự của các đối thủ khác.
-- Thủ tướng Thụy Điển Ulf Kristersson hứng chỉ trích khi thừa nhận thường xuyên sử dụng AI như ChatGPT để hỗ trợ việc ra quyết định.
 ![life](Life.png)
