@@ -1,6 +1,21 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Nhiều trường học ở TP.HCM ngưng dạy ngoại ngữ 2 khi Bộ GD-ĐT quy định việc dạy học hai buổi/ngày không quá bảy tiết/ngày.
+- Trước giờ diễn ra lễ tổng kết dự án Phát triển nhân tài công nghệ - Samsung Innovation Campus 2024-2025, các bạn học sinh, sinh viên Việt Nam đã có những màn tranh tài kịch tính tại trận chung kết 'robot đá bóng'.
+- Thứ trưởng Bộ Giáo dục và Đào tạo Nguyễn Văn Phúc nhấn mạnh việc nghiên cứu đề xuất sửa đổi, bổ sung quy định về quyền tự chủ của các cơ sở giáo dục nghề nghiệp trong bổ nhiệm chức danh, thu hút nhân tài…
+- Sở Giáo dục và Đào tạo Nghệ An yêu cầu địa phương, nhà trường tạm dừng sáp nhập điểm lẻ về điểm chính, sau khi nhiều phụ huynh phản đối sáp nhập trường.
+- Nhiều bạn đọc đã phản hồi sau đề xuất thời gian kết thúc giờ học buổi chiều tại TP.HCM không trước 16h30.
+- Nhiều sinh viên của Trường đại học Sư phạm (Đại học Huế) bất ngờ đau bụng, mệt mỏi nghi do ngộ độc... phải nhập viện sau bữa ăn sáng tại Trung tâm Giáo dục quốc phòng và An ninh (cũng trực thuộc Đại học Huế).
+- Những ngày qua, mạng xã hội lan truyền tin giải cứu một học sinh lớp 7 tại khu vực phường 3 - Bảo Lộc, tỉnh Lâm Đồng “bị chuốc thuốc”.
+- Việc dạy học 2 buổi/ngày nhằm thực hiện chương trình giáo dục phổ thông một cách khoa học, giúp giảm áp lực học tập...
+- Sở Giáo dục và Đào tạo tỉnh Đắk Lắk đã yêu cầu Trường tiểu học, THCS và THPT Victory báo cáo về việc một học sinh đi Hàn Quốc thăm mẹ về trễ bị nhà trường cho thôi học.
+- Đại học Kinh tế TP.HCM vừa có báo cáo gửi Bộ Giáo dục và Đào tạo về trường hợp luận án tiến sĩ của nghiên cứu sinh Trần Quỳnh Hoa có dấu hiệu đạo văn.
+- Sau kỳ thi bác sĩ nội trú "khốc liệt nhất" của Trường đại học Y Hà Nội, hơn 400 tân bác sĩ có màn hô tên chọn chuyên ngành đầy kịch tính, thu hút hàng triệu lượt xem trên mạng xã hội.
+- Bằng cách học hỏi mô hình '3 trong 1'  ở châu Âu, đại học Việt Nam có thể xây dựng hệ sinh thái sáng tạo, nơi nghiên cứu, đào tạo và doanh nghiệp cùng thúc đẩy tri thức ra thị trường.
+- Tuổi Trẻ ghi nhận một số ý kiến trước khi ngành giáo dục bắt tay làm bộ sách giáo khoa thống nhất này.
+- Trường đại học Y khoa Phạm Ngọc Thạch, TP.HCM vừa công khai chi tiết thu nhập hằng tháng của từng cá nhân trong toàn trường.
+- Ông Hồ Tấn Minh, Chánh Văn phòng Sở Giáo dục và Đào tạo TP.HCM, cho biết dự kiến học sinh TP.HCM sẽ được nghỉ Tết Nguyên đán 2026 hai tuần.
 - Năm học 2025 - 2026, mức đóng bảo hiểm y tế (BHYT) dành cho học sinh, sinh viên tiếp tục giữ nguyên, nhưng mức hỗ trợ từ ngân sách nhà nước đã tăng từ 30% lên tối thiểu 50%.
 - Nhiều tân sinh viên Trường đại học Quốc tế (Đại học Quốc gia TP.HCM) đã quyết định rút hồ sơ chỉ vài ngày sau khi trường công bố kết quả phân ngành.
 - Do hiểu chưa đúng về dạy không quá bảy tiết/ngày, nhiều trường đã cho học sinh học sáng thứ Bảy.
@@ -36,73 +51,58 @@
 - Trường Khoa học mỹ phẩm của Nhật Bản được thành lập trong bối cảnh các sản phẩm chăm sóc da đang có nhu cầu lớn hơn bao giờ hết, bất kể giới tính.
 - Học viện Khoa học Quân sự tuyển bổ sung các ngành ngôn ngữ Anh, Nga, Trung Quốc; Trường đại học Thông tin liên lạc tuyển bổ sung lĩnh vực công nghệ thông tin, kỹ thuật điện tử - viễn thông...
 - Thường trực Ban Bí thư Trần Cẩm Tú yêu cầu xây dựng đội ngũ cán bộ, giảng viên Học viện Chính trị quốc gia Hồ Chí Minh phải là tấm gương sáng.
-- Sáng 8-9, Học viện Chính trị khu vực II tổ chức lễ khai giảng và triển khai công tác giảng dạy - học tập năm học 2025-2026.
-- Hàng loạt trường đại học đào tạo nhóm ngành y dược đồng loạt thông báo xét tuyển bổ sung với nhiều ngành và hàng trăm chỉ tiêu.
-- Tại lễ khai giảng năm học mới, Tổng Bí thư Tô Lâm nhấn mạnh một số định hướng lớn để thực hiện thắng lợi sự nghiệp đổi mới giáo dục và đào tạo trong giai đoạn mới. Trong đó có bảo đảm tiếp cận bình đẳng trong giáo dục.
-- Mùa mưa năm đó, vài người trong xóm bơi xuồng ghé xin ông ngoại tôi lá dừa nước và cây gỗ trong vườn để dựng lớp học ở đầu kinh đối diện nhà.
-- Trong lễ khai giảng năm học mới tại một trường tiểu học ở Hà Nội, ý tốt của nhà trường - trao quà cho học sinh có hoàn cảnh đặc biệt - vô hình trung lại gieo thêm nỗi buồn cho cả phụ huynh và trẻ nhỏ.
-- Bốn ngôi trường trên quần đảo Trường Sa của Việt Nam đã bước vào năm học mới cùng hàng triệu học sinh cả nước.
-- Học sinh, sinh viên không chỉ được hỗ trợ tối thiểu 50% mức đóng mà còn hưởng nhiều quyền lợi khi chữa bệnh, có người được chi trả cả tỉ đồng.
-- Thông tin này được TS Bùi Hồng Quân - trưởng khoa giáo dục mầm non (Trường ĐH Sư phạm TP.HCM) - trả lời phóng viên báo Tuổi Trẻ tại buổi đón sinh viên K51 do khoa này tổ chức, chiều 7-9.
-- Sau hơn một tháng xét tuyển, ký túc xá Cỏ May (TP.HCM) vừa chính thức công bố danh sách 107 tân sinh viên có hoàn cảnh khó khăn được tiếp nhận hỗ trợ lưu trú và học tập trong năm học 2025-2026.
-- Tiến sĩ Bùi Thị Hồng Tiến - Giám đốc Quỹ Khuyến học - khuyến tài tỉnh Khánh Hòa - đã hàng chục năm vận động giúp đỡ học sinh, sinh viên khó khăn, tiếp thêm động lực để các bạn xây tiếp ước mơ.
-- Nội dung giáo dục giới tính, phòng chống xâm hại trẻ em đã bị một số TikToker biến thành trào lưu giải trí phản cảm.
-- Thực tế diễn ra trong kỳ tuyển sinh đại học 2025 là minh chứng rõ ràng rằng một cuộc đổi mới nếu thiếu chuẩn bị và thực tiễn có thể dẫn đến thất bại toàn diện.
-- Cùng với từng bước thăng trầm của dân tộc, giáo dục Việt Nam luôn là điểm tựa để giữ lửa tri thức, hun đúc ý chí và kiến tạo tương lai.
-- Chiều 6-9, Công viên APEC (Đà Nẵng) sôi động với hàng trăm bạn trẻ và phụ huynh tham gia Ngày hội du học Nhật Bản tại Đà Nẵng.
-- Đổi mới giáo dục không chỉ là cải cách, chỉnh sửa mà phải có tính đột phá - Thứ trưởng Bộ Giáo dục và Đào tạo chia sẻ.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Rạng sáng nay, một trận động đất mạnh 4,5 độ (độ lớn M) xảy ra ở xã Măng Bút, tỉnh Quảng Ngãi. Trung tâm Báo tin động đất và Cảnh báo sóng thần cảnh báo cấp độ rủi ro thiên tai cấp 1.
-- Ở trẻ em, triệu chứng u buồng trứng khá mơ hồ, dễ nhầm với đau bụng do tiêu hóa hay ruột thừ. Khi phát hiện bệnh, gia đình rất 'sốc'.
-- Một số tin tức đáng chú ý: VN-Index tăng mạnh, SGI Capital cảnh báo rủi ro điều chỉnh; Một công ty chứng khoán vi phạm cho vay margin; Trung tâm kiểm soát bệnh tật TP.HCM bổ nhiệm 61 lãnh đạo khoa, phòng sau hợp nhất...
-- Các lãnh đạo cấp cao Việt Nam khẳng định coi trọng quan hệ hữu nghị và Đối tác chiến lược toàn diện với Úc và đề nghị tăng cường hợp tác trong nhiều lĩnh vực then chốt.
-- Bí thư Trần Lưu Quang đề nghị các cơ quan có liên quan tiếp tục nghiên cứu, xem xét, có giải pháp để duy trì thương hiệu, vai trò của các cơ quan báo chí truyền thống trên địa bàn TP.HCM.
-- Ngày 10-9, đoàn đại biểu TP.HCM đã đến thăm, động viên cán bộ, chiến sĩ và nhân dân đang công tác, sinh sống trên hai đảo Hòn Khoai và Hòn Chuối (tỉnh Cà Mau).
-- Kho bạc Nhà nước vừa có công điện 12 yêu cầu giám đốc kho bạc khu vực chỉ đạo đơn vị trực thuộc phối hợp chặt chẽ với UBND các xã mở tài khoản và thanh toán lương cho cán bộ, công chức, viên chức trước 15-9.
-- Nhiều người dân, du khách thích thú khi tháp Nghinh Phong (phường Tuy Hòa, Đắk Lắk) lung linh bởi những ánh đèn màu trở lại, sau thời gian dài bị hư hỏng.
-- Việc xây dựng bảng giá đất mới sẽ cập nhật giá đất theo biến động thị trường và điều kiện kinh tế - xã hội của TP.HCM.
-- Để xảy ra nhiều hạn chế, thiếu sót và vi phạm, Thanh tra thành phố Cần Thơ kiến nghị xử lý trách nhiệm Giám đốc và một số Phó giám đốc Đài Phát thanh - Truyền hình thành phố Cần Thơ (cũ).
-- Sau vụ cháy bãi giữ xe dưới chân cầu Vĩnh Tuy (Hà Nội), TP.HCM đang rà soát, yêu cầu di dời ngay các điểm trông giữ xe ra khỏi phạm vi bảo vệ kết cấu hạ tầng đường bộ theo chỉ thị của Bộ Xây dựng.
-- Kết quả kiểm định sau vụ cháy ở bãi gửi xe dưới chân cầu Vĩnh Tuy xảy ra ngày 30-8 cho thấy nhánh Ramp CV1C của cây cầu trên hiện tại vẫn khai thác được tải trọng theo thiết kế ban đầu, song cần sớm sửa chữa nhịp và các trụ bị hư hỏng.
-- Người dân có thể đến 3 trung tâm phục vụ hành chính công cấp thành phố và 103 trung tâm cấp xã để làm giấy tờ liên quan, sau khi chính quyền 2 cấp vận hành.
-- Chiều 10-9, đại diện đơn vị thiết kế phương án chỉnh trang, cải tạo công trình quảng trường Đông Kinh - Nghĩa Thục đã có những trao đổi với báo chí về ý tưởng thiết kế công trình trên, sau khi nhận được nhiều góp ý từ người dân.
-- Chiếc xe tải chở bia khi đến khu phố Phú Lâm 1 (phường Phú Yên, tỉnh Đắk Lắk) bất ngờ bị nghiêng, khiến hàng chục thùng bia rơi xuống đường.
-- Đường Phan Đình Phùng và một số khu vực cạnh hệ thống suối Cam Ly Đà Lạt bị ngập cục bộ sau trận mưa lớn.
-- Ngày 10-9, Đoàn công tác số 4 Đoàn đại biểu Quốc hội TP.HCM đã có buổi khảo sát tại xã Bình Chánh và xã Tân Nhựt.
-- UBND TP.HCM vừa yêu cầu sở ban ngành cùng các phường liên quan tổ chức rà soát, điều chỉnh quy hoạch các khu vực TOD dọc theo dự án metro 2.
-- Tài xế xe bán tải lắp đèn 'siêu sáng' làm chói mắt người đi đường và vượt đèn đỏ, bị phạt 20,5 triệu đồng.
-- Đến nay dự án xây dựng công trình ngầm hóa hạ tầng kỹ thuật khu vực Dương Đông và An Thới đảm bảo tiến độ. Tuy nhiên hai dự án trên còn gặp một số khó khăn và địa phương có hướng giải quyết ra sao?
-- Một nhân viên ngân hàng vay tiền của nhiều người để làm đáo hạn ngân hàng nhưng sử dụng tiền vay mượn không đúng mục đích dẫn đến mất khả năng chi trả, lừa đảo, chiếm đoạt hơn 15 tỉ đồng.
-- Tình trạng dừng xe tại mắt võng (cho xe rẽ phải liên tục) vẫn tái diễn ở nhiều nút giao TP.HCM, dù thành phố đã thí điểm một thời gian việc bố trí làn rẽ phải liên tục giúp giảm kẹt xe.
-- Chiều 10-9 tại Phủ Chủ tịch, Chủ tịch nước Lương Cường và Phu nhân đã chủ trì lễ đón Toàn quyền Úc Sam Mostyn và Phu quân thăm cấp nhà nước tới Việt Nam.
-- Đó là phát biểu của Thứ trưởng Bộ Y tế Trần Văn Thuấn tại Hội nghị Quản lý bệnh viện châu Á 2025 (HMA) tổ chức tại TP.HCM sáng 10-9. Đây là lần thứ 5 Việt Nam đăng cai tổ chức sự kiện này.
-- Trong tháng 8-2025, tình hình trật tự, an toàn giao thông trên địa bàn TP.HCM được duy trì ổn định, không để xảy ra ùn tắc giao thông.
-- Bộ Nội vụ đã có hướng dẫn chi tiết việc tuyển dụng, xếp lương đối với chỉ huy trưởng, phó chỉ huy trưởng, trợ lý tại Ban chỉ huy quân sự cấp xã (mới).
-- Thay vì phải chuyển vào đất liền điều trị, một nam thanh niên bị tai nạn giao thông trong tình trạng nguy kịch đã được cứu sống ngoạn mục tại Côn Đảo với sự hỗ trợ của Bệnh viện Bình Dân (TP.HCM).
-- Ban Quản lý dự án đầu tư xây dựng tỉnh Đồng Nai vừa bị phê bình liên quan hai dự án cao tốc Biên Hòa - Vũng Tàu và vành đai 3 TP.HCM.
-- Thành phố Hải Phòng đã bố trí xe miễn phí phục vụ nhân dân tham quan Triển lãm thành tựu đất nước nhân dịp kỷ niệm 80 năm ngày Quốc khánh từ ngày 8 đến 15-9-2025.
-- Bộ Chính trị đã cho ý kiến vào dự thảo các văn kiện, phương án nhân sự và công tác chuẩn bị Đại hội đại biểu Đảng bộ Chính phủ lần thứ I, nhiệm kỳ 2025 - 2030.
-- Quảng trường Đông Kinh - Nghĩa Thục có diện mạo mới rộng rãi, thoáng đãng hơn sau cải tạo, chỉnh trang.
-- Hai nhóm côn đồ mâu thuẫn trong karaoke New Phương Đông (Đà Nẵng), sau đó đã hẹn hỗn chiến ở đường biển bằng bom xăng, đao, kiếm… khiến một người chết.
-- Vinaphone Nghệ An đã tạm chi trả 25.400.000 đồng cho khách hàng tại Quảng Trị. Trước đó, Vinaphone Nghệ An đã cấp sim khách hàng này đang sử dụng cho một người khác. Sau đó, người này bị chiếm đoạt tiền trong tài khoản ngân hàng.
-- Liên danh nhà đầu tư dự án metro số 1 (Bến Thành - Suối Tiên) nối sân bay Long Thành vừa đề xuất chọn 7 khu vực dọc tuyến metro để phát triển mô hình đô thị TOD.
-- Phó chủ tịch thường trực UBND thành phố Hải Phòng Lê Anh Quân đã phê bình Sở Xây dựng và Công ty cổ phần Đảm bảo giao thông đường thủy Hải Phòng để xảy ra tình trạng hành khách bị từ chối lên phà khi rời đảo Cát Bà.
-- Dần dần thành lệ ‘giật đồ cúng’ đến nỗi có người phải thốt lên: giật đồ cúng cô hồn hay cô hồn giật đồ cúng?
-- Chiều 9-9, lối xuống cầu Bình Lợi bị đóng lại để thử nghiệm phương án điều tiết giao thông mới giảm lưu lượng cho cầu Bình Triệu 2 trong lúc sửa cầu Bình Triệu 1, phương án này chỉ áp dụng vài tiếng thì 'phá sản'.
-- Một loạt ô tô đậu sai quy định trên đường Ngô Quyền (Đà Nẵng) đã bị lực lượng cảnh sát giao thông xử phạt, sau phản ánh của người dân đến số điện thoại của Cục trưởng Cục Cảnh sát giao thông.
-- 29 địa phương cấp xã ở Đà Nẵng chậm cập nhật kết quả tặng quà của Chính phủ cho người dân trên phần mềm chi trả an sinh xã hội.
-- Dù mưa có giảm nhưng thời tiết TP.HCM và Nam Bộ về chiều tối vẫn còn mưa to, 1 - 2 ngày tới mưa sẽ tăng trở lại.
-- Tin tức đáng chú ý: Ngân hàng Nhà nước cảnh báo lừa đảo qua mạng gia tăng; Viện Pasteur TP.HCM đẩy mạnh chuyển đổi số trong phòng chống dịch và tiêm chủng; Lợi suất trái phiếu chính phủ tăng ở nhiều kỳ hạn...
-- Hôm nay 10-9, thời tiết Bắc Bộ mưa to đến rất to, mưa nhiều khiến lũ dâng cao. Nam Bộ mưa dông chiều tối.
-- Trong lúc làm nhiệm vụ tuần tra trên tuyến cao tốc Cam Lâm - Vĩnh Hảo, cảnh sát giao thông đã kịp thời hỗ trợ một sản phụ chuyển dạ.
-- Ngày 9-9, đoàn công tác của Bộ Dân tộc và Tôn giáo do Thứ trưởng thường trực Hồ Văn Niên dẫn đầu đã có buổi kiểm tra công tác dân tộc và tín ngưỡng, tôn giáo tại xã Khánh Sơn và xã Bác Ái Tây (tỉnh Khánh Hòa).
-- UBND tỉnh Quảng Trị phối hợp với Đại sứ quán Mỹ tổ chức chương trình Bạn bè Thái Bình Dương năm 2025 với nhiều hoạt động như trao đổi và tập huấn cứu trợ thiên tai, y tế, giao lưu tiếng Anh…
-- Chiều 9-9, Tổng Bí thư Tô Lâm chủ trì cuộc họp về tình hình triển khai thực hiện nghị quyết 71 của Bộ Chính trị về đột phá phát triển giáo dục và đào tạo.
-- Bộ Chính trị thường xuyên quan tâm đến hoạt động của chính quyền địa phương 2 cấp, bảo đảm hoạt động hiệu năng, hiệu lực, hiệu quả, phục vụ tốt nhân dân, không bị đứt gãy các dịch vụ công.
-- Một nam thanh niên ở phường Hội An Đông, TP Đà Nẵng bị xử phạt vi phạm hành chính vì đăng tin giả mình bị cướp tài sản.
-- Viện Kinh tế tài nguyên và môi trường TP.HCM vừa có kiến nghị bỏ quy hoạch sử dụng đất cấp tỉnh và cấp xã, chỉ duy trì quy hoạch sử dụng đất cấp quốc gia, thiết lập nguồn thu phí nhà đất.
-- Các tổ công tác của Bộ Chính trị cho ý kiến về dự thảo văn kiện, phương án nhân sự trình đại hội đảng bộ Hưng Yên, Cà Mau, Tuyên Quang, Tây Ninh nhiệm kỳ 2025 - 2030.
+- Rạng sáng 12-9, ngọn lửa bùng lên dữ dội tại căn nhà trên đường Lê Quang Đạo, phường Trung Mỹ Tây (TP.HCM) khiến một người chết.
+- Ủy ban Thường vụ Quốc hội họp đợt 2 phiên 49; 65 kênh gỡ nội dung, xin lỗi Vingroup; Nhiều ngân hàng đẩy mạnh cho vay bất động sản...
+- Kỹ thuật ghép tế bào gốc từng được xem là điều không tưởng nhưng nay đã trở thành phương pháp duy nhất có thể chữa khỏi hoàn toàn nhiều bệnh máu ác tính, rối loạn di truyền.
+- Hôm nay 12-9, khả năng xuất hiện rãnh áp thấp qua khu vực Nam Bộ khiến thời tiết tăng mưa, có nơi mưa to.
+- Đến 22h10 tối 11-9, lực lượng cứu hộ đã cứu được tài xế xe khách bị mắc kẹt sau vụ tai nạn trên cao tốc La Sơn - Hòa Liên đoạn qua Đà Nẵng. Trước đó 11 hành khách cũng được giải cứu.
+- Chủ tịch Quốc hội Trần Thanh Mẫn sẽ tham dự Đại hội đồng liên Nghị viện các quốc gia Đông Nam Á lần thứ 46 và thăm chính thức Malaysia từ ngày 16-9.
+- Ngày hội "matching day" chọn chuyên ngành bác sĩ nội trú của các bác sĩ nội trú khóa 50 Trường đại học Y Hà Nội hot rần rần 2 ngày qua, kể từ khi sự kiện này được tổ chức hôm 9-9, vì sao?
+- Mặt đường Nguyễn Xiển (TP Thủ Đức cũ) hư hỏng nghiêm trọng, đọng nước sau khi bàn giao cho doanh nghiệp quản lý. Sở Xây dựng TP.HCM yêu cầu sửa chữa, cử đơn vị tìm hiểu nguyên nhân.
+- Nghị quyết của Bộ Chính trị nêu rõ từ năm 2026, người dân được khám sức khỏe định kỳ hoặc khám sàng lọc miễn phí ít nhất mỗi năm 1 lần. Đồng thời nêu nhiệm vụ từng bước thực hiện chính sách miễn viện phí.
+- Người dân ở Cà Mau bức xúc vì nghe địa phương vận động phá đường bê tông 2,5m để làm đường mới 3m, nhưng gần 3 năm nay phải đi lại trên đường đất.
+- Phó chủ tịch UBND tỉnh Thanh Hóa Mai Xuân Liêm được giao phụ trách điều hành hoạt động của UBND tỉnh, trong thời gian Chủ tịch Đỗ Minh Tuấn và một phó chủ tịch khác vắng mặt.
+- Chỉ trong vòng chưa đầy một ngày (11-9), trên địa bàn xã Măng Bút, tỉnh Quảng Ngãi đã ghi nhận liên tiếp 5 trận động đất.
+- Ông Trần Lưu Quang - Bí thư Trung ương Đảng, Bí thư Thành ủy TP.HCM - giữ nhiệm vụ Trưởng Ban Chỉ đạo phòng, chống tham nhũng, lãng phí, tiêu cực TP.HCM.
+- Chiều tối 11-9, mưa lớn kéo dài khiến nhiều tuyến đường TP.HCM ngập, xe chết máy hàng loạt, giao thông ùn ứ, nhiều cây xanh bị quật ngã.
+- Một bạn đọc hỏi: 'Tôi 33 tuổi, sinh lần 2 là sinh đôi, tổng cộng 3 con. Tôi có được hưởng chính sách hỗ trợ của TP.HCM không?'.
+- Thay vì cạnh tranh để có được nguồn nhân lực chất lượng cao, các chuyên gia y tế cho rằng hợp tác công - tư sẽ là lời giải cho bài toán "chảy máu chất xám" trong ngành y.
+- Theo UBND phường Chợ Lớn (thuộc quận 5 cũ, TP.HCM), trước nhiều bệnh viện lớn trong khu vực, hàng rong nắm rõ lịch tuần tra để “né” lực lượng rồi quay lại tái chiếm vỉa hè.
+- Hiện phường Cầu Ông Lãnh có hệ thống 400 camera để giám sát, kịp thời xử lý nạn chèo kéo du khách và sẽ tiếp tục bổ sung camera trong thời gian tới.
+- Chiều 11-9, lãnh đạo tỉnh Khánh Hòa cùng các doanh nghiệp và người làm truyền thông tiếp tục phiên tọa đàm bàn những từ khóa xây dựng du lịch xanh cho Khánh Hòa.
+- Nhiều bạn đọc đã phản hồi sau đề xuất thời gian kết thúc giờ học buổi chiều tại TP.HCM không trước 16h30.
+- Chuyên gia và đại diện các cơ quan báo chí TP.HCM cho ý kiến về dự thảo Luật Báo chí (sửa đổi), trong đó có nội dung về mô hình cơ quan báo chí tại địa phương theo hướng cơ quan truyền thông chủ lực đa phương tiện.
+- Chủ tịch Hội Nhà báo Việt Nam cho biết nhân dịp diễn ra các sự kiện lớn của đất nước vừa qua, nhiều Gen Z sau khi tiếp cận thông tin tuyên truyền trên báo chí đã nồng nhiệt bày tỏ tình yêu đất nước, cụ thể hóa bằng hành động tích cực.
+- Chỉ đạo đại hội, Phó thủ tướng Nguyễn Hòa Bình chỉ ra những lợi thế của Quảng Ngãi. Điều quan trọng phải xây dựng đội ngũ cán bộ có tâm, có tầm, có khát vọng, dám nghĩ, dám làm vì lợi ích chung để tăng tốc.
+- Sau quá trình theo dõi, lực lượng chức năng ở TP Đà Nẵng đã bắt quả tang, ra quyết định xử phạt và buộc 4 tài xế xe tải thu gom lại số xà bần đã đổ trộm kế bên các khu dân cư.
+- Thừa ủy quyền Thủ tướng, đại diện Công an tỉnh Đắk Lắk đã trao bằng Tổ quốc ghi công cho liệt sĩ, trung tá Nguyễn Đông Cánh, cán bộ Công an xã Xuân Lộc.
+- Tiến sĩ Võ Sĩ Tuấn, nguyên Viện trưởng Viện Hải dương học Nha Trang, cho rằng muốn phát triển xanh thì phải xanh cùng nhau, tức là đồng bộ.
+- Trận động đất có độ lớn 3.6 xảy ra tại xã Măng Bút, Quảng Ngãi. Đây là trận động đất thứ 3 tại khu vực này trong ngày 11-9.
+- Hàng loạt cây phi lao trong các khoảnh rừng ven biển ở Hà Tĩnh gãy đổ, xác xơ bởi hậu quả của bão số 5 gây ra vào cuối tháng 8 vừa qua.
+- Người phụ nữ 47 tuổi ở  tỉnh Vĩnh Long chạy xe máy trên quốc lộ 53, theo hướng từ xã Trung Ngãi đi xã Hiếu Phụng trên đường đi thì xảy ra va chạm với xe chở phạm nhân đang chạy theo chiều ngược lại, khiến người phụ nữ chết tại chỗ.
+- Các chuyên gia khuyến nghị việc khai thác sân bay Long Thành cần xuất phát từ nhu cầu thực tế của hành khách và doanh nghiệp, tránh cú sốc "lợi bất cập hại" trong giai đoạn đầu.
+- Chiều 11-9, cầu Bình Triệu 1 (TP.HCM) đã được nâng cao 25-30cm, ở hai nhịp đầu tiên. Dù công trình đang thi công, dòng xe máy vẫn có thể chạy bên trên nhờ “thần đèn” kích thủy lực.
+- Tại dự Luật Phòng, chống tham nhũng sửa đổi bổ sung các cơ quan kiểm soát tài sản, thu nhập, trong đó Ủy ban Kiểm tra Trung ương kiểm soát tài sản, thu nhập cán bộ diện Bộ Chính trị, Ban Bí thư quản lý.
+- Hội thảo "Để Khánh Hòa thành điểm đến xanh toàn diện" được báo Tuổi Trẻ phối hợp cùng Sở Văn hóa, Thể thao và Du lịch Khánh Hòa tổ chức chiều 11-9 tại Nha Trang, tỉnh Khánh Hòa.
+- Cộng đồng hơn 6 triệu người Việt tại trên 130 quốc gia và vùng lãnh thổ không chỉ mang về nguồn kiều hối 16 tỉ USD năm 2024, mà còn là “nguồn lực chiến lược” về tri thức, công nghệ, văn hóa, ngoại giao…
+- 2 nhóm côn đồ mâu thuẫn trong karaoke New Phương Đông (Đà Nẵng) sau đó đã hẹn hỗn chiến ở đường biển bằng bom xăng, đao, kiếm… khiến 1 người chết, vừa bị tòa tuyên án.
+- Ngày 11-9, Tỉnh ủy An Giang tổ chức lễ công bố và trao quyết định nghỉ hưu trước tuổi, nghỉ thôi việc theo Nghị định 178, Nghị định 67 của Chính phủ với các cán bộ thuộc diện Ban Bí thư và Ban Thường vụ Tỉnh ủy quản lý.
+- Ngày 11-9, Lễ công bố Mô hình Toàn cảnh kinh tế tư nhân Việt Nam (ViPEL) và ra mắt hội đồng điều hành cùng nhân sự chủ chốt của các ủy ban do Ban Nghiên cứu phát triển kinh tế tư nhân (Ban IV) tổ chức.
+- Dự báo trong một tháng tới, Biển Đông có thể xuất hiện hai cơn bão hoặc áp thấp nhiệt đới. Còn không khí lạnh có khả năng bắt đầu xuất hiện từ cuối tháng 9 này.
+- Bộ Xây dựng đang lấy ý kiến dự thảo Luật Xây dựng sửa đổi theo hướng rút ngắn thời gian cấp giấy phép xây dựng xuống còn tối đa bảy ngày làm việc. Vậy nên giảm thủ tục ở khâu nào?
+- Tổng Bí thư Tô Lâm chủ trì buổi làm việc của Bộ Chính trị với Ban Thường vụ Đảng ủy Quốc hội cho ý kiến vào dự thảo các văn kiện, phương án nhân sự, công tác chuẩn bị Đại hội Đảng bộ lần thứ I.
+- Sau đợt nghỉ lễ 2-9, nhà thầu bắt đầu thảm nhựa mặt đường đèo Bảo Lộc, tỉnh Lâm Đồng. Tài xế lưu ý một số khung giờ để hạn chế kẹt xe.
+- Trong lúc tuần tra, lực lượng cảnh sát giao thông phát hiện một người đàn ông đang đạp xe đạp trên cao tốc Cam Lộ - La Sơn nên đã kịp thời tiếp cận, giúp đỡ đưa ra khỏi cao tốc.
+- Trong một tháng thực hiện tổng kiểm soát, lực lượng cảnh sát giao thông toàn quốc đã lập biên bản vi phạm 66.956 trường hợp. Số vi phạm trên chiếm 10,09% tổng số phương tiện kinh doanh vận tải được dừng kiểm soát.
+- Bà Bùi Thị Quỳnh Vân, Ủy viên Ban Chấp hành Trung ương Đảng, Bí thư Tỉnh ủy Quảng Ngãi nhiệm kỳ 2020-2025, được Bộ Chính trị chỉ định giữ chức Bí thư Tỉnh ủy Quảng Ngãi nhiệm kỳ 2025-2030.
+- Dù Ngân hàng Nhà nước thực hiện giám sát 12 bước gia công vàng miếng SJC, nhưng bà Lê Thúy Hằng vẫn đưa vàng nguyên liệu bên ngoài vào sản xuất hơn 6.200 lượng vàng miếng và 46.000 vàng nhẫn trơn.
+- Thông tin được Bộ trưởng Bộ Quốc phòng Thổ Nhĩ Kỳ đưa ra tại buổi hội đàm với Đại tướng Phan Văn Giang, tại Hà Nội sáng nay 11-9.
+- "Quảng Ngãi anh hùng trong quá khứ, đổi mới, sáng tạo trong hiện tại, sẽ có những phát triển mạnh mẽ hơn, bền vững hơn trong tương lai", bà Bùi Thị Quỳnh Vân, Bí thư Tỉnh ủy Quảng Ngãi, nói.
+- Lịch sử phát triển nhân loại hàng ngàn năm qua luôn gắn niềm tin phần hồn: con người chết đi không phải hết mà chỉ kết thúc thể xác hiện hữu trong khi phần hồn vẫn tiếp tục tồn tại.
+- Cục Quản lý đất đai (Bộ Nông nghiệp và Môi trường) cho biết đã có văn bản hướng dẫn các địa phương chỉnh lý cơ sở dữ liệu đất đai, xây dựng mã định danh thửa đất.
+- Ông Nguyễn Chiến Thắng, Phó chủ tịch thường trực Hội đồng nhân dân tỉnh Quảng Trị, được Ban Bí thư chỉ định giữ chức Phó bí thư Tỉnh ủy Quảng Trị, nhiệm kỳ 2020-2025.
 ![New](News.png)
 ## Nhịp sống số 
 - Thời gian gần đây, trên mạng xã hội xuất hiện nhiều video 'ép' chatbot phải thực hiện lệnh đếm số từ 1 tới 1 triệu. Chuyên gia nhận định đây chỉ là một hành động giải trí vô nghĩa và ảnh hưởng lớn tới nhà phát hành.
