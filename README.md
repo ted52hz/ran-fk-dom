@@ -1,6 +1,21 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Nhiều khán giả cho biết ngay sau tập 1, chương trình “Đầu Bếp Nhí - Little Chef” mang đến nhiều cảm xúc cùng một góc nhìn mới mẻ về căn bếp.
+- Nhiều trường đã thực hiện công văn của Bộ GD-ĐT về việc hướng dẫn tổ chức dạy học 2 buổi/ngày và cho học sinh nghỉ học thứ Bảy.
+- Các trường học và giáo viên đang phải đau đầu để xác định ranh giới giữa việc sử dụng công nghệ hỗ trợ và gian lận học thuật.
+- Học viện Phật giáo Việt Nam tại Hà Nội vừa trao bằng tiến sĩ Phật học thứ 2 cho Đại đức Thích Minh Nghĩa (Trương Thanh Hải).
+- Trẻ em ngày nay có xu hướng ít chia sẻ với cha mẹ. Ví dụ khi con đi học về, mẹ hỏi 'hôm nay ở trường có gì vui không con?', thì con tỏ ra bực bội.
+- Bác sĩ nội trú chỉ là khởi đầu của hành trình mới, cần tiếp tục tu dưỡng - GS.TS Nguyễn Duy Ánh chia sẻ.
+- Khoảng cách thế hệ luôn là vấn đề được nhiều người quan tâm, nhất là trong bối cảnh Gen Z đang từng bước trưởng thành, giữ vai trò quan trọng và dần trở thành những nhà lãnh đạo tương lai của xã hội.
+- Dù nhiều trường tại TP.HCM đã siết chặt quy định cấm học sinh sử dụng điện thoại và yêu cầu phụ huynh ký cam kết, thực tế việc quản lý lại nảy sinh nhiều mâu thuẫn.
+- Cuộc thi tiếng Anh và tài năng Speak Up do ILA tổ chức đã trở thành một trong những sân chơi giáo dục - nghệ thuật quy mô lớn dành cho học sinh từ 8 đến 16 tuổi.
+- Nghị quyết số 71-NQ/TW của Bộ Chính trị về đột phá phát triển giáo dục và đào tạo đã chỉ rõ các nhiệm vụ, giải pháp để hiện đại hóa, nâng tầm giáo dục đại học, tạo đột phá phát triển nhân lực cao và nhân tài với nhiều định hướng chỉ đạo rất cụ thể.
+- Các suất học bổng và trang thiết bị giảng dạy, học tập trị giá hơn 1,5 tỉ đồng đã được trao tặng đến các xã miền núi của tỉnh Khánh Hòa.
+- Buổi họp phụ huynh học sinh đầu năm học hiện nay đa phần trọng tâm là 100% phụ huynh ký tên đồng thuận các khoản thu của nhà trường...
+- Hơn 1.300 học sinh Trường THCS Phước Tân 1 (phường Phước Tân, tỉnh Đồng Nai) nghỉ học để dọn dẹp, vệ sinh sau khi nước lũ tràn vào.
+- Nhiều phụ huynh cho biết họ cảm thấy nhẹ nhõm khi Sở GD-ĐT TP.HCM ban hành khung thời gian vào học - tan học tại trường mầm non, tiểu học, THCS, THPT năm học 2025 - 2026.
+- Cảnh sát Hàn Quốc sẽ triển khai hơn 55.000 nhân viên, gồm lực lượng tuần tra địa phương, cảnh sát cơ động và cảnh sát giao thông, tại các trường tiểu học trên toàn quốc để ứng phó với loạt âm mưu bắt cóc trẻ em.
 - Bộ Giáo dục và Đào tạo vừa đề nghị các cơ sở giáo dục đại học và giáo dục nghề nghiệp tạm dừng công tác quy hoạch và xem xét bổ nhiệm mới lãnh đạo hội đồng trường, lãnh đạo nhà trường.
 - Trường đại học Khoa học tự nhiên (Đại học Quốc gia TP.HCM) vừa trao 22 tỉ đồng học bổng cho tân sinh viên đạt thành tích xuất sắc trong kỳ tuyển sinh đại học hệ chính quy năm 2025.
 - Một học sinh lớp 8 tại Gia Lai cầm dao đâm thủng ngực học sinh lớp 7 cùng trường chỉ vì mâu thuẫn dẫn tới xô xát, cự cãi. Sức khỏe nạn nhân sau cấp cứu đã tạm ổn định.
@@ -36,73 +51,58 @@
 - Năm học 2025-2026, dịch vụ vệ sinh trường học không nằm trong quy định các khoản thu, mức thu nên các cơ sở giáo dục công lập không được thu khoản thu này.
 - Sở Giáo dục và Đào tạo TP.HCM sẽ ban hành văn bản quy định giờ vào học và tan học của học sinh các cấp, theo đó các trường không được cho học sinh tan học quá sớm.
 - Một học sinh lớp 9 ở Đắk Lắk bị Trường tiểu học, THCS và THPT Victory đuổi học vì đi Hàn Quốc thăm mẹ trong kỳ nghỉ hè, không kịp tựu trường.
-- Cho rằng việc sáp nhập trường khiến việc đưa đón con em vất vả, đường đi tiềm ẩn nhiều nguy hiểm, phụ huynh tập trung phản đối.
-- Chiều 10-9, Sở Giáo dục và Đào tạo TP.HCM đã có văn bản hướng dẫn về dạy học 2 buổi/ngày năm học 2025-2026.
-- Năm nay, tổng số ứng viên được đề nghị công nhận đạt tiêu chuẩn giáo sư, phó giáo sư tăng hơn 38% so với năm ngoái. Trong đó, ngành văn học chỉ có duy nhất 1 ứng viên; ngành kinh tế dẫn đầu số lượng, tăng hơn 41%.
-- Sau kỳ nghỉ hè, học sinh các cấp đồng loạt trở lại trường. Đây cũng là thời điểm những bệnh thường gặp khi giao mùa xuất hiện nhiều, từ hô hấp đến tiêu hóa...
-- Thành tích học tập của học sinh trung học Mỹ tiếp tục lao dốc trong thập kỷ qua và trầm trọng hơn trong đại dịch COVID-19, với điểm số của học sinh lớp 12 đang xuống mức thấp nhất 20 năm qua.
-- Sau bài viết 'Con đi học thứ Bảy, phụ huynh kêu trời!', Tuổi Trẻ Online nhận được hàng trăm ý kiến của bạn đọc.
-- Trước tình trạng nhiều học sinh con em đồng bào dân tộc thiểu số thiếu sách cho năm học mới 2025-2026, một thầy hiệu trưởng trường tiểu học tại Gia Lai lên mạng vận động, xin sách cho học trò.
-- Ông Tập Cận Bình nhiều lần nhấn mạnh thầy cô là gốc rễ của giáo dục và luôn bày tỏ lòng tri ân với những người dạy dỗ mình.
-- Sinh viên sẽ phát triển sản phẩm game có khả năng phát hành trên các hệ sinh thái ngay trong chương trình học, mở ra kỷ nguyên mới cho đào tạo nhân lực công nghệ cao.
-- Học viện Kỹ thuật quân sự với tỉ lệ sinh viên/giảng viên rất thấp là cơ hội tốt để sinh viên hệ dân sự nhận được những hỗ trợ sát sao từ các giảng viên trong học tập, nghiên cứu khoa học.
-- Sáng 10-9, ông Nguyễn Bảo Quốc, Phó giám đốc Sở Giáo dục và Đào tạo TP.HCM, đã có chỉ đạo về việc học sáng thứ Bảy tại hội nghị góp ý kế hoạch giáo dục nhà trường bậc trung học.
-- Hội đồng Giáo sư Nhà nước vừa công bố danh sách 933 ứng viên được đề nghị xét công nhận đạt tiêu chuẩn chức danh giáo sư, phó giáo sư năm 2025, tăng 260 ứng viên so với năm ngoái. Đây là mức tăng đáng kể nhất trong nhiều năm trở lại đây.
-- Theo Sở GD-ĐT TP.HCM, với những trường đã tổ chức dạy hai buổi/ngày, các tiết học vào sáng thứ Bảy chỉ được triển khai khi có nhu cầu, nguyện vọng của phụ huynh và học sinh trên tinh thần tự nguyện.
-- Thay vì dốc sức làm thêm ngoài giờ học để kiếm tiền, nhiều sinh viên đã chọn một hướng đi bền vững hơn: săn học bổng.
-- Không phải ngẫu nhiên mà nhiều phụ huynh bức xúc, phản ứng việc các trường THCS ở TP.HCM xếp thời khóa biểu cho học sinh đi học vào sáng thứ Bảy thay vì chỉ học từ thứ Hai đến thứ Sáu như trước đây.
 ![Edu](Edu.png)
 ## Thời Sự 
-- Xô Viết Nghệ Tĩnh là một biểu tượng bất tử của chủ nghĩa anh hùng cách mạng, là minh chứng hùng hồn cho sức mạnh của khối đại đoàn kết công - nông dưới sự lãnh đạo của Đảng.
-- Hôm nay 13-9, mưa dông bao phủ hầu hết cả nước, nhiều nơi mưa to, riêng Nam Bộ có nơi mưa rất to.
-- Bảo hiểm xã hội tỉnh Khánh Hòa vừa đề nghị Công an tỉnh, các cơ quan, tổ chức, các địa phương phổ biến để người dân cảnh giác việc kẻ xấu mạo danh Bảo hiểm xã hội yêu cầu người dân kết bạn Zalo nhằm lừa đảo.
-- Ngày 12-9 (tức 21-7 âm lịch năm Ất Tỵ), tại Đền thờ Bác Hồ trên đỉnh núi Vua, Vườn quốc gia Ba Vì diễn ra lễ dâng hương tưởng niệm 56 năm ngày mất Chủ tịch Hồ Chí Minh.
-- Chủ tịch UBND tỉnh Bắc Ninh Vương Quốc Tuấn mong muốn Bộ trưởng Bộ Xây dựng chỉ đạo tháo gỡ các khó khăn, đề nghị nhà đầu tư BOT làm việc với tỉnh để mở rộng quốc lộ 1 Hà Nội - Lạng Sơn từ 6 lên 8 làn xe.
-- Đoàn công tác Bộ Quốc phòng do Đại tướng Phan Văn Giang dẫn đầu kiểm tra khu trưng bày của Bộ Quốc phòng tại Triển lãm thành tựu đất nước “80 năm hành trình Độc lập - Tự do - Hạnh phúc”.
-- Viện Kiểm sát nhân dân tỉnh Thanh Hóa vừa có quyết định phê chuẩn khởi tố bị can, lệnh bắt tạm giam ông Nguyễn Văn Thi, Phó chủ tịch thường trực UBND tỉnh Thanh Hóa, để phục vụ điều tra vụ án.
-- Thủ tướng Phạm Minh Chính chủ trì cuộc họp tiếp tục cụ thể hóa Nghị quyết phiên họp Chính phủ thường kỳ tháng 8-2025.
-- Mưa lớn kéo dài kèm dông lốc làm 38 căn nhà tại An Giang bị sập và tốc mái, ước thiệt hại trên 720 triệu đồng.
-- Bộ Chính trị, Ban Bí thư giao Ban Tổ chức Trung ương khẩn trương tham mưu Bộ Chính trị, Ban Bí thư ban hành các quyết định chỉ định nhân sự cấp ủy, ủy ban kiểm tra cấp ủy nhiệm kỳ 2025 - 2030.
-- Trang tin điện tử ‘Đảng Cộng sản Việt Nam - Đại hội XIV’ có diễn đàn để nhân dân góp ý kiến vào dự thảo văn kiện Đại hội XIV của Đảng, cùng các bài viết, phát biểu của Tổng Bí thư Tô Lâm.
-- Mưa lớn kéo dài, nước từ thượng nguồn sông Buông tràn về khiến cả trăm hộ dân khu vực thấp trũng ven sông ở Đồng Nai ngập sâu.
-- Tỉnh Khánh Hòa phê duyệt kinh phí chi trả chế độ cho 99 trường hợp nghỉ việc, nghỉ hưu trước tuổi với số tiền gần 100 tỉ đồng.
-- Bảng xếp hạng lợi nhuận của các doanh nghiệp lớn được hé lộ.
-- Phát biểu bế mạc đại hội, Bí thư Tỉnh ủy Quảng Ngãi Bùi Thị Quỳnh Vân nhấn mạnh: "Một nhiệm kỳ mới, một hành trình mới của tỉnh Quảng Ngãi bắt đầu từ hôm nay, khát vọng của Quảng Ngãi hòa chung vào khát vọng của dân tộc".
-- Phó chánh án Tòa án nhân dân tối cao Nguyễn Văn Tiến nêu rõ việc nhiều doanh nghiệp "chết không chôn được vì không có tiền nộp chi phí phá sản".
-- Bên cạnh việc cùng Lâm Đồng gỡ vướng trong quy hoạch khoáng sản và điện tái tạo, Bộ Công Thương đã định hướng để Lâm Đồng mở rộng thị trường xuất khẩu sang Nam Mỹ, châu Phi... và chuẩn hóa chất lượng nông sản.
-- Trong lúc đạp xe tập thể dục trên đường, một người dân phát hiện bé gái sơ sinh nằm trong túi xách bên đường nên đưa bé đến Trạm y tế xã Đông Thạnh, TP.HCM.
-- Theo cơ quan chức năng, đã có tình huống xe tập lái đi vào đường cao tốc (nhất là thời gian đầu mới đi, chưa quen) khó đạt lớn hơn hoặc bằng tốc độ tối thiểu quy định. Điều này dẫn đến cản trở các xe khác.
-- Dự kiến tại kỳ họp thứ 10, Quốc hội sẽ làm việc khoảng 42 ngày để xem xét, quyết định 43 dự luật, nghị quyết, 12 nhóm nội dung về kinh tế - xã hội, ngân sách nhà nước, giám sát.
-- Sau 10 ngày phát hành, đã có người chơi may mắn trúng giải đặc biệt 1 tỉ đồng vé số cào biết kết quả ngay của Công ty Xổ số kiến thiết Cần Thơ.
-- Hầm chui Phan Thúc Duyện đưa vào sử dụng giúp giảm giao cắt, tăng kết nối cửa ngõ sân bay Tân Sơn Nhất, TP.HCM. Tuy nhiên thời gian gần đây lại xuất hiện xe cộ dồn ứ trong lòng hầm, nhất là sau mỗi cơn mưa vào giờ tan tầm.
-- Ông Nguyễn Văn Quảng, Phó tổng thanh tra thường trực Thanh tra Chính phủ, vừa được chỉ định giữ chức Phó bí thư thường trực Đảng ủy Thanh tra Chính phủ.
-- Dù còn gặp khó khăn nhưng Phú Quốc quyết đẩy nhanh công tác giải phóng mặt bằng, không để các dự án đón APEC bị gián đoạn.
-- Trong số các dự án khởi công, khánh thành chào mừng Đại hội Đảng bộ thành phố Cần Thơ, có dự án nâng cấp, mở rộng quốc lộ 91 hơn 7.237 tỉ đồng sau nhiều lần lỗi hẹn khởi công.
-- Tiếp Toàn quyền Úc Sam Mostyn, Bí thư Thành ủy TP.HCM Trần Lưu Quang bày tỏ mong muốn Úc tiếp tục hợp tác, hỗ trợ sự phát triển năng động của thành phố.
-- Quy định giờ tan học của học sinh phổ thông, từ 16h - 17h mỗi ngày, nhận được sự đồng tình, ủng hộ.
-- Đà Nẵng xác định việc phát triển kinh tế tư nhân trở thành động lực quan trọng nhất của nền kinh tế.
-- Nhiều phụ huynh ở TP.HCM mong học sinh được nghỉ Tết 3 tuần, sẵn sàng nghỉ hè ít hơn.
-- Đắk Lắk ghi nhận thêm một ca tử vong do "vi khuẩn ăn thịt người", là nạn nhân thứ 3 từ đầu năm đến nay.
-- Các khối mây dông từ biển đang di chuyển vào đất liền, chiều nay TP.HCM và các tỉnh Nam Bộ tiếp tục có mưa to.
-- Ngày 12-9, UBND tỉnh Gia Lai cho biết vừa có buổi làm việc với Ban Chỉ huy diễn tập tìm kiếm cứu nạn hàng không năm 2025 (SAREX 2025) để bàn phương án cứu nạn khi có máy bay chở khách rơi trên vùng biển tỉnh này.
-- Qua quá trình kiểm tra cơ sở kinh doanh dược từ đầu năm 2025 đến nay, Sở Y tế TP.HCM đã tiến hành kiểm tra 74 cơ sở kinh doanh dược, phát hiện 59 cơ sở vi phạm với nhiều lỗi khác nhau.
-- 3 chương trình nghệ thuật quy mô lớn được tổ chức chào mừng Đại hội đại biểu Đảng bộ thành phố Đà Nẵng lần thứ I, nhiệm kỳ 2025 - 2030.
-- Dọc vỉa hè ở nhiều nơi tại TP.HCM là các hàng quán, sạp thực phẩm mọc lên đầy, thậm chí tràn ra cả lòng đường.
-- TP.HCM đề xuất triển khai nhiều dự án đường thủy nhằm phát triển thành trung tâm vận tải thủy dẫn đầu cả nước, có quy mô tầm cỡ khu vực Đông Nam Á, châu Á.
-- Ngày 12-9, UBND phường Hà Tiên, tỉnh An Giang tổ chức mời 3 hộ dân ở phường Đông Hồ cũ để tống đạt các quyết định về cưỡng chế buộc thực hiện biện pháp khắc phục hậu quả tại khu vực đầm Đông Hồ nhưng vấp phải phản ứng gay gắt của bà con.
-- Ngành đường sắt công bố kế hoạch bán vé tàu Tết Bính Ngọ 2026, nhận đăng ký tập thể từ ngày 15-9 và mở bán rộng rãi từ 20-9.
-- Thành ủy Đà Nẵng cho biết sẽ không nhận hoa chúc mừng Đại hội đại biểu Đảng bộ thành phố Đà Nẵng tổ chức từ ngày 16 đến 18-9.
-- Ông Huy dùng một khẩu súng nhắm bắn chim trên cây, tuy nhiên viên đạn không đi trúng đích mà bay lạc trúng một người hàng xóm ngồi trong nhà.
-- Dự kiến từ 1-1-2026 sẽ thực hiện giá điện hai thành phần, áp dụng đối với khách hàng sử dụng điện nhiều, trước khi mở rộng ra mọi đối tượng.
-- Rạng sáng 12-9, ngọn lửa bùng lên dữ dội tại căn nhà trên đường Lê Quang Đạo, phường Trung Mỹ Tây (TP.HCM) khiến một người chết.
-- Ủy ban Thường vụ Quốc hội họp đợt 2 phiên 49; 65 kênh gỡ nội dung, xin lỗi Vingroup; Nhiều ngân hàng đẩy mạnh cho vay bất động sản...
-- Kỹ thuật ghép tế bào gốc từng được xem là điều không tưởng nhưng nay đã trở thành phương pháp duy nhất có thể chữa khỏi hoàn toàn nhiều bệnh máu ác tính, rối loạn di truyền.
-- Hôm nay 12-9, khả năng xuất hiện rãnh áp thấp qua khu vực Nam Bộ khiến thời tiết tăng mưa, có nơi mưa to.
-- Đến 22h10 tối 11-9, lực lượng cứu hộ đã cứu được tài xế xe khách bị mắc kẹt sau vụ tai nạn trên cao tốc La Sơn - Hòa Liên đoạn qua Đà Nẵng. Trước đó 11 hành khách cũng được giải cứu.
-- Chủ tịch Quốc hội Trần Thanh Mẫn sẽ tham dự Đại hội đồng liên Nghị viện các quốc gia Đông Nam Á lần thứ 46 và thăm chính thức Malaysia từ ngày 16-9.
-- Ngày hội "matching day" chọn chuyên ngành bác sĩ nội trú của các bác sĩ nội trú khóa 50 Trường đại học Y Hà Nội hot rần rần 2 ngày qua, kể từ khi sự kiện này được tổ chức hôm 9-9, vì sao?
-- Mặt đường Nguyễn Xiển (TP Thủ Đức cũ) hư hỏng nghiêm trọng, đọng nước sau khi bàn giao cho doanh nghiệp quản lý. Sở Xây dựng TP.HCM yêu cầu sửa chữa, cử đơn vị tìm hiểu nguyên nhân.
-- Nghị quyết của Bộ Chính trị nêu rõ từ năm 2026, người dân được khám sức khỏe định kỳ hoặc khám sàng lọc miễn phí ít nhất mỗi năm 1 lần. Đồng thời nêu nhiệm vụ từng bước thực hiện chính sách miễn viện phí.
+- Tin tức đáng chú ý: Đề xuất bỏ tem nộp phí sử dụng đường bộ; Trái phiếu phát hành ra công chúng tăng kỷ lục...
+- Hôm nay 14-9, thời tiết Nam Bộ tiếp tục mưa to, vùng biển phía Nam mưa dông do hoạt động của rãnh áp thấp.
+- Lãnh đạo tỉnh Đồng Nai chỉ đạo kiểm tra, xử lý các nhà thầu vi phạm khi thi công dự án cao tốc Biên Hòa - Vũng Tàu gây ngập úng nhà dân.
+- Công an tỉnh Vĩnh Long đang điều tra vụ việc một người đàn ông nghi dùng búa đánh vào đầu một phụ nữ rồi sau đó lao vào xe tải, tử vong tại chỗ.
+- Trong lúc bỏ trốn, Nguyễn Nam Đại Thuận đã chặn đường, dí dao cướp xe của một phụ nữ ở phường Buôn Ma Thuột, Đắk Lắk.
+- Trại rắn Đồng Tâm đã tiếp nhận hai con rái cá này để chăm sóc, bảo tồn và nhân giống sinh sản.
+- Đến 18h20 chiều 13-9, tình hình giao thông quanh khu vực cầu Bình Lợi (TP.HCM) vẫn hết sức căng thẳng, dòng xe ken đặc nhiều hướng.
+- Các đơn vị thi công, tư vấn giám sát huy động máy móc, nhân lực thảm nhựa nóng mặt đường đèo Bảo Lộc để sớm hoàn trả cho xe cộ lưu thông.
+- Tình trạng chợ cóc, chợ tạm và cơ sở giết mổ gia súc, gia cầm nhỏ lẻ không bảo đảm điều kiện tại Hà Nội đã tồn tại kéo dài.
+- Phó chủ tịch Nguyễn Văn Thọ đã ký báo cáo số 62 gửi Thanh tra Chính phủ kiến nghị không thanh tra một số dự án theo kế hoạch đã công bố.
+- Những ngày qua, hàng trăm hộ dân sống gần dự án cao tốc Biên Hòa - Vũng Tàu (đoạn tỉnh Đồng Nai) phải chịu cảnh lầy lội, ngập lụt.
+- Tổng Bí thư Tô Lâm nêu rõ nếu nói 'chuyển đổi số' mà không có dữ liệu tức là chưa có chuyển đổi số và dữ liệu phải đảm bảo đúng, đủ, sạch, sống.
+- Người phụ nữ 47 tuổi ở tỉnh Vĩnh Long chạy xe máy trên quốc lộ 53 thì va chạm với xe chở phạm nhân đang chạy theo chiều ngược lại, tử vong tại chỗ.
+- Công an tỉnh Đắk Lắk đã khởi tố vụ án, khởi tố bị can và ra lệnh tạm giam để điều tra tội 'giết người' và 'cướp tài sản' đối với người gây ra thảm án.
+- Ngày 13-9, đoàn đại biểu TP.HCM đã đến Bộ Tư lệnh Vùng 5 Hải quân (Phú Quốc) để thăm hỏi, động viên cán bộ, chiến sĩ và nhân dân đang làm nhiệm vụ trên đảo ngọc.
+- Thủ tướng Phạm Minh Chính vừa ký Quyết định số 2017 ngày 13-9 phê chuẩn kết quả bầu chức vụ chủ tịch UBND thành phố Đà Nẵng nhiệm kỳ 2021-2026 đối với ông Phạm Đức Ấn.
+- Để kịp thời tháo gỡ những vướng mắc từ thực tiễn, Sở Nông nghiệp và Môi trường tỉnh Quảng Ngãi vừa quyết định biệt phái 9 cán bộ, kỹ sư về các xã, phường để hỗ trợ chuyên môn trong 3 tháng.
+- Một người dân ở TP Đà Nẵng đã đem một thùng đạn chứa 490 viên đạn quân dụng đến giao nộp cho công an.
+- Tổng Bí thư Tô Lâm, Thủ tướng Phạm Minh Chính, Chủ tịch Quốc hội Trần Thanh Mẫn và nhiều lãnh đạo dự hội nghị chuyên đề 'Bình dân học vụ số - Quốc hội số: Khung kiến thức, kỹ năng số cho Quốc hội hiện đại'.
+- Công an tỉnh Thanh Hóa vừa có thông báo về việc tạm hoãn xuất cảnh đối với ông Đỗ Trọng Hưng, 54 tuổi, nơi cư trú hiện nay tại phường Đông Quang, tỉnh Thanh Hóa.
+- Chính quyền xã Biển Hồ (Gia Lai) đang xác minh việc một số cá nhân tự ý đưa máy móc lên san ủi đất, tại khu vực đường lên núi Chư Nâm.
+- Sở Xây dựng Hà Nội sẽ điều chỉnh tổ chức giao thông trên cầu Nhật Tân, để phục vụ thi công hạng mục giá long môn và thi công hạng mục hàng rào phân làn các loại xe cộ trên cầu.
+- Thuê người đến cúp cầu dao điện, tháo camera ở một resort, một người ở đặc khu Phú Quốc bị Công an tỉnh An Giang đề nghị truy tố về tội xâm phạm chỗ ở người khác.
+- Khi bị bắt, nghi phạm sát hại cả gia đình vợ, gây thảm án tại Đắk Lắk bị công an lục soát, phát hiện nhiều tép ma túy chưa sử dụng và có biểu hiện 'thiếu thuốc', xin được dùng 'cho đỡ vã'.
+- Ông Phan Tấn Cảnh - Bí thư Đảng ủy xã Vĩnh Hải, tỉnh Khánh Hòa, nguyên Phó chủ tịch UBND tỉnh Ninh Thuận (cũ) - vừa nộp đơn xin nghỉ công tác.
+- Tổng Bí thư Tô Lâm yêu cầu tập trung nâng cao chất lượng, hiệu quả hoạt động xét xử của tòa án các cấp. Đây là nhiệm vụ trung tâm của ngành tòa án, cũng là nhiệm vụ trung tâm của cải cách tư pháp.
+- Theo phương án quy hoạch, đến năm 2050 sân bay Vân Đồn sẽ có thêm đường băng thứ hai và công suất khai thác được nâng lên 20 triệu khách/năm.
+- Tập đoàn Sơn Hải xây dựng một tuyến đường làng chất lượng tương đương đường… cao tốc tặng hai thôn tại tỉnh Quảng Trị.
+- Ngày 13-9, tại phường Bình Trưng, TP.HCM diễn ra lễ phát động phong trào xây dựng 'Bình Trưng muôn sắc hoa' và ra mắt mô hình 'Tuần tra xanh' năm 2025 bằng xe điện. Đây là mô hình đầu tiên trên cả nước.
+- Nghe tiếng gõ cửa kêu cứu, bé trai hàng xóm mở cửa sau và đưa được nạn nhân 12 tuổi vào nhà rồi khóa chặt cửa, dù hung thủ nhiều lần đập cửa uy hiếp.
+- Nhà báo Nguyễn Thị Hằng Nga - nguyên Tổng biên tập báo Người Lao Động, nguyên Đại biểu Quốc hội, nguyên Chủ tịch Hội Nhà báo TP.HCM, nguyên Phóng viên báo Tuổi Trẻ - vừa qua đời, hưởng thọ 77 tuổi.
+- Mùa nước nổi về, đường biên giới An Giang, Đồng Tháp giáp với Campuchia ngập màu trắng xóa. Các đối tượng xấu lợi dụng thời điểm này để buôn lậu trái phép. Bộ đội biên phòng làm gì để siết chặt tình trạng trên?
+- Xe đạp điện bất ngờ lao tới tông vào bức tường trong khuôn viên trường, khiến nam sinh bị thương nặng và tử vong sau đó.
+- Do gió mùa tây nam tăng cường độ, rãnh áp thấp mạnh lên cùng với hội tụ gió duy trì khiến thời tiết miền Nam hôm nay mưa sớm, có nơi mưa lớn.
+- Sáng 13-9, Cục Gìn giữ hòa bình Việt Nam phối hợp cùng Bệnh viện Quân y 175 tổ chức lễ dâng hương phát động phong trào thi đua lập công dâng Bác, trước khi lên đường làm nhiệm vụ gìn giữ hòa bình tại Nam Sudan.
+- Viện Quy hoạch xây dựng TP Huế đã bị Sở Tài chính ra quyết định xử phạt 10 triệu đồng vì tự ý tháo dỡ, xử lý tài sản công, biến trụ sở được Nhà nước giao quản lý thành nơi bị bỏ hoang, hút chích ma túy.
+- UBND TP.HCM vừa ban hành quyết định quy định về các trường hợp có nhà ở nhưng vẫn được xem xét hưởng chính sách hỗ trợ về nhà ở xã hội.
+- Buổi họp phụ huynh học sinh đầu năm học hiện nay đa phần trọng tâm là 100% phụ huynh ký tên đồng thuận các khoản thu của nhà trường...
+- Hơn 1.300 học sinh Trường THCS Phước Tân 1 (phường Phước Tân, tỉnh Đồng Nai) nghỉ học để dọn dẹp, vệ sinh sau khi nước lũ tràn vào.
+- Bé trai sống sót trong vụ thảm án tại Đắk Lắk đã được đưa vào bệnh viện cấp cứu trong tình trạng đa chấn thương, trong đó có vết thương thấu ngực. Sau phẫu thuật, tình trạng sức khỏe nạn nhân tạm ổn định.
+- Trải qua hơn một thập niên xây dựng, đến nay bệnh viện Việt Đức và Bạch Mai cơ sở 2 bước vào giai đoạn cuối cùng để đưa vào vận hành từ tháng 11-2025 theo chỉ đạo của Phó thủ tướng Lê Thành Long.
+- Tập đoàn Vingroup đã đệ đơn kiện chủ tài khoản Facebook Hiền Nguyễn (Yến Sào Yến Đan) có 409.000 người theo dõi lên Tòa cấp cao của California thuộc Los Angeles (Mỹ).
+- Nghi phạm vụ thảm án tại Đắk Lắk mặc áo chống nắng của phụ nữ, bịt mặt để ngụy trang trên đường bỏ trốn, nhưng đã bị trinh sát hình sự lần theo và bắt được cách hiện trường vụ án khoảng 3km.
+- Công an Đà Nẵng vừa bắt quả tang một cơ sở sản xuất giấm giả quy mô lớn trên địa bàn.
+- Đám cháy xuất hiện tại nhà kho của Công ty TNHH Cheng V trong Khu công nghiệp Đồ Sơn, sau đó lan rộng với ngọn lửa và cột khói bốc cao hàng chục mét.
+- TP.HCM có văn bản yêu cầu di dời ngay các điểm trông giữ xe ra khỏi phạm vi bảo vệ kết cấu hạ tầng đường bộ trước 30-10. Nhưng thực trạng các gầm cầu khác tại TP.HCM hiện nay ra sao?
+- Còn hơn 5 tháng nữa mới đến Tết Nguyên đán 2026, các hãng bay đã mở bán hàng triệu vé, nhưng giá nhiều chặng khá cao, thậm chí tăng so với năm ngoái.
+- Phòng Cảnh sát kinh tế Công an Đà Nẵng vừa triệt phá thành công đường dây mua bán, vận chuyển khí cười với tổng số tiền giao dịch đến 50 tỉ đồng, thu giữ 734 bình khí nghi vấn là khí cười (N₂O).
+- Từ chỗ là tục lệ thể hiện một nét văn hóa, giật đồ cúng cô hồn giờ biến tướng thành chuyện những 'cô hồn sống' đi tranh cướp đồ cúng.
+- Nửa đêm, Thuận cãi vã với vợ (có con chung nhưng không đăng ký kết hôn) rồi ra tay sát hại nhiều người trong gia đình cô.
 ![New](News.png)
 ## Nhịp sống số 
 - Thông tin sai lệch xoay quanh vụ ám sát nhà hoạt động chính trị Charlie Kirk đang lan truyền rất nhanh, bao gồm thông tin từ chatbot Gork AI của tỉ phú Elon Musk.
