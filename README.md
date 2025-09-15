@@ -1,6 +1,13 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Nhiều phụ huynh có con vào lớp 1 năm học 2025 - 2026 thắc mắc vì sao phải đóng bảo hiểm y tế cho con 15 tháng thay vì 12 tháng.
+- Hội đồng giáo sư ngành kinh tế năm 2025 vừa công bố kết luận phiên họp thứ nhất và danh sách ứng viên được trình bày báo cáo khoa học tổng quan.
+- Cầm những tờ giấy về các khoản thu "tự nguyện" đầu năm học, nhiều phụ huynh dù trong lòng không muốn ký nhưng buộc phải ký vì sợ con bị chuyển lớp, bị cô giáo "đì", bị "tẩy chay"…
+- Các cơ sở giáo dục ở TP.HCM phải rõ ràng các khoản thu, không nhập nhèm để tăng giá thu các môn học theo chương trình nhà trường.
+- Trường cao đẳng Sư phạm trung ương Nha Trang mua vé cho toàn bộ sinh viên của trường xem phim 'Mưa đỏ'.
+- Sở Giáo dục và Đào tạo cho biết 7 giáo viên người Nhật Bản đã được sở này tiếp nhận đến hỗ trợ giảng dạy tiếng Nhật tại các trường của TP.HCM.
+- Một “làn sóng” đề xuất miễn học phí cho bác sĩ nội trú được chia sẻ rầm rộ trên mạng xã hội.
 - Nhiều khán giả cho biết ngay sau tập 1, chương trình “Đầu Bếp Nhí - Little Chef” mang đến nhiều cảm xúc cùng một góc nhìn mới mẻ về căn bếp.
 - Nhiều trường đã thực hiện công văn của Bộ GD-ĐT về việc hướng dẫn tổ chức dạy học 2 buổi/ngày và cho học sinh nghỉ học thứ Bảy.
 - Các trường học và giáo viên đang phải đau đầu để xác định ranh giới giữa việc sử dụng công nghệ hỗ trợ và gian lận học thuật.
@@ -44,15 +51,37 @@
 - Bằng cách học hỏi mô hình '3 trong 1'  ở châu Âu, đại học Việt Nam có thể xây dựng hệ sinh thái sáng tạo, nơi nghiên cứu, đào tạo và doanh nghiệp cùng thúc đẩy tri thức ra thị trường.
 - Tuổi Trẻ ghi nhận một số ý kiến trước khi ngành giáo dục bắt tay làm bộ sách giáo khoa thống nhất này.
 - Trường đại học Y khoa Phạm Ngọc Thạch, TP.HCM vừa công khai chi tiết thu nhập hằng tháng của từng cá nhân trong toàn trường.
-- Ông Hồ Tấn Minh, Chánh Văn phòng Sở Giáo dục và Đào tạo TP.HCM, cho biết dự kiến học sinh TP.HCM sẽ được nghỉ Tết Nguyên đán 2026 hai tuần.
-- Năm học 2025 - 2026, mức đóng bảo hiểm y tế (BHYT) dành cho học sinh, sinh viên tiếp tục giữ nguyên, nhưng mức hỗ trợ từ ngân sách nhà nước đã tăng từ 30% lên tối thiểu 50%.
-- Nhiều tân sinh viên Trường đại học Quốc tế (Đại học Quốc gia TP.HCM) đã quyết định rút hồ sơ chỉ vài ngày sau khi trường công bố kết quả phân ngành.
-- Do hiểu chưa đúng về dạy không quá bảy tiết/ngày, nhiều trường đã cho học sinh học sáng thứ Bảy.
-- Năm học 2025-2026, dịch vụ vệ sinh trường học không nằm trong quy định các khoản thu, mức thu nên các cơ sở giáo dục công lập không được thu khoản thu này.
-- Sở Giáo dục và Đào tạo TP.HCM sẽ ban hành văn bản quy định giờ vào học và tan học của học sinh các cấp, theo đó các trường không được cho học sinh tan học quá sớm.
-- Một học sinh lớp 9 ở Đắk Lắk bị Trường tiểu học, THCS và THPT Victory đuổi học vì đi Hàn Quốc thăm mẹ trong kỳ nghỉ hè, không kịp tựu trường.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Hội nghị Thành ủy TP.HCM lần thứ 4 (mở rộng) sẽ thảo luận, cho ý kiến về dự thảo các văn kiện trình đại hội đại biểu Đảng bộ TP.HCM lần thứ I, nhiệm kỳ 2025 – 2030.
+- Mưa lớn do ảnh hưởng của cơn bão số 5 cuối tháng 8-2025 khiến nhiều khu vực ở phía tây nam của Hà Nội thuộc các khu vực như Nam Từ Liêm, Hà Đông, Hoài Đức, Quốc Oai... bị ngập nặng.
+- Nhiều phụ huynh có con vào lớp 1 năm học 2025 - 2026 thắc mắc vì sao phải đóng bảo hiểm y tế cho con 15 tháng thay vì 12 tháng.
+- Bà Văn Thị Bạch Tuyết - Ủy viên Ban Thường vụ, Trưởng Ban Tổ chức Thành ủy TP.HCM - được chỉ định giữ chức Phó bí thư Thành ủy TP.HCM.
+- Theo nghiên cứu của các nhà khoa học và tổ chức quốc tế, tình trạng sụt lún tại TP.HCM đang diễn biến khá nhanh.
+- Một số tin tức đáng chú ý: Triển lãm thành tựu đất nước sẽ kết thúc vào 16h chiều nay 15-9; Mẹ của chủ tịch Điện Quang muốn bán hết cổ phần; Phẫu thuật thành công ngay tại Côn Đảo cho bệnh nhân bị gãy xương chày...
+- Hôm nay 15-9, thời tiết cả nước có mưa, dự báo mưa to chủ yếu xảy ra vào chiều tối ở miền Nam và đêm đến sáng sớm ở miền Bắc.
+- Dù cảnh sát chữa cháy đến rất nhanh, huy động lực lượng lớn nhưng sau 3 giờ chữa cháy liên tục, đám cháy tại kho phế liệu ở phường Đăk Cấm vẫn đang đỏ rực.
+- Ban Chỉ đạo Trung ương yêu cầu các cấp ủy, cơ quan tiếp tục thực hiện việc tinh gọn bộ máy và nghiên cứu, đề xuất thực hiện sắp xếp đơn vị sự nghiệp, trường học, cơ sở y tế, doanh nghiệp nhà nước.
+- Hội đồng quản trị (HĐQT) Sacombank muốn sửa điều lệ ngân hàng để người đại diện theo pháp luật có thể là tổng giám đốc hoặc chủ tịch HĐQT trong trường hợp khuyết vị trí tổng giám đốc. Song bất ngờ, cổ đông không tán thành.
+- Bắt đầu từ tháng 12-2025, hành khách đi máy bay nội địa sẽ không còn cảnh chen chúc ở quầy check-in. Theo chỉ đạo mới nhất của Thủ tướng Chính phủ, chỉ những hành khách có hành lý ký gửi và hành khách đặc biệt mới cần làm thủ tục tại quầy.
+- UBND tỉnh vừa giao Ban quản lý dự án đầu tư xây dựng các công trình giao thông tỉnh làm "chủ công" trong công tác giải phóng mặt bằng đường sắt tốc độ cao Bắc - Nam đoạn qua tỉnh.
+- Hiện các khối mây dông đang gây mưa cho khu vực Bình Dương (cũ) và Tây Ninh mở rộng về trung tâm TP.HCM, dự báo tối nay có nơi mưa to.
+- Ngày 14-9, mạng xã hội đang lan truyền đoạn clip ghi lại cảnh cụ ông bị nam thanh niên dùng tay đánh tới tấp vào mặt. Hiện lực lượng chức năng đang tiến hành xác minh, mời những người liên quan lên làm việc.
+- Họp mặt truyền thống kỷ niệm 58 năm ngày Củ Chi được phong tặng danh hiệu "Đất thép thành đồng” là một trong chuỗi những hoạt động nhằm tỏ lòng biết ơn sâu sắc, trân trọng đối với sự cống hiến, hy sinh to lớn của các thế hệ cha anh.
+- Thủ tướng yêu cầu từ 1-12 hành khách đi máy bay chỉ làm thủ tục tại quầy nếu có hành lý ký gửi hoặc thuộc diện đặc biệt.
+- Tuần qua có nhiều vấn đề được bạn đọc quan tâm, trong đó tập trung đề xuất thu hồi bằng tiến sĩ do đạo văn; Áp dụng giá điện 2 thành phần...
+- Thủ tướng Phạm Minh Chính vừa ký Chỉ thị số 24 về việc thúc đẩy triển khai các giải pháp công nghệ phục vụ người dân và doanh nghiệp.
+- Vụ thảm án ở phường Thành Nhất (Đắk Lắk) hôm 13-9 không chỉ cướp đi 3 mạng người, mà còn để lại nỗi đau cho cả hai gia đình.
+- Lối đi dành cho người khuyết tật không chỉ là một công trình, mà còn là thước đo về sự công bằng, văn minh và tiến bộ của một xã hội.
+- Tổng Bí thư Tô Lâm dự lễ đón nhận Huân chương Hồ Chí Minh và kỷ niệm 80 năm ngày truyền thống Thông tấn xã Việt Nam.
+- Cháu bé cứu bạn trong vụ thảm án ở Đắk Lắk hôm 13-9 cho biết lúc đó rất sợ nhưng vẫn liều mình vì nếu không, bạn sẽ nguy hiểm.
+- 3 học sinh tiểu học đi tắm sông Ba thuộc xã Đức Bình (Đắk Lắk) thì bị đuối nước. Người dân cứu sống 1 em, vớt được thi thể 2 em chết đuối.
+- Bộ Nội vụ đề xuất Hà Nội và TP.HCM là đơn vị hành chính loại đặc biệt, các thành phố trực thuộc trung ương là đơn vị hành chính loại I.
+- Theo dự báo, đỉnh lũ khu vực đầu nguồn tỉnh Đồng Tháp sẽ xuất hiện vào đầu tháng 10, trùng với đợt triều cường từ ngày 8 đến 10-10.
+- Tuần này thời tiết mưa vẫn duy trì, mưa to đến rất to xuất hiện ở nhiều nơi, cảnh báo lũ trên các sông suối, sạt lở đồi núi.
+- Tổng Thanh tra Chính phủ đã có quyết định đình chỉ thanh tra đối với 6 dự án về hạ tầng ở TP.HCM.
+- Sau sáp nhập, liệu đơn hàng giao đến Bình Dương hay Bà Rịa - Vũng Tàu có được xem là freeship nội thành TP.HCM?
+- Sau sự cố lộ dữ liệu cá nhân của Trung tâm Thông tin tín dụng quốc gia (CIC), chiêu trò lừa đảo "ăn theo sự kiện" đã bắt đầu xuất hiện.
 - Tin tức đáng chú ý: Đề xuất bỏ tem nộp phí sử dụng đường bộ; Trái phiếu phát hành ra công chúng tăng kỷ lục...
 - Hôm nay 14-9, thời tiết Nam Bộ tiếp tục mưa to, vùng biển phía Nam mưa dông do hoạt động của rãnh áp thấp.
 - Lãnh đạo tỉnh Đồng Nai chỉ đạo kiểm tra, xử lý các nhà thầu vi phạm khi thi công dự án cao tốc Biên Hòa - Vũng Tàu gây ngập úng nhà dân.
@@ -74,37 +103,10 @@
 - Tổng Bí thư Tô Lâm, Thủ tướng Phạm Minh Chính, Chủ tịch Quốc hội Trần Thanh Mẫn và nhiều lãnh đạo dự hội nghị chuyên đề 'Bình dân học vụ số - Quốc hội số: Khung kiến thức, kỹ năng số cho Quốc hội hiện đại'.
 - Công an tỉnh Thanh Hóa vừa có thông báo về việc tạm hoãn xuất cảnh đối với ông Đỗ Trọng Hưng, 54 tuổi, nơi cư trú hiện nay tại phường Đông Quang, tỉnh Thanh Hóa.
 - Chính quyền xã Biển Hồ (Gia Lai) đang xác minh việc một số cá nhân tự ý đưa máy móc lên san ủi đất, tại khu vực đường lên núi Chư Nâm.
-- Sở Xây dựng Hà Nội sẽ điều chỉnh tổ chức giao thông trên cầu Nhật Tân, để phục vụ thi công hạng mục giá long môn và thi công hạng mục hàng rào phân làn các loại xe cộ trên cầu.
-- Thuê người đến cúp cầu dao điện, tháo camera ở một resort, một người ở đặc khu Phú Quốc bị Công an tỉnh An Giang đề nghị truy tố về tội xâm phạm chỗ ở người khác.
-- Khi bị bắt, nghi phạm sát hại cả gia đình vợ, gây thảm án tại Đắk Lắk bị công an lục soát, phát hiện nhiều tép ma túy chưa sử dụng và có biểu hiện 'thiếu thuốc', xin được dùng 'cho đỡ vã'.
-- Ông Phan Tấn Cảnh - Bí thư Đảng ủy xã Vĩnh Hải, tỉnh Khánh Hòa, nguyên Phó chủ tịch UBND tỉnh Ninh Thuận (cũ) - vừa nộp đơn xin nghỉ công tác.
-- Tổng Bí thư Tô Lâm yêu cầu tập trung nâng cao chất lượng, hiệu quả hoạt động xét xử của tòa án các cấp. Đây là nhiệm vụ trung tâm của ngành tòa án, cũng là nhiệm vụ trung tâm của cải cách tư pháp.
-- Theo phương án quy hoạch, đến năm 2050 sân bay Vân Đồn sẽ có thêm đường băng thứ hai và công suất khai thác được nâng lên 20 triệu khách/năm.
-- Tập đoàn Sơn Hải xây dựng một tuyến đường làng chất lượng tương đương đường… cao tốc tặng hai thôn tại tỉnh Quảng Trị.
-- Ngày 13-9, tại phường Bình Trưng, TP.HCM diễn ra lễ phát động phong trào xây dựng 'Bình Trưng muôn sắc hoa' và ra mắt mô hình 'Tuần tra xanh' năm 2025 bằng xe điện. Đây là mô hình đầu tiên trên cả nước.
-- Nghe tiếng gõ cửa kêu cứu, bé trai hàng xóm mở cửa sau và đưa được nạn nhân 12 tuổi vào nhà rồi khóa chặt cửa, dù hung thủ nhiều lần đập cửa uy hiếp.
-- Nhà báo Nguyễn Thị Hằng Nga - nguyên Tổng biên tập báo Người Lao Động, nguyên Đại biểu Quốc hội, nguyên Chủ tịch Hội Nhà báo TP.HCM, nguyên Phóng viên báo Tuổi Trẻ - vừa qua đời, hưởng thọ 77 tuổi.
-- Mùa nước nổi về, đường biên giới An Giang, Đồng Tháp giáp với Campuchia ngập màu trắng xóa. Các đối tượng xấu lợi dụng thời điểm này để buôn lậu trái phép. Bộ đội biên phòng làm gì để siết chặt tình trạng trên?
-- Xe đạp điện bất ngờ lao tới tông vào bức tường trong khuôn viên trường, khiến nam sinh bị thương nặng và tử vong sau đó.
-- Do gió mùa tây nam tăng cường độ, rãnh áp thấp mạnh lên cùng với hội tụ gió duy trì khiến thời tiết miền Nam hôm nay mưa sớm, có nơi mưa lớn.
-- Sáng 13-9, Cục Gìn giữ hòa bình Việt Nam phối hợp cùng Bệnh viện Quân y 175 tổ chức lễ dâng hương phát động phong trào thi đua lập công dâng Bác, trước khi lên đường làm nhiệm vụ gìn giữ hòa bình tại Nam Sudan.
-- Viện Quy hoạch xây dựng TP Huế đã bị Sở Tài chính ra quyết định xử phạt 10 triệu đồng vì tự ý tháo dỡ, xử lý tài sản công, biến trụ sở được Nhà nước giao quản lý thành nơi bị bỏ hoang, hút chích ma túy.
-- UBND TP.HCM vừa ban hành quyết định quy định về các trường hợp có nhà ở nhưng vẫn được xem xét hưởng chính sách hỗ trợ về nhà ở xã hội.
-- Buổi họp phụ huynh học sinh đầu năm học hiện nay đa phần trọng tâm là 100% phụ huynh ký tên đồng thuận các khoản thu của nhà trường...
-- Hơn 1.300 học sinh Trường THCS Phước Tân 1 (phường Phước Tân, tỉnh Đồng Nai) nghỉ học để dọn dẹp, vệ sinh sau khi nước lũ tràn vào.
-- Bé trai sống sót trong vụ thảm án tại Đắk Lắk đã được đưa vào bệnh viện cấp cứu trong tình trạng đa chấn thương, trong đó có vết thương thấu ngực. Sau phẫu thuật, tình trạng sức khỏe nạn nhân tạm ổn định.
-- Trải qua hơn một thập niên xây dựng, đến nay bệnh viện Việt Đức và Bạch Mai cơ sở 2 bước vào giai đoạn cuối cùng để đưa vào vận hành từ tháng 11-2025 theo chỉ đạo của Phó thủ tướng Lê Thành Long.
-- Tập đoàn Vingroup đã đệ đơn kiện chủ tài khoản Facebook Hiền Nguyễn (Yến Sào Yến Đan) có 409.000 người theo dõi lên Tòa cấp cao của California thuộc Los Angeles (Mỹ).
-- Nghi phạm vụ thảm án tại Đắk Lắk mặc áo chống nắng của phụ nữ, bịt mặt để ngụy trang trên đường bỏ trốn, nhưng đã bị trinh sát hình sự lần theo và bắt được cách hiện trường vụ án khoảng 3km.
-- Công an Đà Nẵng vừa bắt quả tang một cơ sở sản xuất giấm giả quy mô lớn trên địa bàn.
-- Đám cháy xuất hiện tại nhà kho của Công ty TNHH Cheng V trong Khu công nghiệp Đồ Sơn, sau đó lan rộng với ngọn lửa và cột khói bốc cao hàng chục mét.
-- TP.HCM có văn bản yêu cầu di dời ngay các điểm trông giữ xe ra khỏi phạm vi bảo vệ kết cấu hạ tầng đường bộ trước 30-10. Nhưng thực trạng các gầm cầu khác tại TP.HCM hiện nay ra sao?
-- Còn hơn 5 tháng nữa mới đến Tết Nguyên đán 2026, các hãng bay đã mở bán hàng triệu vé, nhưng giá nhiều chặng khá cao, thậm chí tăng so với năm ngoái.
-- Phòng Cảnh sát kinh tế Công an Đà Nẵng vừa triệt phá thành công đường dây mua bán, vận chuyển khí cười với tổng số tiền giao dịch đến 50 tỉ đồng, thu giữ 734 bình khí nghi vấn là khí cười (N₂O).
-- Từ chỗ là tục lệ thể hiện một nét văn hóa, giật đồ cúng cô hồn giờ biến tướng thành chuyện những 'cô hồn sống' đi tranh cướp đồ cúng.
-- Nửa đêm, Thuận cãi vã với vợ (có con chung nhưng không đăng ký kết hôn) rồi ra tay sát hại nhiều người trong gia đình cô.
 ![New](News.png)
 ## Nhịp sống số 
+- Nội dung rác do trí tuệ nhân tạo (AI) tạo ra đang lan rộng trên mạng xã hội, gây lo ngại ảnh hưởng tiêu cực đến não bộ người dùng.
+- Các trường học và giáo viên đang phải đau đầu để xác định ranh giới giữa việc sử dụng công nghệ hỗ trợ và gian lận học thuật.
 - Thông tin sai lệch xoay quanh vụ ám sát nhà hoạt động chính trị Charlie Kirk đang lan truyền rất nhanh, bao gồm thông tin từ chatbot Gork AI của tỉ phú Elon Musk.
 - Trợ lý ảo dần trở thành lựa chọn đầu tiên khi người dùng tìm kiếm thông tin. Liệu Google Search có còn duy trì vị thế trung tâm hay phải thích ứng trước sự thay đổi này?
 - Thời gian gần đây, trên mạng xã hội xuất hiện nhiều video 'ép' chatbot phải thực hiện lệnh đếm số từ 1 tới 1 triệu. Chuyên gia nhận định đây chỉ là một hành động giải trí vô nghĩa và ảnh hưởng lớn tới nhà phát hành.
@@ -153,6 +155,4 @@
 - Từ lỗ hổng này, tin tặc có thể khiến ChatGPT gợi ý người dùng tải về phần mềm chứa vi rút, đưa ra lời khuyên kinh doanh sai lệch, thậm chí truy cập các tệp tin trên Google Drive...
 - Nắm rõ một số dấu hiệu cảnh báo, phát hiện và sửa chữa càng sớm càng tốt khi bị hack điện thoại giúp hạn chế thiệt hại.
 - Thông tin rò rỉ về các sản phẩm trong series iPhone 17, dự kiến ra mắt vào tháng 9-2025, tiếp tục được nhiều nguồn uy tín tung ra.
-- Công nghệ có thể truyền tải tri thức nhanh hơn, rẻ hơn. Nhưng khi AI trở thành 'thầy', liệu giá trị sáng tạo, trải nghiệm thực tế có đang bị thuật toán hóa thành những khuôn mẫu vô hồn?
-- Khi AI trả lời mọi thứ chỉ trong vài giây, người dùng không cần nhấp chuột truy cập trang web gốc. Điều này tạo ra cuộc khủng hoảng với các trang web sống nhờ lượt truy cập.
 ![life](Life.png)
