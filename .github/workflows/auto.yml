@@ -30,7 +30,7 @@ jobs:
       - name: Commit changes
         run: |
           git config --local user.email "khoaht.uit@gmail.com"
-          git config --local user.name "khoaht312"
+          git config --local user.name "ted52hz"
           git add -A
           
           arr[0]="🍀 = 100%"
