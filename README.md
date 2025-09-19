@@ -1,6 +1,7 @@
 # Tuoi Tre RSS 
 
 ## Giáo dục 
+- Tại hội nghị giáo dục đại học tổ chức ngày 18-9, Bộ GD-ĐT gửi phiếu thăm dò ý kiến về hai vấn đề liên quan tới tuyển sinh.
 - TP.HCM dự kiến từ tháng 10-2025 đến hết học kỳ 1 năm học 2025-2026 sẽ thực hiện thí điểm giờ ra chơi không điện thoại tại 16 trường.
 - Bộ Giáo dục và Đào tạo cho biết việc đẩy mạnh tự chủ trong các cơ sở giáo dục đại học công lập thời gian qua đã tạo động lực quan trọng giúp các trường chú trọng nâng cao chất lượng đội ngũ giảng viên.
 - Sở Giáo dục và Đào tạo Hà Nội yêu cầu các trường công khai thực đơn bữa ăn bán trú, nguồn gốc thực phẩm chế biến.
@@ -50,9 +51,11 @@
 - Ông Trần Lưu Quang cho biết từ ngày về làm Bí thư Thành ủy TP.HCM, ông nhận được 12 tin nhắn phản ánh việc học sinh phải đi học thêm ngày thứ Bảy. Ông Quang hỏi rõ Giám đốc Sở Giáo dục và Đào tạo TP.HCM việc này.
 - Việc Sở GD-ĐT TP.HCM ban hành khung giờ vào học, tan học đối với các trường mầm non, phổ thông trên địa bàn đã khiến nhiều phụ huynh vỡ òa vì vui mừng. Nhất là những phụ huynh phải đi làm theo giờ hành chính.
 - Năm 2026, Đại học Bách khoa Hà Nội dự kiến tổ chức 3 đợt thi với khoảng 60.000 lượt thi, trong đó đợt thi đầu tiên bắt đầu từ cuối tháng 1-2026.
-- Nhiều phụ huynh có con vào lớp 1 năm học 2025 - 2026 thắc mắc vì sao phải đóng bảo hiểm y tế cho con 15 tháng thay vì 12 tháng.
 ![Edu](Edu.png)
 ## Thời Sự 
+- Kể từ 1-10, 25 dịch vụ công thiết yếu đến đời sống của người dân sẽ chính thức chuyển sang hình thức trực tuyến theo chỉ đạo của Chính phủ.
+- Ông Lê Minh Ngân, Phó bí thư thường trực Tỉnh ủy Lai Châu, được bầu giữ chức Bí thư Tỉnh ủy Lai Châu nhiệm kỳ 2025-2030.
+- Đồng Nai chỉ đạo đến cuối năm 2025 đơn vị nào không đạt kết quả giải ngân vốn đầu tư công tỉnh sẽ điều chuyển, cách chức người đứng đầu.
 - Tin tức đáng chú ý: TP.HCM đề xuất 66.000 tỉ cho 100 dự án y tế giai đoạn năm 2026 - 2030; Hà Nội nghi có rau lạ vào trường học, tiến hành kiểm tra đột xuất bếp ăn bán trú; Ủy ban Chứng khoán không chấp nhận báo cáo tài chính kiểm toán của Timexco...
 - Hôm nay 19-9, thời tiết cả đất liền và trên biển đều xấu, trời mưa dông kèm gió giật, người dân cần chú ý.
 - Trước thềm chuyến công tác tới Mỹ, Chủ tịch nước Lương Cường đã tiếp bà Pauline Tamesis, Điều phối viên thường trú Liên hợp quốc.
@@ -100,9 +103,6 @@
 - Nhà máy nhiệt điện Vũng Áng II sử dụng công nghệ lò hơi siêu tới hạn tiên tiến nhất, cùng hệ thống giảm phát thải được sử dụng rộng rãi tại Nhật Bản và Hàn Quốc.
 - Ban Thường vụ Tỉnh ủy Khánh Hòa thông báo đến các cơ quan, địa phương, đơn vị về việc không nhận hoa chúc mừng Đại hội đại biểu Đảng bộ tỉnh lần thứ I, nhiệm kỳ 2025 - 2030.
 - Trong suốt 24 năm, Steve Koyle là bạn đồng hành với những con voi ở tám quốc gia. Tuổi Trẻ đã có cuộc trò chuyện với ông về hành trình này.
-- Dự án đường liên phường Thới An - Thạnh Xuân dài gần 4,5km, vốn hơn 3.500 tỉ đồng, sẽ tạo trục giao thông mới cho cửa ngõ Tây Bắc TP.HCM.
-- Sáng 18-9, Quân khu 7 tổng kết nhiệm vụ tìm kiếm, quy tập hài cốt, xác định hài cốt liệt sĩ còn thiếu thông tin giai đoạn 2021 - 2025.
-- Phòng Cảnh sát giao thông Công an TP.HCM triển khai 19 đội/trạm áp dụng đóng phạt chuyển khoản qua QR Code.
 ![New](News.png)
 ## Nhịp sống số 
 - Chỉ sau ít tuần phát hành, Nano Banana đã giúp Gemini vượt qua ChatGPT, trở thành ứng dụng dẫn đầu bảng xếp hạng trên App Store.
